@@ -1,56 +1,55 @@
-# 韩国Kospi指数创历史新高，亚洲市场涨跌互现，油价飙升与伊朗风险牵动市场
+# 联想集团早盘高开近8% 第四财季收入创新高AI营收占比升至38%
 
-> 更新时间：2026-06-30 02:49:31 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-核心要点 韩国综合股价指数（Kospi）周一再创历史新高，在油价上涨、美伊紧张局势升级背景下，领涨亚太市场。 然而，美国总统特朗普拒绝伊朗提出的最新停战提案，引发市场对中东冲突长期化的担忧。 伊朗向美国谈判代表提交了一份旨在结束中东冲突的新提案。伊朗半官方媒体塔斯尼姆通讯社援引知情消息人士称，该反提案要求全面结束各战线战争并解除对伊制裁。 但特朗普周日晚间在 “真实社交” 平台
+联想集团（00992）早盘高开近8%，截至发稿，股价上涨7.76%，现报14.17港元，成交额7.08亿港元。 联想集团今早公布截至2026年3月31日的2025/26财年第四季度及全年业绩。集团全年收入同比增长20%，创831亿美元新高。剔除一次性重组费用、认股权证的非现金公允值收益、可换股债券的名义利息及其他非现金项目的影响后，经调整权益持有人应占溢利同比增长42%至20亿
 
 ## 正文
 
-核心要点 韩国综合股价指数（Kospi）周一再创历史新高，在油价上涨、美伊紧张局势升级背景下，领涨亚太市场。
+联想集团（00992）早盘高开近8%，截至发稿，股价上涨7.76%，现报14.17港元，成交额7.08亿港元。
 
-然而，美国总统特朗普拒绝伊朗提出的最新停战提案，引发市场对中东冲突长期化的担忧。
+联想集团今早公布截至2026年3月31日的2025/26财年第四季度及全年业绩。
 
-伊朗向美国谈判代表提交了一份旨在结束中东冲突的新提案。
+集团全年收入同比增长20%，创831亿美元新高。
 
-伊朗半官方媒体塔斯尼姆通讯社援引知情消息人士称，该反提案要求全面结束各战线战争并解除对伊制裁。
+剔除一次性重组费用、认股权证的非现金公允值收益、可换股债券的名义利息及其他非现金项目的影响后，经调整权益持有人应占溢利同比增长42%至20亿美元。
 
-但特朗普周日晚间在 “真实社交” 平台发文称，他不接受伊朗的回应，并称其 “完全不可接受！
+于第四财季，收入达到216亿美元的历史新高，同比增长27%，创下过去五年来最高增速；经调整权益持有人应占溢利增至5.59亿美元，同比增长101%。
 
-” 此外，以色列总理本雅明・内塔尼亚胡周日表示，与伊朗的战争 “尚未结束”，美以仍致力于遏制伊朗核野心。
+人工智能相关收入同比增长84%，占集团总收入的38%。
 
-内塔尼亚胡发表此番言论之际，特朗普将于本周晚些时候访华。
-
-当前战争及伊朗随后封锁霍尔木兹海峡的举动，已推高全球能源成本，并导致美国汽油价格大幅上涨。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:27 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 02:30 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 02:48 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 02:21 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 02:23 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 02:22 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 02:32 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 02:21 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 02:30 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 02:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 02:38 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 02:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 02:48 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 02:51 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 02:38 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 02:52 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 02:46 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 02:30 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 02:45 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 02:30 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 02:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/219840180510.shtml)
-- 2026-06-30 02:47 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/65985501.shtml)
-- 2026-06-30 02:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/47046212.shtml)
-- 2026-06-30 02:44 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/44962.shtml)
-- 2026-06-30 02:38 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/624121.shtml)
-- 2026-06-30 02:44 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/65846.shtml)
-- 2026-06-30 02:44 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/58420620719.shtml)
-- 2026-06-30 02:46 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/860247.shtml)
-- 2026-06-30 02:44 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/039088349955.shtml)
-- 2026-06-30 02:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/94373237901.shtml)
-- 2026-06-30 02:30 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/75230991.shtml)
-- 2026-06-30 02:24 - [日本领先巴西](http://www.blog.minike.top/Article/details/29615583032.shtml)
-- 2026-06-30 02:24 - [扬名立万](http://www.blog.minike.top/Article/details/589701.shtml)
-- 2026-06-30 02:37 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/8939414.shtml)
-- 2026-06-30 02:29 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/85459312144.shtml)
+- 2026-06-30 02:38 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/091172.shtml)
+- 2026-06-30 02:52 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/28764795121.shtml)
+- 2026-06-30 02:25 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/204810341.shtml)
+- 2026-06-30 02:27 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/669545083426.shtml)
+- 2026-06-30 02:44 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/19340030688.shtml)
+- 2026-06-30 02:34 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/471797.shtml)
+- 2026-06-30 02:35 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/28446429.shtml)
+- 2026-06-30 02:50 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/9181536548.shtml)
+- 2026-06-30 02:48 - [毒液2](https://www.share.kurohicncr.top/Article/details/96156280710.shtml)
+- 2026-06-30 02:34 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/78970447.shtml)
+- 2026-06-30 02:49 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/763098802953.shtml)
+- 2026-06-30 02:41 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/8772214299.shtml)
+- 2026-06-30 02:24 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/213881.shtml)
+- 2026-06-30 02:24 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/14216.shtml)
+- 2026-06-30 02:36 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/278230406.shtml)

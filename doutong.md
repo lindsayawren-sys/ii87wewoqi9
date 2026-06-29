@@ -1,56 +1,60 @@
-# 数亿人高铁途中学避险？防震科普还是太先进了！
+# 多元化医疗信托将出席Nareit 2026年REITweek投资者大会
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月12日电 刷着朋友圈，就能学怎么防震？坐着高铁，就能学怎么避险？ 今年5月12日是第18个全国防灾减灾日，记者从中国地震台网中心获悉，围绕“人人讲安全、个个会应急——提高防灾减灾救灾能力”这一主题，中国地震台网中心创新科普传播模式，联合微信团队和国铁集团，同步推出微信朋友圈精准推送、高铁电视全域播放两项举措，构建起“移动端触达常住人群、高铁网络覆盖流动人群”的立体
+多元化医疗信托公司（Diversified Healthcare Trust）宣布，公司总裁兼首席执行官Chris Bilotto及首席财务官兼财务主管Matthew Brown将于2026年6月2日出席在纽约举行的Nareit REITweek 2026投资者大会，并于美国东部时间下午1时45分进行专题演讲。 投资者可通过公司官网投资者关系页面收听演讲直播，建议于会议开始前约
 
 ## 正文
 
-中新网北京5月12日电 刷着朋友圈，就能学怎么防震？
+多元化医疗信托公司（Diversified Healthcare Trust）宣布，公司总裁兼首席执行官Chris Bilotto及首席财务官兼财务主管Matthew Brown将于2026年6月2日出席在纽约举行的Nareit REITweek 2026投资者大会，并于美国东部时间下午1时45分进行专题演讲。
 
-坐着高铁，就能学怎么避险？
+投资者可通过公司官网投资者关系页面收听演讲直播，建议于会议开始前约15分钟访问网站。
 
-今年5月12日是第18个全国防灾减灾日，记者从中国地震台网中心获悉，围绕“人人讲安全、个个会应急——提高防灾减灾救灾能力”这一主题，中国地震台网中心创新科普传播模式，联合微信团队和国铁集团，同步推出微信朋友圈精准推送、高铁电视全域播放两项举措，构建起“移动端触达常住人群、高铁网络覆盖流动人群”的立体化地震科普网络。
+DHC近期公布的2026年第一季度财报表现强劲，调整后营运资金为每股0.14美元，远超市场预期，调整后EBITDAre达7400万美元。
 
-大数据锁定风险地区精准推送 5月12日当天，国内地震多发地区的微信用户，可能会刷到一条特殊的朋友圈公益广告，内容是一段精心策划制作的防震避险科普短视频及地震预警微信小程序推广传播。
+公司旗下老年住宅运营组合的同店净营业收入同比增长13.5%，入住率提升至82.4%，平均月租金上涨5.9%。
 
-记者从中国地震台网中心了解到，这是中国地震台网中心联合微信平台，利用大数据定向技术，对地震多发区域进行的精准推送。
+截至2026年3月31日，DHC投资组合估值约62亿美元，涵盖285处物业，分布于33个州及华盛顿特区，包括23，901套老年住宅单元及约560万平方英尺的医疗办公与生命科学物业。
 
-据悉，相较于线下宣讲、传统推文等科普形式，微信朋友圈短视频推送摒弃了传统的无差别推送模式，能够精准聚焦地震频发、地质薄弱的高风险区域，传播精准度与实效性更强。
+公司由RMR集团管理，该集团管理资产逾370亿美元。
 
-依托大众化社交场景，推送内容贴合公众碎片化观看习惯，将有效扩大防震科普影响力，推动避险知识入脑入心，凝聚全民防灾共治合力。
+此次会议为DHC展示其战略转型成果、解读行业趋势及回应投资者关切提供了重要平台。
 
-亿级客流在高铁途中学习避险 整个5月份，全国所有高铁列车车载电视及高铁站候车大屏，都将滚动播放地震避险指南。
+市场关注管理层将就老年住房需求、资本配置及资产负债表改善等议题发表的最新看法。
 
 ## 相关推荐
 
-- 2026-06-30 02:32 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 02:33 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 02:38 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 02:35 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 02:20 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 02:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 02:35 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 02:36 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 02:49 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 02:21 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 02:28 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 02:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 02:47 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 02:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 02:25 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 02:33 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 02:26 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 02:39 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 02:24 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 02:53 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 02:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 02:50 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 02:41 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 02:38 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/6811949526.shtml)
-- 2026-06-30 02:21 - [美人鱼](https://www.share.kurohicncr.top/Article/details/7365326338.shtml)
-- 2026-06-30 02:19 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/27225259346.shtml)
-- 2026-06-30 02:28 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/05385.shtml)
-- 2026-06-30 02:31 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/622523990.shtml)
-- 2026-06-30 02:30 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/31580773640.shtml)
-- 2026-06-30 02:44 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/25891.shtml)
-- 2026-06-30 02:31 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/431275329.shtml)
-- 2026-06-30 02:22 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/93688.shtml)
-- 2026-06-30 02:39 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/396001985.shtml)
-- 2026-06-30 02:30 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/069106818.shtml)
-- 2026-06-30 02:40 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/347910670.shtml)
-- 2026-06-30 02:36 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/99159254.shtml)
-- 2026-06-30 02:29 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/3513972839.shtml)
-- 2026-06-30 02:21 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/31283329.shtml)
+- 2026-06-30 02:49 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/8280594.shtml)
+- 2026-06-30 02:34 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/572164550292.shtml)
+- 2026-06-30 02:48 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/697226451.shtml)
+- 2026-06-30 02:43 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/20633710078.shtml)
+- 2026-06-30 02:30 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/78665.shtml)
+- 2026-06-30 02:27 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/276387.shtml)
+- 2026-06-30 02:31 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/277494.shtml)
+- 2026-06-30 02:29 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/8744171.shtml)
+- 2026-06-30 02:49 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/3684718430.shtml)
+- 2026-06-30 02:35 - [沉睡花园](http://www.blog.minike.top/Article/details/023110545800.shtml)
+- 2026-06-30 02:51 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/6219132831.shtml)
+- 2026-06-30 02:44 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/995547.shtml)
+- 2026-06-30 02:45 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/03672445023.shtml)
+- 2026-06-30 02:37 - [扬名立万](http://www.blog.minike.top/Article/details/08225076674.shtml)
+- 2026-06-30 02:45 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/21931928364.shtml)

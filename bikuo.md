@@ -1,57 +1,58 @@
-# 巴西4月通胀率符合预期，货币政策走向受地缘风险挑战
+# 商务部：如欧方执意对中国企业或产品采取歧视性限制措施 中方将坚决反制
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-巴西国家地理统计局（IBGE）周二发布的数据显示，受食品价格波动及地缘局势影响，巴西4月通胀水平出现回升，但仍处于该国央行设定的目标区间内，基本符合市场预期。 数据显示，巴西4月年化通胀率为4.39%，较上月的4.14%有所上升，与路透社此前调查的4.40%预期值基本持平。从环比来看，4月消费者物价指数（CPI）上涨0.67%，较3月0.88%的涨幅有所放缓。 在细分领域中，食
+中新网5月21日电 商务部21日召开例行新闻发布会。会上有记者提问，近日有媒体报道，欧委会正在抓紧制定一项新贸易工具，以应对中国“产能过剩”问题。请问中方对此有何评论？ 商务部新闻发言人何亚东表示，我们注意到了相关报道。关于所谓“产能过剩”问题，中方此前已多次阐明了立场。在全球化的大背景下，应尊重经济规律和市场原则，客观、全面、长远地看待产能问题。如果因为存在贸易顺差，就贴上“
 
 ## 正文
 
-巴西国家地理统计局（IBGE）周二发布的数据显示，受食品价格波动及地缘局势影响，巴西4月通胀水平出现回升，但仍处于该国央行设定的目标区间内，基本符合市场预期。
+中新网5月21日电 商务部21日召开例行新闻发布会。
 
-数据显示，巴西4月年化通胀率为4.39%，较上月的4.14%有所上升，与路透社此前调查的4.40%预期值基本持平。
+会上有记者提问，近日有媒体报道，欧委会正在抓紧制定一项新贸易工具，以应对中国“产能过剩”问题。
 
-从环比来看，4月消费者物价指数（CPI）上涨0.67%，较3月0.88%的涨幅有所放缓。
+请问中方对此有何评论？
 
-在细分领域中，食品和饮料价格上涨1.34%，成为推高当月通胀的主要因素。
+商务部新闻发言人何亚东表示，我们注意到了相关报道。
 
-交通运输成本在3月因伊朗相关地缘冲突引发国际油价飙升而剧烈波动后，于4月趋于平稳。
+关于所谓“产能过剩”问题，中方此前已多次阐明了立场。
 
-目前，巴西央行设定的通胀目标为3%，上下浮动区间为1.5个百分点。
+在全球化的大背景下，应尊重经济规律和市场原则，客观、全面、长远地看待产能问题。
 
-尽管当前的通胀水平仍在该区间内，但决策层对潜在风险保持高度警惕。
+如果因为存在贸易顺差，就贴上“产能过剩”的标签，那欧盟出口的汽车、药品、葡萄酒、化妆品是不是都存在“产能过剩”？
 
-在4月的议息会议上，巴西央行已连续第二次将基准利率下调25个基点至14.50%，但由于美、以与伊朗的军事冲突持续僵持，通胀上行风险增加，央行对6月中旬的后续政策动向持开放态度。
+我们关注到，有关国家正在调查欧盟的“产能过剩”问题，欧盟更不应在此种情况下采取双重标准。
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 02:41 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 02:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 02:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 02:24 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 02:33 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 02:40 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 02:39 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 02:44 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 02:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 02:43 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 02:46 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 02:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 02:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 02:50 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 02:44 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 02:29 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 02:45 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 02:27 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-30 02:47 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 02:27 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 02:41 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 02:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/5012010.shtml)
-- 2026-06-30 02:46 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/8743180138.shtml)
-- 2026-06-30 02:27 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/078632904417.shtml)
-- 2026-06-30 02:45 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/19408311767.shtml)
-- 2026-06-30 02:30 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/67578673145.shtml)
-- 2026-06-30 02:24 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/63613.shtml)
-- 2026-06-30 02:46 - [急先锋](https://www.blog.kurohicncr.top/Article/details/791004.shtml)
-- 2026-06-30 02:33 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/5132734.shtml)
-- 2026-06-30 02:24 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/7437505596.shtml)
-- 2026-06-30 02:42 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/218219.shtml)
-- 2026-06-30 02:46 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/26752.shtml)
-- 2026-06-30 02:21 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/85061853303.shtml)
-- 2026-06-30 02:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/9896773203.shtml)
-- 2026-06-30 02:21 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/799140369.shtml)
-- 2026-06-30 02:19 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/021221624307.shtml)
+- 2026-06-30 02:52 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/98122.shtml)
+- 2026-06-30 02:41 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/08131099693.shtml)
+- 2026-06-30 02:39 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/1409092422.shtml)
+- 2026-06-30 02:34 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/030009771395.shtml)
+- 2026-06-30 02:45 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/965408.shtml)
+- 2026-06-30 02:34 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/4239931.shtml)
+- 2026-06-30 02:51 - [一见倾心](http://www.share.kurohicncr.top/Article/details/44085374886.shtml)
+- 2026-06-30 02:36 - [恋与深空 日服](http://www.share.minike.top/Article/details/04385.shtml)
+- 2026-06-30 02:53 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/171012075833.shtml)
+- 2026-06-30 02:31 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/66270438.shtml)
+- 2026-06-30 02:51 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/58415.shtml)
+- 2026-06-30 02:46 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/73517.shtml)
+- 2026-06-30 02:31 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/01530.shtml)
+- 2026-06-30 02:29 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/19396.shtml)
+- 2026-06-30 02:40 - [起风了](http://www.blog.kurohicncr.top/Article/details/83810294.shtml)

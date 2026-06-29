@@ -1,57 +1,50 @@
-# 联合航空将恢复飞往委内瑞拉航线
+# 中集集团:美国司法部指控公司及部分高管谋划限制特定非冷藏运输集装箱的产量并操纵价格
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-联合航空曾运营美委航线超 20 年，2017 年 6 月停飞 这家航司于周二表示，在获得政府批准的前提下，将于 8 月 11 日起，恢复休斯顿乔治・布什洲际机场至加拉加斯西蒙・玻利瓦尔国际机场的每日直飞航班。 联合航空此前经营美国至委内瑞拉航线长达 20 余年，后于 2017 年 6 月暂停通航。 就在本次官宣的数周前，美国航空一架客机完成了 2019 年以来美委之间首趟商业直
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！相关阅读：又一名中企高管在欧洲被捕 来源：财联社 中集集团（000039.SZ）公告称，公司于今日知悉美国司法部公开宣布对中集集团、董事长麦伯良、副总裁黄田化及员工万永波提出指控，指控其谋划限制特定非冷藏运输集装箱的产量并操纵价格。截至公告日，公司及上述人士均未收到相关法律程序文件。公司对该事项高度重视，后
 
 ## 正文
 
-联合航空曾运营美委航线超 20 年，2017 年 6 月停飞 这家航司于周二表示，在获得政府批准的前提下，将于 8 月 11 日起，恢复休斯顿乔治・布什洲际机场至加拉加斯西蒙・玻利瓦尔国际机场的每日直飞航班。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-联合航空此前经营美国至委内瑞拉航线长达 20 余年，后于 2017 年 6 月暂停通航。
+相关阅读：又一名中企高管在欧洲被捕 来源：财联社 中集集团（000039.SZ）公告称，公司于今日知悉美国司法部公开宣布对中集集团、董事长麦伯良、副总裁黄田化及员工万永波提出指控，指控其谋划限制特定非冷藏运输集装箱的产量并操纵价格。
 
-就在本次官宣的数周前，美国航空一架客机完成了 2019 年以来美委之间首趟商业直飞航班，此举也被视作特朗普政府快速推动与委内瑞拉关系正常化最直观的标志性事件。
+截至公告日，公司及上述人士均未收到相关法律程序文件。
 
-特朗普政府今年初拿下委内瑞拉强人马杜罗、将其赶下台后，已推出特殊合作机制，一方面吸引美国投资者赴委内瑞拉布局，另一方面巩固两国政府关系。
+公司对该事项高度重视，后续将密切关注并积极应对。
 
-美国交通部长肖恩・达菲表示，联合航空新开航线标志着美委关系再进一步。
-
-他称：“随着美委合作扩大石油产能、创造新的经济机遇，这条航线将承担关键作用，方便石油行业从业人员往返委内瑞拉。
-
-”责任编辑：郭明煜
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-30 02:49 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 02:29 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 02:29 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 02:33 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 02:27 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 02:39 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 02:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 02:26 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 02:34 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 02:23 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 02:27 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 02:29 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 02:47 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 02:34 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 02:49 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 02:44 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 02:28 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 02:31 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 02:25 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 02:46 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 02:24 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 02:53 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:48 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/68491571724.shtml)
-- 2026-06-30 02:41 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/7619466.shtml)
-- 2026-06-30 02:19 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/2896106500.shtml)
-- 2026-06-30 02:29 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/755238.shtml)
-- 2026-06-30 02:29 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/223722.shtml)
-- 2026-06-30 02:41 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/37218.shtml)
-- 2026-06-30 02:20 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/12658944522.shtml)
-- 2026-06-30 02:31 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/515435127162.shtml)
-- 2026-06-30 02:40 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/6260689681.shtml)
-- 2026-06-30 02:38 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/977061.shtml)
-- 2026-06-30 02:32 - [起风了](http://www.blog.kurohicncr.top/Article/details/39170526582.shtml)
-- 2026-06-30 02:21 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/06849682.shtml)
-- 2026-06-30 02:21 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/650904.shtml)
-- 2026-06-30 02:49 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/704368.shtml)
-- 2026-06-30 02:20 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/13485.shtml)
+- 2026-06-30 02:38 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/158266.shtml)
+- 2026-06-30 02:48 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/64112501.shtml)
+- 2026-06-30 02:31 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/363636885306.shtml)
+- 2026-06-30 02:45 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/4913223.shtml)
+- 2026-06-30 02:47 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/23779.shtml)
+- 2026-06-30 02:44 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/96859.shtml)
+- 2026-06-30 02:25 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/6896096094.shtml)
+- 2026-06-30 02:26 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/881644571380.shtml)
+- 2026-06-30 02:41 - [新官上任三把火](http://www.share.minike.top/Article/details/345743569.shtml)
+- 2026-06-30 02:39 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/0130906615.shtml)
+- 2026-06-30 02:53 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/11459148405.shtml)
+- 2026-06-30 02:44 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/9599347833.shtml)
+- 2026-06-30 02:24 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/850710.shtml)
+- 2026-06-30 02:36 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/418270.shtml)
+- 2026-06-30 02:35 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/8692873.shtml)

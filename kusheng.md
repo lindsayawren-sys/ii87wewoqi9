@@ -1,52 +1,56 @@
-# 金价上涨 受可能的头寸调整影响
+# 中国足协：17人被终身禁止从事任何与足球有关的活动
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-金价在亚洲早盘交易中上涨，受可能的头寸调整影响。 现货黄金上涨0.5%，报每盎司4，756.30美元。 InTouch Capital Markets的分析师团队在评论中表示：“投资者在等待有关美国和伊朗下一步行动的更多细节。“该团队指出：“总统特朗普对伊朗最新的沟通表达了不满，并正与他的顾问坐下来确定未来的战略。“该团队补充说，特朗普似乎想放弃进一步的军事打击，但伊朗不断的拒
+中新网北京5月21日电 中国足球协会21日公布第三批行业处罚名单，此次处罚涉及65人，其中17人被给予终身禁止从事任何与足球有关的活动的处罚，48人被给予禁止从事任何与足球有关的活动五年或以下的处罚。 中国足球协会先后于2024年9月、2026年1月公布了前两批行业处罚名单。在其21日发布的关于第三批行业处罚情况的相关通报中称，中国足球协会纪律与道德委员会近期对现已掌握的足球行
 
 ## 正文
 
-金价在亚洲早盘交易中上涨，受可能的头寸调整影响。
+中新网北京5月21日电 中国足球协会21日公布第三批行业处罚名单，此次处罚涉及65人，其中17人被给予终身禁止从事任何与足球有关的活动的处罚，48人被给予禁止从事任何与足球有关的活动五年或以下的处罚。
 
-现货黄金上涨0.5%，报每盎司4，756.30美元。
+中国足球协会先后于2024年9月、2026年1月公布了前两批行业处罚名单。
 
-InTouch Capital Markets的分析师团队在评论中表示：“投资者在等待有关美国和伊朗下一步行动的更多细节。
+在其21日发布的关于第三批行业处罚情况的相关通报中称，中国足球协会纪律与道德委员会近期对现已掌握的足球行业“假赌黑”问题案件材料进行系统梳理和认真研究，按照《中国足球协会纪律准则》等相关规定，完成对涉案人员及涉案俱乐部的行业处罚审议工作。
 
-“该团队指出：“总统特朗普对伊朗最新的沟通表达了不满，并正与他的顾问坐下来确定未来的战略。
+为严肃行业纪律，净化足球环境，维护竞赛公平，中国足球协会通报了如下处罚决定： 一、对涉案人员的处罚决定 (一)对经人民法院认定构成犯罪的丁勇、吴静博等17名从业人员，给予终身禁止从事任何与足球有关的活动的处罚。
 
-“该团队补充说，特朗普似乎想放弃进一步的军事打击，但伊朗不断的拒绝可能会促使他采取其他行动。
+(二)对严重违反行业纪律的高寒、王波等48名从业人员，根据其行为性质、涉案金额、违规频次、主观恶性等因素，相应给予禁止从事任何与足球有关的活动五年或以下的处罚。
 
-责任编辑：王永生
+二、对涉案俱乐部的处罚决定 根据最新掌握的刑事司法判决材料，发现梅州客家足球俱乐部还存在其他严重违规违纪行为，参照过往对涉案俱乐部的行业处罚原则，现决定对梅州客家足球俱乐部追加扣除2026年职业联赛积分6分并罚款人民币80万元。
+
+中国足球协会表示，各会员单位、各俱乐部及相关从业人员应深刻汲取教训、切实以案为鉴、时刻警钟长鸣，做到知敬畏、存戒惧、守底线，坚决杜绝“假赌黑”、不正当交易等破坏竞赛公平的行为。
+
+中国足球协会同时强调，将始终保持战略定力和高压态势，认真推进体育领域“深化治理年”行动，强化行业纪律建设，完善长效监管机制，推动足球行业风气实现根本好转。
 
 ## 相关推荐
 
-- 2026-06-30 02:19 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 02:35 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 02:36 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 02:45 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 02:22 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 02:30 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 02:21 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-30 02:29 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 02:24 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 02:24 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 02:40 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 02:34 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 02:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 02:47 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 02:50 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 02:25 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 02:33 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 02:25 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 02:49 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 02:42 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:36 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/98255375448.shtml)
-- 2026-06-30 02:32 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/631465885.shtml)
-- 2026-06-30 02:46 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/078576224149.shtml)
-- 2026-06-30 02:19 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/12253998.shtml)
-- 2026-06-30 02:49 - [急先锋](http://www.blog.minike.top/Article/details/456272972712.shtml)
-- 2026-06-30 02:30 - [日本16强魔咒](http://www.share.minike.top/Article/details/45562.shtml)
-- 2026-06-30 02:41 - [极限挑战第一季](https://www.share.minike.top/Article/details/609011.shtml)
-- 2026-06-30 02:45 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/48571913419.shtml)
-- 2026-06-30 02:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/7963777.shtml)
-- 2026-06-30 02:32 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/958355306.shtml)
-- 2026-06-30 02:38 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/6884440082.shtml)
-- 2026-06-30 02:22 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/6545623526.shtml)
-- 2026-06-30 02:26 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/18073394.shtml)
-- 2026-06-30 02:25 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/7915103.shtml)
-- 2026-06-30 02:40 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/6199092891.shtml)
+- 2026-06-30 02:37 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/407821849185.shtml)
+- 2026-06-30 02:52 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/289822413.shtml)
+- 2026-06-30 02:40 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/78430557830.shtml)
+- 2026-06-30 02:53 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/346862564.shtml)
+- 2026-06-30 02:50 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/273992.shtml)
+- 2026-06-30 02:46 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/19675874.shtml)
+- 2026-06-30 02:41 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/0068386.shtml)
+- 2026-06-30 02:37 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/431307606970.shtml)
+- 2026-06-30 02:28 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/28713255.shtml)
+- 2026-06-30 02:39 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/27399297.shtml)
+- 2026-06-30 02:52 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/613114644502.shtml)
+- 2026-06-30 02:53 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/08134870876.shtml)
+- 2026-06-30 02:37 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/1383294.shtml)
+- 2026-06-30 02:43 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/42712134910.shtml)
+- 2026-06-30 02:38 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/38050.shtml)

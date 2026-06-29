@@ -1,58 +1,59 @@
-# 美国民众为何恐惧AI：饭碗、隐私与失控的三重焦虑
+# 十年与爱同行，一位蒙古国红十字工作者的赴华“光明行”
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-在美国，人工智能正遭遇前所未有的“信任危机”。从硅谷的科技精英到中西部的大学生，从蓝领工人到白领职员，对AI的担忧已跨越党派和阶层，成为一种普遍的社会情绪。 就业焦虑：首当其冲的生存威胁 最核心的恐惧源于饭碗。数据显示，标普500指数成分公司的总就业人数十年来首次下降，过去一年减少了约40万个岗位。虽然AI并非唯一原因，但越来越多企业明确将裁员归因于“AI驱动的效率提升”——亚
+中新网二连浩特5月21日电 题：十年与爱同行，一位蒙古国红十字工作者的赴华“光明行” 中新网记者奥蓝 21日，中蒙边境城市二连浩特，2026“一带一路·光明行”蒙古国行动进入第二个手术日。手术车上，一台又一台手术正紧锣密鼓进行着；病房中，术后复查也在开展，不时传出患者重见光明后的笑谈声。当天计划完成白内障手术52台，复查前一日手术的白内障患者68人。 巴雅尔其木格一边关注着患者
 
 ## 正文
 
-在美国，人工智能正遭遇前所未有的“信任危机”。
+中新网二连浩特5月21日电 题：十年与爱同行，一位蒙古国红十字工作者的赴华“光明行” 中新网记者奥蓝 21日，中蒙边境城市二连浩特，2026“一带一路·光明行”蒙古国行动进入第二个手术日。
 
-从硅谷的科技精英到中西部的大学生，从蓝领工人到白领职员，对AI的担忧已跨越党派和阶层，成为一种普遍的社会情绪。
+手术车上，一台又一台手术正紧锣密鼓进行着；病房中，术后复查也在开展，不时传出患者重见光明后的笑谈声。
 
-就业焦虑：首当其冲的生存威胁 最核心的恐惧源于饭碗。
+当天计划完成白内障手术52台，复查前一日手术的白内障患者68人。
 
-数据显示，标普500指数成分公司的总就业人数十年来首次下降，过去一年减少了约40万个岗位。
+巴雅尔其木格一边关注着患者们的状态，一边思索着怎么为网友解惑。
 
-虽然AI并非唯一原因，但越来越多企业明确将裁员归因于“AI驱动的效率提升”——亚马逊、微软、Meta等科技巨头已裁撤数万名以白领为主的员工。
+这几天的互联网上，相关新闻报道下有不少蒙古国民众留言咨询如何报名。
 
-高盛警告称，AI导致的裁员速度可能超过新岗位的创造速度。
+“这个项目在蒙古国口口相传，有很好的口碑，每年报名的人很多。
 
-最焦虑的群体是刚踏入社会的年轻人。
+人们都很感谢、也很珍惜这样的手术机会。
 
-斯坦福大学的一项研究发现，自生成式AI普及以来，在受AI影响最大的行业中，22至25岁年轻人的就业率下降了16%。
+”巴雅尔其木格说。
 
 ## 相关推荐
 
-- 2026-06-30 02:34 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 02:33 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 02:31 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 02:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 02:27 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 02:22 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 02:33 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 02:25 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 02:36 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 02:31 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 02:48 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 02:28 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 02:33 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 02:36 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 02:28 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 02:46 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 02:29 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 02:33 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 02:25 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 02:43 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 02:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 02:48 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-30 02:46 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 02:44 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 02:33 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:42 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/497475166648.shtml)
-- 2026-06-30 02:19 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/330281403.shtml)
-- 2026-06-30 02:46 - [逃狱兄弟](http://www.blog.minike.top/Article/details/076454759613.shtml)
-- 2026-06-30 02:28 - [极限挑战第一季](http://www.share.minike.top/Article/details/8288330.shtml)
-- 2026-06-30 02:20 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/59961838.shtml)
-- 2026-06-30 02:42 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/5605940.shtml)
-- 2026-06-30 02:28 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/24422754965.shtml)
-- 2026-06-30 02:45 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/47072879.shtml)
-- 2026-06-30 02:24 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/438512890.shtml)
-- 2026-06-30 02:28 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/84166991.shtml)
-- 2026-06-30 02:20 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/151492.shtml)
-- 2026-06-30 02:34 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/3488996471.shtml)
-- 2026-06-30 02:36 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/098106666672.shtml)
-- 2026-06-30 02:40 - [天道](http://www.share.kurohicncr.top/Article/details/640436690180.shtml)
-- 2026-06-30 02:23 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/92577.shtml)
+- 2026-06-30 02:31 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/7486102.shtml)
+- 2026-06-30 02:28 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/82650209.shtml)
+- 2026-06-30 02:49 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/599213582.shtml)
+- 2026-06-30 02:32 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/33924.shtml)
+- 2026-06-30 02:34 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/909883219.shtml)
+- 2026-06-30 02:42 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/53313.shtml)
+- 2026-06-30 02:50 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/99043081.shtml)
+- 2026-06-30 02:46 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/11268558.shtml)
+- 2026-06-30 02:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/713231588.shtml)
+- 2026-06-30 02:43 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/801452274336.shtml)
+- 2026-06-30 02:33 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/218843259.shtml)
+- 2026-06-30 02:42 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/886349.shtml)
+- 2026-06-30 02:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/596491380820.shtml)
+- 2026-06-30 02:48 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/6906852374.shtml)
+- 2026-06-30 02:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/15501956.shtml)

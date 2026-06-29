@@ -1,58 +1,45 @@
-# 银诺医药-B午前涨超43% Suba的III期减重数据预计2026年年底前公布
+# 夯爆了！荣获“知乎2025年度新知答主”
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-银诺医药-B（02591）午前涨超43%，截至发稿，股价上涨43.08%，现报18.10港元，成交额1.97亿港元。 银诺医药年度业绩显示，2025 年实现收入1.32亿元，亏损3.41亿元。值得注意的是，银诺医药基石投资者的禁售期将于2026年5月14日届满，相关股份将于5月15日正式解禁流通。其中，基石投资者合计持股420.1万股。 国海证券发布研报称，Suba T2D适应
+5月16日以“人人都是创作者 新知从哪里来”为主题的知乎第十二届新知青年大会在北京举行中国能建知乎账号作为唯一央企账号荣获“2025年度新知答主”荣誉新知答主是知乎根据过去一年创作内容及表现综合评选而出的年度优秀创作者荣誉头衔2025年围绕公司“2+9”业务布局尤其是能源电力、水利两大核心业务领域中国能建知乎帐号回答多次登上知乎热榜深受知乎用户喜爱被知乎评为电力、能源、核电站话
 
 ## 正文
 
-银诺医药-B（02591）午前涨超43%，截至发稿，股价上涨43.08%，现报18.10港元，成交额1.97亿港元。
-
-银诺医药年度业绩显示，2025 年实现收入1.32亿元，亏损3.41亿元。
-
-值得注意的是，银诺医药基石投资者的禁售期将于2026年5月14日届满，相关股份将于5月15日正式解禁流通。
-
-其中，基石投资者合计持股420.1万股。
-
-国海证券发布研报称，Suba T2D适应症2025年1月获得NMPA认证，且已被纳入国家医保目录。
-
-Suba的III期减重数据预计2026年年底前公布。
-
-该行指出，在IIb期研究中，20毫克每周一次给药方案于第18周实现10.6%体重降幅，且于该时间点未观察到平台期；而20毫克每两周一次给药方案于第18周实现9.7%体重降幅。
-
-治疗肥胖及超重的III期临床研究，已于2025年完成患者入组。
+5月16日以“人人都是创作者 新知从哪里来”为主题的知乎第十二届新知青年大会在北京举行中国能建知乎账号作为唯一央企账号荣获“2025年度新知答主”荣誉新知答主是知乎根据过去一年创作内容及表现综合评选而出的年度优秀创作者荣誉头衔2025年围绕公司“2+9”业务布局尤其是能源电力、水利两大核心业务领域中国能建知乎帐号回答多次登上知乎热榜深受知乎用户喜爱被知乎评为电力、能源、核电站话题领域优秀答主也是知乎2025年度唯一一家获得新知答主的政务号延展阅读能源，是“国之大者”中国能建作为能源电力水利基础设施建设的国家队与主力军荣获6项国家科技进步特等奖推动并见证了我国能源电力水利事业发展从赶跑并跑到世界领先的历史性跨越承建了三峡工程、西气东输、西电东送、三代核电等一批享誉全球的重大超级工程在“一带一路”打造标志性项目让中国标准、中国方案惠及全球从江河安澜的水利
 
 ## 相关推荐
 
-- 2026-06-30 02:39 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 02:25 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 02:26 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 02:20 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 02:28 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 02:43 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 02:22 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 02:35 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 02:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 02:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 02:42 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 02:36 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 02:31 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 02:41 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 02:49 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 02:32 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 02:30 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 02:27 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 02:41 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 02:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 02:47 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 02:28 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 02:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 02:46 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 02:28 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:40 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/537645781165.shtml)
-- 2026-06-30 02:48 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/473351927.shtml)
-- 2026-06-30 02:23 - [电影后室值得看吗](http://www.share.minike.top/Article/details/76400658.shtml)
-- 2026-06-30 02:42 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/5714187654.shtml)
-- 2026-06-30 02:47 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/136377.shtml)
-- 2026-06-30 02:27 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/1410468.shtml)
-- 2026-06-30 02:32 - [恋与深空回应争议](http://www.share.minike.top/Article/details/17234954034.shtml)
-- 2026-06-30 02:36 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/4100872.shtml)
-- 2026-06-30 02:29 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/7381528192.shtml)
-- 2026-06-30 02:30 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/02798781939.shtml)
-- 2026-06-30 02:27 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/87681.shtml)
-- 2026-06-30 02:23 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/196872.shtml)
-- 2026-06-30 02:32 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/38073.shtml)
-- 2026-06-30 02:19 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/25990208.shtml)
-- 2026-06-30 02:33 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/6419897.shtml)
+- 2026-06-30 02:43 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/126376661.shtml)
+- 2026-06-30 02:44 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/533792.shtml)
+- 2026-06-30 02:27 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/9904504593.shtml)
+- 2026-06-30 02:43 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/18713851267.shtml)
+- 2026-06-30 02:24 - [沙丘](https://www.share.kurohicncr.top/Article/details/18436701.shtml)
+- 2026-06-30 02:28 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/6404099333.shtml)
+- 2026-06-30 02:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/0884828846.shtml)
+- 2026-06-30 02:40 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/42928897868.shtml)
+- 2026-06-30 02:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/506418906330.shtml)
+- 2026-06-30 02:24 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/854713.shtml)
+- 2026-06-30 02:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/21251.shtml)
+- 2026-06-30 02:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/67185922.shtml)
+- 2026-06-30 02:37 - [一见倾心](https://www.share.kurohicncr.top/Article/details/771780764.shtml)
+- 2026-06-30 02:39 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/8596156974.shtml)
+- 2026-06-30 02:46 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/9583137138.shtml)

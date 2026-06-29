@@ -1,59 +1,52 @@
-# 民盟浙江华夏书画学会赴舟山开展“文化助力乡村振兴 合力共绘海岛共富”主题活动
+# 现场视频！习近平为俄罗斯总统普京举行欢迎仪式
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-近日，根据民盟省委会工作要求和民盟浙江华夏书画学会年度计划，民盟浙江华夏书画学会赴舟山开展“文化助力乡村振兴 合力共绘海岛共富”主题活动。学会班子成员和各分会负责人近30位盟员书画家齐聚东海之滨，共同以艺术家的视角感受时代巨变和改革成果。民盟省委会组织部部长、岱山县副县长(挂职)徐国强、民盟舟山市委会副主委任珊红等参加活动。民盟浙江华夏书画学会会员深入岱山与舟山本岛，开展了一系
+发布时间：2026年05月20日 19:01 来源：中国新闻网 5月20日上午，国家主席习近平在北京人民大会堂东门外广场举行欢迎仪式，欢迎俄罗斯总统普京对中国进行国事访问。现场军乐团奏中俄两国国歌。普京在习近平陪同下检阅中国人民解放军三军仪仗队并观看仪仗队分列式。这是普京总统第25次到访中国，今年是中俄战略协作伙伴关系建立30周年、《中俄睦邻友好合作条约》签署25周年，也是“中
 
 ## 正文
 
-近日，根据民盟省委会工作要求和民盟浙江华夏书画学会年度计划，民盟浙江华夏书画学会赴舟山开展“文化助力乡村振兴 合力共绘海岛共富”主题活动。
+发布时间：2026年05月20日 19:01 来源：中国新闻网 5月20日上午，国家主席习近平在北京人民大会堂东门外广场举行欢迎仪式，欢迎俄罗斯总统普京对中国进行国事访问。
 
-学会班子成员和各分会负责人近30位盟员书画家齐聚东海之滨，共同以艺术家的视角感受时代巨变和改革成果。
+现场军乐团奏中俄两国国歌。
 
-民盟省委会组织部部长、岱山县副县长(挂职)徐国强、民盟舟山市委会副主委任珊红等参加活动。
+普京在习近平陪同下检阅中国人民解放军三军仪仗队并观看仪仗队分列式。
 
-民盟浙江华夏书画学会会员深入岱山与舟山本岛，开展了一系列丰富的艺术交流和调研活动。
+这是普京总统第25次到访中国，今年是中俄战略协作伙伴关系建立30周年、《中俄睦邻友好合作条约》签署25周年，也是“中俄教育年”启动之年，此访受到国际社会高度关注。
 
-在岱山，会员们先后走访了底蕴深厚的东沙古镇、风情独特的蓝白小镇，参观了兰秀艺术馆与岱山美术馆，在浓厚艺术氛围中切磋技艺，探讨笔墨内涵。
-
-在舟山本岛，大家先后探访了南洞艺谷与南洞艺术馆，并在朱仁民艺术馆、舟山普陀美术馆驻足观摩。
-
-同时还前往甬舟西侯门公铁两用跨海大桥建设项目现场，近距离感受国家重大工程的宏伟气势与时代脉搏。
-
-通过实地参观与现场交流，大家不仅领略了舟山独特的海岛人文风光，更从现代生态艺术与地方传统文化中汲取了丰富的创作养分。
+(记者 黄钰钦 盛佳鹏) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 02:38 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 02:30 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 02:27 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-30 02:32 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 02:28 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 02:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 02:24 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 02:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 02:29 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 02:28 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 02:42 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 02:37 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 02:45 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 02:31 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 02:49 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 02:40 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 02:49 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 02:42 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 02:34 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 02:24 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 02:40 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 02:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 02:49 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 02:26 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 02:50 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:31 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/60982444175.shtml)
-- 2026-06-30 02:39 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/411268473463.shtml)
-- 2026-06-30 02:40 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/668972211.shtml)
-- 2026-06-30 02:29 - [斛珠夫人](https://www.blog.minike.top/Article/details/845151117814.shtml)
-- 2026-06-30 02:46 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/674736.shtml)
-- 2026-06-30 02:24 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/40577591858.shtml)
-- 2026-06-30 02:31 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/38050822729.shtml)
-- 2026-06-30 02:28 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/598807554510.shtml)
-- 2026-06-30 02:27 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/60398.shtml)
-- 2026-06-30 02:48 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/7553460699.shtml)
-- 2026-06-30 02:29 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/547473694.shtml)
-- 2026-06-30 02:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/01997527.shtml)
-- 2026-06-30 02:36 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/800484.shtml)
-- 2026-06-30 02:23 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/94091944686.shtml)
-- 2026-06-30 02:33 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/966094295375.shtml)
+- 2026-06-30 02:44 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/01579832.shtml)
+- 2026-06-30 02:34 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/4307938915.shtml)
+- 2026-06-30 02:37 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/870341443.shtml)
+- 2026-06-30 02:48 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/38377.shtml)
+- 2026-06-30 02:52 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/739113577772.shtml)
+- 2026-06-30 02:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/2994444.shtml)
+- 2026-06-30 02:36 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/2220200163.shtml)
+- 2026-06-30 02:48 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/6048513.shtml)
+- 2026-06-30 02:36 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/99328982929.shtml)
+- 2026-06-30 02:49 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/31546870293.shtml)
+- 2026-06-30 02:27 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/511515335724.shtml)
+- 2026-06-30 02:40 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/817855673.shtml)
+- 2026-06-30 02:29 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/979893037.shtml)
+- 2026-06-30 02:36 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/6588269914.shtml)
+- 2026-06-30 02:44 - [沉睡花园](http://www.blog.minike.top/Article/details/384826594.shtml)

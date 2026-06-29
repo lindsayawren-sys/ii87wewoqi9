@@ -1,59 +1,59 @@
-# 一季度我国中小企业经济运行势头良好
+# 长盛基金评市场：震荡消化浮筹 科技韧性犹存
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：记者从工业和信息化部了解到，一季度，我国中小企业经济运行势头良好，主要经济指标保持较快增长。 一季度，我国规模以上工业中小企业增加值同比增长7.1%，利润总额同比增长16.0%，生产效益持续改善。 分行业看，31个制造业大类行业中，17个行业中小企业利润总额保持增长，其中，装备制造业、原材料制造业利润增长较快；分地区看，近九成省份中小企业利润保持增长，工
+5月21日，A股三大指数集体收跌，对此，长盛基金表示， 获利盘集中兑现：科技板块（如AI算力、半导体）前期涨幅较大，短期资金分歧引发抛压；外部情绪传导：隔夜中概股走弱叠加韩国半导体供应链波动，加剧市场谨慎情绪，板块分化加剧：非银金融、锂电等权重板块资金持续流出，拖累指数表现。未来短期震荡整固，中期慢牛逻辑未变。 详情如下： 市场表现：5月21日A股三大指数集体收跌，沪指失守41
 
 ## 正文
 
-央视网消息(新闻联播)：记者从工业和信息化部了解到，一季度，我国中小企业经济运行势头良好，主要经济指标保持较快增长。
+5月21日，A股三大指数集体收跌，对此，长盛基金表示， 获利盘集中兑现：科技板块（如AI算力、半导体）前期涨幅较大，短期资金分歧引发抛压；外部情绪传导：隔夜中概股走弱叠加韩国半导体供应链波动，加剧市场谨慎情绪，板块分化加剧：非银金融、锂电等权重板块资金持续流出，拖累指数表现。
 
-一季度，我国规模以上工业中小企业增加值同比增长7.1%，利润总额同比增长16.0%，生产效益持续改善。
+未来短期震荡整固，中期慢牛逻辑未变。
 
-分行业看，31个制造业大类行业中，17个行业中小企业利润总额保持增长，其中，装备制造业、原材料制造业利润增长较快；分地区看，近九成省份中小企业利润保持增长，工业大省支撑作用显著。
+详情如下： 市场表现：5月21日A股三大指数集体收跌，沪指失守4100点报4077.28点（-2.04%），深成指跌-2.07%，创业板指跌-2.35%。
 
-专精特新中小企业表现亮眼。
+全市场超4700只个股下跌，但成交额连续多日突破3万亿，资金交投活跃度未减。
 
-一季度，规模以上工业专精特新“小巨人”企业增加值同比增长10.2%，利润总额增速及营收利润率均高于全部规模以上工业；A股新上市企业中，专精特新中小企业占比超八成，综合竞争力进一步增强。
+下跌主因： 获利盘集中兑现：科技板块（如AI算力、半导体）前期涨幅较大，短期资金分歧引发抛压；外部情绪传导：隔夜中概股走弱叠加韩国半导体供应链波动，加剧市场谨慎情绪，板块分化加剧：非银金融、锂电等权重板块资金持续流出，拖累指数表现。
 
-出口保持强劲势头。
+未来展望：短期震荡整固，中期慢牛逻辑未变。
 
-3月份，中小企业出口指数为51.9%，连续24个月处于扩张区间。
+压力消化：4200点附近获利盘仍需时间消化，量能维持高位预示调整空间有限； 核心支撑：国内货币政策宽松延续，商业航天、AI算力等产业获政策强力扶持（如SpaceX上市倒逼国产替代加速）； 市场短期波动是健康整固，而非趋势逆转。
 
-下一步，我国将进一步完善全国中小企业服务“一张网”，从市场开拓、融资促进、人才引育、国际合作等方面提供更多优质高效公共服务。
+保持耐心聚焦产业确定性，逢低布局优质标的，避免追高纯题材炒作。
 
 ## 相关推荐
 
-- 2026-06-30 02:47 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 02:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 02:49 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 02:30 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 02:28 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 02:28 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 02:32 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 02:34 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-30 02:46 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 02:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 02:48 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 02:33 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 02:35 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 02:26 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 02:46 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 02:39 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 02:37 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 02:31 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 02:29 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 02:51 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 02:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 02:46 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 02:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 02:28 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 02:52 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 02:41 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/3247356.shtml)
-- 2026-06-30 02:27 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/375665256727.shtml)
-- 2026-06-30 02:47 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/0838680228.shtml)
-- 2026-06-30 02:45 - [刘念回应](http://www.blog.minike.top/Article/details/40470.shtml)
-- 2026-06-30 02:26 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/023372213.shtml)
-- 2026-06-30 02:40 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/527666910091.shtml)
-- 2026-06-30 02:37 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/7816529657.shtml)
-- 2026-06-30 02:23 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/96939.shtml)
-- 2026-06-30 02:33 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/24674.shtml)
-- 2026-06-30 02:33 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/69456.shtml)
-- 2026-06-30 02:43 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/11905964101.shtml)
-- 2026-06-30 02:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/0016141776.shtml)
-- 2026-06-30 02:25 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/662027958644.shtml)
-- 2026-06-30 02:39 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/858005936559.shtml)
-- 2026-06-30 02:28 - [千香](https://www.blog.minike.top/Article/details/43018443.shtml)
+- 2026-06-30 02:42 - [世界杯](https://www.share.kurohicncr.top/Article/details/81643358.shtml)
+- 2026-06-30 02:36 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/4700067.shtml)
+- 2026-06-30 02:33 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/89381015.shtml)
+- 2026-06-30 02:32 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/03800687220.shtml)
+- 2026-06-30 02:48 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/64667575146.shtml)
+- 2026-06-30 02:47 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/66640635146.shtml)
+- 2026-06-30 02:39 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/210293655.shtml)
+- 2026-06-30 02:39 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/028463.shtml)
+- 2026-06-30 02:36 - [日本领先巴西](http://www.share.minike.top/Article/details/6029411888.shtml)
+- 2026-06-30 02:36 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/185443826755.shtml)
+- 2026-06-30 02:53 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/049572561145.shtml)
+- 2026-06-30 02:42 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/715811161589.shtml)
+- 2026-06-30 02:40 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/923602944.shtml)
+- 2026-06-30 02:47 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/579373614.shtml)
+- 2026-06-30 02:29 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/19448684.shtml)

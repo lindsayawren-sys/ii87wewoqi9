@@ -1,61 +1,60 @@
-# 欧盟拟向各行业发放更多碳排放免费配额
+# Intuit拟裁员约3000人，深化与OpenAI及Anthropic的AI合作
 
-> 更新时间：2026-06-30 02:49:31 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-欧盟委员会周一提议，未来数年向各行业发放更多免费碳排放配额，有望为企业节省40 亿欧元（折合 47 亿美元）的二氧化碳排放成本。 此次提案证实了媒体上周依据欧盟内部文件发布的相关报道。 欧盟碳市场是欧盟应对二氧化碳排放的核心政策工具，该机制要求工业企业产生污染时必须购买碳排放配额。 目前，这项碳交易机制面临越来越大的政治压力，各成员国担忧欧洲经济竞争力持续走弱。 部分高耗能重工
+财务软件巨头Intuit Inc．周三宣布，将裁减全球约17%的员工，涉及约3000个岗位，以简化运营并加速人工智能整合。这一消息发布于公司第三财季财报公布前数小时，股价当日下跌近5%。 裁员3000人，遣散方案公布 据该公司CEO Sasan Goodarzi致员工内部备忘录，此次重组旨在“减少复杂性和简化组织架构”，以便更快地推出更好产品。截至2025年7月，Intuit在
 
 ## 正文
 
-欧盟委员会周一提议，未来数年向各行业发放更多免费碳排放配额，有望为企业节省40 亿欧元（折合 47 亿美元）的二氧化碳排放成本。
+财务软件巨头Intuit Inc．周三宣布，将裁减全球约17%的员工，涉及约3000个岗位，以简化运营并加速人工智能整合。
 
-此次提案证实了媒体上周依据欧盟内部文件发布的相关报道。
+这一消息发布于公司第三财季财报公布前数小时，股价当日下跌近5%。
 
-欧盟碳市场是欧盟应对二氧化碳排放的核心政策工具，该机制要求工业企业产生污染时必须购买碳排放配额。
+裁员3000人，遣散方案公布 据该公司CEO Sasan Goodarzi致员工内部备忘录，此次重组旨在“减少复杂性和简化组织架构”，以便更快地推出更好产品。
 
-目前，这项碳交易机制面临越来越大的政治压力，各成员国担忧欧洲经济竞争力持续走弱。
+截至2025年7月，Intuit在全球七个国家拥有约18200名员工。
 
-部分高耗能重工业已敦促欧盟委员会增加免费碳排放配额，以减轻企业的合规成本压力。
+受影响的美国员工将在7月31日正式离职，公司提供16周基本工资作为遣散费，外加每工作满一年额外两周的补偿。
 
-根据新提案，工业企业平均仍可获得覆盖自身约75% 排放量的免费配额分配。
+此外，Intuit正逐步关闭位于内华达州里诺和加州伍兰岗的办公室，以将团队整合至核心枢纽。
 
-欧盟委员会表示，间接排放纳入配额覆盖范围后，将推高行业基准值；2026 至 2030 年间，预计将产生约 40 亿欧元的资金影响。
+与OpenAI和Anthropic签署多年合作协议 与裁员同步，Intuit正全力押注AI。
 
-欧盟委员会将于 6 月底正式敲定各项行业基准。
+公司已与OpenAI及Anthropic签署多年合作协议，将后两者的AI模型整合至Intuit软件生态，同时将Intuit在税务、会计和营销领域的能力反向注入ChatGPT和Claude。
 
 ## 相关推荐
 
-- 2026-06-30 02:42 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 02:38 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 02:44 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 02:33 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 02:42 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-30 02:29 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 02:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 02:31 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 02:21 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 02:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 02:40 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 02:21 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 02:27 - [巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 02:28 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 02:22 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 02:46 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 02:31 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 02:33 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 02:34 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 02:29 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 02:38 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 02:40 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 02:40 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 02:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 02:35 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 02:40 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 02:33 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 02:41 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 02:35 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:38 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/00890250455.shtml)
-- 2026-06-30 02:45 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/5406429247.shtml)
-- 2026-06-30 02:27 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/836715370.shtml)
-- 2026-06-30 02:47 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/565911868.shtml)
-- 2026-06-30 02:33 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/6030552.shtml)
-- 2026-06-30 02:34 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/732576630566.shtml)
-- 2026-06-30 02:25 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/890010581016.shtml)
-- 2026-06-30 02:24 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/893622208461.shtml)
-- 2026-06-30 02:48 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/409827495446.shtml)
-- 2026-06-30 02:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/01812184.shtml)
-- 2026-06-30 02:25 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/971573315.shtml)
-- 2026-06-30 02:35 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/2628525.shtml)
-- 2026-06-30 02:26 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/996131.shtml)
-- 2026-06-30 02:41 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/906132.shtml)
-- 2026-06-30 02:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/07570278.shtml)
+- 2026-06-30 02:28 - [恋与深空 日服](http://www.blog.minike.top/Article/details/496218553.shtml)
+- 2026-06-30 02:36 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/52127861.shtml)
+- 2026-06-30 02:45 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/87674275179.shtml)
+- 2026-06-30 02:46 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/406945703.shtml)
+- 2026-06-30 02:48 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/768220.shtml)
+- 2026-06-30 02:24 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/5048245.shtml)
+- 2026-06-30 02:50 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/132629.shtml)
+- 2026-06-30 02:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/807869863.shtml)
+- 2026-06-30 02:35 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/160261965629.shtml)
+- 2026-06-30 02:30 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/01521.shtml)
+- 2026-06-30 02:32 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/96564.shtml)
+- 2026-06-30 02:40 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/26599515195.shtml)
+- 2026-06-30 02:46 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/242987.shtml)
+- 2026-06-30 02:47 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/66802171.shtml)
+- 2026-06-30 02:39 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/894242357.shtml)

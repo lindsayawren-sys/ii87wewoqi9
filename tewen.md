@@ -1,58 +1,58 @@
-# 全链条服务，好苗出好虾（海洋经济高质量发展一线见闻）
+# 巴基斯坦票房冠军电影《烈刃之怒》在华上映
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-广东湛江水产养殖基地培育新虾种—— 全链条服务，好苗出好虾(海洋经济高质量发展一线见闻) 人民日报 本报记者 王云娜 宋 飞“这是我们正在培育的‘快大’新品系，虾长得更快、更壮，现在已进入中试环节。”在广东湛江市东海岛国家863计划项目海水养殖种子工程南方基地，指着车间里的虾苗，运营方恒兴集团水产种苗与养殖研究所所长陈奕彬说。 来到基地，记者才发现，超市里、餐桌上常见的南美白对
+中新网北京5月21日电 巴基斯坦电影史票房冠军、史诗动作影片《烈刃之怒》21日在中国上映。巴方表示，恰逢巴中建交75周年，该影片在华上映，标志着巴中电影合作“历史性里程碑”，两国间文化交流将不断深化。 该片的上映是两国庆祝建交75周年系列活动之一。巴基斯坦驻华大使馆消息称，这是2024年6月巴中签署《电影合作协议》后取得的成果，是巴基斯坦电影首次以票房分账模式走进中国影院，标志
 
 ## 正文
 
-广东湛江水产养殖基地培育新虾种—— 全链条服务，好苗出好虾(海洋经济高质量发展一线见闻) 人民日报 本报记者 王云娜 宋 飞“这是我们正在培育的‘快大’新品系，虾长得更快、更壮，现在已进入中试环节。
+中新网北京5月21日电 巴基斯坦电影史票房冠军、史诗动作影片《烈刃之怒》21日在中国上映。
 
-”在广东湛江市东海岛国家863计划项目海水养殖种子工程南方基地，指着车间里的虾苗，运营方恒兴集团水产种苗与养殖研究所所长陈奕彬说。
+巴方表示，恰逢巴中建交75周年，该影片在华上映，标志着巴中电影合作“历史性里程碑”，两国间文化交流将不断深化。
 
-来到基地，记者才发现，超市里、餐桌上常见的南美白对虾，很多就源自这里，听说不少养虾人宁肯空塘，也要等这里的虾苗。
+该片的上映是两国庆祝建交75周年系列活动之一。
 
-真有这么神奇？
+巴基斯坦驻华大使馆消息称，这是2024年6月巴中签署《电影合作协议》后取得的成果，是巴基斯坦电影首次以票房分账模式走进中国影院，标志着巴中电影合作“历史性里程碑”。
 
-记者来到湛江雷州市养殖户宋开创的虾塘寻找答案。
+上映前夕，《烈刃之怒》在北京举行中国首映礼。
 
-碧波微漾，增氧机激起层层水花。
+巴基斯坦驻华大使哈什米、影片导演兼制片人拉沙里等巴方代表，以及中国国家电影局、中国电影集团公司等机构中方代表出席并交流观影感受。
 
-“这批虾苗下塘50多天了，长势都很好。
+哈什米表示，巴中建交75周年，两国间不断深化文化交流合作，将进一步巩固两国全天候战略合作伙伴关系。
 
-”养虾10多年的宋开创早已炼就“火眼金睛”。
+“巴基斯坦有广阔的电影市场和先进的影院设施，我们有高质量内容制作的基础，也对多元化的电影内容有日益强烈的需求”，他表示，巴方热切期待更多巴基斯坦电影进入中国观众的视野，同时也希望更多中国影片能够在巴基斯坦上映。
 
 ## 相关推荐
 
-- 2026-06-30 02:46 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 02:37 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 02:46 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 02:34 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 02:36 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 02:40 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 02:33 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 02:20 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 02:22 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 02:43 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 02:27 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 02:29 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 02:29 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 02:31 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 02:49 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 02:32 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 02:53 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 02:42 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 02:50 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 02:44 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 02:42 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 02:38 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 02:47 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 02:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:24 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/5763200.shtml)
-- 2026-06-30 02:47 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/457486438125.shtml)
-- 2026-06-30 02:44 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/664643.shtml)
-- 2026-06-30 02:21 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/234173233349.shtml)
-- 2026-06-30 02:45 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/5340069.shtml)
-- 2026-06-30 02:23 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/0932790034.shtml)
-- 2026-06-30 02:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/510510.shtml)
-- 2026-06-30 02:38 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/3410545.shtml)
-- 2026-06-30 02:48 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/2186452063.shtml)
-- 2026-06-30 02:37 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/47762892.shtml)
-- 2026-06-30 02:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/0325522586.shtml)
-- 2026-06-30 02:24 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/725625749.shtml)
-- 2026-06-30 02:33 - [天道](https://www.blog.minike.top/Article/details/378336076504.shtml)
-- 2026-06-30 02:37 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/32327.shtml)
-- 2026-06-30 02:26 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/966811890906.shtml)
+- 2026-06-30 02:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/35742476.shtml)
+- 2026-06-30 02:34 - [刘念回应](http://www.share.minike.top/Article/details/721495542.shtml)
+- 2026-06-30 02:49 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/0702651.shtml)
+- 2026-06-30 02:44 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/36324602381.shtml)
+- 2026-06-30 02:25 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/12874768498.shtml)
+- 2026-06-30 02:53 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/43807492.shtml)
+- 2026-06-30 02:47 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/3161598255.shtml)
+- 2026-06-30 02:24 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/22249649.shtml)
+- 2026-06-30 02:25 - [扬名立万](https://www.share.kurohicncr.top/Article/details/762871665.shtml)
+- 2026-06-30 02:25 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/4615647.shtml)
+- 2026-06-30 02:50 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/696603496907.shtml)
+- 2026-06-30 02:26 - [我们的少年时代2](https://www.blog.minike.top/Article/details/669103.shtml)
+- 2026-06-30 02:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/62761299699.shtml)
+- 2026-06-30 02:52 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/063292157.shtml)
+- 2026-06-30 02:33 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/27798386562.shtml)

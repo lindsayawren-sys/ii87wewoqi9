@@ -1,57 +1,45 @@
-# 权益市场走强吸引基民入场，节后首周新基金发行环比暴增逾2倍，FOF年内发行份额已超去年全年
+# 伊朗议长：敌人正在寻求新一轮战争
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-记者|任飞 编辑|叶峰 上周，权益市场在节后出现上涨，持续的市场暖意让投资人风险偏好再度提升。从公募的发行来看，节后首周的新基发行数量环比大增223.08%，创下近三周新高。 而今年以来FOF新基发行数量已达77只，发行份额875.58亿份，募集份额875.64亿份，双双超越2025年全年水平。 在业内看来，结构性行情的持续让投资人参与基金投资的意愿增强，FOF基金更加贴近当下
+发布时间：2026年05月21日 15:49 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-记者|任飞 编辑|叶峰 上周，权益市场在节后出现上涨，持续的市场暖意让投资人风险偏好再度提升。
-
-从公募的发行来看，节后首周的新基发行数量环比大增223.08%，创下近三周新高。
-
-而今年以来FOF新基发行数量已达77只，发行份额875.58亿份，募集份额875.64亿份，双双超越2025年全年水平。
-
-在业内看来，结构性行情的持续让投资人参与基金投资的意愿增强，FOF基金更加贴近当下稳健、多资产投资需求，发行势头良好。
-
-多只FOF单周上涨超5%，个别回撤超3% 上周（5.4-5.10），A股市场大幅上涨，多只主动权益类基金多次出现单日涨幅超5%的情形，与此同时，FOF基金的单周表现也可圈可点，全周有多只基金净值涨幅超过5%，连续多个周度统计出现头部业绩产品超5%。
-
-具体来看，宽基指数方面，上证指数报4179.95点，上涨1.65%；深证成指报15563.80点，上涨3.02%；创业板指报3796.13点，上涨3.24%。
-
-板块方面，通讯、电子和机械设备板块表现居前。
-
-不仅如此，两融余额自4月上旬以来震荡走高，在5月6日和5月7日增长势头显著加快，并且再次创下历史新高。
+发布时间：2026年05月21日 15:49 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 02:41 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 02:23 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 02:32 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 02:28 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 02:39 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 02:23 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 02:43 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 02:38 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 02:34 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 02:43 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 02:41 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 02:33 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 02:27 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 02:53 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 02:36 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 02:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 02:30 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 02:40 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 02:38 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 02:25 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 02:51 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 02:35 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 02:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 02:53 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:34 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/975723494.shtml)
-- 2026-06-30 02:47 - [毒液2](https://www.blog.kurohicncr.top/Article/details/01246226.shtml)
-- 2026-06-30 02:26 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/91811921.shtml)
-- 2026-06-30 02:32 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/703624999861.shtml)
-- 2026-06-30 02:32 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/439124484.shtml)
-- 2026-06-30 02:30 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/783358.shtml)
-- 2026-06-30 02:24 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/537437.shtml)
-- 2026-06-30 02:42 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/30112723.shtml)
-- 2026-06-30 02:24 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/444799.shtml)
-- 2026-06-30 02:20 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/723108273997.shtml)
-- 2026-06-30 02:49 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/0655442.shtml)
-- 2026-06-30 02:24 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/71352633476.shtml)
-- 2026-06-30 02:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/433517.shtml)
-- 2026-06-30 02:41 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/1305272142.shtml)
-- 2026-06-30 02:19 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/446184.shtml)
+- 2026-06-30 02:25 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/67400.shtml)
+- 2026-06-30 02:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/7909611174.shtml)
+- 2026-06-30 02:48 - [日本16强魔咒](http://www.share.minike.top/Article/details/967095.shtml)
+- 2026-06-30 02:40 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/84800898590.shtml)
+- 2026-06-30 02:27 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/09459.shtml)
+- 2026-06-30 02:26 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/276339570.shtml)
+- 2026-06-30 02:46 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/952808.shtml)
+- 2026-06-30 02:49 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/5070955.shtml)
+- 2026-06-30 02:27 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/544837833895.shtml)
+- 2026-06-30 02:49 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/840828917.shtml)
+- 2026-06-30 02:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/66206136.shtml)
+- 2026-06-30 02:35 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/259638142.shtml)
+- 2026-06-30 02:41 - [周生如故](http://www.blog.kurohicncr.top/Article/details/34859.shtml)
+- 2026-06-30 02:53 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/074146.shtml)
+- 2026-06-30 02:43 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/15388.shtml)

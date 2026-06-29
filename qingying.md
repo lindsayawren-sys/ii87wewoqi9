@@ -1,57 +1,59 @@
-# 全球轻稀土龙头2026年Q1净利润翻倍增长！稀土ETF华泰柏瑞（516780）流动性优势较突出
+# 603779，六连板后紧急澄清：无注入“算力”相关计划
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-近期，受稀土出口管制及海外补库需求推动，部分稀土品种价格持续走高。与此同时，国内稀土龙头2026年一季报利润高增，进一步强化了市场对行业景气修复的预期，稀土板块投资热度攀升。受此提振，稀土ETF华泰柏瑞（516780）5月以来连续3个交易日均实现资金净流入、日均成交额达1.65亿元，最新规模31.94亿元，流动性优势较突出。 稀土行业景气传导至业绩端，龙头公司表现亮眼。以国内某
+来源：中国基金报 【导读】六连板威龙股份：目前无注入“算力”相关计划 中国基金报记者 忆山 5月20日，威龙股份发布公告称，近期有媒体报道公司将注入算力资产。为避免相关信息对广大投资者造成误导，现予澄清，公司截至目前无注入“算力”相关计划。 当日，威龙股份开盘涨停，报13.2元/股，斩获六连板。 此前，威龙股份于5月12日发布公告称，公司控股股东星河息壤与山东爱特云翔信息技术有
 
 ## 正文
 
-近期，受稀土出口管制及海外补库需求推动，部分稀土品种价格持续走高。
+来源：中国基金报 【导读】六连板威龙股份：目前无注入“算力”相关计划 中国基金报记者 忆山 5月20日，威龙股份发布公告称，近期有媒体报道公司将注入算力资产。
 
-与此同时，国内稀土龙头2026年一季报利润高增，进一步强化了市场对行业景气修复的预期，稀土板块投资热度攀升。
+为避免相关信息对广大投资者造成误导，现予澄清，公司截至目前无注入“算力”相关计划。
 
-受此提振，稀土ETF华泰柏瑞（516780）5月以来连续3个交易日均实现资金净流入、日均成交额达1.65亿元，最新规模31.94亿元，流动性优势较突出。
+当日，威龙股份开盘涨停，报13.2元/股，斩获六连板。
 
-稀土行业景气传导至业绩端，龙头公司表现亮眼。
+此前，威龙股份于5月12日发布公告称，公司控股股东星河息壤与山东爱特云翔信息技术有限公司、山东齐信数字科技有限公司（以下简称齐信数科）签订股份转让协议，在股份转让完成后，公司控股股东将由星河息壤变更为齐信数科。
 
-以国内某轻稀土行业龙头为例，其2026年一季报显示：营业收入118.59亿元，同比增长27.69%；归母净利润9.18亿元，同比大增113.12%；扣非归母净利润8.83亿元，同比+103.21%，环比+27.35%。
+资料显示，齐信数科是一家专注于数字科技领域的企业，主营业务涵盖大数据服务、信息技术咨询服务和信息系统集成服务。
 
-与此同时，国内多家稀土企业一季度业绩均远超市场预期，主要得益于镨钕氧化物等主要产品均价同比显著走高。
+在最新公告中，威龙股份表示，截至目前，受让方无未来12个月对上市公司或其子公司的资产和业务进行出售、合并、与他人合资或合作的计划，或上市公司拟购买或置换资产的重组计划。
 
-稀土价格强势上行，供需格局持续偏紧。
+公司控制权变更事项尚需取得主管国资监管机构的批准、取得上海证券交易所的合规性确认意见，并在中国证券登记结算公司上海分公司办理股份过户登记手续。
 
-根据Wind数据，2026年Q1氧化镨钕均价为75.7万元/吨，环比增长33.7%。
+该事项能否最终实施完成及实施结果尚存在不确定性。
 
 ## 相关推荐
 
-- 2026-06-30 02:39 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 02:28 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 02:45 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 02:32 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 02:25 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 02:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 02:45 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 02:29 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 02:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 02:25 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-30 02:22 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 02:42 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 02:40 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 02:45 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 02:28 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 02:27 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 02:51 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 02:40 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 02:37 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 02:42 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 02:43 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 02:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 02:38 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 02:42 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:36 - [美股](http://www.blog.minike.top/Article/details/278591941528.shtml)
-- 2026-06-30 02:46 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/2619506.shtml)
-- 2026-06-30 02:33 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/535852.shtml)
-- 2026-06-30 02:40 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/06870.shtml)
-- 2026-06-30 02:45 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/250853648.shtml)
-- 2026-06-30 02:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/61319498.shtml)
-- 2026-06-30 02:40 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/711166.shtml)
-- 2026-06-30 02:44 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/039599.shtml)
-- 2026-06-30 02:31 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/830250.shtml)
-- 2026-06-30 02:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/03008010467.shtml)
-- 2026-06-30 02:28 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/83174.shtml)
-- 2026-06-30 02:46 - [啊啊啊](http://www.blog.minike.top/Article/details/229929.shtml)
-- 2026-06-30 02:45 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/2822919.shtml)
-- 2026-06-30 02:39 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/56598.shtml)
-- 2026-06-30 02:42 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/17656064.shtml)
+- 2026-06-30 02:44 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/9771351.shtml)
+- 2026-06-30 02:28 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/2296456637.shtml)
+- 2026-06-30 02:45 - [勇敢的心第二部](http://www.share.minike.top/Article/details/3768569279.shtml)
+- 2026-06-30 02:38 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/79702440.shtml)
+- 2026-06-30 02:34 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/71926.shtml)
+- 2026-06-30 02:24 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/7527445832.shtml)
+- 2026-06-30 02:30 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/60454.shtml)
+- 2026-06-30 02:45 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/811957409048.shtml)
+- 2026-06-30 02:52 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/4821925582.shtml)
+- 2026-06-30 02:49 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/5931296.shtml)
+- 2026-06-30 02:51 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/10548.shtml)
+- 2026-06-30 02:33 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/588406403549.shtml)
+- 2026-06-30 02:47 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/202449.shtml)
+- 2026-06-30 02:29 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/2903837.shtml)
+- 2026-06-30 02:26 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/411715009.shtml)

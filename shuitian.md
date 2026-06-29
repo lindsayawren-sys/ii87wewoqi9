@@ -1,60 +1,51 @@
-# 海外华文媒体“打卡”AI科技 感知广西人工智能产业“出海”路
+# 新疆伊犁：文物古迹中的中华民族共同体故事
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月12日电(俞靖)5月12日，来自老挝、泰国、印尼、菲律宾、柬埔寨等东盟国家和中国港澳地区的15位华文媒体代表走进广西南宁市，相继参观中国—东盟国家人工智能应用合作中心(简称“南A中心”)和科技企业，感知中国与东盟人工智能领域合作新变化。 “侨见南宁新机遇 华媒同心向未来”2026年海外华文媒体南宁行活动当日启动。走进南A中心，华文媒体代表们通过与AI咖啡师互动、体
+发布时间：2026年05月21日 13:23 来源：中国新闻网 近日，“循着古迹看新疆”采访团走进新疆伊犁哈萨克自治州，先后走访平定准噶尔勒铭碑(格登碑)、靖远寺、伊犁将军府等地，探寻这些文物古迹对于维护中国领土完整，促进新疆各族民众交往交流交融，共同缔造中华文化历史见证的故事。 在新疆昭苏县西南50多公里的边境线上，矗立着一座清乾隆帝亲自撰文的纪功碑——平定准噶尔勒铭碑，这也
 
 ## 正文
 
-中新网南宁5月12日电(俞靖)5月12日，来自老挝、泰国、印尼、菲律宾、柬埔寨等东盟国家和中国港澳地区的15位华文媒体代表走进广西南宁市，相继参观中国—东盟国家人工智能应用合作中心(简称“南A中心”)和科技企业，感知中国与东盟人工智能领域合作新变化。
+发布时间：2026年05月21日 13:23 来源：中国新闻网 近日，“循着古迹看新疆”采访团走进新疆伊犁哈萨克自治州，先后走访平定准噶尔勒铭碑(格登碑)、靖远寺、伊犁将军府等地，探寻这些文物古迹对于维护中国领土完整，促进新疆各族民众交往交流交融，共同缔造中华文化历史见证的故事。
 
-“侨见南宁新机遇 华媒同心向未来”2026年海外华文媒体南宁行活动当日启动。
+在新疆昭苏县西南50多公里的边境线上，矗立着一座清乾隆帝亲自撰文的纪功碑——平定准噶尔勒铭碑，这也是新疆境内唯一留存至今的清代御制碑，碑身以汉、满、藏、蒙四种文字镌刻，既记载了清军平定准噶尔首领达瓦齐叛乱的关键一役，又追述了自汉代以来中国历代中央政权对新疆的治理。
 
-走进南A中心，华文媒体代表们通过与AI咖啡师互动、体验AI问诊等形式，感受AI在医疗、文旅、教育、消费等领域的应用成果。
+在新疆特克斯县，周易文化随处可见，作为世界上规模最大、保存最完整的八卦城，特克斯八卦城以易经为基底，将古老的东方智慧融入城市肌理，吸引不少游客前来体验。
 
-老挝华文自媒体“老挝通”负责人景云龙表示，中国与老挝的人工智能合作潜力巨大，目前老挝中医资源短缺，中国AI产品在医疗领域的应用落地方案，将解决当地民众看病难题，在问诊等方面惠及民生，期待此类技术在老挝加速推广。
+在察布查尔锡伯自治县孙扎齐牛录镇，靖远寺厚重庄严，这座清代锡伯族西迁伊犁后建立的藏传佛教寺院，不仅是锡伯族屯垦戍边、保卫边疆的历史见证，更是锡伯族文化与汉、藏文化交融的结晶。
 
-在迈越科技股份有限公司的AI展厅内，华文媒体代表们纷纷试戴AI翻译眼镜，体验东盟国家语种实时翻译等功能。
-
-泰国《星暹日报》副社长李珂珂表示，中国前沿智能穿戴设备，正在打破中泰两国间的语言壁垒，实时翻译功能为中泰企业的交流合作赋能。
-
-从泰国旅游市场来看，此类产品还可充当入境游客的“随身导游”。
-
-她认为，人工智能将成为未来中国与东盟合作的核心方向与重要窗口。
+(左丹丹新疆伊犁报道） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 02:40 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 02:33 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 02:23 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 02:28 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 02:40 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-30 02:41 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 02:48 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 02:31 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 02:48 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 02:28 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 02:22 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 02:23 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-30 02:48 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 02:38 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 02:48 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 02:45 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 02:40 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 02:32 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 02:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 02:45 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 02:44 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 02:50 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 02:46 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 02:34 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:40 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/15137200312.shtml)
-- 2026-06-30 02:22 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/373181267.shtml)
-- 2026-06-30 02:42 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/71543016883.shtml)
-- 2026-06-30 02:41 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/7815633.shtml)
-- 2026-06-30 02:27 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/62801570614.shtml)
-- 2026-06-30 02:33 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/74627.shtml)
-- 2026-06-30 02:45 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/74043144.shtml)
-- 2026-06-30 02:43 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/83118144.shtml)
-- 2026-06-30 02:34 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/745137.shtml)
-- 2026-06-30 02:31 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/04929230707.shtml)
-- 2026-06-30 02:47 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/6534890326.shtml)
-- 2026-06-30 02:35 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/72488586.shtml)
-- 2026-06-30 02:37 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/301042046256.shtml)
-- 2026-06-30 02:25 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/94940.shtml)
-- 2026-06-30 02:27 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/942155.shtml)
+- 2026-06-30 02:44 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/2202220261.shtml)
+- 2026-06-30 02:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/69993951.shtml)
+- 2026-06-30 02:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/30910044.shtml)
+- 2026-06-30 02:35 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/730513331430.shtml)
+- 2026-06-30 02:26 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/451346.shtml)
+- 2026-06-30 02:50 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/1229652004.shtml)
+- 2026-06-30 02:36 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/14244.shtml)
+- 2026-06-30 02:31 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/21513337934.shtml)
+- 2026-06-30 02:28 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/984347.shtml)
+- 2026-06-30 02:29 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/14976008384.shtml)
+- 2026-06-30 02:33 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/938077.shtml)
+- 2026-06-30 02:37 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/581114.shtml)
+- 2026-06-30 02:40 - [女心理师](http://www.share.kurohicncr.top/Article/details/41249.shtml)
+- 2026-06-30 02:49 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/3907275040.shtml)
+- 2026-06-30 02:28 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/21727972.shtml)

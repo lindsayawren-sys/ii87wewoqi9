@@ -1,59 +1,58 @@
-# 摩洛哥驻华大使：中国经济实力雄厚 希望进一步深化双边关系
+# 成都出台“哪吒十条”支持数字文创人才发展
 
-> 更新时间：2026-06-30 02:49:31 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 15:28 来源：中国新闻网 为纪念摩洛哥国王穆罕默德六世访华十周年，摩洛哥驻华大使馆于5月10日晚举办了“摩洛哥-中国体育与文化节”活动，活动邀请了来自经济、文化、学术和艺术界的300多名嘉宾参与。活动间隙，摩洛哥驻华大使阿卜杜勒卡德尔·安萨里在接受中新社记者采访时表示，我们对摩中双边关系抱有很高的期许，在经贸层面、合作投资方面皆是如此。中国
+中新网成都5月21日电 (袁牟知博)《成都市实施“哪吒”行动支持数字文创人才发展的十条政策》(下文简称“哪吒十条”)近日正式发布。成都此前已推出系统性支持数字文创产业发展的政策，而“哪吒十条”将发力点更深、更准地对准了产业发展的核心要素——人才。 “哪吒十条”明确，支持用人单位“以薪、以岗、以绩、以赛、以投”为标准，自主评价并认定成都市A、B、C类高层次人才。 在顶尖人才方面，
 
 ## 正文
 
-发布时间：2026年05月11日 15:28 来源：中国新闻网 为纪念摩洛哥国王穆罕默德六世访华十周年，摩洛哥驻华大使馆于5月10日晚举办了“摩洛哥-中国体育与文化节”活动，活动邀请了来自经济、文化、学术和艺术界的300多名嘉宾参与。
+中新网成都5月21日电 (袁牟知博)《成都市实施“哪吒”行动支持数字文创人才发展的十条政策》(下文简称“哪吒十条”)近日正式发布。
 
-活动间隙，摩洛哥驻华大使阿卜杜勒卡德尔·安萨里在接受中新社记者采访时表示，我们对摩中双边关系抱有很高的期许，在经贸层面、合作投资方面皆是如此。
+成都此前已推出系统性支持数字文创产业发展的政策，而“哪吒十条”将发力点更深、更准地对准了产业发展的核心要素——人才。
 
-中国是摩洛哥全球第三大贸易伙伴，也是摩洛哥在亚洲的第一大经济合作伙伴。
+“哪吒十条”明确，支持用人单位“以薪、以岗、以绩、以赛、以投”为标准，自主评价并认定成都市A、B、C类高层次人才。
 
-希望继续把摩中关系提升到更高水平，中国经济实力雄厚，是全球第二大经济体，我们也期待进一步深化两国关系。
+在顶尖人才方面，新培养或引进的海内外全职在蓉工作的数字文创领域A类人才，将被纳入“蓉漂人才锦鲤计划”和“蓉城英才锦程计划”，给予300万元资助；高能级数字文创企业引进的、具有关键共性技术、前沿引领技术或颠覆性技术攻关能力的A类人才，资助标准为连续3年、每人每年最高500万元。
 
-阿卜杜勒卡德尔·安萨里介绍，摩洛哥自身具备诸多优势和引资优惠政策，完全有条件成为中国企业的投资目的地，比如摩洛哥地理位置优越、互联互通体系完善、劳动力人才储备充足，且紧邻终端消费市场。
+骨干人才可以通过上述市场化标准进行认定，成都还会每年给予一批专项名额，支持数字文创重点用人单位开展“蓉漂人才锦鲤计划”“蓉城英才锦程计划”的自主评审。
 
-凭借这些得天独厚的条件，摩洛哥的目标是让中国成为摩方的重要合作伙伴，在当前基础上更上一层楼。
+同时，成都将按规定支持重点用人单位自主评审中级职称、申请高级职称自主评审试点，并每年遴选成都工匠培育对象(数字文创领域)，对认定的成都工匠给予一次性2万元奖励及人才落户等综合支持。
 
-(记者 谢龙飞 实习生 林倬安 制作 乐小敏） 责任编辑：【刘湃】
+对于初创力量，成都将每年动态遴选一批具有技术创新与文化创意特色的数字文创初创企业，给予一次性2万元的创业资助；遴选一批初创企业重点项目进行“跟踪陪跑”，单个项目给予100万元资金扶持。
+
+针对创意个体化、小型化的趋势，成都特别支持数字文创“一人公司”(OPC)发展。
 
 ## 相关推荐
 
-- 2026-06-30 02:24 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 02:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 02:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 02:36 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 02:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 02:29 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 02:31 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 02:43 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 02:25 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 02:47 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 02:33 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 02:21 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 02:29 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 02:39 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 02:39 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 02:33 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 02:50 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 02:25 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 02:38 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 02:44 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 02:27 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 02:34 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 02:31 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 02:45 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 02:37 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 02:41 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-30 02:33 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:49 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/658807329720.shtml)
-- 2026-06-30 02:28 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/21968.shtml)
-- 2026-06-30 02:47 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/555323978.shtml)
-- 2026-06-30 02:39 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/442856.shtml)
-- 2026-06-30 02:47 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/296244860.shtml)
-- 2026-06-30 02:20 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/66613022740.shtml)
-- 2026-06-30 02:29 - [绘画区你赢了](http://www.blog.minike.top/Article/details/1705663.shtml)
-- 2026-06-30 02:45 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/18450982.shtml)
-- 2026-06-30 02:41 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/61573.shtml)
-- 2026-06-30 02:31 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/7090332563.shtml)
-- 2026-06-30 02:34 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/45428773.shtml)
-- 2026-06-30 02:46 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/962944650964.shtml)
-- 2026-06-30 02:27 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/5906513.shtml)
-- 2026-06-30 02:34 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/28509.shtml)
-- 2026-06-30 02:47 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/259753683.shtml)
+- 2026-06-30 02:32 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/953282.shtml)
+- 2026-06-30 02:24 - [起风了](http://www.share.kurohicncr.top/Article/details/064197658952.shtml)
+- 2026-06-30 02:25 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/847630123592.shtml)
+- 2026-06-30 02:24 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/809741759161.shtml)
+- 2026-06-30 02:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/623116965.shtml)
+- 2026-06-30 02:33 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/72010070.shtml)
+- 2026-06-30 02:34 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/52071229051.shtml)
+- 2026-06-30 02:45 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/55396687.shtml)
+- 2026-06-30 02:27 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/71991.shtml)
+- 2026-06-30 02:47 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/9834658483.shtml)
+- 2026-06-30 02:28 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/06273.shtml)
+- 2026-06-30 02:47 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/91619.shtml)
+- 2026-06-30 02:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/5059815001.shtml)
+- 2026-06-30 02:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/7457682.shtml)
+- 2026-06-30 02:32 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/865624362.shtml)

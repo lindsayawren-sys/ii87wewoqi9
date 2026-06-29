@@ -1,56 +1,58 @@
-# 2026年中国—东盟国际毽球邀请赛在广西南宁举办
+# 温蒂汉堡任命罗伯特・赖特为首席执行官
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月12日电(黄令妍)5月8日—11日，2026年毽球国际推广交流活动暨中国—东盟国际毽球邀请赛、第二届全国全民健身大赛毽球比赛(华南区)在广西南宁举行。来自中国以及越南、老挝、泰国、缅甸等东盟国家的20余支代表队、300余名运动员参赛。 本次赛事由国家体育总局社会体育指导中心、中国毽球跳绳协会、广西壮族自治区体育局主办，广西体育高等专科学校与广西社会体育运动发展中心
+赖特曾在温蒂汉堡担任高管，还曾任首席运营官一职 内容速览 罗伯特・赖特将于本周四正式回归出任温蒂汉堡首席执行官，全力扭转品牌在美国市场销售额下滑的颓势。 罗伯特・赖特重返温蒂汉堡担任首席执行官，主导推动这家快餐连锁品牌扭转美国市场营收低迷的局面。 赖特此前在温蒂汉堡任职超四年，曾任首席运营官。他离职后出任三明治连锁品牌波特贝利首席执行官，去年主导完成该品牌以约 5.66 亿美元
 
 ## 正文
 
-中新网南宁5月12日电(黄令妍)5月8日—11日，2026年毽球国际推广交流活动暨中国—东盟国际毽球邀请赛、第二届全国全民健身大赛毽球比赛(华南区)在广西南宁举行。
+赖特曾在温蒂汉堡担任高管，还曾任首席运营官一职 内容速览 罗伯特・赖特将于本周四正式回归出任温蒂汉堡首席执行官，全力扭转品牌在美国市场销售额下滑的颓势。
 
-来自中国以及越南、老挝、泰国、缅甸等东盟国家的20余支代表队、300余名运动员参赛。
+罗伯特・赖特重返温蒂汉堡担任首席执行官，主导推动这家快餐连锁品牌扭转美国市场营收低迷的局面。
 
-本次赛事由国家体育总局社会体育指导中心、中国毽球跳绳协会、广西壮族自治区体育局主办，广西体育高等专科学校与广西社会体育运动发展中心承办。
+赖特此前在温蒂汉堡任职超四年，曾任首席运营官。
 
-比赛中，广西体育高等专科学校健儿代表中国队创佳绩。
+他离职后出任三明治连锁品牌波特贝利首席执行官，去年主导完成该品牌以约 5.66 亿美元出售给连锁便利店运营商瑞斯崔克的交易。
 
-同时，该校精心组织近200名师生志愿者全力保障赛事。
+此外他还曾在查利芝士牛排、查克斯汽车餐厅、达美乐披萨等餐饮企业担任高层管理职务。
 
-据悉，该校以毽球为纽带服务中国—东盟命运共同体建设，将依托中国—东盟体育人才培训基地，持续深化体教融合与国际合作，为体育强国建设积极贡献力量。
+此次人事任命于本周四正式生效，赖特同时将进入公司董事会。
 
-(完)
+温蒂汉堡周三宣布，现任临时首席执行官肯・库克将继续留任首席财务官。
+
+眼下温蒂汉堡正全力推进经营扭转计划，核心举措为优化餐品品质、关停经营不善门店。
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 02:24 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 02:46 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 02:29 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 02:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 02:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 02:27 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 02:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 02:48 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 02:45 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 02:47 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 02:47 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 02:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 02:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 02:39 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 02:44 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 02:25 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 02:24 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 02:46 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 02:34 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 02:30 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 02:27 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 02:25 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 02:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:33 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/0963665.shtml)
-- 2026-06-30 02:27 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/6507743.shtml)
-- 2026-06-30 02:34 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/22845097490.shtml)
-- 2026-06-30 02:41 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/077736714.shtml)
-- 2026-06-30 02:32 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/3269867.shtml)
-- 2026-06-30 02:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/68904820304.shtml)
-- 2026-06-30 02:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/140706.shtml)
-- 2026-06-30 02:35 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/167702457.shtml)
-- 2026-06-30 02:48 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/6716573638.shtml)
-- 2026-06-30 02:48 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/84434462.shtml)
-- 2026-06-30 02:40 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/31147745923.shtml)
-- 2026-06-30 02:26 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/024831826775.shtml)
-- 2026-06-30 02:25 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/24942697.shtml)
-- 2026-06-30 02:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/049338922490.shtml)
-- 2026-06-30 02:20 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/92447.shtml)
+- 2026-06-30 02:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/151122001.shtml)
+- 2026-06-30 02:41 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/82525.shtml)
+- 2026-06-30 02:49 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/369311927.shtml)
+- 2026-06-30 02:52 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/15189.shtml)
+- 2026-06-30 02:29 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/4050129.shtml)
+- 2026-06-30 02:45 - [扬名立万](http://www.share.kurohicncr.top/Article/details/38724.shtml)
+- 2026-06-30 02:37 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/771166.shtml)
+- 2026-06-30 02:35 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/1570324390.shtml)
+- 2026-06-30 02:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/03672.shtml)
+- 2026-06-30 02:28 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/390031327060.shtml)
+- 2026-06-30 02:48 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/91116019.shtml)
+- 2026-06-30 02:48 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/22841519361.shtml)
+- 2026-06-30 02:33 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/6058111.shtml)
+- 2026-06-30 02:32 - [美人鱼](http://www.share.minike.top/Article/details/50862.shtml)
+- 2026-06-30 02:26 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/63031927600.shtml)

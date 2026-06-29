@@ -1,58 +1,49 @@
-# 把“实”字贯穿树立和践行正确政绩观全程（思想纵横）
+# 截至4月底 我国电动汽车充电基础设施（枪）总数同比增长47.4%
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-习近平总书记指出，要教育引导党员干部特别是领导干部“讲实话、办实事、求实效，踏踏实实推动工作、解决问题”。这一重要论述，为党员干部树立和践行正确政绩观指明了清晰的实践路径。党员干部必须把“实”字贯穿想问题、办事情的全过程，讲实话、办实事、求实效，扎扎实实干出实绩，实实在在让人民群众满意。 讲实话，是中国共产党人基本的政治品格。所谓讲实话，就是对党忠诚、实事求是、表里如一，直面问
+中新网5月21日电 据国家能源局微信公众号消息，5月21日，国家能源局发布2026年4月全国电动汽车充电设施数据。根据国家充电设施监测服务平台数据，截至2026年4月底，我国电动汽车充电基础设施(枪)总数达到2195.5万个，同比增长47.4%。其中，公共充电设施(枪)490.7万个，同比增长29.6%，公共充电桩额定总功率达到2.37亿千瓦，平均功率约为48.38千瓦；私人充
 
 ## 正文
 
-习近平总书记指出，要教育引导党员干部特别是领导干部“讲实话、办实事、求实效，踏踏实实推动工作、解决问题”。
+中新网5月21日电 据国家能源局微信公众号消息，5月21日，国家能源局发布2026年4月全国电动汽车充电设施数据。
 
-这一重要论述，为党员干部树立和践行正确政绩观指明了清晰的实践路径。
+根据国家充电设施监测服务平台数据，截至2026年4月底，我国电动汽车充电基础设施(枪)总数达到2195.5万个，同比增长47.4%。
 
-党员干部必须把“实”字贯穿想问题、办事情的全过程，讲实话、办实事、求实效，扎扎实实干出实绩，实实在在让人民群众满意。
-
-讲实话，是中国共产党人基本的政治品格。
-
-所谓讲实话，就是对党忠诚、实事求是、表里如一，直面问题、据实报情。
-
-我们党百余年的历史深刻表明，讲实话最能检验和锤炼党性。
-
-有的党员干部见风使舵、处世圆滑，有的掩盖矛盾、粉饰太平，有的当面一套、背后一套，他们都有私心杂念在作祟。
-
-讲实话，是对党、对人民、对事业负责，是不藏私心、不谋私利的体现。
+其中，公共充电设施(枪)490.7万个，同比增长29.6%，公共充电桩额定总功率达到2.37亿千瓦，平均功率约为48.38千瓦；私人充电设施(枪)1704.8万个，同比增长53.5%，私人充电设施报装用电容量达到1.49亿千伏安。
 
 ## 相关推荐
 
-- 2026-06-30 02:27 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 02:29 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 02:35 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 02:23 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 02:46 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 02:23 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 02:37 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 02:38 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 02:42 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-30 02:24 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 02:46 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 02:33 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 02:46 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 02:51 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 02:47 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 02:46 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 02:25 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 02:33 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 02:26 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 02:45 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 02:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 02:33 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 02:41 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 02:30 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 02:40 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/25193758496.shtml)
-- 2026-06-30 02:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/868390.shtml)
-- 2026-06-30 02:21 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/662890455.shtml)
-- 2026-06-30 02:28 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/980122442.shtml)
-- 2026-06-30 02:40 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/13999.shtml)
-- 2026-06-30 02:40 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/80904693192.shtml)
-- 2026-06-30 02:33 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/84218082.shtml)
-- 2026-06-30 02:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/3783495380.shtml)
-- 2026-06-30 02:27 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/8567850028.shtml)
-- 2026-06-30 02:39 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/313915.shtml)
-- 2026-06-30 02:20 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/6127934.shtml)
-- 2026-06-30 02:25 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/96620506715.shtml)
-- 2026-06-30 02:33 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/71933.shtml)
-- 2026-06-30 02:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/7064424438.shtml)
-- 2026-06-30 02:29 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/16678800.shtml)
+- 2026-06-30 02:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/82838643894.shtml)
+- 2026-06-30 02:45 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/701137619783.shtml)
+- 2026-06-30 02:50 - [小娘惹](http://www.blog.minike.top/Article/details/129838595763.shtml)
+- 2026-06-30 02:41 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/98215831301.shtml)
+- 2026-06-30 02:27 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/355731968732.shtml)
+- 2026-06-30 02:30 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/096391344.shtml)
+- 2026-06-30 02:36 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/109412212942.shtml)
+- 2026-06-30 02:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/898402627.shtml)
+- 2026-06-30 02:41 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/72092792772.shtml)
+- 2026-06-30 02:42 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/3439243071.shtml)
+- 2026-06-30 02:38 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/939128.shtml)
+- 2026-06-30 02:24 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/99843830907.shtml)
+- 2026-06-30 02:33 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/596991891.shtml)
+- 2026-06-30 02:30 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/42182471738.shtml)
+- 2026-06-30 02:27 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/05918972656.shtml)

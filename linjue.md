@@ -1,61 +1,58 @@
-# 上海普陀区以“金点子”大讨论共议老字号破圈之路
+# 海关总署出台20项具体措施支持粤港澳大湾区建设
 
-> 更新时间：2026-06-30 02:49:31 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-中新网上海5月11日电 (高志苗)普陀区“苏河议事厅”——“老字号焕新升级”金点子大讨论10日在中以(上海)创新园·上海英雄金笔厂旧址举行。活动聚焦“老字号潮起来 经典何以正青春”主题，汇聚人大代表、政协委员、专家学者、社会组织代表、社区居民、学生代表、自媒体博主、非遗代表性传承人、上海市老字号负责人以及商贸、文创、餐饮、网络内容等领域企业代表近150人，共探老字号传承创新、破
+中新社广州5月21日电 (记者 程景伟)中国海关总署党委委员、广东分署主任张格萍21日在广州举行的新闻发布会上表示，海关总署制定《海关支持粤港澳大湾区建设若干措施》(下称《若干措施》)，从5个方面提出20项具体举措，为加快推动粤港澳大湾区建设注入新动能。张格萍介绍，《若干措施》聚焦融合发展，强化规则衔接、机制对接，对“港车澳车北上”“粤车南下”实施“一站式”监管，畅通粤港澳三地
 
 ## 正文
 
-中新网上海5月11日电 (高志苗)普陀区“苏河议事厅”——“老字号焕新升级”金点子大讨论10日在中以(上海)创新园·上海英雄金笔厂旧址举行。
+中新社广州5月21日电 (记者 程景伟)中国海关总署党委委员、广东分署主任张格萍21日在广州举行的新闻发布会上表示，海关总署制定《海关支持粤港澳大湾区建设若干措施》(下称《若干措施》)，从5个方面提出20项具体举措，为加快推动粤港澳大湾区建设注入新动能。
 
-活动聚焦“老字号潮起来 经典何以正青春”主题，汇聚人大代表、政协委员、专家学者、社会组织代表、社区居民、学生代表、自媒体博主、非遗代表性传承人、上海市老字号负责人以及商贸、文创、餐饮、网络内容等领域企业代表近150人，共探老字号传承创新、破圈发展的实践路径。
+张格萍介绍，《若干措施》聚焦融合发展，强化规则衔接、机制对接，对“港车澳车北上”“粤车南下”实施“一站式”监管，畅通粤港澳三地跨境通行；探索供港澳短保质期食品便利通关措施，推广出口农食产品“批次检验”改革，助力大湾区“菜篮子”安全稳定供给。
 
-近年来，普陀区立足苏河人文底蕴与国资资源优势，推动英雄、四如春、悦来芳等本土老字号主动求变、大胆创新，在产品迭代、场景拓展、模式升级、跨界融合等方面持续突破。
+《若干措施》显示，支持扩大正面清单实施范围，便利科研用物资跨境流动；探索对用于生物医药研发的进口料件实施保税监管、简化提交单证；支持符合免税条件的进口集成电路、新型显示器件企业，参与“自行申报享惠”业务模式试点。
 
-如：英雄钢笔以跨界联名激活品牌活力，牵手“朱炳仁·铜”“浪浪山小妖怪”等热门IP，打造兼具文化质感与年轻审美的文创礼盒，让百年书写品牌走进年轻消费场景。
+在推进监管制度创新方面，《若干措施》提出，扩大跨境电商出口“先查验、后装运”试点范围；探索开展口岸通关环节碳足迹全生命周期管理试点。
 
-为进一步凝聚社会智慧、破解发展瓶颈，普陀区先期启动老字号焕新升级人民建议专项征集，线上广泛征集民意，线下举办金点子大讨论。
+同时，《若干措施》提出，推动扩大“组合港(一港通)”航线，推进海铁、水水等多式联运业务模式试点，支持因地制宜设置航空前置货站；支持新皇岗口岸建设、沙头角口岸重建等重点项目，推动实施“一地两检”等便利通关措施。
 
-与会代表结合各自的生活和工作实践，从产品创新、营销破圈、生态构建等方面开展讨论。
+《若干措施》还提出，支持横琴“澳门单牌车北上”，推动海关查验结果共享互认试点；支持前海持续完善离岸现货大豆监管服务措施，发展全球集拼分拨、全球保税维修等业态；支持南沙发展大宗商品贸易，整合仓储资源打造全球供应链中心；推进河套“一区两园”协同发展。
 
-与会人员围绕如何守住匠心工艺、抓住现代消费需求等方面贡献“金点子”。
-
-社区跑团团长陈文宇建议，老字号通过营销和场景设计，组织早餐跑等形式打卡传统美食，同时推出更满足运动人士需求的低糖低盐低脂健康产品。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:25 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 02:28 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 02:40 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 02:30 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 02:37 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 02:44 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 02:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 02:27 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 02:36 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 02:40 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 02:49 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 02:39 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 02:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 02:33 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 02:48 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 02:40 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-30 02:32 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 02:30 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 02:34 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 02:38 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 02:47 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 02:24 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 02:37 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 02:30 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 02:49 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 02:39 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 02:37 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 02:25 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 02:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:33 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/87954288164.shtml)
-- 2026-06-30 02:44 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/42104940396.shtml)
-- 2026-06-30 02:46 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/486295715852.shtml)
-- 2026-06-30 02:35 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/985653.shtml)
-- 2026-06-30 02:38 - [扬名立万](http://www.share.minike.top/Article/details/99382669.shtml)
-- 2026-06-30 02:48 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/00973885.shtml)
-- 2026-06-30 02:32 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/325988.shtml)
-- 2026-06-30 02:29 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/1616901.shtml)
-- 2026-06-30 02:27 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/50221720.shtml)
-- 2026-06-30 02:47 - [恋与深空 日服](https://www.share.minike.top/Article/details/599462.shtml)
-- 2026-06-30 02:48 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/66655.shtml)
-- 2026-06-30 02:49 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/975762660.shtml)
-- 2026-06-30 02:27 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/5626737.shtml)
-- 2026-06-30 02:21 - [起风了](http://www.share.minike.top/Article/details/373870162249.shtml)
-- 2026-06-30 02:24 - [周生如故](http://www.share.kurohicncr.top/Article/details/075960.shtml)
+- 2026-06-30 02:45 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/09059078879.shtml)
+- 2026-06-30 02:45 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/054121425061.shtml)
+- 2026-06-30 02:37 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/59927194.shtml)
+- 2026-06-30 02:42 - [请回答王牌2019](http://www.share.minike.top/Article/details/395235.shtml)
+- 2026-06-30 02:42 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/741901658.shtml)
+- 2026-06-30 02:39 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/064723.shtml)
+- 2026-06-30 02:32 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/450695651.shtml)
+- 2026-06-30 02:30 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/89944961494.shtml)
+- 2026-06-30 02:26 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/60001994994.shtml)
+- 2026-06-30 02:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/29909567904.shtml)
+- 2026-06-30 02:43 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/914537255.shtml)
+- 2026-06-30 02:41 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/51533904257.shtml)
+- 2026-06-30 02:50 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/897299766550.shtml)
+- 2026-06-30 02:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/59034176.shtml)
+- 2026-06-30 02:25 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/54814069521.shtml)

@@ -1,61 +1,60 @@
-# 福建泰宁：两岸茶人“微改造”唤醒乡村 荒废空间变身“台创园”
+# 北京市政协聚焦以科技创新推动京津冀协同发展
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-中新网福建泰宁5月11日电 (雷朝良 熊明欢)初夏时节，位于福建省泰宁县大金湖畔的拥坑生态茶园绿意盎然。在由梅口乡拥坑村旧供销社改造而成的两岸茶人交流平台里，台湾茶艺师左如玉正与本地茶农交流制茶技艺。 “今年雨水少，茶叶发得慢些，反而促使叶片生成更多芳香物质，做出来的岩茶香气更醇厚。”左如玉近日接受采访时说。 这片茶园以及不远处那座由旧供销社改造而成的两岸茶人交流平台，正是闽台
+北京市政协、市委统战部近日联合召开议政会，围绕“发挥北京(京津冀)国际科技创新中心作用 推动京津冀协同发展”协商议政。北京市委书记尹力出席会议并讲话。北京市政协主席魏小东主持会议。 会前，北京市政协科技教育委员会紧扣北京(京津冀)国际科技创新中心定位和发展目标，深入企业、科研机构并赴天津、河北等开展调研。调研发现，目前京津冀区域创新投入与产业承接能力、颠覆性引领性技术、三地互补
 
 ## 正文
 
-中新网福建泰宁5月11日电 (雷朝良 熊明欢)初夏时节，位于福建省泰宁县大金湖畔的拥坑生态茶园绿意盎然。
+北京市政协、市委统战部近日联合召开议政会，围绕“发挥北京(京津冀)国际科技创新中心作用 推动京津冀协同发展”协商议政。
 
-在由梅口乡拥坑村旧供销社改造而成的两岸茶人交流平台里，台湾茶艺师左如玉正与本地茶农交流制茶技艺。
+北京市委书记尹力出席会议并讲话。
 
-“今年雨水少，茶叶发得慢些，反而促使叶片生成更多芳香物质，做出来的岩茶香气更醇厚。
+北京市政协主席魏小东主持会议。
 
-”左如玉近日接受采访时说。
+会前，北京市政协科技教育委员会紧扣北京(京津冀)国际科技创新中心定位和发展目标，深入企业、科研机构并赴天津、河北等开展调研。
 
-这片茶园以及不远处那座由旧供销社改造而成的两岸茶人交流平台，正是闽台乡建乡创团队“微改造”的成果。
+调研发现，目前京津冀区域创新投入与产业承接能力、颠覆性引领性技术、三地互补性与体系化等方面有待进一步提升。
 
-曾经的荒废空间如今被打造成“台创园”——茶叶加工体验工坊、茶文化展示馆、茶席美学空间一应俱全。
+在优化机制层面，调研组建议，制定协调统一的区域科技创新发展规划和产业协同发展专项规划，建立三地年度任务清单调度机制；积极营造市场化导向的创新协同发展机制，促进京津冀各创新主体之间多采用市场机制搞合作、搞联合；共建统一开放、智能互联的京津冀协同创新数字化平台，实现跨区域数据共享与业务协同。
 
-左如玉和团队充分利用改造后的空间，将茶道、茶席文化与泰宁本地茶产业深度融合，定期举办茶艺培训、品鉴会、亲子茶课，原本沉寂的乡村空间又变得人气满满。
+如何促进三地创新要素充分流动与高效配置，更好推动协同创新？
 
-黄顺清是本地茶农，拥有200亩茶山，却因缺乏专业的茶叶种植技术，茶叶一直卖不出好价钱。
+调研组提出具体对策：以人工智能赋能重要产业链，推动三地新兴支柱产业群链式发展；以特色产业园为支撑，推动中关村先行先试政策在津冀协同的重点园区落地；进一步支持中关村论坛在雄安新区、滨海新区、河北其他地市设立分论坛，推动三地围绕成果转化和重点产业链路演对接，同步营造“鼓励创新、包容失败”的创新文化，吸引更多人才来京津冀创新创业等。
 
 ## 相关推荐
 
-- 2026-06-30 02:39 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 02:40 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 02:42 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 02:24 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 02:39 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 02:19 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 02:48 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 02:42 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 02:27 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 02:46 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 02:25 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 02:44 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 02:21 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 02:49 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 02:43 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 02:42 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 02:42 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 02:53 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 02:50 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-30 02:44 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 02:32 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 02:48 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 02:53 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 02:32 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 02:24 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 02:28 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 02:42 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 02:53 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 02:35 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:44 - [流金岁月](http://www.blog.minike.top/Article/details/409495661739.shtml)
-- 2026-06-30 02:37 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/109124227.shtml)
-- 2026-06-30 02:45 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/287792986.shtml)
-- 2026-06-30 02:29 - [日本进球](http://www.share.minike.top/Article/details/845673545.shtml)
-- 2026-06-30 02:35 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/222539629.shtml)
-- 2026-06-30 02:42 - [绘画区你赢了](http://www.blog.minike.top/Article/details/096491058.shtml)
-- 2026-06-30 02:41 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/273969959213.shtml)
-- 2026-06-30 02:28 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/550387327012.shtml)
-- 2026-06-30 02:26 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/15587.shtml)
-- 2026-06-30 02:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/4601489.shtml)
-- 2026-06-30 02:25 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/5871127601.shtml)
-- 2026-06-30 02:29 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/849806.shtml)
-- 2026-06-30 02:27 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/2045840.shtml)
-- 2026-06-30 02:27 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/499825440295.shtml)
-- 2026-06-30 02:21 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/0906262426.shtml)
+- 2026-06-30 02:33 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/46140.shtml)
+- 2026-06-30 02:43 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/0893220051.shtml)
+- 2026-06-30 02:28 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/66833990521.shtml)
+- 2026-06-30 02:31 - [毒液2](http://www.blog.minike.top/Article/details/225800780877.shtml)
+- 2026-06-30 02:33 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/550102906.shtml)
+- 2026-06-30 02:41 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/7439159.shtml)
+- 2026-06-30 02:27 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/82048.shtml)
+- 2026-06-30 02:51 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/832123213.shtml)
+- 2026-06-30 02:52 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/08728791.shtml)
+- 2026-06-30 02:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/92758850.shtml)
+- 2026-06-30 02:29 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/5343573.shtml)
+- 2026-06-30 02:26 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/067980967.shtml)
+- 2026-06-30 02:36 - [沙丘](https://www.share.kurohicncr.top/Article/details/28070.shtml)
+- 2026-06-30 02:39 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/7774078905.shtml)
+- 2026-06-30 02:44 - [天道](http://www.blog.minike.top/Article/details/16272377639.shtml)

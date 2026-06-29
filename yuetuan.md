@@ -1,59 +1,56 @@
-# 期货公司多举措防范原油期货交易风险
+# 消费者扎堆涌入折扣零售卖场 TJX上调全年业绩预期
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-本报记者 王 宁 今年以来，国际油价整体呈现走强行情，WTI原油价格从年初的56.3美元/桶涨至最高点110.93美元/桶，涨幅高达97%。 近日，《证券日报》记者调查发现，在本轮国际油价上涨过程中，国内部分原油期货交易者的投资收益呈现出较大差异，既有交易者盈利过亿元，也有交易者产生数百万元的亏损，但尚未出现爆仓或穿仓的情况。对此，受访期货公司高管向《证券日报》记者表示，一方面
+专题：聚焦美股2026年第一季度财报 公司将本财年同店销售额增长预期上调至 3%—4% 内容速览 TJX 集团一季度销售额与净利润双双走高，顺势上调全年经营业绩指引。 旗下拥有 TJ 麦克斯品牌的折扣零售巨头TJX 集团一季度营收业绩向好。在大众消费趋于谨慎的市场环境下，该品牌持续吸引客流入局，公司随即上调全年业绩预期。 财报显示，企业当期净利润达13.3 亿美元，折合每股收益
 
 ## 正文
 
-本报记者 王 宁 今年以来，国际油价整体呈现走强行情，WTI原油价格从年初的56.3美元/桶涨至最高点110.93美元/桶，涨幅高达97%。
+专题：聚焦美股2026年第一季度财报 公司将本财年同店销售额增长预期上调至 3%—4% 内容速览 TJX 集团一季度销售额与净利润双双走高，顺势上调全年经营业绩指引。
 
-近日，《证券日报》记者调查发现，在本轮国际油价上涨过程中，国内部分原油期货交易者的投资收益呈现出较大差异，既有交易者盈利过亿元，也有交易者产生数百万元的亏损，但尚未出现爆仓或穿仓的情况。
+旗下拥有 TJ 麦克斯品牌的折扣零售巨头TJX 集团一季度营收业绩向好。
 
-对此，受访期货公司高管向《证券日报》记者表示，一方面交易所和期货公司的风控措施得当，另一方面交易者相对理性，风险识别能力有所提升。
+在大众消费趋于谨慎的市场环境下，该品牌持续吸引客流入局，公司随即上调全年业绩预期。
 
-短期来看，原油期货的趋势性行情尚未形成，交易者仍需谨慎参与。
+财报显示，企业当期净利润达13.3 亿美元，折合每股收益 1.19 美元；去年同期净利润为 10.4 亿美元，每股收益 0.92 美元，大幅高于市场预期的每股 1.02 美元。
 
-北京一期货公司高管告诉《证券日报》记者，虽然年内原油期货行情整体走高，但也有过宽幅震荡阶段，因此，原油期货交易者出现较为明显的分化格局。
+季度净销售额从上年 131.1 亿美元增至143.2 亿美元，超出华尔街 140.2 亿美元的预估数值。
 
-“有客户今年以来账户盈利超过1亿元，总资金量始终维持在10亿元以上，其主要盈利集中在原油期价上涨过程中。
+同店销售额同比上涨 6%，远超分析师此前 4.1% 的预测值。
 
-” 浙商期货高级研究员张泽宇告诉《证券日报》记者，在本轮国际油价上涨过程中，期货公司主要采取多项风控措施助力交易者化解风险，包括盘中实时风控、动态上调保证金比例，逢节假日、行情剧烈波动时自动提高保证金比例，以及限制重仓和电话回访，临近强平线时有专人通知减仓、止盈止损等。
+公司上调本财年业绩指引： 将全年同店销售额增速预期，从此前 2%—3% 上调至3%—4%； 全年每股收益预期同步上调，由 4.93—5.02 美元调整至5.08—5.15 美元。
 
-上述北京期货公司高管表示，目前，沪原油期货保证金比例较高，加上部分期货公司风控措施得当，原油期货交易者会谨慎对待期价波动，在控制仓位操作的同时，一般会及时听取期货公司风险提示，不会盲目交易。
+市场机构普遍预测其全年同店销售增速为 3.4%，调整后每股收益 5.13 美元。
 
 ## 相关推荐
 
-- 2026-06-30 02:44 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 02:36 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 02:29 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-30 02:30 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 02:47 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 02:29 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 02:45 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 02:37 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 02:34 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 02:26 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 02:20 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 02:48 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 02:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 02:24 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 02:33 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 02:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 02:28 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 02:38 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 02:53 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 02:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 02:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 02:42 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 02:25 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:40 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/37476.shtml)
-- 2026-06-30 02:45 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/27252693.shtml)
-- 2026-06-30 02:24 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/88812073.shtml)
-- 2026-06-30 02:26 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/61277903839.shtml)
-- 2026-06-30 02:43 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/9292806668.shtml)
-- 2026-06-30 02:48 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/7580524468.shtml)
-- 2026-06-30 02:45 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/392091687628.shtml)
-- 2026-06-30 02:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/4203812783.shtml)
-- 2026-06-30 02:35 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/2308512.shtml)
-- 2026-06-30 02:33 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/0348871664.shtml)
-- 2026-06-30 02:41 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/515398544064.shtml)
-- 2026-06-30 02:28 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/7880850544.shtml)
-- 2026-06-30 02:31 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/39843918984.shtml)
-- 2026-06-30 02:41 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/67136007195.shtml)
-- 2026-06-30 02:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/86423353.shtml)
+- 2026-06-30 02:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/72691.shtml)
+- 2026-06-30 02:25 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/2268969350.shtml)
+- 2026-06-30 02:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/306215566.shtml)
+- 2026-06-30 02:43 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/05522040.shtml)
+- 2026-06-30 02:45 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/3545316.shtml)
+- 2026-06-30 02:40 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/242813853643.shtml)
+- 2026-06-30 02:52 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/40561290.shtml)
+- 2026-06-30 02:41 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/6547729.shtml)
+- 2026-06-30 02:31 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/65800.shtml)
+- 2026-06-30 02:51 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/461991130.shtml)
+- 2026-06-30 02:35 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/99461970546.shtml)
+- 2026-06-30 02:50 - [急先锋](http://www.blog.kurohicncr.top/Article/details/345433.shtml)
+- 2026-06-30 02:27 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/93958249618.shtml)
+- 2026-06-30 02:45 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/304215047088.shtml)
+- 2026-06-30 02:37 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/657910423.shtml)

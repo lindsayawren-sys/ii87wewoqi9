@@ -1,55 +1,58 @@
-# 国家市场监管总局附条件批准腾讯收购喜马拉雅股权案
+# 一泓清水北上：守护“世纪工程”的生命线
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-5月12日，市场监管总局发布公告，附加限制性条件批准腾讯控股有限公司（以下简称腾讯）收购喜马拉雅公司（以下简称喜马拉雅）股权案。该案对维护中国境内在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，防范平台领域“内卷式”竞争，推动平台经济创新和健康发展具有重要意义。 经审查，市场监管总局认为该案对中国境内在线音频播放平台市场、网络音乐播放平台市场竞争可能具有排除、限制竞争效
+中新网北京5月21日电(记者 郎朗 高萌)水，是流动的命脉。 从丹江口水库一路向北，1432公里的漫长旅程，南水北调中线工程将一泓清水送往华北大地。这项世纪工程通水十余年，累计供水已超过780亿立方米。 而在水源地，一场关于“守护”的行动，正悄然塑造着另一种意义上的工程——它看不见钢筋水泥，却关乎每一滴水的纯净。 “小水滴”汇聚的力量 24岁的孟欣站在丹江口水库岸边，望着碧波万
 
 ## 正文
 
-5月12日，市场监管总局发布公告，附加限制性条件批准腾讯控股有限公司（以下简称腾讯）收购喜马拉雅公司（以下简称喜马拉雅）股权案。
+中新网北京5月21日电(记者 郎朗 高萌)水，是流动的命脉。
 
-该案对维护中国境内在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，防范平台领域“内卷式”竞争，推动平台经济创新和健康发展具有重要意义。
+从丹江口水库一路向北，1432公里的漫长旅程，南水北调中线工程将一泓清水送往华北大地。
 
-经审查，市场监管总局认为该案对中国境内在线音频播放平台市场、网络音乐播放平台市场竞争可能具有排除、限制竞争效果。
+这项世纪工程通水十余年，累计供水已超过780亿立方米。
 
-为有效减少此项经营者集中可能产生的不利影响，市场监管总局经过全面审查、科学论证，依法对该案作出附条件批准决定，要求腾讯、喜马拉雅和集中后实体作出五项限制性承诺：不得提高在线音频播放平台服务价格、降低服务水平或者附加不合理交易条件；不得降低在线音频播放平台免费内容及免费热门内容比例；不得与在线音频播放平台版权方达成独家授权，并在规定期限内解除现有独家授权约定；不得向汽车厂商搭售在线音频播放平台、网络音乐播放平台，或者阻碍、限制其采购竞争对手产品；不得限制主播在多个在线音频播放平台入驻或分发其享有著作权的作品。
+而在水源地，一场关于“守护”的行动，正悄然塑造着另一种意义上的工程——它看不见钢筋水泥，却关乎每一滴水的纯净。
 
-经评估，市场监管总局认为该承诺方案可有效减少本集中导致的竞争问题，能够保障消费者、版权方、主播及汽车厂商等多方主体合法权益，维护相关市场公平竞争秩序，依法于5月11日附加限制性条件批准本案。
+“小水滴”汇聚的力量 24岁的孟欣站在丹江口水库岸边，望着碧波万顷的水面，想起了小时候。
 
-市场监管总局将严格督促交易双方有效履行限制性承诺，充分发挥经营者集中审查事前预防作用，切实维护我国在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，保障经营主体、消费者合法权益，防范平台“内卷式”竞争，推动平台企业和平台内经营者、劳动者共赢发展‌。
+每逢三四月风正大的时候，会有很多人在汉江沿线放风筝。
 
-责任编辑：刘万里 SF014
+“我还记得当时和姥爷拿着从潍坊买的那种特别大的风筝，在河边放。
+
+天那么蓝，水那么清，真是一幅非常和谐的画面。
 
 ## 相关推荐
 
-- 2026-06-30 02:23 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 02:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 02:34 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 02:25 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 02:25 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 02:49 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 02:24 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 02:26 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 02:44 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 02:39 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 02:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 02:39 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 02:28 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 02:33 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 02:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 02:41 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 02:24 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 02:26 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 02:31 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 02:53 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 02:48 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 02:48 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 02:34 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:21 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/32030721486.shtml)
-- 2026-06-30 02:35 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/69241.shtml)
-- 2026-06-30 02:31 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/5017879.shtml)
-- 2026-06-30 02:27 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/2989863.shtml)
-- 2026-06-30 02:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/72498579.shtml)
-- 2026-06-30 02:46 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/275844.shtml)
-- 2026-06-30 02:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/1841903.shtml)
-- 2026-06-30 02:45 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/983200873.shtml)
-- 2026-06-30 02:25 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/2261385849.shtml)
-- 2026-06-30 02:41 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/819054.shtml)
-- 2026-06-30 02:23 - [扬名立万](https://www.share.kurohicncr.top/Article/details/849237808.shtml)
-- 2026-06-30 02:33 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/22228.shtml)
-- 2026-06-30 02:22 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/148878.shtml)
-- 2026-06-30 02:33 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/632302733859.shtml)
-- 2026-06-30 02:44 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/376119274697.shtml)
+- 2026-06-30 02:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/8358378.shtml)
+- 2026-06-30 02:49 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/824195.shtml)
+- 2026-06-30 02:43 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/568837.shtml)
+- 2026-06-30 02:25 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/03836236.shtml)
+- 2026-06-30 02:45 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/8710491836.shtml)
+- 2026-06-30 02:47 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/7230171627.shtml)
+- 2026-06-30 02:34 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/539665031314.shtml)
+- 2026-06-30 02:52 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/977061809386.shtml)
+- 2026-06-30 02:53 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/6467670346.shtml)
+- 2026-06-30 02:36 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/66821343.shtml)
+- 2026-06-30 02:38 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/94095219.shtml)
+- 2026-06-30 02:45 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/70520059.shtml)
+- 2026-06-30 02:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/89014433463.shtml)
+- 2026-06-30 02:53 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/965641141.shtml)
+- 2026-06-30 02:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/3780231478.shtml)

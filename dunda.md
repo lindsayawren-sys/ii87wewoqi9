@@ -1,59 +1,60 @@
-# 美股收盘：三大指数集体收涨，纳指、标普500指数再创新高
+# 美国德州就加密隐私问题起诉Meta和WhatsApp
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-美股收盘：三大指数集体收涨，纳指、标普500指数再创新高；芯片股又爆发，大型科技股多数下跌 美东时间周一，美股三大指数集体上涨，纳指、标普500指数续创盘中和收盘新高。截至收盘，道指涨0.19%，报49704.47点；纳指涨0.1%，报26274.13点；标普500指数涨0.19%，报7412.84点。 盘面上，大型科技股多数下跌，谷歌跌超3%，脸书、亚马逊跌逾1%，微软跌0.
+美国德克萨斯州总检察长办公室周四起诉了WhatsApp及其母公司Meta Platforms，指控他们误导消费者，让他们对 WhatsApp加密措施的强度和范围产生误解。Meta一位发言人否认了这一指控。 向哈里森县法院提交的诉讼称，WhatsApp和Meta向用户虚假保证WhatsApp消息是加密的，尽管它们可以访问该消息应用上的“几乎所有”私人通信。 “WhatsApp将其
 
 ## 正文
 
-美股收盘：三大指数集体收涨，纳指、标普500指数再创新高；芯片股又爆发，大型科技股多数下跌 美东时间周一，美股三大指数集体上涨，纳指、标普500指数续创盘中和收盘新高。
+美国德克萨斯州总检察长办公室周四起诉了WhatsApp及其母公司Meta Platforms，指控他们误导消费者，让他们对 WhatsApp加密措施的强度和范围产生误解。
 
-截至收盘，道指涨0.19%，报49704.47点；纳指涨0.1%，报26274.13点；标普500指数涨0.19%，报7412.84点。
+Meta一位发言人否认了这一指控。
 
-盘面上，大型科技股多数下跌，谷歌跌超3%，脸书、亚马逊跌逾1%，微软跌0.59%，苹果跌0.13%，特斯拉涨近4%，英伟达涨近2%。
+向哈里森县法院提交的诉讼称，WhatsApp和Meta向用户虚假保证WhatsApp消息是加密的，尽管它们可以访问该消息应用上的“几乎所有”私人通信。
 
-银行股多数下跌，富国银行跌超2%，摩根士丹利、美国银行跌逾1%，摩根大通跌0.71%，高盛涨近1%，花旗涨0.28%。
+“WhatsApp将其服务宣传为安全加密，但它并没有兑现这些承诺，”德克萨斯州总检察长肯·帕克斯顿在一份声明中表示。
 
-航空股普遍下跌，美国航空跌超4%，西南航空跌超3%，达美航空、美联航跌近3%，波音涨0.35%。
+Meta发言人安迪·斯通在社交媒体上表示，诉讼中的指控不实，WhatsApp无法访问用户的加密通信。
 
-芯片股多数上涨，高通涨超8%，美光科技涨逾6%，恩智浦半导体涨近4%，英特尔涨超3%，超威半导体涨0.79%，台积电、阿斯麦跌逾1%。
+该诉讼寻求法院颁布禁令，禁止Meta和WhatsApp在未经用户同意的情况下访问德克萨斯州用户的WhatsApp消息，并要求对它们处以罚款。
 
-能源股集体上涨，西方石油、埃克森美孚、斯伦贝谢涨逾3%，康菲石油涨超2%，雪佛龙涨逾1%。
+德克萨斯州的诉讼援引了有关美国联邦政府调查Meta是否能够访问未加密WhatsApp消息的新闻报道，以及一份举报人向美国证券交易委员会（SEC）提交的报告。
 
-中概股多数上涨，纳斯达克中国金龙指数涨1.03%。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 02:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 02:27 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 02:42 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 02:41 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 02:24 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 02:29 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 02:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 02:21 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 02:23 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 02:48 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-30 02:33 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 02:44 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 02:41 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 02:37 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 02:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 02:51 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 02:27 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 02:36 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 02:34 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 02:44 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 02:35 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 02:27 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 02:26 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 02:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 02:35 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 02:39 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 02:29 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:35 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/36572706388.shtml)
-- 2026-06-30 02:33 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/7854570.shtml)
-- 2026-06-30 02:38 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/718824529034.shtml)
-- 2026-06-30 02:30 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/49941738096.shtml)
-- 2026-06-30 02:31 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/2051943.shtml)
-- 2026-06-30 02:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/417968202.shtml)
-- 2026-06-30 02:47 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/3931487484.shtml)
-- 2026-06-30 02:24 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/9583095699.shtml)
-- 2026-06-30 02:45 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/766166531237.shtml)
-- 2026-06-30 02:37 - [我们的少年时代2](https://www.blog.minike.top/Article/details/811636454.shtml)
-- 2026-06-30 02:25 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/49968747.shtml)
-- 2026-06-30 02:29 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/3639930671.shtml)
-- 2026-06-30 02:42 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/61168668.shtml)
-- 2026-06-30 02:35 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/2634295.shtml)
-- 2026-06-30 02:19 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/0065244484.shtml)
+- 2026-06-30 02:47 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/330662038.shtml)
+- 2026-06-30 02:31 - [千香](https://www.share.kurohicncr.top/Article/details/681068001.shtml)
+- 2026-06-30 02:43 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/37045624.shtml)
+- 2026-06-30 02:53 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/088712.shtml)
+- 2026-06-30 02:31 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/07607236.shtml)
+- 2026-06-30 02:35 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/7181907159.shtml)
+- 2026-06-30 02:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/98252545268.shtml)
+- 2026-06-30 02:27 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/108994.shtml)
+- 2026-06-30 02:43 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/3707519455.shtml)
+- 2026-06-30 02:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/936342.shtml)
+- 2026-06-30 02:37 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/323626.shtml)
+- 2026-06-30 02:33 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/9902206.shtml)
+- 2026-06-30 02:41 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/67616.shtml)
+- 2026-06-30 02:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/05040886.shtml)
+- 2026-06-30 02:35 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/21140512.shtml)

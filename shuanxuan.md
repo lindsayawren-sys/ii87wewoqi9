@@ -1,48 +1,61 @@
-# 四川汶川县举办纪念“5·12”汶川特大地震十八周年活动
+# 湖北宣恩妥善安置受灾群众：入住宾馆 三餐热食
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 19:31 来源：中国新闻网 5月12日，四川省阿坝州汶川县在漩口中学遗址开展纪念“5·12”汶川特大地震十八周年主题党日活动， 来自汶川县的干部群众代表和全国各地的民众向汶川特大地震遇难者同胞和在抗震救灾中捐躯的英雄敬献鲜花、默哀，缅怀那段历史，收获精神力量。(安源 制作 王嘉怡 视频来源 汶川县融媒体中心) 责任编辑：【刘湃】
+中新网湖北宣恩5月21日电 题：湖北宣恩妥善安置受灾群众：入住宾馆 三餐热食 作者 郭晓莹 董晓斌 税浪 “这是小青豆炖排骨，这是刨汤肉……大家尽管吃，不够随时添。”21日中午，在湖北宣恩县沙道沟镇盛达宾馆安置点餐厅，宾馆负责人张宏英将热腾腾的饭菜摆上餐桌。 盛达宾馆是白水河村受灾村民集中安置点之一，目前接纳安置了60余人。张宏英说，从18日安置群众入住开始，宾馆的各项工作就围
 
 ## 正文
 
-发布时间：2026年05月12日 19:31 来源：中国新闻网 5月12日，四川省阿坝州汶川县在漩口中学遗址开展纪念“5·12”汶川特大地震十八周年主题党日活动， 来自汶川县的干部群众代表和全国各地的民众向汶川特大地震遇难者同胞和在抗震救灾中捐躯的英雄敬献鲜花、默哀，缅怀那段历史，收获精神力量。
+中新网湖北宣恩5月21日电 题：湖北宣恩妥善安置受灾群众：入住宾馆 三餐热食 作者 郭晓莹 董晓斌 税浪 “这是小青豆炖排骨，这是刨汤肉……大家尽管吃，不够随时添。
 
-(安源 制作 王嘉怡 视频来源 汶川县融媒体中心) 责任编辑：【刘湃】
+”21日中午，在湖北宣恩县沙道沟镇盛达宾馆安置点餐厅，宾馆负责人张宏英将热腾腾的饭菜摆上餐桌。
+
+盛达宾馆是白水河村受灾村民集中安置点之一，目前接纳安置了60余人。
+
+张宏英说，从18日安置群众入住开始，宾馆的各项工作就围绕着他们的生活保障有序开展。
+
+张宏英调整供餐模式，将客房盒饭配送改为集中围桌用餐。
+
+“大家坐在一起吃饭聊天，热热闹闹的，就跟在家一样。
+
+”她说。
+
+据了解，此次白水河村有200余人紧急转移避险，当地将不具备投靠亲友条件的村民全部转移到沙道沟镇四家宾馆内统一安置。
 
 ## 相关推荐
 
-- 2026-06-30 02:39 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 02:21 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 02:32 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 02:24 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 02:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 02:39 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 02:25 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 02:32 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 02:36 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-30 02:22 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 02:35 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 02:48 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 02:22 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 02:24 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 02:37 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 02:29 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 02:31 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 02:53 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 02:40 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 02:53 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 02:51 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 02:52 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 02:27 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 02:39 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 02:25 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 02:54 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 02:32 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 02:36 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 02:36 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:45 - [金刚川](https://www.blog.minike.top/Article/details/7468739.shtml)
-- 2026-06-30 02:46 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/408532138709.shtml)
-- 2026-06-30 02:36 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/949952787185.shtml)
-- 2026-06-30 02:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/90877906.shtml)
-- 2026-06-30 02:36 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/12932558587.shtml)
-- 2026-06-30 02:22 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/4562046022.shtml)
-- 2026-06-30 02:38 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/0141821.shtml)
-- 2026-06-30 02:28 - [这一刀 会很帅](https://www.share.minike.top/Article/details/699346.shtml)
-- 2026-06-30 02:49 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/38391668.shtml)
-- 2026-06-30 02:37 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/8941073.shtml)
-- 2026-06-30 02:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/4223759843.shtml)
-- 2026-06-30 02:41 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/065350164.shtml)
-- 2026-06-30 02:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/692883.shtml)
-- 2026-06-30 02:40 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/64828.shtml)
-- 2026-06-30 02:23 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/030854361240.shtml)
+- 2026-06-30 02:47 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/17832134690.shtml)
+- 2026-06-30 02:51 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/27454088976.shtml)
+- 2026-06-30 02:43 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/136191269163.shtml)
+- 2026-06-30 02:49 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/9631161498.shtml)
+- 2026-06-30 02:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/70714917.shtml)
+- 2026-06-30 02:40 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/5590381623.shtml)
+- 2026-06-30 02:51 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/74774849.shtml)
+- 2026-06-30 02:27 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/94020987672.shtml)
+- 2026-06-30 02:47 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/05238207959.shtml)
+- 2026-06-30 02:49 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/2660639630.shtml)
+- 2026-06-30 02:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/823402357.shtml)
+- 2026-06-30 02:43 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/0089965.shtml)
+- 2026-06-30 02:53 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/855082011.shtml)
+- 2026-06-30 02:25 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/983856.shtml)
+- 2026-06-30 02:34 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/9253038958.shtml)

@@ -1,59 +1,50 @@
-# 流媒体平台正在吞噬电视广告市场
+# 深圳金融监管局：2025年深圳辖内外资行境内外协作服务客户约1.5万户
 
-> 更新时间：2026-06-30 02:49:31 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-随着消费者纷纷转向价格更低的含广告订阅套餐，预计到 2029 年，广告主在流媒体平台的投放支出将达到 200 亿美元。 如今电视广告最热门的投放阵地已不再是传统全国电视。随着用户规模持续扩张，流媒体平台正不断瓜分广告预算份额。 广告咨询机构 Madison and Wall 测算：流媒体广告支出近年快速增长，2029 年有望接近 200 亿美元，与传统线性电视广告规模相差无几。
+人民财讯5月21日电，记者从深圳金融监管局获悉，深圳外资银行“河套行”暨金融服务科创交流对接活动于5月20日在河套深港科技创新合作区举行。深圳金融监管局党委委员、一级巡视员陈飞鸿在会上表示，2025年深圳辖内外资银行境内外协作服务客户约1.5万户，办理业务100余万笔，涵盖企业赴港上市综合服务、企业高管财富管理、海外项目咨询及资源对接、早期科创企业投资赋能、跨境结算与汇率风险管
 
 ## 正文
 
-随着消费者纷纷转向价格更低的含广告订阅套餐，预计到 2029 年，广告主在流媒体平台的投放支出将达到 200 亿美元。
+人民财讯5月21日电，记者从深圳金融监管局获悉，深圳外资银行“河套行”暨金融服务科创交流对接活动于5月20日在河套深港科技创新合作区举行。
 
-如今电视广告最热门的投放阵地已不再是传统全国电视。
+深圳金融监管局党委委员、一级巡视员陈飞鸿在会上表示，2025年深圳辖内外资银行境内外协作服务客户约1.5万户，办理业务100余万笔，涵盖企业赴港上市综合服务、企业高管财富管理、海外项目咨询及资源对接、早期科创企业投资赋能、跨境结算与汇率风险管理等领域，有力支持了企业成长与国际化发展。
 
-随着用户规模持续扩张，流媒体平台正不断瓜分广告预算份额。
-
-广告咨询机构 Madison and Wall 测算：流媒体广告支出近年快速增长，2029 年有望接近 200 亿美元，与传统线性电视广告规模相差无几。
-
-本周众星云集的 广告预售会（Upfront） 上，这一行业趋势将成为核心主题。
-
-各大媒体与科技巨头将全力游说品牌方，投入数十亿美元预算签约旗下电视网与流媒体平台。
-
-统计覆盖：Apple TV、探索 +、迪士尼 +、Fox One、HBO Max、葫芦视频、网飞、派拉蒙 +、孔雀、Starz。
-
-注释：Apple TV 与 Starz 暂无含广告套餐；不含免费版、精选捆绑包、多频道视频及电信渠道分销。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 02:43 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 02:32 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 02:41 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 02:28 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 02:40 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 02:36 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 02:33 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 02:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 02:27 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 02:22 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-30 02:25 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 02:26 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 02:45 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 02:46 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 02:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 02:35 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 02:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 02:27 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 02:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 02:41 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 02:36 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 02:43 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 02:38 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 02:31 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 02:44 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 02:51 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 02:39 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:48 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/23013617.shtml)
-- 2026-06-30 02:31 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/2723054301.shtml)
-- 2026-06-30 02:23 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/469887029564.shtml)
-- 2026-06-30 02:41 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/8696636681.shtml)
-- 2026-06-30 02:39 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/064388581423.shtml)
-- 2026-06-30 02:37 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/1341683.shtml)
-- 2026-06-30 02:22 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/676187246130.shtml)
-- 2026-06-30 02:22 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/2447118.shtml)
-- 2026-06-30 02:29 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/596873.shtml)
-- 2026-06-30 02:37 - [一见倾心](https://www.blog.minike.top/Article/details/4907564.shtml)
-- 2026-06-30 02:43 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/488868.shtml)
-- 2026-06-30 02:40 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/40531101.shtml)
-- 2026-06-30 02:41 - [乔家的儿女](http://www.blog.minike.top/Article/details/17397.shtml)
-- 2026-06-30 02:25 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/9043888.shtml)
-- 2026-06-30 02:41 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/7648373420.shtml)
+- 2026-06-30 02:33 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/025010009.shtml)
+- 2026-06-30 02:25 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/03399920338.shtml)
+- 2026-06-30 02:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/270764515209.shtml)
+- 2026-06-30 02:48 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/614313793337.shtml)
+- 2026-06-30 02:48 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/56287967.shtml)
+- 2026-06-30 02:44 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/19454648.shtml)
+- 2026-06-30 02:47 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/08191544595.shtml)
+- 2026-06-30 02:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/290062922380.shtml)
+- 2026-06-30 02:48 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/0614950.shtml)
+- 2026-06-30 02:53 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/360986855.shtml)
+- 2026-06-30 02:48 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/2042438.shtml)
+- 2026-06-30 02:42 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/13694748.shtml)
+- 2026-06-30 02:46 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/98160.shtml)
+- 2026-06-30 02:53 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/895201.shtml)
+- 2026-06-30 02:44 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/71022879135.shtml)

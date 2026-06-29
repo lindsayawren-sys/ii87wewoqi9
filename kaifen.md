@@ -1,60 +1,56 @@
-# “重磅医生”上海组团减肥 中西医结合破解“越忙越胖”
+# 日韩股市，开盘大涨！
 
-> 更新时间：2026-06-30 02:49:31 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-中新网上海5月11日电 (记者 陈静)5月11日是世界防治肥胖日，一个以医务人员为营员的“减脂训练营”在上海中医药大学附属岳阳中西医结合医院(简称“岳阳医院”)开营。多位“重磅医生”成为营员。 “自从上班后，我的体重是一路放飞。加上工作繁忙缺乏运动又喜欢油炸类食物，体重从200多斤飙升到300多斤！”岳阳医院心胸外科项瑞龙医师告诉记者，“这次下了决心要减肥，一来怕因胖而生病；二
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！韩国股市开盘大涨。 5月21日，日韩股市均高开高走，截至发稿，日经225指数涨2.68%，韩国KOSPI指数涨4.6%。 消息面上，当地时间20日深夜，当天下午再度重启的三星电子劳资谈判结束，双方签署劳资协议暂定方案。三星电子工会一方表示，原定于21日开始进行的大罢工暂缓，工会内部将针对劳资谈判协议暂定方案
 
 ## 正文
 
-中新网上海5月11日电 (记者 陈静)5月11日是世界防治肥胖日，一个以医务人员为营员的“减脂训练营”在上海中医药大学附属岳阳中西医结合医院(简称“岳阳医院”)开营。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-多位“重磅医生”成为营员。
+韩国股市开盘大涨。
 
-“自从上班后，我的体重是一路放飞。
+5月21日，日韩股市均高开高走，截至发稿，日经225指数涨2.68%，韩国KOSPI指数涨4.6%。
 
-加上工作繁忙缺乏运动又喜欢油炸类食物，体重从200多斤飙升到300多斤！
+消息面上，当地时间20日深夜，当天下午再度重启的三星电子劳资谈判结束，双方签署劳资协议暂定方案。
 
-”岳阳医院心胸外科项瑞龙医师告诉记者，“这次下了决心要减肥，一来怕因胖而生病；二来我自己是个外科医生，每天要手术，往手术台上一站，自己都觉得占地方，而且站立时间长了，腰痛厉害，报名这次‘减脂训练营’希望成功瘦身。
+三星电子工会一方表示，原定于21日开始进行的大罢工暂缓，工会内部将针对劳资谈判协议暂定方案进行投票，后续行动将视投票结果决定。
 
-” 身高1米84的项医生说，家中父母其实都不胖。
+此外，美伊局势乐观预期升温，美国总统特朗普20日表示，如果美国和伊朗能达成协议，他愿意多花几天等待伊方消息。
 
-他中学、大学时期都坚持体育锻炼。
+隔夜美股三大指数集体收涨超1%，道指重回50000点上方；欧洲主要股指亦集体收涨。
 
-但参加工作后，平时工作繁忙，锻炼时间不够，睡眠也常常不足。
+责任编辑：韦子蓉
 
 ## 相关推荐
 
-- 2026-06-30 02:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 02:48 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 02:40 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 02:43 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 02:30 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 02:31 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 02:28 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 02:29 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-30 02:26 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 02:42 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-30 02:42 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 02:27 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 02:21 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 02:30 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 02:45 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 02:51 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 02:32 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 02:26 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 02:38 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 02:49 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 02:47 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 02:25 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 02:31 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 02:29 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/28270402.shtml)
-- 2026-06-30 02:44 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/58886124294.shtml)
-- 2026-06-30 02:44 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/3966926554.shtml)
-- 2026-06-30 02:43 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/6809533.shtml)
-- 2026-06-30 02:48 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/852430597208.shtml)
-- 2026-06-30 02:44 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/587131966.shtml)
-- 2026-06-30 02:40 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/117311836.shtml)
-- 2026-06-30 02:28 - [世界杯](http://www.blog.kurohicncr.top/Article/details/1691875.shtml)
-- 2026-06-30 02:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/179336957.shtml)
-- 2026-06-30 02:48 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/74009656589.shtml)
-- 2026-06-30 02:26 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/32454772.shtml)
-- 2026-06-30 02:44 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/72253.shtml)
-- 2026-06-30 02:46 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/1675283265.shtml)
-- 2026-06-30 02:42 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/94335.shtml)
-- 2026-06-30 02:40 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/395374342697.shtml)
+- 2026-06-30 02:30 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/383075.shtml)
+- 2026-06-30 02:26 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/97046254.shtml)
+- 2026-06-30 02:39 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/275567460.shtml)
+- 2026-06-30 02:27 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/617458.shtml)
+- 2026-06-30 02:24 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/164822965.shtml)
+- 2026-06-30 02:26 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/546247239.shtml)
+- 2026-06-30 02:53 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/449394989.shtml)
+- 2026-06-30 02:42 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/025913459.shtml)
+- 2026-06-30 02:45 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/884008313208.shtml)
+- 2026-06-30 02:43 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/61143668.shtml)
+- 2026-06-30 02:26 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/387688.shtml)
+- 2026-06-30 02:32 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/453122522.shtml)
+- 2026-06-30 02:28 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/189171954.shtml)
+- 2026-06-30 02:28 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/0297822635.shtml)
+- 2026-06-30 02:38 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/496533452228.shtml)

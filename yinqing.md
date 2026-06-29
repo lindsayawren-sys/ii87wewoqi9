@@ -1,43 +1,58 @@
-# 2026年职业教育活动周启动
+# 华泰期货：多空分歧加剧，碳酸锂价格宽幅震荡
 
-> 更新时间：2026-06-30 02:49:31 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 13:11 来源：央视新闻 责任编辑：【王祎】
+来源：华泰期货 作者： 师橙 市场分析 2026-05-20，碳酸锂主力合约2609开于182120元/吨，收于183100元/吨，当日收盘价较昨日结算价变化-1.30%。当日成交量为411021手，持仓量为447264手，前一交易日持仓量446424手，根据SMM现货报价，目前基差为2180元/吨（电碳均价-期货）。当日碳酸锂仓单53083手，较上个交易日变化504手。 碳酸
 
 ## 正文
 
-发布时间：2026年05月11日 13:11 来源：央视新闻 责任编辑：【王祎】
+来源：华泰期货 作者： 师橙 市场分析 2026-05-20，碳酸锂主力合约2609开于182120元/吨，收于183100元/吨，当日收盘价较昨日结算价变化-1.30%。
+
+当日成交量为411021手，持仓量为447264手，前一交易日持仓量446424手，根据SMM现货报价，目前基差为2180元/吨（电碳均价-期货）。
+
+当日碳酸锂仓单53083手，较上个交易日变化504手。
+
+碳酸锂现货：根据SMM数据，电池级碳酸锂报价174000-184000元/吨，较前一交易日变化-7500元/吨，工业级碳酸锂报价170000-180000元/吨，较前一交易日变化-7500元/吨。
+
+6%锂精矿价格2630美元/吨，较前一日变化-115美元/吨。
+
+供应：据 SMM 统计，碳酸锂周度总产量26016吨，环比+122吨；其中辉石产碳酸锂14987吨，环比+37吨；云母产碳酸锂3235吨，环比-66吨；盐湖产碳酸锂4795吨，环比+140吨；回收产碳酸锂2999吨，环比+11吨。
+
+库存：根据SMM最新统计数据，现货库存为101418吨，环比-1255吨。
+
+其中冶炼厂库存为19091吨，环比+296吨；下游库存为37147吨，环比-3421吨；其他库存为45180吨，环比+1870吨。
 
 ## 相关推荐
 
-- 2026-06-30 02:28 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 02:24 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 02:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 02:47 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 02:35 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 02:21 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 02:45 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 02:23 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 02:32 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 02:28 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 02:39 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 02:26 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 02:45 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 02:27 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 02:43 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 02:37 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 02:45 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 02:51 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 02:42 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 02:48 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 02:24 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 02:40 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 02:42 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:49 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/50594750.shtml)
-- 2026-06-30 02:27 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/73406008498.shtml)
-- 2026-06-30 02:41 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/86169427.shtml)
-- 2026-06-30 02:29 - [周生如故](https://www.share.kurohicncr.top/Article/details/67255.shtml)
-- 2026-06-30 02:23 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/8982597.shtml)
-- 2026-06-30 02:30 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/56997857.shtml)
-- 2026-06-30 02:39 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/504211.shtml)
-- 2026-06-30 02:48 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/5187077740.shtml)
-- 2026-06-30 02:36 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/25296035530.shtml)
-- 2026-06-30 02:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/35237551.shtml)
-- 2026-06-30 02:30 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/40219023.shtml)
-- 2026-06-30 02:32 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/0129098278.shtml)
-- 2026-06-30 02:47 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/613299827263.shtml)
-- 2026-06-30 02:44 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/67161144.shtml)
-- 2026-06-30 02:41 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/487996388907.shtml)
+- 2026-06-30 02:41 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/3892942.shtml)
+- 2026-06-30 02:25 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/36812764.shtml)
+- 2026-06-30 02:41 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/884767989.shtml)
+- 2026-06-30 02:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/02567.shtml)
+- 2026-06-30 02:40 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/32032515580.shtml)
+- 2026-06-30 02:32 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/04526766.shtml)
+- 2026-06-30 02:37 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/45773829.shtml)
+- 2026-06-30 02:28 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/93419.shtml)
+- 2026-06-30 02:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/70703118.shtml)
+- 2026-06-30 02:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/33866125.shtml)
+- 2026-06-30 02:28 - [毒液2](http://www.blog.kurohicncr.top/Article/details/02542637.shtml)
+- 2026-06-30 02:31 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/575090364706.shtml)
+- 2026-06-30 02:28 - [金牌调解](https://www.share.minike.top/Article/details/1592683.shtml)
+- 2026-06-30 02:30 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/4205924.shtml)
+- 2026-06-30 02:25 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/11327782.shtml)

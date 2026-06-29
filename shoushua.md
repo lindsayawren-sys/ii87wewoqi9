@@ -1,49 +1,56 @@
-# 湖北黄石：男子腹痛拦警车求助 民警载人闯灯紧急送医
+# 南非姆普马兰加省发生交通事故致10人死亡
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 15:01 来源：中国新闻网 5月9日傍晚，在湖北省黄石市月亮山路与四棵大道交叉口，一名男子捂着腹部来到警车边，向车内民警求助。据了解，该男子肾结石突发疼痛，就医途中路遇晚高峰，情况十分危急。民警得知情况后，紧急载人闯灯，仅用9分钟便将男子送至医院进行救治。(作者：刘冲） 责任编辑：【魏聪聪】
+中新社约翰内斯堡5月21日电 当地时间21日凌晨5时许，南非姆普马兰加省斯坦德顿(Standerton)与莫根宗(Morgenzon)之间的R39公路发生一起小巴车与巴士迎面相撞事故。截至目前，事故已造成10人死亡。 姆普马兰加省社区安全部门发言人莫埃蒂·姆穆西(Moeti Mmusi)介绍，8人在事故现场死亡，1人在送医途中身亡，另有1人在斯坦德顿一家医院接受治疗期间去世。死
 
 ## 正文
 
-发布时间：2026年05月12日 15:01 来源：中国新闻网 5月9日傍晚，在湖北省黄石市月亮山路与四棵大道交叉口，一名男子捂着腹部来到警车边，向车内民警求助。
+中新社约翰内斯堡5月21日电 当地时间21日凌晨5时许，南非姆普马兰加省斯坦德顿(Standerton)与莫根宗(Morgenzon)之间的R39公路发生一起小巴车与巴士迎面相撞事故。
 
-据了解，该男子肾结石突发疼痛，就医途中路遇晚高峰，情况十分危急。
+截至目前，事故已造成10人死亡。
 
-民警得知情况后，紧急载人闯灯，仅用9分钟便将男子送至医院进行救治。
+姆普马兰加省社区安全部门发言人莫埃蒂·姆穆西(Moeti Mmusi)介绍，8人在事故现场死亡，1人在送医途中身亡，另有1人在斯坦德顿一家医院接受治疗期间去世。
 
-(作者：刘冲） 责任编辑：【魏聪聪】
+死者为小巴车司机及乘客。
+
+目前事故原因尚不明确，相关部门已展开调查。
+
+当地市政部门提醒驾驶员，冬季清晨当地常出现浓雾天气，导致道路能见度下降，呼吁司机减速慢行、谨慎驾驶并开启车灯。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:21 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 02:37 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 02:48 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 02:22 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 02:23 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 02:35 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 02:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 02:33 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 02:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-30 02:43 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 02:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-30 02:33 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 02:25 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 02:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 02:46 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 02:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 02:38 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 02:49 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 02:31 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 02:24 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 02:38 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 02:47 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 02:45 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:27 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/66849500.shtml)
-- 2026-06-30 02:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/278142220152.shtml)
-- 2026-06-30 02:40 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/493068116548.shtml)
-- 2026-06-30 02:24 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/99815997589.shtml)
-- 2026-06-30 02:21 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/84092959.shtml)
-- 2026-06-30 02:42 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/979409272195.shtml)
-- 2026-06-30 02:25 - [TOP Prada](https://www.share.minike.top/Article/details/6983274242.shtml)
-- 2026-06-30 02:40 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/6455956.shtml)
-- 2026-06-30 02:28 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/562513.shtml)
-- 2026-06-30 02:29 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/0588370616.shtml)
-- 2026-06-30 02:19 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/502805228592.shtml)
-- 2026-06-30 02:32 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/60324653.shtml)
-- 2026-06-30 02:45 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/28794247.shtml)
-- 2026-06-30 02:31 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/265219.shtml)
-- 2026-06-30 02:42 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/5966141746.shtml)
+- 2026-06-30 02:52 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/823815849.shtml)
+- 2026-06-30 02:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/89057078.shtml)
+- 2026-06-30 02:27 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/5447255663.shtml)
+- 2026-06-30 02:51 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/3699554.shtml)
+- 2026-06-30 02:33 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/844652054.shtml)
+- 2026-06-30 02:50 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/81701.shtml)
+- 2026-06-30 02:33 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/62764171.shtml)
+- 2026-06-30 02:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/9738724.shtml)
+- 2026-06-30 02:29 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/27178.shtml)
+- 2026-06-30 02:42 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/99524.shtml)
+- 2026-06-30 02:45 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/494249407.shtml)
+- 2026-06-30 02:30 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/1307429082.shtml)
+- 2026-06-30 02:29 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/7245543.shtml)
+- 2026-06-30 02:46 - [金刚川](https://www.share.minike.top/Article/details/625987661.shtml)
+- 2026-06-30 02:43 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/97071782.shtml)

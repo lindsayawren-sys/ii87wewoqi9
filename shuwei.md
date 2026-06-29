@@ -1,56 +1,56 @@
-# 华安基金：绩优成长股爆发，创业板50指数上周涨3.67%
+# 重庆启动“乐享银龄”系列活动 六大板块点亮晚年生活
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-行情回顾及主要观点： 本周A股市场整体呈现上涨趋势，主要指数普遍上涨：沪深300涨1.34%，中证500涨4.13%，中证1000涨4.29%，创业板50涨3.67%，科创50涨4.42%。A股年报一季报业绩亮眼，创业板50指数2025/2026Q1归母净利润增速高达21.58%/42.38%。通信、电子、计算机等业绩面优异的成长资产表现强劲。在政策持续强调科技创新与新质生产力
+中新网重庆5月20日电 (记者 钟旖)重庆市2026年“乐享银龄”系列活动启动仪式暨老年文艺展演活动20日在当地举行。 作为2026西部地区银发消费季系列活动之一，该活动旨在积极丰富老年人精神文化生活、搭建老年文体展示平台、激活银发消费新动能，展现新时代下重庆银发群体健康向上的精神风貌。 现场，2026年“乐享银龄”六大主题活动体系正式发布，包含“乐龄文艺”“乐龄康养”“乐龄文
 
 ## 正文
 
-行情回顾及主要观点： 本周A股市场整体呈现上涨趋势，主要指数普遍上涨：沪深300涨1.34%，中证500涨4.13%，中证1000涨4.29%，创业板50涨3.67%，科创50涨4.42%。
+中新网重庆5月20日电 (记者 钟旖)重庆市2026年“乐享银龄”系列活动启动仪式暨老年文艺展演活动20日在当地举行。
 
-A股年报一季报业绩亮眼，创业板50指数2025/2026Q1归母净利润增速高达21.58%/42.38%。
+作为2026西部地区银发消费季系列活动之一，该活动旨在积极丰富老年人精神文化生活、搭建老年文体展示平台、激活银发消费新动能，展现新时代下重庆银发群体健康向上的精神风貌。
 
-通信、电子、计算机等业绩面优异的成长资产表现强劲。
+现场，2026年“乐享银龄”六大主题活动体系正式发布，包含“乐龄文艺”“乐龄康养”“乐龄文创”“乐龄阅读”“乐龄健身”“乐龄科普”六大板块，全方位构建覆盖精神文化、健康养生、知识普及的全维度银龄服务格局。
 
-在政策持续强调科技创新与新质生产力的背景下，后市焦点仍将集中于具备优质业绩的成长型创新企业，大盘成长风格突出的创业板50指数值得重点关注。
+具体来看，重庆市文化旅游委将围绕“乐龄文艺”“乐龄康养”主题，推出系列老年文艺展演、康养体验活动，丰富老年文化供给，普及健康养老理念。
 
-创业板为主要“三创（创新、创造、创意）四新（新技术、新产业、新业态、新模式）”的成长型创新创业企业提供直接融资平台。
+重庆市老年大学协会将聚焦“乐龄文创”主题，发布老年文创作品征集、展览计划，鼓励老年群体发挥才智，创作兼具文化底蕴与时代特色的文创产品。
 
-权重行业方面，创业板50指数聚焦信息技术+新能源+金融科技+医药四大新质生产力赛道，科技成长属性纯粹。
+重庆广电集团(总台)红叶频道将紧扣“乐龄阅读”主题，推出银龄读书分享会、经典诵读等活动，营造老年阅读氛围，滋养精神家园。
 
-图：创业板50指数四大赛道 数据来源：Wind，华安基金，截至2026-5-8 创业板50指数：追“光”识“新”更掘“金”。
+重庆市老年人体育协会将围绕“乐龄健身”主题，发布老年健身赛事、科学健身指导活动，推广适合老年群体的健身项目，助力健康老龄化。
 
-横向对比来看，创业板50指数的光模块含量、新能源光伏含量以及金融科技含量优于创业板指以及主流宽基指数。
+重庆市老科学技术工作者协会则将聚焦“乐龄科普”主题，开展老年科普讲座、智慧助老等活动，帮助老年群体跨越“数字鸿沟”，提升科学素养。
 
 ## 相关推荐
 
-- 2026-06-30 02:43 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 02:44 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 02:27 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 02:35 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 02:25 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 02:34 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 02:27 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 02:40 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 02:46 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-30 02:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 02:47 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 02:37 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 02:32 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-30 02:40 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 02:53 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 02:34 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 02:24 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 02:24 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 02:45 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 02:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:45 - [85花告别古偶](http://www.share.minike.top/Article/details/69438060701.shtml)
-- 2026-06-30 02:38 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/21555.shtml)
-- 2026-06-30 02:43 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/936020299986.shtml)
-- 2026-06-30 02:28 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/6134811.shtml)
-- 2026-06-30 02:26 - [扬名立万](https://www.blog.minike.top/Article/details/404968.shtml)
-- 2026-06-30 02:20 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/586462766837.shtml)
-- 2026-06-30 02:45 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/56432.shtml)
-- 2026-06-30 02:39 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/542843.shtml)
-- 2026-06-30 02:42 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/35782162.shtml)
-- 2026-06-30 02:27 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/286029.shtml)
-- 2026-06-30 02:47 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/4965325434.shtml)
-- 2026-06-30 02:46 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/43704337592.shtml)
-- 2026-06-30 02:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/56119.shtml)
-- 2026-06-30 02:29 - [刘念回应](https://www.share.minike.top/Article/details/0345830.shtml)
-- 2026-06-30 02:33 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/004711.shtml)
+- 2026-06-30 02:35 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/5368420.shtml)
+- 2026-06-30 02:29 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/7611787705.shtml)
+- 2026-06-30 02:53 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/662653.shtml)
+- 2026-06-30 02:42 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/509689.shtml)
+- 2026-06-30 02:39 - [千与千寻](https://www.share.kurohicncr.top/Article/details/381575394.shtml)
+- 2026-06-30 02:44 - [扫黑风暴](http://www.blog.minike.top/Article/details/494354883.shtml)
+- 2026-06-30 02:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/04384069462.shtml)
+- 2026-06-30 02:27 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/0847289.shtml)
+- 2026-06-30 02:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/093118644210.shtml)
+- 2026-06-30 02:29 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/35184508.shtml)
+- 2026-06-30 02:48 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/8879030843.shtml)
+- 2026-06-30 02:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/88003251.shtml)
+- 2026-06-30 02:35 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/160819735.shtml)
+- 2026-06-30 02:31 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/36343.shtml)
+- 2026-06-30 02:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/53990751.shtml)

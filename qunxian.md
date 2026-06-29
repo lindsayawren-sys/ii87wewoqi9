@@ -1,47 +1,58 @@
-# 高盛亚太区FICC联席主管Houghton将退休 Imatsu将成该部门唯一负责人
+# 纽约汇市：美元从六周高点回落 交易员乐观看待伊朗局势
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-高盛集团驻香港的亚太区固定收益、外汇和大宗商品（FICC）联席主管James Houghton将于6月底退休，结束其在高盛长达24年的职业生涯。 该备忘录已获高盛发言人确认 发言人：目前与Houghton共同担任亚太区FICC联席主管的Hidehiro Imatsu将成为唯一负责人，并继续担任高盛日本总裁和全球利率产品交易联席主管 Houghton是亚太区管理委员会成员，并于2
+由于交易员对谈判结束伊朗战争的乐观情绪推动油价下跌，美元兑G-10货币普遍走弱，美国国债收益率回落。 彭博美元即期指数下跌0.3%，从早些时候触及的六周高点回落。 受有关伊朗战争的消息影响， 美元兑G-10货币在纽约早盘大幅下跌。 10年期美国国债收益率下跌9个基点至4.57%；布伦特下跌5.5%，至每桶106美元下方。 根据DTCC数据，期权成交量较近期均值低约10%。 美联
 
 ## 正文
 
-高盛集团驻香港的亚太区固定收益、外汇和大宗商品（FICC）联席主管James Houghton将于6月底退休，结束其在高盛长达24年的职业生涯。
+由于交易员对谈判结束伊朗战争的乐观情绪推动油价下跌，美元兑G-10货币普遍走弱，美国国债收益率回落。
 
-该备忘录已获高盛发言人确认 发言人：目前与Houghton共同担任亚太区FICC联席主管的Hidehiro Imatsu将成为唯一负责人，并继续担任高盛日本总裁和全球利率产品交易联席主管 Houghton是亚太区管理委员会成员，并于2008年被任命为合伙人责任编辑：龙运翔
+彭博美元即期指数下跌0.3%，从早些时候触及的六周高点回落。
+
+受有关伊朗战争的消息影响， 美元兑G-10货币在纽约早盘大幅下跌。
+
+10年期美国国债收益率下跌9个基点至4.57%；布伦特下跌5.5%，至每桶106美元下方。
+
+根据DTCC数据，期权成交量较近期均值低约10%。
+
+美联储会议纪要显示，多数美联储官员警告称，如果通胀持续高于2%的目标水平，央行可能需要考虑加息。
+
+英镑/美元涨0.4%，至1.3447，在震荡交易中扭转了早些时候的跌势。
+
+数据显示英国4月通胀降至逾一年低位，促使交易员削减对英国央行的加息押注，尽管经济学家预计物价压力将回归。
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 02:32 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 02:21 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 02:39 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 02:46 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-30 02:44 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-30 02:47 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 02:30 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 02:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 02:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 02:20 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 02:27 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 02:46 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 02:40 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 02:42 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 02:48 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 02:38 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 02:32 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 02:35 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 02:29 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 02:29 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 02:40 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 02:25 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 02:50 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 02:38 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:38 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/6954905727.shtml)
-- 2026-06-30 02:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/87770516.shtml)
-- 2026-06-30 02:39 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/38679941.shtml)
-- 2026-06-30 02:20 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/389469339.shtml)
-- 2026-06-30 02:35 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/0958698213.shtml)
-- 2026-06-30 02:26 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/156155648.shtml)
-- 2026-06-30 02:27 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/8865941150.shtml)
-- 2026-06-30 02:37 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/40357.shtml)
-- 2026-06-30 02:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/43402711.shtml)
-- 2026-06-30 02:19 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/505444842.shtml)
-- 2026-06-30 02:22 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/3609941980.shtml)
-- 2026-06-30 02:26 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/265589351342.shtml)
-- 2026-06-30 02:25 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/15690784.shtml)
-- 2026-06-30 02:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/329601.shtml)
-- 2026-06-30 02:30 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/75745.shtml)
+- 2026-06-30 02:35 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/940800250.shtml)
+- 2026-06-30 02:45 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/83677795.shtml)
+- 2026-06-30 02:33 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/763783836.shtml)
+- 2026-06-30 02:34 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/284168.shtml)
+- 2026-06-30 02:24 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/237474690.shtml)
+- 2026-06-30 02:28 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/88280885.shtml)
+- 2026-06-30 02:41 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/483930.shtml)
+- 2026-06-30 02:46 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/2754547076.shtml)
+- 2026-06-30 02:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/926737536.shtml)
+- 2026-06-30 02:45 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/43193.shtml)
+- 2026-06-30 02:33 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/87679932956.shtml)
+- 2026-06-30 02:24 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/490393122.shtml)
+- 2026-06-30 02:35 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/35213.shtml)
+- 2026-06-30 02:35 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/1947064301.shtml)
+- 2026-06-30 02:29 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/388209064567.shtml)

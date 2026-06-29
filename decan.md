@@ -1,59 +1,60 @@
-# 拉赫蒙获授北京大学名誉教授 冀推动塔中文明交流与教育合作
+# 老骥伏枥，70岁马明哲划定中国平安高质量发展路线图：战略做融合，出海要谨慎，个险要稳妥，治理不松懈
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-中新社北京5月12日电 (周昕)塔吉克斯坦总统埃莫马利·拉赫蒙北京大学名誉教授授予仪式暨演讲会12日在北京大学举行。正在对中国进行国事访问的拉赫蒙当日在演讲中细数两国多领域合作成果，冀推动塔中文明交流与教育合作，并寄语青年勤学奋进。当日，北京大学党委书记何光彩和北京大学校长龚旗煌分别向拉赫蒙颁发名誉教授铜牌和证书。 演讲中，拉赫蒙指出，北京大学凭借卓越的教育与科研成果享誉海内外
+来源：险企高参 5.20股东大会上，马明哲定调中国平安战略。 5月20日，中国平安2025年年度股东大会召开，董事长马明哲携一众高管出席，直面战略定位、市场布局、寿险改革、科技投入及公司治理等话题，给人感受战略清晰、财务稳健、底气十足。 “综合金融+医疗养老”双轮驱动 当被问及中国平安未来如何打造独特优势时，马明哲简明扼要地敲定中国平安整体战略——以科技赋能“综合金融+医疗养老
 
 ## 正文
 
-中新社北京5月12日电 (周昕)塔吉克斯坦总统埃莫马利·拉赫蒙北京大学名誉教授授予仪式暨演讲会12日在北京大学举行。
+来源：险企高参 5.20股东大会上，马明哲定调中国平安战略。
 
-正在对中国进行国事访问的拉赫蒙当日在演讲中细数两国多领域合作成果，冀推动塔中文明交流与教育合作，并寄语青年勤学奋进。
+5月20日，中国平安2025年年度股东大会召开，董事长马明哲携一众高管出席，直面战略定位、市场布局、寿险改革、科技投入及公司治理等话题，给人感受战略清晰、财务稳健、底气十足。
 
-当日，北京大学党委书记何光彩和北京大学校长龚旗煌分别向拉赫蒙颁发名誉教授铜牌和证书。
+“综合金融+医疗养老”双轮驱动 当被问及中国平安未来如何打造独特优势时，马明哲简明扼要地敲定中国平安整体战略——以科技赋能“综合金融+医疗养老”，这也是中国平安现在及未来打造的独特优势。
 
-演讲中，拉赫蒙指出，北京大学凭借卓越的教育与科研成果享誉海内外，也吸纳了来自世界多个国家和地区的留学生，这为塔中人文交流搭建了重要平台。
+2025年报的数据能够佐证中国平安战略的成功，2.51亿个人客户——大约每6个人中就有1位是中国平安客户。
 
-中塔两国于1992年建交。
+业绩表现上，去年中国平安健康险保费收入1590亿元，其中医疗险保费近734亿元，同比增长2.7%。
 
-拉赫蒙表示，塔中关系自建交以来稳步发展，政治互信深厚，合作覆盖政治、安全、经贸、文化、人文等多领域，始终在睦邻友好原则下持续拓展合作广度与深度。
+平安健康实现营收57.23亿元，北大医疗集团营收54.68亿元，医养服务正加速成为中国平安的“第二增长曲线”。
 
-教育合作是两国关系的重要组成部分。
+同时，年报中有个数据很说明问题“使用平安医养服务的客户，加保率比未使用的客户高出整整4个百分点；居家养老权益客户的寿险新单件均保费提升至5.2倍，高品质养老权益客户更是提升至23.4倍。
 
-拉赫蒙在演讲中说，近年来，塔吉克斯坦高校数量显著增加，在校大学生人数大幅增长。
+可见，医养业务是真真切切在给金融主业“导流+锁客+提价”。
 
 ## 相关推荐
 
-- 2026-06-30 02:24 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 02:47 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 02:47 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 02:45 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 02:23 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 02:40 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 02:34 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 02:20 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 02:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 02:33 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 02:27 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 02:21 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 02:21 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 02:45 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 02:39 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 02:37 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 02:42 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 02:40 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 02:53 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 02:48 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 02:35 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 02:26 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 02:36 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 02:29 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-30 02:36 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 02:45 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 02:34 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:36 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/73520.shtml)
-- 2026-06-30 02:36 - [千香](http://www.blog.kurohicncr.top/Article/details/463483844694.shtml)
-- 2026-06-30 02:23 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/6968649316.shtml)
-- 2026-06-30 02:48 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/7307440.shtml)
-- 2026-06-30 02:37 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/532307050.shtml)
-- 2026-06-30 02:32 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/5709679758.shtml)
-- 2026-06-30 02:32 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/318694424950.shtml)
-- 2026-06-30 02:30 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/14130696799.shtml)
-- 2026-06-30 02:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/352793533.shtml)
-- 2026-06-30 02:48 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/3700991.shtml)
-- 2026-06-30 02:27 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/03006.shtml)
-- 2026-06-30 02:40 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/28786975487.shtml)
-- 2026-06-30 02:42 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/586255266.shtml)
-- 2026-06-30 02:30 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/8635862872.shtml)
-- 2026-06-30 02:40 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/489056151638.shtml)
+- 2026-06-30 02:27 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/826569230.shtml)
+- 2026-06-30 02:31 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/643621.shtml)
+- 2026-06-30 02:51 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/21851.shtml)
+- 2026-06-30 02:31 - [周生如故](https://www.share.minike.top/Article/details/36426410134.shtml)
+- 2026-06-30 02:42 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/85688283.shtml)
+- 2026-06-30 02:37 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/538307352528.shtml)
+- 2026-06-30 02:50 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/9060020.shtml)
+- 2026-06-30 02:35 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/60770.shtml)
+- 2026-06-30 02:37 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/0025196.shtml)
+- 2026-06-30 02:40 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/964568.shtml)
+- 2026-06-30 02:53 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/17430902.shtml)
+- 2026-06-30 02:44 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/68449661.shtml)
+- 2026-06-30 02:41 - [一见倾心](https://www.share.minike.top/Article/details/91683.shtml)
+- 2026-06-30 02:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/4358381428.shtml)
+- 2026-06-30 02:36 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/177877555069.shtml)

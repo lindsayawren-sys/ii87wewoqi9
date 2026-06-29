@@ -1,60 +1,56 @@
-# 重要更新！微信转账支持“组合支付”了，你用了吗
+# 大同邀民众共绘城市情书 展现古都多元气质
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-近期，记者注意到，微信支付上线了“组合支付”能力，即用户在进行转账时可在收银台任选“零钱、零钱通、经营账户、借记卡、分付”中的任意两种方式进行组合，完成支付。该能力上线前，用户只能通过单一支付渠道完成支付。 记者从微信支付方面独家了解到，“组合支付”能力优先支持“转账”场景，其它场景将在后续逐步放开，且目前该能力正在逐步放量中。 据其介绍，微信支付“组合支付”能力方便用户在大额
+中新网大同5月20日电 (记者 胡健)“给大同的情书”城市主题活动20日在山西大同古城东南邑丝路广场举行，活动以巨型画布为载体，邀请市民与游客共同绘写对大同的热爱，以文艺表达串联文化传承、能源转型与数字发展，旨在展现古城大同的多元气质。 本次活动围绕“你爱这座城，这座城也爱你”的主题，设置文化之城、能源之城、算力之城三大主题创作区。云冈石窟、古城墙、光伏风电、算力中心等元素被一
 
 ## 正文
 
-近期，记者注意到，微信支付上线了“组合支付”能力，即用户在进行转账时可在收银台任选“零钱、零钱通、经营账户、借记卡、分付”中的任意两种方式进行组合，完成支付。
+中新网大同5月20日电 (记者 胡健)“给大同的情书”城市主题活动20日在山西大同古城东南邑丝路广场举行，活动以巨型画布为载体，邀请市民与游客共同绘写对大同的热爱，以文艺表达串联文化传承、能源转型与数字发展，旨在展现古城大同的多元气质。
 
-该能力上线前，用户只能通过单一支付渠道完成支付。
+本次活动围绕“你爱这座城，这座城也爱你”的主题，设置文化之城、能源之城、算力之城三大主题创作区。
 
-记者从微信支付方面独家了解到，“组合支付”能力优先支持“转账”场景，其它场景将在后续逐步放开，且目前该能力正在逐步放量中。
+云冈石窟、古城墙、光伏风电、算力中心等元素被一一绘入画布，民众以笔触寄情，用色彩告白，在互动中感受城市底蕴与发展脉动。
 
-据其介绍，微信支付“组合支付”能力方便用户在大额支付场景下灵活选择支付方式，打破单一支付渠道的额度限制。
+在现场参与绘画的《如梦大同》演员张新岩表示，《如梦大同》剧目扎根大同历史文脉，以艺术传递大爱精神。
 
-目前，哪些人可以使用组合支付？
+“‘520’之际，我们以文艺作品向大同告白，希望让更多人读懂这座城市的文化底蕴。
 
-微信支付方面告诉21世纪经济报道记者，“只要是完成了实名认证的微信支付用户（包含大陆身份证、回乡证、台胞证、护照及外国人永居证用户），都可以体验这项能力。
+” “大同正从传统印象迈向绿色低碳新形象，新能源快速发展让城市充满生机，希望更多人看见多彩、清洁、奋进的新大同。
 
-” “组合支付”后需退款，如何进行？
+”晋能控股晋北能源(山西)有限公司储能分公司职员封帆在现场表示。
 
-微信支付方面解释称，如果使用组合支付完成的交易发生退款（例如对方未及时收款导致转账退回），资金会按照当初设定的支付金额，自动原路退回到当时使用的两个付款账户中（比如零钱和银行卡）。
+在算力行业工作的秦能科技员工和佳雯表示，近几年大同算力建设持续向好，数字场景不断丰富，为青年提供了广阔的发展平台。
 
 ## 相关推荐
 
-- 2026-06-30 02:42 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 02:45 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 02:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 02:31 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 02:30 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 02:33 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 02:28 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 02:38 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 02:43 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-30 02:42 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 02:49 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 02:41 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 02:29 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 02:37 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 02:32 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 02:38 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 02:27 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 02:48 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 02:52 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 02:45 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 02:40 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 02:40 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 02:24 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 02:24 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:36 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/57134310263.shtml)
-- 2026-06-30 02:21 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/460490.shtml)
-- 2026-06-30 02:30 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/1164530147.shtml)
-- 2026-06-30 02:28 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/806772335904.shtml)
-- 2026-06-30 02:47 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/76266.shtml)
-- 2026-06-30 02:22 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/4585129038.shtml)
-- 2026-06-30 02:49 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/44411.shtml)
-- 2026-06-30 02:26 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/200036610.shtml)
-- 2026-06-30 02:45 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/2587247.shtml)
-- 2026-06-30 02:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/9467094.shtml)
-- 2026-06-30 02:27 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/92628.shtml)
-- 2026-06-30 02:22 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/92431.shtml)
-- 2026-06-30 02:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/9191356581.shtml)
-- 2026-06-30 02:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/45638.shtml)
-- 2026-06-30 02:37 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/48691467.shtml)
+- 2026-06-30 02:24 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/476265308.shtml)
+- 2026-06-30 02:49 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/2753539.shtml)
+- 2026-06-30 02:50 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/893724323121.shtml)
+- 2026-06-30 02:45 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/863237019.shtml)
+- 2026-06-30 02:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/17838021371.shtml)
+- 2026-06-30 02:50 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/1350339297.shtml)
+- 2026-06-30 02:31 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/8991400863.shtml)
+- 2026-06-30 02:37 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/982983.shtml)
+- 2026-06-30 02:34 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/2205775.shtml)
+- 2026-06-30 02:41 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/43630799.shtml)
+- 2026-06-30 02:32 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/399652.shtml)
+- 2026-06-30 02:47 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/738919911.shtml)
+- 2026-06-30 02:35 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/62764425256.shtml)
+- 2026-06-30 02:43 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/13604382.shtml)
+- 2026-06-30 02:48 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/01343029.shtml)

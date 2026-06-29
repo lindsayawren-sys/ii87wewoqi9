@@ -1,49 +1,48 @@
-# 视频|李大霄：韩国监管发出警告
+# 日韩股市集体高开 韩股高开0.7%
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：石秀珍 SF183
+日经225指开盘上涨0.4%，报61913.36点，金属类股、机械类股领涨。韩国综合股价指数（KOSPI）开盘上涨0.7%，至7873.12点。责任编辑：王永生
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+日经225指开盘上涨0.4%，报61913.36点，金属类股、机械类股领涨。
 
-责任编辑：石秀珍 SF183
+韩国综合股价指数（KOSPI）开盘上涨0.7%，至7873.12点。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 02:30 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 02:38 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 02:21 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 02:21 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 02:35 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 02:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 02:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 02:40 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 02:39 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 02:47 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 02:42 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-30 02:23 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 02:33 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 02:27 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 02:38 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 02:49 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 02:32 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 02:47 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 02:43 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 02:31 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 02:31 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 02:47 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 02:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 02:25 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 02:53 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 02:45 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 02:35 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:21 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/94468.shtml)
-- 2026-06-30 02:30 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/2997037607.shtml)
-- 2026-06-30 02:27 - [青春环游记第三季](https://www.blog.minike.top/Article/details/20407.shtml)
-- 2026-06-30 02:19 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/793888959.shtml)
-- 2026-06-30 02:20 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/452466620870.shtml)
-- 2026-06-30 02:48 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/95259021154.shtml)
-- 2026-06-30 02:43 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/419476.shtml)
-- 2026-06-30 02:24 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/89789540.shtml)
-- 2026-06-30 02:49 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/685701.shtml)
-- 2026-06-30 02:42 - [巴西vs日本](http://www.share.minike.top/Article/details/44137090393.shtml)
-- 2026-06-30 02:46 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/138313215.shtml)
-- 2026-06-30 02:45 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/59488665.shtml)
-- 2026-06-30 02:38 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/12925.shtml)
-- 2026-06-30 02:48 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/18196919.shtml)
-- 2026-06-30 02:27 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/207608.shtml)
+- 2026-06-30 02:46 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/7817712.shtml)
+- 2026-06-30 02:31 - [乔家的儿女](https://www.blog.minike.top/Article/details/935441500132.shtml)
+- 2026-06-30 02:40 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/1924365.shtml)
+- 2026-06-30 02:52 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/254491.shtml)
+- 2026-06-30 02:43 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/139565444867.shtml)
+- 2026-06-30 02:48 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/2645758.shtml)
+- 2026-06-30 02:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/3848096.shtml)
+- 2026-06-30 02:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/272999752208.shtml)
+- 2026-06-30 02:31 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/8424737.shtml)
+- 2026-06-30 02:42 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/3986791171.shtml)
+- 2026-06-30 02:47 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/28051.shtml)
+- 2026-06-30 02:33 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/65998307404.shtml)
+- 2026-06-30 02:34 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/648069914.shtml)
+- 2026-06-30 02:37 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/5856706.shtml)
+- 2026-06-30 02:38 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/41629.shtml)

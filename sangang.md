@@ -1,57 +1,50 @@
-# 美国能源部长提议暂停联邦汽油税
+# 伊朗：美国的威胁和最后通牒不会影响德黑兰的决定
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-美国能源部长克里斯・赖特周日表示，特朗普政府愿意暂停征收联邦汽油税，以缓解美国民众的油价支出压力。 赖特在美国电视节目中，被问及是否临时停征联邦汽油税时回应称：“凡是能够降低加油站油价、为美国民众减负的所有举措，本届政府都予以支持。” 美国汽车协会（AAA）数据显示，截至周日，全美汽油均价为每加仑 4.52 美元。 美国民众每加仑汽油需缴纳联邦税略高于 18 美分，每加仑柴油联
+据伊朗国家电视台IRIB报道，外交部发言人巴加埃表示，巴基斯坦内政部长正在伊朗访问“以促进美伊之间的信息交流”。 巴加埃表示：“伊朗和美国双方正根据伊朗提出的14点建议继续交换信息”。 他还补充说，美国以“最后通牒和期限”相威胁不会影响德黑兰的决定。责任编辑：李桐
 
 ## 正文
 
-美国能源部长克里斯・赖特周日表示，特朗普政府愿意暂停征收联邦汽油税，以缓解美国民众的油价支出压力。
+据伊朗国家电视台IRIB报道，外交部发言人巴加埃表示，巴基斯坦内政部长正在伊朗访问“以促进美伊之间的信息交流”。
 
-赖特在美国电视节目中，被问及是否临时停征联邦汽油税时回应称：“凡是能够降低加油站油价、为美国民众减负的所有举措，本届政府都予以支持。
+巴加埃表示：“伊朗和美国双方正根据伊朗提出的14点建议继续交换信息”。
 
-” 美国汽车协会（AAA）数据显示，截至周日，全美汽油均价为每加仑 4.52 美元。
+他还补充说，美国以“最后通牒和期限”相威胁不会影响德黑兰的决定。
 
-美国民众每加仑汽油需缴纳联邦税略高于 18 美分，每加仑柴油联邦税约为 24 美分。
-
-如果即日起暂停这项税收，汽油均价将降至每加仑 4.34 美元，但仍远高于特朗普总统对伊朗开战前两天、每加仑 2.98 美元的均价水平。
-
-此次小幅降价，大概率难以缓解低收入群体的经济压力，而这部分人群受油价飙升冲击最为严重。
-
-这项可能实施的汽油税免征期持续时长，将对公路信托基金产生重大影响；该基金主要依靠这项税收，为全美各地的道路建设与养护提供资金。
-
-特朗普曾承诺，高油价只会是短期现象。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 02:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 02:43 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 02:35 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 02:26 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 02:34 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 02:35 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 02:48 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 02:28 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 02:22 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 02:32 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 02:45 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 02:37 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 02:34 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 02:46 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 02:50 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 02:37 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 02:39 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 02:29 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 02:47 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-30 02:42 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 02:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 02:35 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 02:35 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:43 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/203548.shtml)
-- 2026-06-30 02:43 - [啊啊啊](https://www.blog.minike.top/Article/details/54690522687.shtml)
-- 2026-06-30 02:44 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/17530895.shtml)
-- 2026-06-30 02:30 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/40236.shtml)
-- 2026-06-30 02:20 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/203505.shtml)
-- 2026-06-30 02:31 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/054632.shtml)
-- 2026-06-30 02:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/92033095239.shtml)
-- 2026-06-30 02:41 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/16164407.shtml)
-- 2026-06-30 02:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/7143048.shtml)
-- 2026-06-30 02:42 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/26623.shtml)
-- 2026-06-30 02:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/139123155.shtml)
-- 2026-06-30 02:38 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/642751511130.shtml)
-- 2026-06-30 02:42 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/83660.shtml)
-- 2026-06-30 02:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/264979.shtml)
-- 2026-06-30 02:49 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/33466714419.shtml)
+- 2026-06-30 02:42 - [时光音乐会](https://www.share.minike.top/Article/details/6058435331.shtml)
+- 2026-06-30 02:25 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/680893679.shtml)
+- 2026-06-30 02:50 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/30481.shtml)
+- 2026-06-30 02:35 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/640027.shtml)
+- 2026-06-30 02:35 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/288269548.shtml)
+- 2026-06-30 02:41 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/3760424373.shtml)
+- 2026-06-30 02:45 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/504361.shtml)
+- 2026-06-30 02:29 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/756242.shtml)
+- 2026-06-30 02:30 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/861575325899.shtml)
+- 2026-06-30 02:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/572648.shtml)
+- 2026-06-30 02:27 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/9783144904.shtml)
+- 2026-06-30 02:30 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/779738.shtml)
+- 2026-06-30 02:37 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/92763.shtml)
+- 2026-06-30 02:29 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/9652988315.shtml)
+- 2026-06-30 02:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/87724259.shtml)

@@ -1,56 +1,58 @@
-# 000609，今日跌停！此前“披星”后反收8连板
+# 通胀重燃+印度关税“双杀”，国际金银再度震荡
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月11日，*ST中迪（维权）股价开盘创出新高后，盘中封跌停板直至收盘，此前该股“披星”后收获8连板。 此前收获8连板 公司股票自4月23日起被叠加实施退市风险警示并继续实施其他风险警示，股票简称由“ST中迪”变更为“*ST中迪”，但复牌后其股价“一字板”涨停。此外，自4月23日至5月7日，*ST中迪收获8
+中新经纬5月20日电 (张芷菡)20日，国际现货黄金价格持续震荡。盘中一度下跌4455美元/盎司水平，截至发稿，国际黄金现货报4493.47美元/盎司，微涨0.35%。 5月中旬以来，国际现货黄金整体大幅下挫；伦敦黄金现货自5月15日起连续破位下跌，从4650美元附近跌至5月19日4481.6美元。 东方金诚研究发展部高级副总监瞿瑞表示，国际金价震荡，主要是由通胀预期升温导致美
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新经纬5月20日电 (张芷菡)20日，国际现货黄金价格持续震荡。
 
-5月11日，*ST中迪（维权）股价开盘创出新高后，盘中封跌停板直至收盘，此前该股“披星”后收获8连板。
+盘中一度下跌4455美元/盎司水平，截至发稿，国际黄金现货报4493.47美元/盎司，微涨0.35%。
 
-此前收获8连板 公司股票自4月23日起被叠加实施退市风险警示并继续实施其他风险警示，股票简称由“ST中迪”变更为“*ST中迪”，但复牌后其股价“一字板”涨停。
+5月中旬以来，国际现货黄金整体大幅下挫；伦敦黄金现货自5月15日起连续破位下跌，从4650美元附近跌至5月19日4481.6美元。
 
-此外，自4月23日至5月7日，*ST中迪收获8连板，股价最高达15.90元/股，仅仅8个交易日，其股价涨幅已近50%。
+东方金诚研究发展部高级副总监瞿瑞表示，国际金价震荡，主要是由通胀预期升温导致美联储货币政策预期发生逆转，以及美元与美债同步走强的双重压力驱动。
 
-上海证券报记者获悉，*ST中迪主要从事房地产业务，处在退市边缘，但已显示出转型信号。
+瞿瑞具体指出，4月美国消费者价格指数同比上涨3.8%，超预期反弹引发的通胀担忧升温，年内降息预期已基本消失，加息概率大幅攀升。
 
-4月18日，公司公告无偿获赠估值2.29亿元资产——广西天微电子有限公司（下称“广西天微”）70%的股权，这透露了公司切入半导体封测赛道转型的信号。
+利率预期的逆转直接推动美元与美债收益率全面走强，对黄金价格形成压制。
 
-对于上述无偿获赠资产（股权）是否完成过户并公告？
+值得注意的是，印度大幅上调了对黄金和白银的进口关税，以稳定不断贬值的卢比。
 
-公司相关人士回复上海证券报记者时称：“如有新的进展且达到披露要求的，公司会及时如实披露，请关注公司公告。
+根据5月12日晚间发布的两项官方指令，印度政府将对黄金和白银的进口税从现行的6%提高到约15%，增幅逾一倍。
 
 ## 相关推荐
 
-- 2026-06-30 02:27 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 02:29 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 02:38 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 02:41 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 02:24 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 02:29 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 02:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 02:21 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 02:46 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 02:24 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 02:52 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 02:53 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 02:28 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 02:28 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 02:24 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 02:26 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 02:31 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 02:41 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 02:35 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 02:29 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 02:29 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 02:29 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:20 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/152218967.shtml)
-- 2026-06-30 02:47 - [天道](http://www.blog.kurohicncr.top/Article/details/89729580.shtml)
-- 2026-06-30 02:43 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/60039000918.shtml)
-- 2026-06-30 02:33 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/3335070831.shtml)
-- 2026-06-30 02:41 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/0981290.shtml)
-- 2026-06-30 02:34 - [孙兴慜道歉](http://www.share.minike.top/Article/details/43260052908.shtml)
-- 2026-06-30 02:29 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/653974.shtml)
-- 2026-06-30 02:48 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/9080199.shtml)
-- 2026-06-30 02:30 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/86544198.shtml)
-- 2026-06-30 02:43 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/77877154608.shtml)
-- 2026-06-30 02:25 - [扬名立万](http://www.share.minike.top/Article/details/86458991.shtml)
-- 2026-06-30 02:27 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/726261.shtml)
-- 2026-06-30 02:31 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/583039869243.shtml)
-- 2026-06-30 02:45 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/030766333941.shtml)
-- 2026-06-30 02:46 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/4621847583.shtml)
+- 2026-06-30 02:32 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/439222495.shtml)
+- 2026-06-30 02:28 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/966221421.shtml)
+- 2026-06-30 02:35 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/08042225311.shtml)
+- 2026-06-30 02:30 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/4390328.shtml)
+- 2026-06-30 02:34 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/20263622.shtml)
+- 2026-06-30 02:42 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/10496019833.shtml)
+- 2026-06-30 02:44 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/577701368676.shtml)
+- 2026-06-30 02:38 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/0245110152.shtml)
+- 2026-06-30 02:39 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/96810327446.shtml)
+- 2026-06-30 02:50 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/459179166.shtml)
+- 2026-06-30 02:35 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/76649.shtml)
+- 2026-06-30 02:39 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/79092209587.shtml)
+- 2026-06-30 02:49 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/248741.shtml)
+- 2026-06-30 02:43 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/50525694646.shtml)
+- 2026-06-30 02:51 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/71473732.shtml)

@@ -1,57 +1,52 @@
-# 臻镭科技（688270）被处罚，股民索赔可期
+# 中集集团：日常业务在所有重大方面均维持正常运营
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年5月9日，浙江臻镭科技股份有限公司（简称：臻镭科技，代码：688270）发布《关于收到行政处罚决定书的公告》。 经中国证监会浙江监管局查明，当事人涉嫌违法的事实如下：2022年，臻镭科技全资子公司杭州城芯科技有限公司（以下简称城芯科技）在与深圳睿开
+登录新浪财经APP 搜索【信披】查看更多考评等级 中集集团（02039）发布公告，本公司谨此宣布其已获悉，美国司法部（美国司法部）已于2026年5月19日（美国时间）公开宣布指控（其中包括）本公司、麦伯良先生（本公司董事长兼执行董事）、黄田化先生（本公司副总裁）及万永波先生（本集团雇员，并非本公司董事及高级管理层）谋划限制特定非冷藏运输集装箱的产量并操纵其价格（该事项）。 于本
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 中集集团（02039）发布公告，本公司谨此宣布其已获悉，美国司法部（美国司法部）已于2026年5月19日（美国时间）公开宣布指控（其中包括）本公司、麦伯良先生（本公司董事长兼执行董事）、黄田化先生（本公司副总裁）及万永波先生（本集团雇员，并非本公司董事及高级管理层）谋划限制特定非冷藏运输集装箱的产量并操纵其价格（该事项）。
 
-2026年5月9日，浙江臻镭科技股份有限公司（简称：臻镭科技，代码：688270）发布《关于收到行政处罚决定书的公告》。
+于本公告日期，本公司、麦伯良先生、黄田化先生及万永波先生均未接获美国司法部就该事项送达的任何法律程序文件或其他法律文件。
 
-经中国证监会浙江监管局查明，当事人涉嫌违法的事实如下：2022年，臻镭科技全资子公司杭州城芯科技有限公司（以下简称城芯科技）在与深圳睿开电子有限公司的相关交易中，通过提前确认收入等方式虚增营业收入842.65万元，占公司当期披露营业收入的3.47%；虚增利润总额672.08万元，占公司当期披露利润总额的6.24%，导致公司2022年年度报告存在虚假记载。
+本公司高度重视该事项，并将密切关注及积极应对。
 
-2025年12月25日，臻镭科技发布《关于前期会计差错更正的公告》，对前述事项进行了追溯调整。
+本公司确认，于本公告日期，本集团日常业务在所有重大方面均维持正常运营，本公司将持续评估该事项的后续影响。
 
-故中国证监会浙江监管局局决定：对臻镭科技及其相关责任人员给予警告，并各处罚款。
+本公司将根据相关上市规则及其他法律法规，及时履行信息披露义务。
 
-之前，2025年12月25日，臻镭科技发布《关于前期会计差错更正的公告》。
-
-2025年12月27日，臻镭科技发布《关于收到中国证券监督管理委员会立案告知书的公告》。
-
-2026年4月18日，臻镭科技发布《关于收到行政处罚事先告知书的公告》。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:26 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 02:31 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 02:33 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 02:39 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-30 02:34 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 02:29 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 02:25 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 02:37 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 02:48 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 02:35 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 02:25 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 02:46 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 02:37 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 02:34 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 02:36 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 02:30 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 02:52 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 02:48 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 02:28 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 02:46 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 02:53 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:38 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/94168378125.shtml)
-- 2026-06-30 02:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/81933.shtml)
-- 2026-06-30 02:36 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/051529.shtml)
-- 2026-06-30 02:33 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/0276027.shtml)
-- 2026-06-30 02:44 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/565638019.shtml)
-- 2026-06-30 02:45 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/005497471.shtml)
-- 2026-06-30 02:21 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/662054.shtml)
-- 2026-06-30 02:29 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/482152.shtml)
-- 2026-06-30 02:22 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/3207554979.shtml)
-- 2026-06-30 02:33 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/7541942.shtml)
-- 2026-06-30 02:47 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/317564163.shtml)
-- 2026-06-30 02:19 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/415682849.shtml)
-- 2026-06-30 02:34 - [金刚川](http://www.blog.minike.top/Article/details/307076489.shtml)
-- 2026-06-30 02:46 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/82812.shtml)
-- 2026-06-30 02:36 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/25835126.shtml)
+- 2026-06-30 02:52 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/61221112416.shtml)
+- 2026-06-30 02:53 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/41624.shtml)
+- 2026-06-30 02:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/4200382.shtml)
+- 2026-06-30 02:47 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/689756.shtml)
+- 2026-06-30 02:51 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/112297620.shtml)
+- 2026-06-30 02:25 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/7036371095.shtml)
+- 2026-06-30 02:37 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/540915207.shtml)
+- 2026-06-30 02:42 - [蔚来车主罚站](http://www.share.minike.top/Article/details/67149.shtml)
+- 2026-06-30 02:38 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/9834583.shtml)
+- 2026-06-30 02:29 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/48878938883.shtml)
+- 2026-06-30 02:53 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/292062937.shtml)
+- 2026-06-30 02:45 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/590413.shtml)
+- 2026-06-30 02:34 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/803167.shtml)
+- 2026-06-30 02:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/9762804981.shtml)
+- 2026-06-30 02:43 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/792187740395.shtml)

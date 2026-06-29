@@ -1,55 +1,61 @@
-# 瑞银：长和目标价升至84.6港元 维持“买入”评级
+# A股全天高开低走，“对子顶”引发量化砸盘？
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-瑞银发布研报称，长和（00001）的风险回报仍具吸引力，上调目标价26%，由原先67港元升至84.6港元，资产净值（NAV）折让45%的假设维持不变，维持“买入”评级。该行认为，市场可能低估了长和因油价高企而来自Cenovus Energy的盈利上升空间，以及近期资产出售所带来收益。 瑞银指出，Cenovus首季盈利同比增83%，而4月份油价仍处高位，加上英国电网（UKPN）及
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！某量化私募合伙人表示，程序化交易在市场波动加大时，确实可能因为风控参数、趋势信号、成交量变化、技术位等因素，出现阶段性的交易趋同和放大效应。但通常决定买卖的是波动、流动性、价格趋势、仓位约束等交易变量，而不是某个数字本身是否特殊。 5月21日，A股全天高开低走。沪指跌2.04%失守4100点关口。深成指跌2
 
 ## 正文
 
-瑞银发布研报称，长和（00001）的风险回报仍具吸引力，上调目标价26%，由原先67港元升至84.6港元，资产净值（NAV）折让45%的假设维持不变，维持“买入”评级。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该行认为，市场可能低估了长和因油价高企而来自Cenovus Energy的盈利上升空间，以及近期资产出售所带来收益。
+某量化私募合伙人表示，程序化交易在市场波动加大时，确实可能因为风控参数、趋势信号、成交量变化、技术位等因素，出现阶段性的交易趋同和放大效应。
 
-瑞银指出，Cenovus首季盈利同比增83%，而4月份油价仍处高位，加上英国电网（UKPN）及VodafoneThree交易预计将分别为长和带来145亿港元及47亿港元的出售收益，预期将于2026年下半年入账。
+但通常决定买卖的是波动、流动性、价格趋势、仓位约束等交易变量，而不是某个数字本身是否特殊。
 
-该行已将上述因素以及Cenovus的盈利贡献纳入预测，分别上调长和2026至28年各年基本盈利预测95%、7%及2%，并将2026及2027年每股派息预测上调32%及6%。
+5月21日，A股全天高开低走。
 
-虽然长和股价今年已累升32%，目前估值相当于预测2026年市账率0.44倍，仍低于历史平均的0.49倍。
+沪指跌2.04%失守4100点关口。
 
-责任编辑：卢昱君
+深成指跌2.07%，创业板指跌2.35%，科创综指跌4.42%。
+
+多只半导体个股此次回调前，均触及所谓“对子顶”。
+
+如江丰电子（300666.SZ）盘中最高触及222.22元/股，中微公司（688012.SH）今日最高触及533.33元/股。
 
 ## 相关推荐
 
-- 2026-06-30 02:37 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 02:23 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 02:28 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 02:41 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 02:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 02:45 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-30 02:42 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 02:28 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 02:25 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 02:37 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 02:20 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 02:27 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 02:33 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 02:33 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 02:43 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-30 02:44 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 02:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 02:43 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 02:30 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 02:50 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 02:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 02:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 02:51 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 02:47 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 02:37 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 02:28 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 02:30 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 02:28 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:33 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/712202411570.shtml)
-- 2026-06-30 02:39 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/97439314944.shtml)
-- 2026-06-30 02:32 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/2730313677.shtml)
-- 2026-06-30 02:42 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/1215023172.shtml)
-- 2026-06-30 02:45 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/7207209111.shtml)
-- 2026-06-30 02:43 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/5207913.shtml)
-- 2026-06-30 02:33 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/293755.shtml)
-- 2026-06-30 02:38 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/98941749.shtml)
-- 2026-06-30 02:45 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/2285269981.shtml)
-- 2026-06-30 02:21 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/6970747458.shtml)
-- 2026-06-30 02:26 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/10711671546.shtml)
-- 2026-06-30 02:47 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/94429290912.shtml)
-- 2026-06-30 02:45 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/141329599055.shtml)
-- 2026-06-30 02:35 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/455936696.shtml)
-- 2026-06-30 02:41 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/31723895.shtml)
+- 2026-06-30 02:41 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/79837499.shtml)
+- 2026-06-30 02:35 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/1299734976.shtml)
+- 2026-06-30 02:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/493243940471.shtml)
+- 2026-06-30 02:52 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/746503527906.shtml)
+- 2026-06-30 02:36 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/47420.shtml)
+- 2026-06-30 02:27 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/438786722148.shtml)
+- 2026-06-30 02:48 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/523877187.shtml)
+- 2026-06-30 02:25 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/85733359.shtml)
+- 2026-06-30 02:31 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/179387442164.shtml)
+- 2026-06-30 02:25 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/74647063.shtml)
+- 2026-06-30 02:49 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/8147122.shtml)
+- 2026-06-30 02:38 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/6867567019.shtml)
+- 2026-06-30 02:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/6756809.shtml)
+- 2026-06-30 02:33 - [流金岁月](http://www.share.kurohicncr.top/Article/details/855609.shtml)
+- 2026-06-30 02:33 - [天道](http://www.blog.kurohicncr.top/Article/details/902909327228.shtml)

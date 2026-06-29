@@ -1,49 +1,61 @@
-# 姚来英已任中国烟草总公司总经理
+# APEC“中国年”的“苏州时间”
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-国家烟草专卖局网站领导信息一栏显示，姚来英已任中国烟草总公司总经理。 姚来英，男，汉族，1966年12月生，大学学历，经济学硕士，中共党员。现任工业和信息化部党组成员，国家烟草专卖局党组书记、局长，中国烟草总公司总经理。 责任编辑：杨赐
+中国新闻周刊记者：曹然 发于2026.5.18总第1235期《中国新闻周刊》杂志 走在小桥流水的老城区，感受“东方威尼斯”的古典浪漫；转身来到“日均创造GDP(国内生产总值)超10亿元”的苏州工业园区，体会中国与新加坡合作的深度与广度，进而探索中国与亚太经济发展的更多可能性。 2026年5月，亚太经合组织(APEC)第三十二届贸易部长会议将在江苏省苏州市举办，会议将重点围绕亚太
 
 ## 正文
 
-国家烟草专卖局网站领导信息一栏显示，姚来英已任中国烟草总公司总经理。
+中国新闻周刊记者：曹然 发于2026.5.18总第1235期《中国新闻周刊》杂志 走在小桥流水的老城区，感受“东方威尼斯”的古典浪漫；转身来到“日均创造GDP(国内生产总值)超10亿元”的苏州工业园区，体会中国与新加坡合作的深度与广度，进而探索中国与亚太经济发展的更多可能性。
 
-姚来英，男，汉族，1966年12月生，大学学历，经济学硕士，中共党员。
+2026年5月，亚太经合组织(APEC)第三十二届贸易部长会议将在江苏省苏州市举办，会议将重点围绕亚太及全球重大经贸问题进行探讨，并为11月APEC领导人非正式会议作经贸方面准备。
 
-现任工业和信息化部党组成员，国家烟草专卖局党组书记、局长，中国烟草总公司总经理。
+2001年，在中国加入世界贸易组织前夕，APEC成功举行上海会议。
 
-责任编辑：杨赐
+2014年，中国主办APEC北京会议，各方承诺构建面向未来的亚太伙伴关系。
+
+12年来，APEC成员经济体保持稳定增长，以将近全球40%的人口，创造了超过六成的全球经济总量和近五成的贸易总额，带动世界经济重心持续向亚太地区聚集。
+
+时隔12年，中国第三次担任APEC东道主。
+
+正逢新的动荡变革期，单边主义、保护主义蔓延，世界经济碎片化加剧，区域经济一体化遭遇逆风。
+
+作为亚太地区层级最高、领域最广、影响力最大的经济合作机制，APEC如何继续引领亚太地区走在全球开放发展前列，助推亚太成为世界经济主要增长引擎？
 
 ## 相关推荐
 
-- 2026-06-30 02:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 02:42 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 02:37 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-30 02:33 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 02:23 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 02:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 02:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-30 02:43 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 02:25 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 02:40 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 02:34 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 02:32 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 02:30 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 02:35 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 02:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 02:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 02:53 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 02:52 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 02:38 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 02:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 02:31 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 02:33 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 02:24 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 02:42 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 02:27 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 02:53 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:32 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/2480675850.shtml)
-- 2026-06-30 02:43 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/63802886857.shtml)
-- 2026-06-30 02:46 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/874800774.shtml)
-- 2026-06-30 02:41 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/29005225899.shtml)
-- 2026-06-30 02:25 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/65416619151.shtml)
-- 2026-06-30 02:33 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/33294.shtml)
-- 2026-06-30 02:43 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/9552214.shtml)
-- 2026-06-30 02:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/240079.shtml)
-- 2026-06-30 02:36 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/089433.shtml)
-- 2026-06-30 02:39 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/364670916.shtml)
-- 2026-06-30 02:27 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/46200.shtml)
-- 2026-06-30 02:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/14588316.shtml)
-- 2026-06-30 02:42 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/64929231.shtml)
-- 2026-06-30 02:21 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/2022945817.shtml)
-- 2026-06-30 02:19 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/652574572.shtml)
+- 2026-06-30 02:30 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/095187016959.shtml)
+- 2026-06-30 02:32 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/510031.shtml)
+- 2026-06-30 02:45 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/536232551520.shtml)
+- 2026-06-30 02:37 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/985734934.shtml)
+- 2026-06-30 02:50 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/27410.shtml)
+- 2026-06-30 02:48 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/88426.shtml)
+- 2026-06-30 02:44 - [房价什么时候能涨](https://www.share.minike.top/Article/details/9153921028.shtml)
+- 2026-06-30 02:38 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/80446498.shtml)
+- 2026-06-30 02:28 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/61317284.shtml)
+- 2026-06-30 02:39 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/3627816.shtml)
+- 2026-06-30 02:26 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/608289808.shtml)
+- 2026-06-30 02:42 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/442852604233.shtml)
+- 2026-06-30 02:27 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/141985003614.shtml)
+- 2026-06-30 02:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/390081670993.shtml)
+- 2026-06-30 02:39 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/8921237.shtml)

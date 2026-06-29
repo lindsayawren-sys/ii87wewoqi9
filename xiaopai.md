@@ -1,61 +1,58 @@
-# 中方决定不同意台湾地区参加今年世卫大会
+# 广东首个数据产业集聚区赋能中心启动
 
-> 更新时间：2026-06-30 02:49:31 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月11日电 (记者 张素 谢雁冰)中国外交部发言人郭嘉昆11日主持例行记者会。 有记者提问：据了解，第79届世界卫生大会将于5月18日开幕，台湾方面迄今没有收到与会邀请。请问中国政府对此有何评论？ 郭嘉昆：世界上只有一个中国，台湾是中国领土不可分割的一部分，中华人民共和国政府是代表全中国的唯一合法政府。在中国台湾地区参与国际组织，包括世界卫生组织活动问题上，中方立场
+中新网广州5月20日电 (记者 王坚)在全国数标委2026年第一次“标准周”活动举办之际，广东首个数据产业集聚区赋能中心——国家数据产业集聚区建设试点(广州天河)赋能中心(简称“赋能中心”)20日在广州宣告成立，为广州数据要素市场化配置改革注入新的强劲动能。 据介绍，赋能中心由天河区政府牵头，联合广东省交易控股集团、广州数据交易所、广州数科集团、佳都科技集团等七方携手共建，围绕
 
 ## 正文
 
-中新网北京5月11日电 (记者 张素 谢雁冰)中国外交部发言人郭嘉昆11日主持例行记者会。
+中新网广州5月20日电 (记者 王坚)在全国数标委2026年第一次“标准周”活动举办之际，广东首个数据产业集聚区赋能中心——国家数据产业集聚区建设试点(广州天河)赋能中心(简称“赋能中心”)20日在广州宣告成立，为广州数据要素市场化配置改革注入新的强劲动能。
 
-有记者提问：据了解，第79届世界卫生大会将于5月18日开幕，台湾方面迄今没有收到与会邀请。
+据介绍，赋能中心由天河区政府牵头，联合广东省交易控股集团、广州数据交易所、广州数科集团、佳都科技集团等七方携手共建，围绕企业培育、生态构建、要素流通、金融创新、资源供给、产业集聚、品牌示范、跨境协同、标准引领等九大核心能力，构建全链条、一站式、高能级的数据产业综合服务体系。
 
-请问中国政府对此有何评论？
+其中，广东省交易控股集团以搭建华南算力集成平台目标，破解企业算力短缺难题，筑牢产业硬核底座，通过打造一系列创新平台，推动数据要素在全省范围高效流通和配置；广州数科集团、佳都科技集团联袂创优普惠算力+数据服务，支撑AI大模型训练与场景应用创新；广州数据交易所致力提供产权登记与全周期合规保障。
 
-郭嘉昆：世界上只有一个中国，台湾是中国领土不可分割的一部分，中华人民共和国政府是代表全中国的唯一合法政府。
+天河区政府表示，作为支撑国家数据产业集聚区建设的核心平台，赋能中心的启动建设，与广州数据交易所(天河)服务专区、天河区数据要素产业协会、数据要素创新联合体、数据产业联合创新实验室、天河数据资源产业联盟，共同构建起“六位一体”全方位数据要素服务体系。
 
-在中国台湾地区参与国际组织，包括世界卫生组织活动问题上，中方立场是一贯的、明确的，即必须按照一个中国原则来处理，这也是联合国大会第2758号决议和世界卫生大会25.1号决议确认的根本原则。
+通过创新服务模式，畅通数智融合快车道，推动“数据+流通+场景”协同发展，全力打造海量数据汇聚、创新功能强劲、产业生态集聚的数据产业创新发展高地。
 
-中国台湾地区在未经中央政府同意的前提下，没有任何根据、理由或权利参加世卫大会。
+天河区政府相关负责人表示，接下来，该区将进一步激发数据要素价值，推动形成集数据供给、应用开发、价值转化于一体的协同生态圈，抢滩数智经济新蓝海，竞速词元经济新赛道，抢占数据要素价值裂变新高地，铸就智能时代发展新引擎。
 
-台民进党当局顽固坚持“台独”分裂立场，导致台湾地区参加世卫大会的政治基础不复存在。
-
-为了维护一个中国原则，捍卫联合国大会及世卫大会相关决议的严肃性和权威性，中方决定不同意台湾地区参加今年世卫大会。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 02:21 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-30 02:21 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 02:19 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 02:38 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 02:31 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 02:48 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 02:33 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 02:29 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 02:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 02:42 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 02:47 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 02:44 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-30 02:41 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 02:32 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 02:31 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 02:51 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 02:26 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 02:34 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 02:33 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 02:31 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 02:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 02:42 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 02:28 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 02:49 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 02:25 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-30 02:41 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 02:51 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 02:30 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:45 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/74446100499.shtml)
-- 2026-06-30 02:32 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/4516974061.shtml)
-- 2026-06-30 02:31 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/8971688205.shtml)
-- 2026-06-30 02:38 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/060468.shtml)
-- 2026-06-30 02:27 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/08031821040.shtml)
-- 2026-06-30 02:44 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/6671411314.shtml)
-- 2026-06-30 02:25 - [我们的少年时代2](https://www.share.minike.top/Article/details/226676315488.shtml)
-- 2026-06-30 02:39 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/42698261.shtml)
-- 2026-06-30 02:43 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/49450591593.shtml)
-- 2026-06-30 02:36 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/790271.shtml)
-- 2026-06-30 02:31 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/917955374417.shtml)
-- 2026-06-30 02:46 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/664060547.shtml)
-- 2026-06-30 02:36 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/566586568.shtml)
-- 2026-06-30 02:28 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/3711151589.shtml)
-- 2026-06-30 02:28 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/49091.shtml)
+- 2026-06-30 02:39 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/01803238.shtml)
+- 2026-06-30 02:31 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/751862.shtml)
+- 2026-06-30 02:35 - [女心理师](https://www.share.kurohicncr.top/Article/details/661125.shtml)
+- 2026-06-30 02:41 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/49762150.shtml)
+- 2026-06-30 02:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/50563959.shtml)
+- 2026-06-30 02:35 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/74443069.shtml)
+- 2026-06-30 02:39 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/548759006.shtml)
+- 2026-06-30 02:33 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/00048.shtml)
+- 2026-06-30 02:27 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/193197664909.shtml)
+- 2026-06-30 02:33 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/13491067160.shtml)
+- 2026-06-30 02:35 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/239148295115.shtml)
+- 2026-06-30 02:29 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/7456808.shtml)
+- 2026-06-30 02:27 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/065930711.shtml)
+- 2026-06-30 02:45 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/603911.shtml)
+- 2026-06-30 02:43 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/68068508.shtml)

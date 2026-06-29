@@ -1,60 +1,51 @@
-# 韩国总统府强烈谴责韩籍货轮遭袭事件
+# 美银证券：招商证券目标价上调至16.60港元 升至“买入”评级
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-韩国总统府周一发表声明，对本月发生在霍尔木兹海峡的韩籍货轮遭袭事件表示强烈谴责。韩方强调，一旦查明袭击来源，将立即采取应对措施。 韩国总统府国家安保室长Wi Sung-lac在新闻发布会上表示，韩方对此次针对商业船只的袭击行为表示最强烈谴责。据介绍，涉事船只为现代商船公司（HMM）运营的“Namu”号。事发时，该船正在阿联酋附近海域正常行驶，并未违反任何航行规则。韩方重申，任何
+美银证券发布研报称，将招商证券（06099）评级由“跑输大市”升两级至“买入”，以反映A股交投上升带来盈利上行空间，以及第二至第四季潜在 IPO 相关的投资收益。该行对招商证券的H股目标价由15.3港元升至16.6港元，以反映2026年每股盈利预测上调16%至1.68元人民币，以及中期股本回报率预期由8%升至8.8%，并认为近期管理层变动及长鑫存储 IPO 消息将是短期催化剂，
 
 ## 正文
 
-韩国总统府周一发表声明，对本月发生在霍尔木兹海峡的韩籍货轮遭袭事件表示强烈谴责。
+美银证券发布研报称，将招商证券（06099）评级由“跑输大市”升两级至“买入”，以反映A股交投上升带来盈利上行空间，以及第二至第四季潜在 IPO 相关的投资收益。
 
-韩方强调，一旦查明袭击来源，将立即采取应对措施。
+该行对招商证券的H股目标价由15.3港元升至16.6港元，以反映2026年每股盈利预测上调16%至1.68元人民币，以及中期股本回报率预期由8%升至8.8%，并认为近期管理层变动及长鑫存储 IPO 消息将是短期催化剂，而自第一季末以来“国家队”的资金流出放缓亦应有助股价上行。
 
-韩国总统府国家安保室长Wi Sung-lac在新闻发布会上表示，韩方对此次针对商业船只的袭击行为表示最强烈谴责。
-
-据介绍，涉事船只为现代商船公司（HMM）运营的“Namu”号。
-
-事发时，该船正在阿联酋附近海域正常行驶，并未违反任何航行规则。
-
-韩方重申，任何针对民用货轮的攻击行为均缺乏正当性。
-
-关于伤损情况，总统府官员透露，韩国官员及专家已在迪拜港完成了初步法医学分析。
-
-调查显示，袭击造成货轮左舷尾部受损并引发引擎室起火。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:32 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 02:48 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 02:32 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-30 02:28 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 02:31 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 02:37 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 02:35 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 02:27 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 02:23 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 02:36 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 02:31 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 02:29 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 02:25 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 02:38 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 02:27 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 02:41 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 02:50 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 02:36 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 02:27 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 02:24 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-30 02:30 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 02:41 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 02:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 02:32 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 02:34 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 02:53 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 02:49 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 02:29 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 02:29 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:47 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/0137267.shtml)
-- 2026-06-30 02:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/995784909.shtml)
-- 2026-06-30 02:47 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/8369619.shtml)
-- 2026-06-30 02:26 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/71378702101.shtml)
-- 2026-06-30 02:28 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/6354414.shtml)
-- 2026-06-30 02:47 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/186715384.shtml)
-- 2026-06-30 02:37 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/29562708.shtml)
-- 2026-06-30 02:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/4173219.shtml)
-- 2026-06-30 02:25 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/33792.shtml)
-- 2026-06-30 02:24 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/51521156209.shtml)
-- 2026-06-30 02:20 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/884442418682.shtml)
-- 2026-06-30 02:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/63847730191.shtml)
-- 2026-06-30 02:22 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/34504981.shtml)
-- 2026-06-30 02:42 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/70975537157.shtml)
-- 2026-06-30 02:31 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/988822.shtml)
+- 2026-06-30 02:41 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/576943516.shtml)
+- 2026-06-30 02:24 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/97911213.shtml)
+- 2026-06-30 02:41 - [日本16强魔咒](http://www.blog.minike.top/Article/details/863972750129.shtml)
+- 2026-06-30 02:33 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/475463.shtml)
+- 2026-06-30 02:30 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/953740550.shtml)
+- 2026-06-30 02:47 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/891051775257.shtml)
+- 2026-06-30 02:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/744014141717.shtml)
+- 2026-06-30 02:36 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/8699618323.shtml)
+- 2026-06-30 02:35 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/97361114.shtml)
+- 2026-06-30 02:27 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/575836993408.shtml)
+- 2026-06-30 02:35 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/194093.shtml)
+- 2026-06-30 02:35 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/30129828.shtml)
+- 2026-06-30 02:26 - [毒液2](https://www.blog.minike.top/Article/details/036656077259.shtml)
+- 2026-06-30 02:26 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/35427.shtml)
+- 2026-06-30 02:37 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/63896.shtml)

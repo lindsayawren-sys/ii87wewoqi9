@@ -1,60 +1,56 @@
-# 生成式人工智能挑战传统商业模式，印度IT板块指数跌至三年来新低
+# 资金极度宽松状态暂停，多日地量逆回购后，央行今日净投放近千亿
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-5月12日，受人工智能（AI）技术快速演进及行业龙头业绩低迷等多重因素影响，印度IT板块遭遇重挫。蓝筹股指数Nifty IT收盘下跌3.6%，触及2023年5月以来最低水平，领跌印度大盘。 此次行业震荡的核心诱因在于全球AI领军企业对传统IT外包模式的直接冲击。OpenAI近日宣布成立一家注资超过40亿美元的新公司，计划通过派遣工程师直接进驻企业客户的方式，深度挖掘AI应用潜力
+财联社5月21日讯（编辑 杨斌）此前极度宽松的资金面有了边际收敛的迹象，而央行也加大了公开市场操作的投放量，提前维稳资金面。 今日，央行以固定利率、数量招标方式开展了1000亿元7天期逆回购操作，操作利率1.4%，与此前持平。有5亿元于今日逆回购到期，据此计算，单日净投放995亿元。 昨日，央行开展了500亿元7天期逆回购操作，单日净投放495亿元。在此之前，央行自5月8日起连
 
 ## 正文
 
-5月12日，受人工智能（AI）技术快速演进及行业龙头业绩低迷等多重因素影响，印度IT板块遭遇重挫。
+财联社5月21日讯（编辑 杨斌）此前极度宽松的资金面有了边际收敛的迹象，而央行也加大了公开市场操作的投放量，提前维稳资金面。
 
-蓝筹股指数Nifty IT收盘下跌3.6%，触及2023年5月以来最低水平，领跌印度大盘。
+今日，央行以固定利率、数量招标方式开展了1000亿元7天期逆回购操作，操作利率1.4%，与此前持平。
 
-此次行业震荡的核心诱因在于全球AI领军企业对传统IT外包模式的直接冲击。
+有5亿元于今日逆回购到期，据此计算，单日净投放995亿元。
 
-OpenAI近日宣布成立一家注资超过40亿美元的新公司，计划通过派遣工程师直接进驻企业客户的方式，深度挖掘AI应用潜力。
+昨日，央行开展了500亿元7天期逆回购操作，单日净投放495亿元。
 
-此举被视为对印度IT企业“离岸外包”模式的颠覆性挑战。
+在此之前，央行自5月8日起连续9个交易日进行地量（其中8天是5亿、1天是10亿）投放。
 
-此前，Anthropic公司推出的Claude Code已在今年年初引发市场恐慌，加剧了投资者对生成式AI取代传统软件开发及专业服务需求的担忧。
+若排除月底维稳流动性的情况，这是央行自3月中旬以来首次通过7天期逆回购向市场投放近千亿的资金。
 
-行业标杆企业的疲软业绩进一步打击了市场信心。
+今年3月起，银行间市场资金面持续宽松，央行通过公开市场操作不断回收过剩的流动性，每日5亿元的地量7天期逆回购投放几乎成为常态。
 
-汇丰银行（HSBC）在周二发布的报告中指出，印度一线IT企业今年一季度的经营数据及全年业绩展望均不及预期。
+此外，央行通过买断式逆回购和MLF等工具对中长期资金进行回笼，且回笼力度在逐步增大。
 
 ## 相关推荐
 
-- 2026-06-30 02:31 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 02:46 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 02:46 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 02:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 02:38 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 02:40 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-30 02:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 02:33 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 02:23 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 02:47 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 02:30 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 02:43 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 02:39 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 02:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 02:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 02:33 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 02:29 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 02:51 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 02:27 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-30 02:47 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 02:52 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 02:53 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 02:34 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 02:41 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:26 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/6016668548.shtml)
-- 2026-06-30 02:36 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/575064.shtml)
-- 2026-06-30 02:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/345706456355.shtml)
-- 2026-06-30 02:26 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/2600057238.shtml)
-- 2026-06-30 02:46 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/5833071.shtml)
-- 2026-06-30 02:48 - [爱很美味](http://www.blog.minike.top/Article/details/2411506.shtml)
-- 2026-06-30 02:46 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/42666.shtml)
-- 2026-06-30 02:24 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/20347.shtml)
-- 2026-06-30 02:43 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/84722865647.shtml)
-- 2026-06-30 02:47 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/864869609.shtml)
-- 2026-06-30 02:42 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/20765984463.shtml)
-- 2026-06-30 02:40 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/29979243.shtml)
-- 2026-06-30 02:27 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/8382832.shtml)
-- 2026-06-30 02:43 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/683559747.shtml)
-- 2026-06-30 02:45 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/38380368.shtml)
+- 2026-06-30 02:32 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/6370769.shtml)
+- 2026-06-30 02:53 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/340945995.shtml)
+- 2026-06-30 02:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/19592402.shtml)
+- 2026-06-30 02:32 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/78839747.shtml)
+- 2026-06-30 02:39 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/48662084.shtml)
+- 2026-06-30 02:53 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/262350537.shtml)
+- 2026-06-30 02:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/85386520280.shtml)
+- 2026-06-30 02:30 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/441858890374.shtml)
+- 2026-06-30 02:24 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/993240.shtml)
+- 2026-06-30 02:39 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/7147050286.shtml)
+- 2026-06-30 02:42 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/97369.shtml)
+- 2026-06-30 02:26 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/9955063.shtml)
+- 2026-06-30 02:40 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/976092435.shtml)
+- 2026-06-30 02:25 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/511177.shtml)
+- 2026-06-30 02:28 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/52506.shtml)

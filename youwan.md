@@ -1,57 +1,59 @@
-# Seadrill新增8.6亿美元钻井合同， backlog达31亿美元
+# 杠杆资金持续买进！这条赛道调整后仍有大级别上涨机会！
 
-> 更新时间：2026-06-30 02:49:31 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-自2月份的船队状况报告发布以来，Seadrill已获得超过8.6亿美元的新合同 backlog，主要得益于在巴西、美国湾和安哥拉的海上钻井授标及合同延期，使其总合同 backlog增至约31亿美元。 这家海上钻井承包商表示，近期获得的合同包括巴西国油将West Polaris钻井船的合同延长三年，自2028年1月起生效，为backlog增加了约4.8亿美元。 在美国湾，West
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券市场周刊市场号 文 | 尚扬 近期，A股市场走势颇有特点，大盘反复震荡，热点轮动加速，但有一条主线仍相对稳健，那就是以算力、光通信、半导体为核心的AI科技赛道。 结合融资净买入金额来看，杠杆资金正在积极布局科技硬件，用实打实的资金投票，告诉市场：新一轮科技革命的红利已经开启。 产业趋势依然完美 周
 
 ## 正文
 
-自2月份的船队状况报告发布以来，Seadrill已获得超过8.6亿美元的新合同 backlog，主要得益于在巴西、美国湾和安哥拉的海上钻井授标及合同延期，使其总合同 backlog增至约31亿美元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这家海上钻井承包商表示，近期获得的合同包括巴西国油将West Polaris钻井船的合同延长三年，自2028年1月起生效，为backlog增加了约4.8亿美元。
+来源：证券市场周刊市场号 文 | 尚扬 近期，A股市场走势颇有特点，大盘反复震荡，热点轮动加速，但有一条主线仍相对稳健，那就是以算力、光通信、半导体为核心的AI科技赛道。
 
-在美国湾，West Neptune获得了Harbour Energy子公司LLOG的365天合同延期，自2026年10月起生效；而West Vela赢得了一个270天的作业项目，预计于2026年9月开始。
+结合融资净买入金额来看，杠杆资金正在积极布局科技硬件，用实打实的资金投票，告诉市场：新一轮科技革命的红利已经开启。
 
-这些合同共计为backlog增加了约2.6亿美元。
+产业趋势依然完美 周四，受隔夜英伟达业绩超预期、海外半导体大涨催化，早盘AI产业全线高开走强，科创50快速冲高，算力芯片、先进封装、光通信等龙头公司集体拉升，澜起科技、兆易创新等融资重仓标的早盘再创新高，并带动AI硬件板块情绪达到峰值。
 
-Seadrill还表示，Sonangol Quenguela获得了道达尔能源在安哥拉海域的合同延期，预计增加约480天，将该钻机的服务承诺延长至2028年7月。
+但随后行情开始反转，科技板块率先走弱，几大主要股指也相继冲高回落，全天以回撤收盘（见附图）。
 
-West Carina目前在巴西的合同也已延长至2026年6月。
+但拉长周期来看，最近一段时间，A股整体呈现了“指数磨人、主线吃肉”的格局。
 
-该公司公布第一季度调整后EBITDA为9700万美元，净亏损700万美元。
+消费、地产等传统周期波澜不惊、走势平淡，AI产业链却走出了独立强势行情，光模块、先进封装、AI芯片等领域的龙头公司持续走强，板块活跃度遥遥领先。
 
-Seadrill将2026年全年收入指引从此前的14.0亿至14.5亿美元上调至14.3亿至14.8亿美元。
+简单来说，别的板块还在纠结涨跌时，AI赛道已经开启了一轮长牛行情。
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 02:28 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 02:23 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 02:21 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 02:21 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 02:20 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 02:32 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 02:21 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 02:49 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 02:44 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 02:27 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 02:53 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 02:27 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 02:31 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 02:44 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 02:24 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 02:50 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 02:41 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 02:26 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 02:44 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 02:41 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 02:26 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 02:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 02:44 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:24 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/482491052.shtml)
-- 2026-06-30 02:45 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/911408963480.shtml)
-- 2026-06-30 02:22 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/647773221757.shtml)
-- 2026-06-30 02:37 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/9236860323.shtml)
-- 2026-06-30 02:26 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/78271517.shtml)
-- 2026-06-30 02:29 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/43908.shtml)
-- 2026-06-30 02:38 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/06380243.shtml)
-- 2026-06-30 02:22 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/897444683913.shtml)
-- 2026-06-30 02:30 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/069246992.shtml)
-- 2026-06-30 02:48 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/63713947554.shtml)
-- 2026-06-30 02:23 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/5104500372.shtml)
-- 2026-06-30 02:29 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/61303457532.shtml)
-- 2026-06-30 02:37 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/79412421120.shtml)
-- 2026-06-30 02:26 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/568992720.shtml)
-- 2026-06-30 02:19 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/2413431822.shtml)
+- 2026-06-30 02:32 - [毒液2](https://www.share.minike.top/Article/details/164482.shtml)
+- 2026-06-30 02:28 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/4544974930.shtml)
+- 2026-06-30 02:37 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/984256.shtml)
+- 2026-06-30 02:46 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/2151488.shtml)
+- 2026-06-30 02:35 - [日本进球](http://www.blog.minike.top/Article/details/34373627.shtml)
+- 2026-06-30 02:31 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/368431389.shtml)
+- 2026-06-30 02:52 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/18868804827.shtml)
+- 2026-06-30 02:39 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/703264.shtml)
+- 2026-06-30 02:25 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/48180.shtml)
+- 2026-06-30 02:37 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/94503.shtml)
+- 2026-06-30 02:31 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/41481476.shtml)
+- 2026-06-30 02:39 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/03852508.shtml)
+- 2026-06-30 02:38 - [世界杯](http://www.blog.kurohicncr.top/Article/details/431568160.shtml)
+- 2026-06-30 02:46 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/6264531.shtml)
+- 2026-06-30 02:29 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/72947786.shtml)

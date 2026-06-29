@@ -1,55 +1,53 @@
-# “我本来就是中国人” 周锡玮：台湾人都是中国人 多次表态引发全场掌声
+# 日本超长期国债收益率下跌 投资者对美伊有望达成协议抱乐观预期
 
-> 更新时间：2026-06-30 02:49:31 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 16:07 来源：中国新闻网 5月12日，第七届两岸媒体人峰会在北京举行。旺旺集团副董事长周锡玮在会上发言时表示，“三年前我来的时候，我讲了我是中国人，回到台湾有些人就警告我，我跟他讲，我本来就是中国人，台湾人都是中国人！到了今天，我是中国人(这句话)在台湾讲起来，大家都觉得应该欣然接受。郑丽文主席在选中国国民党主席的时候，讲我是中国人，讲台湾
+日本超长期国债收益率下跌，投资者对美伊有望就结束战事达成协议的乐观情绪依旧高涨。 20年期收益率下跌3.5个基点至3.705%。 30年期收益率下跌6个基点至4.04%。 40年期收益率下跌7个基点至4.25%。责任编辑：江学思
 
 ## 正文
 
-发布时间：2026年05月12日 16:07 来源：中国新闻网 5月12日，第七届两岸媒体人峰会在北京举行。
+日本超长期国债收益率下跌，投资者对美伊有望就结束战事达成协议的乐观情绪依旧高涨。
 
-旺旺集团副董事长周锡玮在会上发言时表示，“三年前我来的时候，我讲了我是中国人，回到台湾有些人就警告我，我跟他讲，我本来就是中国人，台湾人都是中国人！
+20年期收益率下跌3.5个基点至3.705%。
 
-到了今天，我是中国人(这句话)在台湾讲起来，大家都觉得应该欣然接受。
+30年期收益率下跌6个基点至4.04%。
 
-郑丽文主席在选中国国民党主席的时候，讲我是中国人，讲台湾跟大陆同属一个中国，讲得最清楚，所以她高票当选。
+40年期收益率下跌7个基点至4.25%。
 
-台湾的民众，大家都勇敢地讲出自己的真心话，支持一个中国，我是中国人”。
-
-(记者 刘子衿 范思忆 制作 王雪茵） 责任编辑：【刘湃】
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 02:38 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 02:39 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 02:36 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 02:44 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 02:28 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 02:22 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 02:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 02:39 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 02:47 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 02:48 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 02:46 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 02:39 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 02:27 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 02:53 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 02:46 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 02:33 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 02:49 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 02:41 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 02:32 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 02:42 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 02:41 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-30 02:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 02:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 02:54 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 02:53 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 02:42 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:36 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/2863429501.shtml)
-- 2026-06-30 02:24 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/6147633421.shtml)
-- 2026-06-30 02:27 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/65311386568.shtml)
-- 2026-06-30 02:23 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/60933.shtml)
-- 2026-06-30 02:41 - [我和我的家乡](https://www.share.minike.top/Article/details/543014.shtml)
-- 2026-06-30 02:36 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/3234999.shtml)
-- 2026-06-30 02:42 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/77536699.shtml)
-- 2026-06-30 02:26 - [逃狱兄弟](https://www.share.minike.top/Article/details/77768495510.shtml)
-- 2026-06-30 02:47 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/9386682209.shtml)
-- 2026-06-30 02:46 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/0505921630.shtml)
-- 2026-06-30 02:37 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/1096265011.shtml)
-- 2026-06-30 02:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/444475494.shtml)
-- 2026-06-30 02:24 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/6905815941.shtml)
-- 2026-06-30 02:25 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/49836.shtml)
-- 2026-06-30 02:28 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/996292937038.shtml)
+- 2026-06-30 02:42 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/99464.shtml)
+- 2026-06-30 02:37 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/906655.shtml)
+- 2026-06-30 02:36 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/10131770015.shtml)
+- 2026-06-30 02:33 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/72958072476.shtml)
+- 2026-06-30 02:50 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/49518.shtml)
+- 2026-06-30 02:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/397153429.shtml)
+- 2026-06-30 02:46 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/02663587503.shtml)
+- 2026-06-30 02:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/1578227.shtml)
+- 2026-06-30 02:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/2515028.shtml)
+- 2026-06-30 02:42 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/560922.shtml)
+- 2026-06-30 02:47 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/911172507.shtml)
+- 2026-06-30 02:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/22405171.shtml)
+- 2026-06-30 02:32 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/75912230057.shtml)
+- 2026-06-30 02:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/881390760000.shtml)
+- 2026-06-30 02:44 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/927897757107.shtml)

@@ -1,58 +1,61 @@
-# 进一步提高货币政策传导效率！央行一季度货政报告有了新提法
+# 独家对话坦桑尼亚信息技术部长凯鲁基：中国技术如何让我们的农村不再“离线”？ | 欧陆志
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 唐婧 5月11日晚间，央行发布2026年第一季度中国货币政策执行报告，并在下一阶段货币政策思路中提出，要更好发挥市场利率定价自律机制作用，有效落实各项利率自律倡议，对一些不合理的、容易削减货币政策传导的市场行为加强规范，维护市场竞争秩序。 对比上一季度的货币政策执行报告来看，“对一些不合理的、容易削减货币政策传导的市场行为加强规范”是本次报告的新提法。央行
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文 | 《欧陆志》栏目 郝倩 发自瑞士日内瓦 在上周国际电联（ITU）举行的第三届联合国虚拟世界日，新浪财经独家对话了坦桑尼亚信息、通信和信息技术部长安吉拉·凯鲁基（Angellah Kairuki）。凯鲁基同时也是国际电联AI和虚拟世界国际动议执行委员会副主席。 凯鲁基认为：“中国在快速部署基础设施、光纤
 
 ## 正文
 
-21世纪经济报道记者 唐婧 5月11日晚间，央行发布2026年第一季度中国货币政策执行报告，并在下一阶段货币政策思路中提出，要更好发挥市场利率定价自律机制作用，有效落实各项利率自律倡议，对一些不合理的、容易削减货币政策传导的市场行为加强规范，维护市场竞争秩序。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-对比上一季度的货币政策执行报告来看，“对一些不合理的、容易削减货币政策传导的市场行为加强规范”是本次报告的新提法。
+文 | 《欧陆志》栏目 郝倩 发自瑞士日内瓦 在上周国际电联（ITU）举行的第三届联合国虚拟世界日，新浪财经独家对话了坦桑尼亚信息、通信和信息技术部长安吉拉·凯鲁基（Angellah Kairuki）。
 
-央行在2025年第四季度中国货币政策执行报告的相关表述是，更好发挥利率自律机制作用，有效落实各项利率自律倡议，维护银行业市场竞争秩序。
+凯鲁基同时也是国际电联AI和虚拟世界国际动议执行委员会副主席。
 
-这与今年3月央行行长潘功胜在十四届全国人大四次会议经济主题记者会上的表态一脉相承。
+凯鲁基认为：“中国在快速部署基础设施、光纤网络、数据中心和智慧城市项目方面拥有丰富经验，这让中国成为坦桑尼亚天然的合作伙伴。
 
-潘功胜当时表示，将根据经济金融形势的变化和宏观经济的运行情况，引导和调控好利率水平，促进社会综合融资成本低位运行，强化利率政策执行和监督，对于一些不合理的、容易削减货币政策传导效果的市场行为加强规范。
+” 坦桑尼亚的目标是要实现“数字驱动型经济”，中国技术和技术设施投资，对坦桑尼亚推进数字经济具有重要意义。
 
-要求银行向企业明确展示贷款的年化综合融资成本，规范融资中间费。
+数字经济成为坦桑尼亚经济发展重要抓手 过去两年，如同其他诸多非洲国家一样，坦桑尼亚数字化进程明显提速。
 
-近期的一系列监管动作与市场动态，已为“不合理、容易削减货币政策传导的市场行为”提供了清晰的注脚。
+一个值得注意的变化是：坦桑尼亚已经不再只是给通信基础设施“补课”，而已经开始把“数字经济”作为工业化和金融普惠的重要抓手。
 
-在负债端，同业定期存款利率自律管理已开始试行，预计2026年三季度正式实施，利率上限拟锚定同期限Shibor加10个基点，以约束高定价同业定期存款规模； 在资产端，央行已明确督促银行不发放税后利率低于同期限国债收益率的贷款，旨在遏制部分机构为争夺优质客户而进行的非理性价格战； 在中间环节，金融监管总局与央行已于2026年3月联合出台规定，要求所有个人贷款明示年化综合融资成本，逐项列明利息、担保费、服务费等全部费用。
+凯鲁基对《欧陆志》介绍说，“目前坦桑尼亚数字化议程的核心，是实现三个相互关联的成果：普及数字接入、安全自主的数字基础设施，以及利用数字工具提高生产力和包容性的经济。
 
 ## 相关推荐
 
-- 2026-06-30 02:47 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 02:26 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 02:41 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 02:20 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 02:49 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-30 02:30 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 02:19 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 02:23 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 02:40 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 02:27 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 02:46 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 02:41 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 02:46 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 02:25 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 02:51 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 02:42 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 02:29 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 02:31 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 02:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 02:40 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 02:52 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 02:48 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 02:53 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 02:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 02:43 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 02:48 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 02:46 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:45 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/026896445.shtml)
-- 2026-06-30 02:47 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/39553770070.shtml)
-- 2026-06-30 02:28 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/62609613172.shtml)
-- 2026-06-30 02:40 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/358822.shtml)
-- 2026-06-30 02:29 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/787206319634.shtml)
-- 2026-06-30 02:32 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/1499201.shtml)
-- 2026-06-30 02:27 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/786584111064.shtml)
-- 2026-06-30 02:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/518624.shtml)
-- 2026-06-30 02:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/60999834399.shtml)
-- 2026-06-30 02:28 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/132787.shtml)
-- 2026-06-30 02:29 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/186893021316.shtml)
-- 2026-06-30 02:36 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/45767912056.shtml)
-- 2026-06-30 02:41 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/68489380.shtml)
-- 2026-06-30 02:26 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/870489.shtml)
-- 2026-06-30 02:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/9991791808.shtml)
+- 2026-06-30 02:43 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/0520251276.shtml)
+- 2026-06-30 02:44 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/1881705922.shtml)
+- 2026-06-30 02:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/35939736035.shtml)
+- 2026-06-30 02:53 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/738009.shtml)
+- 2026-06-30 02:28 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/4101155.shtml)
+- 2026-06-30 02:51 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/2871074024.shtml)
+- 2026-06-30 02:50 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/594178.shtml)
+- 2026-06-30 02:34 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/78812694.shtml)
+- 2026-06-30 02:30 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/583708143.shtml)
+- 2026-06-30 02:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/7741689189.shtml)
+- 2026-06-30 02:37 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/34020.shtml)
+- 2026-06-30 02:51 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/92311382892.shtml)
+- 2026-06-30 02:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/7246013.shtml)
+- 2026-06-30 02:41 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/68342.shtml)
+- 2026-06-30 02:30 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/2365102.shtml)

@@ -1,56 +1,45 @@
-# 市场监管总局附条件批准腾讯收购喜马拉雅股权案
+# 意大利遇上中国“最炫民族风”：黎锦服饰亮相米兰街头引围观
 
-> 更新时间：2026-06-30 02:49:31 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-中新网5月12日电 据市场监管总局网站消息，5月12日，市场监管总局发布公告，附加限制性条件批准腾讯控股有限公司(以下简称腾讯)收购喜马拉雅公司(以下简称喜马拉雅)股权案。该案对维护中国境内在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，防范平台领域“内卷式”竞争，推动平台经济创新和健康发展具有重要意义。经审查，市场监管总局认为该案对中国境内在线音频播放平台市场、网络音
+发布时间：2026年05月21日 21:50 来源：中国新闻网 当地时间5月20日，赴意大利参加国际茶日主题文化交流活动的海南省五指山市代表团，携充满黎族文化元素的黎锦服饰亮相米兰街头，引来当地民众、游客驻足围观和试穿。(记者 李宇凡 视频来源 五指山旅投集团） 责任编辑：【李季】
 
 ## 正文
 
-中新网5月12日电 据市场监管总局网站消息，5月12日，市场监管总局发布公告，附加限制性条件批准腾讯控股有限公司(以下简称腾讯)收购喜马拉雅公司(以下简称喜马拉雅)股权案。
+发布时间：2026年05月21日 21:50 来源：中国新闻网 当地时间5月20日，赴意大利参加国际茶日主题文化交流活动的海南省五指山市代表团，携充满黎族文化元素的黎锦服饰亮相米兰街头，引来当地民众、游客驻足围观和试穿。
 
-该案对维护中国境内在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，防范平台领域“内卷式”竞争，推动平台经济创新和健康发展具有重要意义。
-
-经审查，市场监管总局认为该案对中国境内在线音频播放平台市场、网络音乐播放平台市场竞争可能具有排除、限制竞争效果。
-
-为有效减少此项经营者集中可能产生的不利影响，市场监管总局经过全面审查、科学论证，依法对该案作出附条件批准决定，要求腾讯、喜马拉雅和集中后实体作出五项限制性承诺：不得提高在线音频播放平台服务价格、降低服务水平或者附加不合理交易条件；不得降低在线音频播放平台免费内容及免费热门内容比例；不得与在线音频播放平台版权方达成独家授权，并在规定期限内解除现有独家授权约定；不得向汽车厂商搭售在线音频播放平台、网络音乐播放平台，或者阻碍、限制其采购竞争对手产品；不得限制主播在多个在线音频播放平台入驻或分发其享有著作权的作品。
-
-经评估，市场监管总局认为该承诺方案可有效减少本集中导致的竞争问题，能够保障消费者、版权方、主播及汽车厂商等多方主体合法权益，维护相关市场公平竞争秩序，依法于5月11日附加限制性条件批准本案。
-
-市场监管总局将严格督促交易双方有效履行限制性承诺，充分发挥经营者集中审查事前预防作用，切实维护我国在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，保障经营主体、消费者合法权益，防范平台“内卷式”竞争，推动平台企业和平台内经营者、劳动者共赢发展‌。
+(记者 李宇凡 视频来源 五指山旅投集团） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 02:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 02:48 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 02:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 02:34 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 02:28 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 02:23 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 02:37 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 02:38 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 02:37 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 02:41 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 02:29 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 02:32 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 02:22 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 02:22 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 02:28 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 02:35 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 02:47 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 02:34 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 02:39 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 02:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 02:24 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 02:47 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 02:42 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 02:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 02:43 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [巴西扳平比分](https://www.blog.minike.top/Article/details/038469.shtml)
-- 2026-06-30 02:32 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/161692186.shtml)
-- 2026-06-30 02:41 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/64402929278.shtml)
-- 2026-06-30 02:23 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/41960.shtml)
-- 2026-06-30 02:33 - [女心理师](http://www.share.minike.top/Article/details/87540.shtml)
-- 2026-06-30 02:40 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/8704778.shtml)
-- 2026-06-30 02:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/76283004.shtml)
-- 2026-06-30 02:37 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/38826.shtml)
-- 2026-06-30 02:37 - [流金岁月](https://www.share.kurohicncr.top/Article/details/355632570241.shtml)
-- 2026-06-30 02:32 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/71025.shtml)
-- 2026-06-30 02:37 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/45596928242.shtml)
-- 2026-06-30 02:27 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/10764.shtml)
-- 2026-06-30 02:28 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/929027886.shtml)
-- 2026-06-30 02:21 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/6062364693.shtml)
-- 2026-06-30 02:36 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/696355380660.shtml)
+- 2026-06-30 02:34 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/645500046526.shtml)
+- 2026-06-30 02:37 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/484189271.shtml)
+- 2026-06-30 02:48 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/95109024504.shtml)
+- 2026-06-30 02:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/875810.shtml)
+- 2026-06-30 02:29 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/57518199.shtml)
+- 2026-06-30 02:33 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/4637529.shtml)
+- 2026-06-30 02:30 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/79949259.shtml)
+- 2026-06-30 02:34 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/30919482.shtml)
+- 2026-06-30 02:39 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/968848.shtml)
+- 2026-06-30 02:25 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/156086.shtml)
+- 2026-06-30 02:43 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/910404496799.shtml)
+- 2026-06-30 02:42 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/054544634.shtml)
+- 2026-06-30 02:40 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/77771.shtml)
+- 2026-06-30 02:42 - [月亮](https://www.blog.minike.top/Article/details/6413252.shtml)
+- 2026-06-30 02:48 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/5472454.shtml)

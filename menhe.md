@@ -1,59 +1,56 @@
-# 今年被罚没已逾2200万元！交通银行为何合规问题不断？
+# 卖梅子年入超17亿，溜溜梅递表港交所，中国果类零食行业排名第一
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-投资时间网、标点财经研究员 田文会 交通银行股份有限公司（下称交通银行，601328.SH）近日又领到多张罚单。今年以来，该行被罚没已不下2200万元，该行合规管理有待加强。 据国家金融监督管理总局（下称金融监管总局）官网4月30日发布的信息，金融监管总局海南监管局决定对交通银行海南省分行及三家支行合计罚款195万元，主要因贷款管理不尽职等。同时，金融监管总局朔州监管分局决定对
+来源：独角兽早知道 据港交所5月21日披露，溜溜梅股份有限公司向港交所主板提交上市申请书，中信证券、国元国际为联席保荐人。此前，溜溜梅已完成港股上市备案，或很快在港交所进行上市聆讯。 综合 | 招股书 编辑 | Arti 溜溜梅的故事并不复杂，这是一家从经典品牌“溜溜梅”起步，在中国果类零食赛道用“酸”和“天然”找到差异化的企业，如今正在完成一轮深度的渠道战略切换。 溜溜梅深耕
 
 ## 正文
 
-投资时间网、标点财经研究员 田文会 交通银行股份有限公司（下称交通银行，601328.SH）近日又领到多张罚单。
+来源：独角兽早知道 据港交所5月21日披露，溜溜梅股份有限公司向港交所主板提交上市申请书，中信证券、国元国际为联席保荐人。
 
-今年以来，该行被罚没已不下2200万元，该行合规管理有待加强。
+此前，溜溜梅已完成港股上市备案，或很快在港交所进行上市聆讯。
 
-据国家金融监督管理总局（下称金融监管总局）官网4月30日发布的信息，金融监管总局海南监管局决定对交通银行海南省分行及三家支行合计罚款195万元，主要因贷款管理不尽职等。
+综合 | 招股书 编辑 | Arti 溜溜梅的故事并不复杂，这是一家从经典品牌“溜溜梅”起步，在中国果类零食赛道用“酸”和“天然”找到差异化的企业，如今正在完成一轮深度的渠道战略切换。
 
-同时，金融监管总局朔州监管分局决定对交通银行朔州分行罚款40万元。
+溜溜梅深耕青梅行业已超过二十年。
 
-今年以来，交通银行已累计被国家金融监督管理部门处罚不下13次，罚没不低于1659.87万元，处罚原因中贷款业务违规占多数。
+其核心定位是在果类零食这个千亿级大赛道中，以梅产品作为差异化切口，并于2019年延伸出天然成分果冻产品矩阵。
 
-同时，该行今年以来被人民银行处罚不下6次，累计罚没不低于562.72万元。
+根据弗若斯特沙利文的数据，2024年在中国果类零食行业按零售额计，溜溜梅排名第一，市场份额4.9%。
 
-中央纪委国家监委官网5月7日发布的信息还显示，交通银行原党委委员、副行长侯维栋严重违纪违法被开除党籍。
+在天然成分果冻这一细分赛道，公司的头部地位更为突出。
 
-具体问题包括：将金融科技资源配置权力异化为谋取个人私利的工具，大搞权钱交易，利用职务便利为他人在项目承揽、贷款融资等方面谋利，并非法收受巨额财物等。
+根据弗若斯特沙利文数据，2024年在中国天然成分果冻市场中，溜溜梅以45.7%的市场份额高居第一。
 
 ## 相关推荐
 
-- 2026-06-30 02:47 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 02:35 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 02:43 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 02:25 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 02:24 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 02:31 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 02:45 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 02:45 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 02:41 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 02:26 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 02:36 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 02:48 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 02:43 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 02:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 02:26 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 02:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 02:51 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 02:30 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 02:37 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-30 02:28 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 02:29 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 02:40 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 02:32 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:24 - [日本反击率先破门](http://www.blog.minike.top/Article/details/0882463800.shtml)
-- 2026-06-30 02:44 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/525852190.shtml)
-- 2026-06-30 02:28 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/82780.shtml)
-- 2026-06-30 02:42 - [日本进球](https://www.blog.minike.top/Article/details/56224077430.shtml)
-- 2026-06-30 02:19 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/205638133.shtml)
-- 2026-06-30 02:41 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/30727.shtml)
-- 2026-06-30 02:31 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/32090.shtml)
-- 2026-06-30 02:43 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/4541117.shtml)
-- 2026-06-30 02:41 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/98194844562.shtml)
-- 2026-06-30 02:46 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/16252850.shtml)
-- 2026-06-30 02:40 - [TOP Prada](https://www.share.minike.top/Article/details/318704510836.shtml)
-- 2026-06-30 02:48 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/140060548.shtml)
-- 2026-06-30 02:48 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/8050374.shtml)
-- 2026-06-30 02:34 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/647616.shtml)
-- 2026-06-30 02:45 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/341630812200.shtml)
+- 2026-06-30 02:48 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/546910.shtml)
+- 2026-06-30 02:39 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/58006.shtml)
+- 2026-06-30 02:25 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/170223009.shtml)
+- 2026-06-30 02:30 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/74925910.shtml)
+- 2026-06-30 02:46 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/59367545.shtml)
+- 2026-06-30 02:24 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/0005648.shtml)
+- 2026-06-30 02:26 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/023616257301.shtml)
+- 2026-06-30 02:33 - [我们的少年时代2](https://www.share.minike.top/Article/details/524616.shtml)
+- 2026-06-30 02:30 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/7239140.shtml)
+- 2026-06-30 02:41 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/699292.shtml)
+- 2026-06-30 02:31 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/1950383.shtml)
+- 2026-06-30 02:50 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/36234114.shtml)
+- 2026-06-30 02:53 - [美股](https://www.blog.minike.top/Article/details/559289637.shtml)
+- 2026-06-30 02:36 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/7515460.shtml)
+- 2026-06-30 02:48 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/9635714.shtml)

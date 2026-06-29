@@ -1,55 +1,49 @@
-# 东方电气盘中涨超5% 华泰证券维持“买入”评级
+# 中国铁建：2026年面向专业投资者公开发行科技创新公司债券(第一期)
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-东方电气（01072）早盘一度涨超5%，截至发稿，股价上涨3.18%，现报38.24港元，成交额3.56亿港元。 4月30日，东方电气和某北美客户在东方汽轮机厂举行自主燃机出海正式签约仪式；签约体量为10台50MWG50自主燃机，为合作项目一期。据悉，董事会同意东方汽轮机开展自主燃机核心产能提升建设项目，预期2028年初，自主G50产能达到20-30台自主燃机产能。 华泰证券认
+中国铁建（01186）发布公告，中国铁建股份有限公司2026年面向专业投资者公开发行科技创新公司债券（第一期）发行规模为不超过人民币30亿元（含30亿元）。根据网下专业机构投资者询价结果，经发行人和簿记管理人协商一致，最终确定本期债券品种一的票面利率为2.37%，品种二的票面利率为2.49%。责任编辑：卢昱君
 
 ## 正文
 
-东方电气（01072）早盘一度涨超5%，截至发稿，股价上涨3.18%，现报38.24港元，成交额3.56亿港元。
+中国铁建（01186）发布公告，中国铁建股份有限公司2026年面向专业投资者公开发行科技创新公司债券（第一期）发行规模为不超过人民币30亿元（含30亿元）。
 
-4月30日，东方电气和某北美客户在东方汽轮机厂举行自主燃机出海正式签约仪式；签约体量为10台50MWG50自主燃机，为合作项目一期。
-
-据悉，董事会同意东方汽轮机开展自主燃机核心产能提升建设项目，预期2028年初，自主G50产能达到20-30台自主燃机产能。
-
-华泰证券认为，当前全球燃气轮机排产紧张的背景下，东方电气有望充分受益，看好未来海外订单逐渐落地贡献利润弹性。
-
-2025年2月，公司发布未来三年股东回报规划，明确在2024年分红比例基础上，2025-2027年分红比例将逐年增长至少1pp。
-
-给予公司A/H 股维持“买入”评级。
+根据网下专业机构投资者询价结果，经发行人和簿记管理人协商一致，最终确定本期债券品种一的票面利率为2.37%，品种二的票面利率为2.49%。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:24 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 02:35 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-30 02:34 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 02:27 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 02:46 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 02:46 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 02:26 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 02:44 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-30 02:25 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 02:22 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 02:47 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 02:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 02:37 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 02:49 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 02:39 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 02:44 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 02:46 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 02:42 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 02:50 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 02:25 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 02:36 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 02:41 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 02:27 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 02:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:48 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/610949860848.shtml)
-- 2026-06-30 02:39 - [一生一世](https://www.share.kurohicncr.top/Article/details/173666823.shtml)
-- 2026-06-30 02:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/714969966.shtml)
-- 2026-06-30 02:42 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/23175701417.shtml)
-- 2026-06-30 02:40 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/9227633881.shtml)
-- 2026-06-30 02:30 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/57412449.shtml)
-- 2026-06-30 02:27 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/326599897789.shtml)
-- 2026-06-30 02:23 - [沙丘](https://www.blog.minike.top/Article/details/8427282878.shtml)
-- 2026-06-30 02:37 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/8335636767.shtml)
-- 2026-06-30 02:30 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/38145.shtml)
-- 2026-06-30 02:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/079625638.shtml)
-- 2026-06-30 02:25 - [扬名立万](https://www.blog.minike.top/Article/details/6985907.shtml)
-- 2026-06-30 02:21 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/787896952.shtml)
-- 2026-06-30 02:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/76602623131.shtml)
-- 2026-06-30 02:41 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/6508139478.shtml)
+- 2026-06-30 02:24 - [爱很美味](http://www.share.kurohicncr.top/Article/details/26471931.shtml)
+- 2026-06-30 02:37 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/422121595.shtml)
+- 2026-06-30 02:43 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/13781163895.shtml)
+- 2026-06-30 02:40 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/025838779058.shtml)
+- 2026-06-30 02:43 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/1802653309.shtml)
+- 2026-06-30 02:26 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/49079869706.shtml)
+- 2026-06-30 02:43 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/18382.shtml)
+- 2026-06-30 02:32 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/4223214.shtml)
+- 2026-06-30 02:43 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/40693579.shtml)
+- 2026-06-30 02:36 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/246533260393.shtml)
+- 2026-06-30 02:40 - [一生一世](https://www.blog.kurohicncr.top/Article/details/3489313068.shtml)
+- 2026-06-30 02:33 - [日本进球](https://www.share.minike.top/Article/details/31987310.shtml)
+- 2026-06-30 02:40 - [啊啊啊](http://www.blog.minike.top/Article/details/660833641.shtml)
+- 2026-06-30 02:41 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/863064.shtml)
+- 2026-06-30 02:49 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/59949.shtml)

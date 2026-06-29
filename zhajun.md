@@ -1,56 +1,46 @@
-# 宗馥莉罢免销售负责人，部分非生产业务将外包
+# 汽车股早盘回暖 赛力斯涨逾8%小鹏汽车-W涨逾7%
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 赵晓娟 界面新闻编辑 | 牙韩翔 娃哈哈和宏胜饮料在去年经历一系列人事波动后，今年再次迎来核心部门人员的变动。 5月11日，界面新闻获得的一份宏胜饮料集团发布的组织架构调整及人员任免通知。其中一个重点是：将营销中心划归总裁统筹直管；营销中心总监兼销售公司总经理吴汀燕被免职。宏胜饮料集团的总裁即为宗馥莉。 同时，对销售公司内设科室整合重组，组成两大科室：商超特通
+汽车股早盘回暖，截至发稿，赛力斯（09927）上涨7.78%，报72港元；小鹏汽车-W（09868）上涨6.99%，报62港元；岚图汽车（07489）上涨3.30%，报5.95港元；理想汽车-W（02015）上涨2.19%，报62.95港元。责任编辑：卢昱君
 
 ## 正文
 
-界面新闻记者 | 赵晓娟 界面新闻编辑 | 牙韩翔 娃哈哈和宏胜饮料在去年经历一系列人事波动后，今年再次迎来核心部门人员的变动。
+汽车股早盘回暖，截至发稿，赛力斯（09927）上涨7.78%，报72港元；小鹏汽车-W（09868）上涨6.99%，报62港元；岚图汽车（07489）上涨3.30%，报5.95港元；理想汽车-W（02015）上涨2.19%，报62.95港元。
 
-5月11日，界面新闻获得的一份宏胜饮料集团发布的组织架构调整及人员任免通知。
-
-其中一个重点是：将营销中心划归总裁统筹直管；营销中心总监兼销售公司总经理吴汀燕被免职。
-
-宏胜饮料集团的总裁即为宗馥莉。
-
-同时，对销售公司内设科室整合重组，组成两大科室：商超特通管理科和渠道管理科，新科室承接原有全部业务职能。
-
-简单说，宏胜饮料集团和娃哈哈品牌的“营销中心”更像是管理和运营体系，“销售公司”则是具体承接经销商、渠道和回款的实体公司，两者是前后台的关系。
-
-此外，宏胜饮料还宣布了这些科室的相关负责人及相关人士变动。
-
-其中大部分人员都是升职，而只有吴汀燕和吴潘潘（原计划中心生产管理科科长）被免职。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:28 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 02:36 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 02:44 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 02:26 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 02:23 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-30 02:22 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 02:46 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 02:22 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 02:26 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 02:21 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 02:25 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 02:29 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 02:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 02:26 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 02:52 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 02:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 02:47 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 02:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 02:35 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 02:25 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 02:39 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 02:41 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:28 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/6733091584.shtml)
-- 2026-06-30 02:23 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/492354.shtml)
-- 2026-06-30 02:41 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/7596723.shtml)
-- 2026-06-30 02:22 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/1837973739.shtml)
-- 2026-06-30 02:40 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/22015.shtml)
-- 2026-06-30 02:27 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/7657284647.shtml)
-- 2026-06-30 02:48 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/836446161.shtml)
-- 2026-06-30 02:30 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/299461.shtml)
-- 2026-06-30 02:38 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/25382315.shtml)
-- 2026-06-30 02:48 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/9678601.shtml)
-- 2026-06-30 02:29 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/5764787058.shtml)
-- 2026-06-30 02:38 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/0146592.shtml)
-- 2026-06-30 02:43 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/9800055310.shtml)
-- 2026-06-30 02:20 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/88877.shtml)
-- 2026-06-30 02:36 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/25448021.shtml)
+- 2026-06-30 02:41 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/653226.shtml)
+- 2026-06-30 02:28 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/59918181654.shtml)
+- 2026-06-30 02:35 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/96414516593.shtml)
+- 2026-06-30 02:44 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/14451.shtml)
+- 2026-06-30 02:32 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/22468.shtml)
+- 2026-06-30 02:44 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/148973259.shtml)
+- 2026-06-30 02:38 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/74391.shtml)
+- 2026-06-30 02:51 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/8502938507.shtml)
+- 2026-06-30 02:31 - [时光音乐会](http://www.share.minike.top/Article/details/67192822184.shtml)
+- 2026-06-30 02:29 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/60992.shtml)
+- 2026-06-30 02:43 - [绘画区你赢了](http://www.blog.minike.top/Article/details/524622740.shtml)
+- 2026-06-30 02:47 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/1057067.shtml)
+- 2026-06-30 02:48 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/963952308.shtml)
+- 2026-06-30 02:25 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/806988716.shtml)
+- 2026-06-30 02:29 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/535162847.shtml)

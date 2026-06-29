@@ -1,51 +1,56 @@
-# 校园小胖墩越来越多 这所中学把减脂餐搬进食堂
+# 特朗普再威胁伊朗交出浓缩铀 称到手后或销毁
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 15:48 来源：中国新闻网 近日，湖南长沙周南中学食堂上架的专业减脂餐受到师生热捧。菜品低油低盐、营养科学配比，14元一份和普通套餐同价，每日限量供应十分抢手，食堂还增设营养角，方便学生自测健康状况。 这样的学校食堂你爱了吗？(杨华峰 李盈 游蕾） 责任编辑：【卢岩】
+新华社华盛顿5月21日电(记者黄强 徐剑梅)美国总统特朗普21日在白宫对媒体说，伊朗必须交出其拥有的高丰度浓缩铀，美国拿到后很可能会将其销毁。 特朗普回答记者提问时说：“我们会拿到那些高浓缩铀的。我们不需要，也不想要。我们拿到后很可能会将其销毁，我们不会让他们拥有。”他还说，美伊正在进行谈判，结果如何尚待观察。 特朗普此前多次威胁伊朗交出浓缩铀。据美国媒体10日报道，特朗普称，
 
 ## 正文
 
-发布时间：2026年05月11日 15:48 来源：中国新闻网 近日，湖南长沙周南中学食堂上架的专业减脂餐受到师生热捧。
+新华社华盛顿5月21日电(记者黄强 徐剑梅)美国总统特朗普21日在白宫对媒体说，伊朗必须交出其拥有的高丰度浓缩铀，美国拿到后很可能会将其销毁。
 
-菜品低油低盐、营养科学配比，14元一份和普通套餐同价，每日限量供应十分抢手，食堂还增设营养角，方便学生自测健康状况。
+特朗普回答记者提问时说：“我们会拿到那些高浓缩铀的。
 
-这样的学校食堂你爱了吗？
+我们不需要，也不想要。
 
-(杨华峰 李盈 游蕾） 责任编辑：【卢岩】
+我们拿到后很可能会将其销毁，我们不会让他们拥有。
+
+”他还说，美伊正在进行谈判，结果如何尚待观察。
+
+特朗普此前多次威胁伊朗交出浓缩铀。
+
+据美国媒体10日报道，特朗普称，美国一直在对掩埋在废墟下的伊朗浓缩铀进行监控，美国太空军负责此事。
+
+当天早些时候，路透社援引伊朗消息人士的话报道，伊朗最高领袖穆杰塔巴·哈梅内伊已下达指令，要求该国浓缩铀库存不得运往国外。
 
 ## 相关推荐
 
-- 2026-06-30 02:44 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 02:28 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 02:29 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 02:35 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 02:48 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 02:28 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 02:43 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 02:31 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 02:42 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 02:36 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 02:34 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 02:47 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 02:39 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 02:32 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 02:39 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 02:29 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 02:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 02:36 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 02:53 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 02:41 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 02:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 02:49 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 02:26 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:31 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/580990.shtml)
-- 2026-06-30 02:40 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/94819613.shtml)
-- 2026-06-30 02:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/07106711.shtml)
-- 2026-06-30 02:47 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/8394372.shtml)
-- 2026-06-30 02:25 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/085072.shtml)
-- 2026-06-30 02:29 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/479596149948.shtml)
-- 2026-06-30 02:37 - [内马尔替补](https://www.share.minike.top/Article/details/177193.shtml)
-- 2026-06-30 02:37 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/1433415196.shtml)
-- 2026-06-30 02:32 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/7643319911.shtml)
-- 2026-06-30 02:46 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/4628098041.shtml)
-- 2026-06-30 02:34 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/87132.shtml)
-- 2026-06-30 02:27 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/26302117.shtml)
-- 2026-06-30 02:47 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/726485.shtml)
-- 2026-06-30 02:37 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/353218721744.shtml)
-- 2026-06-30 02:23 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/7511460098.shtml)
+- 2026-06-30 02:39 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/31531360778.shtml)
+- 2026-06-30 02:42 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/889791.shtml)
+- 2026-06-30 02:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/5731448005.shtml)
+- 2026-06-30 02:51 - [一见倾心](https://www.blog.minike.top/Article/details/24593599969.shtml)
+- 2026-06-30 02:45 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/1102690.shtml)
+- 2026-06-30 02:46 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/15958001.shtml)
+- 2026-06-30 02:39 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/623122.shtml)
+- 2026-06-30 02:53 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/56144.shtml)
+- 2026-06-30 02:36 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/4829851.shtml)
+- 2026-06-30 02:37 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/50687318.shtml)
+- 2026-06-30 02:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/933605572.shtml)
+- 2026-06-30 02:41 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/942396.shtml)
+- 2026-06-30 02:28 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/2082360121.shtml)
+- 2026-06-30 02:44 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/3297477.shtml)
+- 2026-06-30 02:52 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/46872865.shtml)

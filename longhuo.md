@@ -1,60 +1,56 @@
-# 全球最高端的飞机 “收债人”，正在批量回收精神航空客机
+# 广州南沙港的治理蝶变：用“发展活水”兴港
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-航司倒闭倒计时开启，数十架飞机亟待收回、停放至亚利桑那飞机坟场；有人调侃：“我能穿短裤飞吗？” 周五傍晚 6 点，鲍勃・艾伦接到了一通紧急电话，消息很明确：立刻备好飞机回收团队。 彼时精神航空仍在正常运营、航班还在天上飞行。但旗下数十架亮黄色客机的所有权归飞机租赁公司所有，眼看精神航空濒临破产清算，租赁方愈发焦虑，急于收回自有飞机。 艾伦说：“我只有 6 个小时，紧急凑齐 20
+中新网广州5月21日电 题：广州南沙港的治理蝶变：用“发展活水”兴港 中新网记者 王坚 广州港南沙港区五期工程近日在广州南沙区龙穴岛打下首桩，标志着这个深水良港的能级即将再次跃升。而就在不久前，这片土地才刚刚通过一场严峻考验——曾经让物流“动脉”几近栓塞的节前“大堵港”景象，如今已彻底转变。这背后，是一场“等不起、慢不得”的治理革新。 破局：从“寸步难行”到“有序高效” 曾经的
 
 ## 正文
 
-航司倒闭倒计时开启，数十架飞机亟待收回、停放至亚利桑那飞机坟场；有人调侃：“我能穿短裤飞吗？
+中新网广州5月21日电 题：广州南沙港的治理蝶变：用“发展活水”兴港 中新网记者 王坚 广州港南沙港区五期工程近日在广州南沙区龙穴岛打下首桩，标志着这个深水良港的能级即将再次跃升。
 
-” 周五傍晚 6 点，鲍勃・艾伦接到了一通紧急电话，消息很明确：立刻备好飞机回收团队。
+而就在不久前，这片土地才刚刚通过一场严峻考验——曾经让物流“动脉”几近栓塞的节前“大堵港”景象，如今已彻底转变。
 
-彼时精神航空仍在正常运营、航班还在天上飞行。
+这背后，是一场“等不起、慢不得”的治理革新。
 
-但旗下数十架亮黄色客机的所有权归飞机租赁公司所有，眼看精神航空濒临破产清算，租赁方愈发焦虑，急于收回自有飞机。
+破局：从“寸步难行”到“有序高效” 曾经的春节前夕，龙穴岛扬帆路便成为集卡司机的“停车场”。
 
-艾伦说：“我只有 6 个小时，紧急凑齐 20 名飞行员。
+车龙绵延数公里，引擎空转，寸步难行。
 
-” 他创立的游牧航空集团，数月来一直在待命，密切关注精神航空的破产动向。
+“四条车道能被违停占去三条，排队几小时是常事。
 
-艾伦与联合创始人史蒂夫・乔尔达诺迅速组建飞行员队伍，其中大多是曾在精神航空任职的老员工。
+”老司机夏帮定的记忆，是昔日治理困境的缩影。
 
-他们建了一个 WhatsApp 群组，很快扩充到 40 人。
+停车配套不足与执法权责模糊，让“年年治堵年年堵”成为顽疾。
 
 ## 相关推荐
 
-- 2026-06-30 02:32 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 02:38 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 02:35 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 02:23 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 02:39 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 02:41 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 02:39 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 02:47 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 02:37 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 02:29 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 02:39 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 02:45 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 02:48 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 02:36 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 02:41 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 02:43 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 02:45 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 02:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 02:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 02:38 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 02:50 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 02:24 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 02:35 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 02:46 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/359460179.shtml)
-- 2026-06-30 02:36 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/379568209093.shtml)
-- 2026-06-30 02:41 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/5679358.shtml)
-- 2026-06-30 02:44 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/3934282.shtml)
-- 2026-06-30 02:29 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/1684029.shtml)
-- 2026-06-30 02:25 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/94382638.shtml)
-- 2026-06-30 02:41 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/1653965843.shtml)
-- 2026-06-30 02:48 - [乔家的儿女](https://www.share.minike.top/Article/details/28238197422.shtml)
-- 2026-06-30 02:45 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/105529888453.shtml)
-- 2026-06-30 02:44 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/740529672436.shtml)
-- 2026-06-30 02:19 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/449755.shtml)
-- 2026-06-30 02:41 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/3425212787.shtml)
-- 2026-06-30 02:25 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/25915.shtml)
-- 2026-06-30 02:31 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/58143.shtml)
-- 2026-06-30 02:26 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/80548.shtml)
+- 2026-06-30 02:48 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/243188054211.shtml)
+- 2026-06-30 02:42 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/575208022.shtml)
+- 2026-06-30 02:52 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/57163.shtml)
+- 2026-06-30 02:32 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/74916.shtml)
+- 2026-06-30 02:36 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/17407472.shtml)
+- 2026-06-30 02:54 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/8368467.shtml)
+- 2026-06-30 02:52 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/437683.shtml)
+- 2026-06-30 02:48 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/837523.shtml)
+- 2026-06-30 02:39 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/45948.shtml)
+- 2026-06-30 02:32 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/729059926732.shtml)
+- 2026-06-30 02:47 - [起风了](http://www.share.kurohicncr.top/Article/details/77739208105.shtml)
+- 2026-06-30 02:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/204971801.shtml)
+- 2026-06-30 02:29 - [周生如故](http://www.blog.kurohicncr.top/Article/details/85771.shtml)
+- 2026-06-30 02:28 - [日本反击率先破门](http://www.share.minike.top/Article/details/831124127221.shtml)
+- 2026-06-30 02:31 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/5633130.shtml)

@@ -1,50 +1,57 @@
-# 快讯：恒指高开0.34% 科指涨0.45% 黄金股回暖 芯片股活跃 快手涨超9%
+# 宁波组织开展2026年全市民族宗教系统信息宣传工作培训
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-美股周一反复上升，地缘政局再度紧张，拖累大市早段向下，其后重拾升势，标普500指数及纳指再创新高，三大指数均录得升幅收市。美元表现向好，美国十年期债息上升至4.41厘水平，金价走势靠稳，油价则先升后回。 今日港股三大指数集体高开，恒指开盘涨0.34%，报26497.03点，恒科指涨0.45%，国企指数涨0.2%。盘面上，科网股跌多涨少，快手涨超9%，联想跌0.67%；黄金股回暖
+为进一步提升民族宗教系统信息宣传工作质效，聚焦宣传好宁波民族宗教工作成果，助力民族宗教工作“两个先行市”建设提速提质。5月14日至15日，宁波市民宗局组织开展2026年全市民族宗教系统信息宣传工作培训。宁波市民宗局副局长董奕玮出席培训班并讲话，各区(县、市)民宗局分管领导、信息宣传员及重点乡镇(街道)宣传信息员等50余人参加培训。培训强调，2025年宁波民族宗教信息宣传供稿规模
 
 ## 正文
 
-美股周一反复上升，地缘政局再度紧张，拖累大市早段向下，其后重拾升势，标普500指数及纳指再创新高，三大指数均录得升幅收市。
+为进一步提升民族宗教系统信息宣传工作质效，聚焦宣传好宁波民族宗教工作成果，助力民族宗教工作“两个先行市”建设提速提质。
 
-美元表现向好，美国十年期债息上升至4.41厘水平，金价走势靠稳，油价则先升后回。
+5月14日至15日，宁波市民宗局组织开展2026年全市民族宗教系统信息宣传工作培训。
 
-今日港股三大指数集体高开，恒指开盘涨0.34%，报26497.03点，恒科指涨0.45%，国企指数涨0.2%。
+宁波市民宗局副局长董奕玮出席培训班并讲话，各区(县、市)民宗局分管领导、信息宣传员及重点乡镇(街道)宣传信息员等50余人参加培训。
 
-盘面上，科网股跌多涨少，快手涨超9%，联想跌0.67%；黄金股回暖，赤峰黄金涨超2%；芯片股活跃，天数智芯涨超2%；创新药概念多数上涨，再鼎医药涨超4%。
+培训强调，2025年宁波民族宗教信息宣传供稿规模持续扩容，稿件质量稳步提升。
 
-责任编辑：郝欣煜
+信息宣传工作要提高政治站位，切实增强做好信息宣传工作的责任感使命感，充分认清信息宣传工作是保持上下联系沟通的重要渠道和平台，也是锻炼干部、提升干部能力素质的方式。
+
+要坚持守正创新，全面提升信息宣传工作层次水平和实际成效，明确目标，精准选题，简练文字，增强信息工作的主动性和敏锐性，牢牢掌握信息工作要点，提升信息质量。
+
+要加强组织领导，为信息宣传工作高质量发展提供坚强保障，把信息宣传工作摆在重要位置，与业务工作同谋划、同部署、同推进，形成人人关心、人人支持的良好局面。
+
+培训期间，邀请了省民宗委、宁波市府办及民宗局相关负责人就民宗系统宣传工作、政府信息报送工作等作专题辅导，部分区(县、市)信息宣传员进行了经验分享，全体学员围绕提升2026年信息宣传工作质效进行了交流讨论。
 
 ## 相关推荐
 
-- 2026-06-30 02:21 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 02:32 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-30 02:24 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 02:32 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 02:33 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 02:49 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 02:43 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 02:48 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 02:47 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 02:27 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 02:42 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 02:25 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 02:39 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 02:53 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 02:52 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 02:53 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 02:35 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 02:42 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 02:38 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 02:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 02:49 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/73081.shtml)
-- 2026-06-30 02:33 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/344440946525.shtml)
-- 2026-06-30 02:26 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/917864.shtml)
-- 2026-06-30 02:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/38382.shtml)
-- 2026-06-30 02:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/285743931.shtml)
-- 2026-06-30 02:33 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/997896145458.shtml)
-- 2026-06-30 02:37 - [世界杯](http://www.blog.kurohicncr.top/Article/details/91900263207.shtml)
-- 2026-06-30 02:22 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/92517441.shtml)
-- 2026-06-30 02:25 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/359949.shtml)
-- 2026-06-30 02:36 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/61684636.shtml)
-- 2026-06-30 02:48 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/519646547.shtml)
-- 2026-06-30 02:29 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/7527124.shtml)
-- 2026-06-30 02:37 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/9771119727.shtml)
-- 2026-06-30 02:31 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/301355511.shtml)
-- 2026-06-30 02:29 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/540210792760.shtml)
+- 2026-06-30 02:26 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/332227.shtml)
+- 2026-06-30 02:38 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/573026309.shtml)
+- 2026-06-30 02:33 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/818891620861.shtml)
+- 2026-06-30 02:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/1737236.shtml)
+- 2026-06-30 02:24 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/09530922047.shtml)
+- 2026-06-30 02:37 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/5124888825.shtml)
+- 2026-06-30 02:25 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/24992666.shtml)
+- 2026-06-30 02:39 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/16995416166.shtml)
+- 2026-06-30 02:51 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/366155.shtml)
+- 2026-06-30 02:46 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/008482838793.shtml)
+- 2026-06-30 02:45 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/9782940.shtml)
+- 2026-06-30 02:48 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/5415980.shtml)
+- 2026-06-30 02:50 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/705838770617.shtml)
+- 2026-06-30 02:46 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/994517689224.shtml)
+- 2026-06-30 02:47 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/20961221.shtml)

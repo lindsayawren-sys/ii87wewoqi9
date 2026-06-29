@@ -1,58 +1,58 @@
-# 华商基金张永志管理华商可转债债券A成立以来涨超90%
+# 中国企业“出海”欧洲 品牌信任建设或是关键
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-可转债这类品种可能还有很多投资者不是很了解。可转债是在一定条件下可以被转换成公司股票的债券。股市疲软时，可持有债券到期获得收益，有一定防御性；股市走强时，可获得“转股增益”机遇。 梳理数据可以看到，中证转债指数在2023年A股市场处于回调周期时微跌-0.48%，在2025年A股市场处于上行周期时上涨18.66%，相比上证指数与中债综合指数的表现，这一组数据清晰诠释了可转债这类投
+中新网上海5月20日电 (记者 许婧)随着中国品牌在技术创新和高端化发展上不断进步，欧洲已成为中国企业全球化布局的重要市场。中国企业“出海”欧洲的阶段已从早期的代工出口，转变为现在的品牌“出海”。目前，中国企业的产品实力已能与国际品牌竞争，但在突破文化差异、获得欧洲消费者信任、积累品牌资产方面，仍面临不小挑战。 回顾中国企业“出海”欧洲的过程，早期很多品牌过于依赖社交媒体曝光，
 
 ## 正文
 
-可转债这类品种可能还有很多投资者不是很了解。
+中新网上海5月20日电 (记者 许婧)随着中国品牌在技术创新和高端化发展上不断进步，欧洲已成为中国企业全球化布局的重要市场。
 
-可转债是在一定条件下可以被转换成公司股票的债券。
+中国企业“出海”欧洲的阶段已从早期的代工出口，转变为现在的品牌“出海”。
 
-股市疲软时，可持有债券到期获得收益，有一定防御性；股市走强时，可获得“转股增益”机遇。
+目前，中国企业的产品实力已能与国际品牌竞争，但在突破文化差异、获得欧洲消费者信任、积累品牌资产方面，仍面临不小挑战。
 
-梳理数据可以看到，中证转债指数在2023年A股市场处于回调周期时微跌-0.48%，在2025年A股市场处于上行周期时上涨18.66%，相比上证指数与中债综合指数的表现，这一组数据清晰诠释了可转债这类投资品种“下有债底保护、上有股性弹性”的攻守兼备特性。
+回顾中国企业“出海”欧洲的过程，早期很多品牌过于依赖社交媒体曝光，注重短期销售转化，没有重视欧洲市场对品牌公信力的需求。
 
-中证转债指数在不同市场中的表现 可转债在投资上可灵活转换的同时，也十分考验投资者的专业实力。
+来自法国巴黎的RTL AdAlliance，是欧洲领先媒体集团RTL集团旗下为国际品牌提供直接对接欧洲优质媒介渠道的机构，已经与多家中国头部企业建立合作。
 
-“固收大咖”华商基金张永志管理的华商可转债债券基金，重点配置可转换债券，截至2026年一季度末，华商可转债债券的A类份额成立以来（20171222-20260331）已上涨90.38%，其C类份额更是摘得近8年同类业绩第一。
+RTL AdAlliance首席执行官斯特凡·科吕布勒(Stéphane Coruble)19日在上海表示，中国品牌初期进入欧洲市场时，沿用国内“重转化、轻品牌”的模式，没有充分考虑欧洲市场的特点，这是其难以获得当地消费者信任的主要原因。
 
-华商可转债债券基金业绩表现 华商可转债债券基金同类排名 张永志是华商基金的“元老”级人物，2007年加入华商基金，现任华商基金多资产投资部总经理，已具有超20年证券从业经历（其中3.0年证券交易经历、1.6年证券研究经历、15.6年证券投资经历）。
+“近年来，这种情况有了明显改变，比亚迪、追觅、速卖通等头部中国品牌，不再局限于单一的社交平台投放，开始增加大屏媒介的投入，更加注重品牌长期建设。
 
-追求稳健均衡的投资风格，具备较为全面的能力圈，使得他管理的华商可转债债券基金的长期业绩在同类基金中脱颖而出。
+”斯特凡·科吕布勒说。
 
 ## 相关推荐
 
-- 2026-06-30 02:35 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 02:30 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 02:44 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 02:31 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 02:29 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 02:30 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 02:45 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 02:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 02:24 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 02:44 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 02:32 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 02:32 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 02:37 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 02:40 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 02:32 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 02:50 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 02:37 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 02:25 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 02:48 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 02:44 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 02:52 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 02:28 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 02:46 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 02:42 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/35526.shtml)
-- 2026-06-30 02:31 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/53287.shtml)
-- 2026-06-30 02:23 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/43465.shtml)
-- 2026-06-30 02:34 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/642373990.shtml)
-- 2026-06-30 02:37 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/322608.shtml)
-- 2026-06-30 02:29 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/29753.shtml)
-- 2026-06-30 02:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/31168269.shtml)
-- 2026-06-30 02:35 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/675387.shtml)
-- 2026-06-30 02:23 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/9677221.shtml)
-- 2026-06-30 02:29 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/050791282.shtml)
-- 2026-06-30 02:45 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/88686.shtml)
-- 2026-06-30 02:37 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/285232184.shtml)
-- 2026-06-30 02:44 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/67098.shtml)
-- 2026-06-30 02:40 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/449968988957.shtml)
-- 2026-06-30 02:21 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/318535118988.shtml)
+- 2026-06-30 02:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/95924050.shtml)
+- 2026-06-30 02:38 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/837277978.shtml)
+- 2026-06-30 02:47 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/402088551.shtml)
+- 2026-06-30 02:32 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/4574531.shtml)
+- 2026-06-30 02:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/8821684.shtml)
+- 2026-06-30 02:30 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/5403611.shtml)
+- 2026-06-30 02:34 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/572561206.shtml)
+- 2026-06-30 02:31 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/48929868.shtml)
+- 2026-06-30 02:37 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/435646238.shtml)
+- 2026-06-30 02:42 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/442201314.shtml)
+- 2026-06-30 02:27 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/6284522.shtml)
+- 2026-06-30 02:26 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/21374870.shtml)
+- 2026-06-30 02:30 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/01628891641.shtml)
+- 2026-06-30 02:40 - [巴西vs日本](https://www.blog.minike.top/Article/details/84082109.shtml)
+- 2026-06-30 02:52 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/8475317307.shtml)

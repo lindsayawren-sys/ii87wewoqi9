@@ -1,59 +1,60 @@
-# OpenAI同意向欧盟开放全新AI模型，而Anthropic仍拒绝向欧盟开放Mythos
+# 湖北宣恩：抢险人员徒步驰援 基础设施逐步恢复
 
-> 更新时间：2026-06-30 02:49:31 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-核心要点 OpenAI 周一表示，将向欧盟开放其全新网络安全 AI 模型，但 Anthropic 仍迟迟不愿向欧盟开放旗下 Mythos 大模型。 OpenAI 称，欧盟境内的企业、政府机构、网络安全主管部门，以及欧盟人工智能办公室等欧盟机构，都将获准接入GPT-5.5-Cyber—— 该公司最新旗舰 AI 模型的衍生专用版本。 OpenAI 此前已宣布，向通过严格审核的网络安
+中新网湖北宣恩5月21日电 题：湖北宣恩：抢险人员徒步驰援 基础设施逐步恢复 作者 郭晓莹 董晓斌 税浪 20日至21日，遭受洪水重创的湖北宣恩县沙道沟镇白水河村天气转晴，山洪渐退，当地抢抓有利时机加速推进灾后重建工作。 17日至18日，白水河村暴雨引发山洪，造成人员伤亡失联，两百余名群众紧急转移避险。村庄一度因交通、电力、通信中断与外界断联，沦为“孤岛”。 20日清晨，电力工
 
 ## 正文
 
-核心要点 OpenAI 周一表示，将向欧盟开放其全新网络安全 AI 模型，但 Anthropic 仍迟迟不愿向欧盟开放旗下 Mythos 大模型。
+中新网湖北宣恩5月21日电 题：湖北宣恩：抢险人员徒步驰援 基础设施逐步恢复 作者 郭晓莹 董晓斌 税浪 20日至21日，遭受洪水重创的湖北宣恩县沙道沟镇白水河村天气转晴，山洪渐退，当地抢抓有利时机加速推进灾后重建工作。
 
-OpenAI 称，欧盟境内的企业、政府机构、网络安全主管部门，以及欧盟人工智能办公室等欧盟机构，都将获准接入GPT-5.5-Cyber—— 该公司最新旗舰 AI 模型的衍生专用版本。
+17日至18日，白水河村暴雨引发山洪，造成人员伤亡失联，两百余名群众紧急转移避险。
 
-OpenAI 此前已宣布，向通过严格审核的网络安全团队推出该模型的限量预览版。
+村庄一度因交通、电力、通信中断与外界断联，沦为“孤岛”。
 
-而就在一个月前，Anthropic 发布了自家 Mythos 大模型，引发外界对关键软件遭遇网络攻击的普遍担忧。
+20日清晨，电力工人李宗元与同事背负两百余斤的钢绞线从药铺村徒步前行，奔赴6公里外的白水河村开展抢修工作。
 
-欧盟委员会发言人托马斯・勒尼耶在周一新闻发布会上表示： “我们欢迎 OpenAI 展现出的透明度，以及主动向欧盟委员会开放新模型的态度。
+记者在现场看到，通往灾区的道路多处路基坍塌，部分道路仅容单人通行。
 
-” 他证实，OpenAI 已与欧盟完成首轮沟通，本周还将围绕模型接入事宜展开进一步磋商。
+一路上，交通、电力、通信等多支应急队伍肩挑背扛运送抢修物资，徒步3小时挺进受灾腹地抢险。
 
-他补充称：“这将让我们能够密切跟踪该模型的落地应用，并及时应对各类安全隐患。
+“只要有路可走，物资设备就一定能送进去。
 
-” 尽管 Mythos 模型已发布一个月，Anthropic 至今仍未向欧盟开放预览、评测权限。
+”李宗元说，因为车辆开不进来，抢修设备主要依靠人力运送。
 
 ## 相关推荐
 
-- 2026-06-30 02:23 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 02:39 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 02:36 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-30 02:48 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 02:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 02:22 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-30 02:44 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 02:47 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 02:22 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 02:29 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 02:28 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 02:31 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 02:33 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 02:45 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 02:28 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 02:51 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 02:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 02:28 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 02:40 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 02:46 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 02:41 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 02:36 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 02:33 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 02:38 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 02:46 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 02:37 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 02:34 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:28 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/3461690740.shtml)
-- 2026-06-30 02:23 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/9737060.shtml)
-- 2026-06-30 02:48 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/4042310.shtml)
-- 2026-06-30 02:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/315156674.shtml)
-- 2026-06-30 02:30 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/92168843.shtml)
-- 2026-06-30 02:20 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/817955871.shtml)
-- 2026-06-30 02:43 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/57941138.shtml)
-- 2026-06-30 02:37 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/1799340618.shtml)
-- 2026-06-30 02:43 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/2234938252.shtml)
-- 2026-06-30 02:38 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/1053962937.shtml)
-- 2026-06-30 02:42 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/085335186559.shtml)
-- 2026-06-30 02:31 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/0556410.shtml)
-- 2026-06-30 02:26 - [沉睡花园](https://www.share.minike.top/Article/details/1118073.shtml)
-- 2026-06-30 02:31 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/982620211087.shtml)
-- 2026-06-30 02:41 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/342248403379.shtml)
+- 2026-06-30 02:28 - [千香](https://www.blog.minike.top/Article/details/69916.shtml)
+- 2026-06-30 02:49 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/5102472.shtml)
+- 2026-06-30 02:37 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/00115.shtml)
+- 2026-06-30 02:50 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/80156.shtml)
+- 2026-06-30 02:31 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/64515021.shtml)
+- 2026-06-30 02:40 - [日本16强魔咒](https://www.blog.minike.top/Article/details/757408825.shtml)
+- 2026-06-30 02:24 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/9608087.shtml)
+- 2026-06-30 02:38 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/3632843.shtml)
+- 2026-06-30 02:35 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/2286365823.shtml)
+- 2026-06-30 02:31 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/616055820.shtml)
+- 2026-06-30 02:28 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/39117930.shtml)
+- 2026-06-30 02:33 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/0547533009.shtml)
+- 2026-06-30 02:24 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/73709685573.shtml)
+- 2026-06-30 02:40 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/0846033317.shtml)
+- 2026-06-30 02:38 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/0151664.shtml)

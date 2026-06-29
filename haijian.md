@@ -1,48 +1,61 @@
-# 5月12日热门中概股涨跌不一 奇景光电涨16.08%，富途控股跌3.27%
+# 学校周边的重口味零食，对健康有影响吗？
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-5月12日热门中概股涨跌不一，纳斯达克中国金龙指数（HXC）收高1.03%。 上涨个股（按市值从高到低）：拼多多涨0.02%，日月光半导体涨3.13%，网易涨0.26%，百度涨3.35%，京东涨1.33%，联电涨1.07%，贝壳涨1.62%，理想汽车涨4.83%，小鹏汽车涨3.39%，蔚来涨3.68%，华住酒店集团涨0.74%，中国新城农村涨1.37%，哔哩哔哩涨0.09%，万
+在一些学校、社区周边，价格低廉、口感刺激的零食泛滥。这些油炸小吃、麻辣零食、高糖饮料在让孩子的舌尖享受刺激的同时，也让他们热量过剩、营养摄入不均衡，长此以往，会出现肥胖、慢性病、性早熟等问题。守护青少年儿童“舌尖上的健康”，需要加强健康教育，完善相关法律法规，促进零食产业升级。重口味让孩子“零食成瘾” 每到放学时段，一些中小学周边的小卖部、流动摊位便热闹起来，学生扎堆光顾。半月
 
 ## 正文
 
-5月12日热门中概股涨跌不一，纳斯达克中国金龙指数（HXC）收高1.03%。
+在一些学校、社区周边，价格低廉、口感刺激的零食泛滥。
 
-上涨个股（按市值从高到低）：拼多多涨0.02%，日月光半导体涨3.13%，网易涨0.26%，百度涨3.35%，京东涨1.33%，联电涨1.07%，贝壳涨1.62%，理想汽车涨4.83%，小鹏汽车涨3.39%，蔚来涨3.68%，华住酒店集团涨0.74%，中国新城农村涨1.37%，哔哩哔哩涨0.09%，万国数据涨1.58%，慧荣科技涨3.34%，唯品会涨1.24%，BOSS直聘涨2.07%，亚朵集团涨1.37%，金山云涨2.96%，微牛涨0.57%，奇景光电涨16.08%，欢聚涨0.25%。
+这些油炸小吃、麻辣零食、高糖饮料在让孩子的舌尖享受刺激的同时，也让他们热量过剩、营养摄入不均衡，长此以往，会出现肥胖、慢性病、性早熟等问题。
 
-下跌个股（按市值从高到低）：台积电跌1.80%，阿里巴巴跌2.06%，中华电信跌1.60%，携程跌0.91%，富途控股跌3.27%，中通跌0.16%，腾讯音乐跌0.27%，满帮跌0.23%，新东方跌2.80%，WSP控股跌0.77%，名创优品跌2.08%，小马智行跌1.94%。
+守护青少年儿童“舌尖上的健康”，需要加强健康教育，完善相关法律法规，促进零食产业升级。
 
-领涨中概股列表： 领跌中概股列表： （截图来自新浪财经APP 行情-美股-中概股热门板块）下载新浪财经APP 责任编辑：张俊 SF065
+重口味让孩子“零食成瘾” 每到放学时段，一些中小学周边的小卖部、流动摊位便热闹起来，学生扎堆光顾。
+
+半月谈记者走访发现，学生们购买的主要是辣条、调味面制品、膨化食品、油炸串、碳酸饮料、网红奶茶等，其中，“五毛零食”“一元小吃”“两元凉面”以及3块钱一杯的奶茶备受学生追捧。
+
+“奶茶就要多糖，没糖的我不喝。
+
+”在湖南一所小学门口，一名前来“觅食”的学生说。
+
+“很多孩子喜欢买全糖奶茶，每天还要喝2杯，埋下了健康隐患。
 
 ## 相关推荐
 
-- 2026-06-30 02:49 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 02:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 02:39 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 02:38 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 02:33 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 02:43 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 02:32 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 02:27 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 02:39 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 02:42 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 02:46 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 02:26 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 02:35 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 02:45 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 02:40 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 02:50 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 02:24 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 02:24 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 02:46 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 02:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 02:44 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 02:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 02:37 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 02:31 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 02:35 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:32 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/6113733629.shtml)
-- 2026-06-30 02:28 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/530716160141.shtml)
-- 2026-06-30 02:41 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/0993430665.shtml)
-- 2026-06-30 02:21 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/4685308.shtml)
-- 2026-06-30 02:19 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/737292035.shtml)
-- 2026-06-30 02:24 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/48342049.shtml)
-- 2026-06-30 02:28 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/876807649.shtml)
-- 2026-06-30 02:34 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/12219.shtml)
-- 2026-06-30 02:28 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/442229867032.shtml)
-- 2026-06-30 02:24 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/44541086346.shtml)
-- 2026-06-30 02:48 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/089544.shtml)
-- 2026-06-30 02:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/60139894.shtml)
-- 2026-06-30 02:23 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/0160774320.shtml)
-- 2026-06-30 02:21 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/689356410471.shtml)
-- 2026-06-30 02:34 - [美股](https://www.share.minike.top/Article/details/02397836.shtml)
+- 2026-06-30 02:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/054821512.shtml)
+- 2026-06-30 02:44 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/07528.shtml)
+- 2026-06-30 02:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/152320.shtml)
+- 2026-06-30 02:42 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/22619911690.shtml)
+- 2026-06-30 02:46 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/313069304.shtml)
+- 2026-06-30 02:50 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/87350497017.shtml)
+- 2026-06-30 02:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/48085628.shtml)
+- 2026-06-30 02:43 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/029875220.shtml)
+- 2026-06-30 02:46 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/729509.shtml)
+- 2026-06-30 02:28 - [田曦薇没招了](https://www.share.minike.top/Article/details/24161602.shtml)
+- 2026-06-30 02:51 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/2147492.shtml)
+- 2026-06-30 02:41 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/3747446.shtml)
+- 2026-06-30 02:48 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/40110.shtml)
+- 2026-06-30 02:38 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/058690.shtml)
+- 2026-06-30 02:49 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/33139141.shtml)

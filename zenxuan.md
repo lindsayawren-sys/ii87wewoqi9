@@ -1,57 +1,58 @@
-# 共拓“十五五”新格局 共创出海新生态 2026沪港企业家圆桌会举行
+# 上海开启“甜蜜经济” 长三角三地推出“甜蜜护照”
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-5月9日，上海市总商会与香港中华总商会在香港共同举办以“共拓‘十五五’新格局 共创出海新生态”为主题的2026沪港企业家圆桌会。上海市委常委、统战部部长、上海海外联谊会会长陈通出席圆桌会并讲话。 会议指出，沪港两地血脉相连、人文相通、经济相融，拥有共同的历史记忆、城市品格，也共同承担着国家重要使命。在金融、贸易、航运、科创等领域，沪港两城功能互补、相互成就。过去一年，沪港合作取
+中新网上海5月20日电 (记者 郑莹莹)记者从上海市民政局获悉，5月20日，共有3729对新人在上海登记结婚，其中双方均为外省市户籍的“全国通办”共1735对，约占46.53%。 婚姻登记“全国通办”于2025年5月10日起实施，当事人办理婚姻登记不再受常住户口所在地限制。 为迎接“520”，上海各区因地制宜，形成了各具特色的“甜蜜经济”模式。 当天，2026“爱在上海·甜蜜启
 
 ## 正文
 
-5月9日，上海市总商会与香港中华总商会在香港共同举办以“共拓‘十五五’新格局 共创出海新生态”为主题的2026沪港企业家圆桌会。
+中新网上海5月20日电 (记者 郑莹莹)记者从上海市民政局获悉，5月20日，共有3729对新人在上海登记结婚，其中双方均为外省市户籍的“全国通办”共1735对，约占46.53%。
 
-上海市委常委、统战部部长、上海海外联谊会会长陈通出席圆桌会并讲话。
+婚姻登记“全国通办”于2025年5月10日起实施，当事人办理婚姻登记不再受常住户口所在地限制。
 
-会议指出，沪港两地血脉相连、人文相通、经济相融，拥有共同的历史记忆、城市品格，也共同承担着国家重要使命。
+为迎接“520”，上海各区因地制宜，形成了各具特色的“甜蜜经济”模式。
 
-在金融、贸易、航运、科创等领域，沪港两城功能互补、相互成就。
+当天，2026“爱在上海·甜蜜启航”系列活动在上海全市拉开帷幕。
 
-过去一年，沪港合作取得务实成果，金融协同更加紧密、携手出海更具合力、科创融合更为深化、人文交流更显温情。
+在上海嘉定区的上海汽车博览公园“甜蜜车站”里，一场新人权益发布仪式暨520集体婚礼活动浪漫启幕，新人们收获“新婚大礼包”。
 
-会议强调，展望未来，沪港合作机遇更加多样，前景催人奋进。
+多家车企化身“甜蜜推荐官”，为2026年在沪登记结婚的新人推出专属购车福利。
 
-按照习近平总书记对上海发展作出的战略擘画，上海正锚定加快建成具有世界影响力的社会主义现代化国际大都市目标，坚定不移建设“五个中心”，坚定不移培育发展新质生产力，坚定不移实施高水平改革开放。
+据介绍，相关优惠是车企在国补、市补、区补等之外的额外让利。
 
-希望香港各界朋友凝聚爱国爱港合力，以香港首个五年规划为契机，坚定不移维护和促进香港长期繁荣稳定。
+一张结婚证，即可“甜蜜启程”。
 
 ## 相关推荐
 
-- 2026-06-30 02:28 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 02:20 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-30 02:35 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 02:25 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 02:19 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 02:38 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 02:33 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 02:42 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 02:48 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 02:40 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 02:29 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 02:36 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 02:28 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 02:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 02:27 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 02:37 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 02:24 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 02:30 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 02:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 02:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 02:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 02:27 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 02:44 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:46 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/211584.shtml)
-- 2026-06-30 02:39 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/33913537314.shtml)
-- 2026-06-30 02:33 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/4577191093.shtml)
-- 2026-06-30 02:40 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/55648736717.shtml)
-- 2026-06-30 02:31 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/1676986199.shtml)
-- 2026-06-30 02:21 - [恋与深空 巧合](https://www.share.minike.top/Article/details/77650.shtml)
-- 2026-06-30 02:39 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/969037558.shtml)
-- 2026-06-30 02:26 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/38321560497.shtml)
-- 2026-06-30 02:28 - [这一刀 会很帅](http://www.share.minike.top/Article/details/308507074577.shtml)
-- 2026-06-30 02:34 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/61642616643.shtml)
-- 2026-06-30 02:27 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/740825.shtml)
-- 2026-06-30 02:47 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/2215005748.shtml)
-- 2026-06-30 02:35 - [斗破苍穹](http://www.share.minike.top/Article/details/83796840145.shtml)
-- 2026-06-30 02:42 - [爱很美味](http://www.share.kurohicncr.top/Article/details/34721073408.shtml)
-- 2026-06-30 02:37 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/61318.shtml)
+- 2026-06-30 02:37 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/64129639167.shtml)
+- 2026-06-30 02:26 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/489666.shtml)
+- 2026-06-30 02:41 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/53403553.shtml)
+- 2026-06-30 02:27 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/047131289523.shtml)
+- 2026-06-30 02:46 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/8158378379.shtml)
+- 2026-06-30 02:30 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/588401322265.shtml)
+- 2026-06-30 02:41 - [世界杯](https://www.share.kurohicncr.top/Article/details/7537783434.shtml)
+- 2026-06-30 02:49 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/24806.shtml)
+- 2026-06-30 02:41 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/56304899.shtml)
+- 2026-06-30 02:42 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/11079571763.shtml)
+- 2026-06-30 02:43 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/067232.shtml)
+- 2026-06-30 02:47 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/8584004.shtml)
+- 2026-06-30 02:34 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/1712529653.shtml)
+- 2026-06-30 02:51 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/71313255.shtml)
+- 2026-06-30 02:35 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/91525678976.shtml)

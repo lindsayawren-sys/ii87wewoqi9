@@ -1,61 +1,54 @@
-# 国内航线燃油附加费将再上调，5月16日起单程最高170元
+# 商务部：如欧方执意对中国企业或产品采取歧视性限制措施 中方将坚决反制
 
-> 更新时间：2026-06-30 02:49:31 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-国内航线燃油附加费将再上调。 5月12日，九元航空发布关于调整国内航线燃油附加征收标准的通知。自5月16日零时起，上调国内航线旅客运输燃油附加费征收标准。800公里（含）以下航线，每位旅客燃油附加征收标准调整为90元。800公里以上航线，每位旅客燃油附加征收标准调整为170元。 这意味着，国内航线旅客运输燃油附加费将分别上调30元和50元。 九元航空公告指出，婴儿旅客免收燃油附
+在商务部21日举行的例行新闻发布会上，有记者问，近日有媒体报道，欧委会正在抓紧制定一项新贸易工具，以应对中国“产能过剩”问题。请问中方对此有何评论？ 商务部新闻发言人何亚东表示，如果因为存在贸易顺差，就贴上“产能过剩”的标签，那欧盟出口的汽车、药品、葡萄酒、化妆品是不是都存在“产能过剩”？我们关注到，有关国家正在调查欧盟的“产能过剩”问题，欧盟更不应在此种情况下采取双重标准。我
 
 ## 正文
 
-国内航线燃油附加费将再上调。
+在商务部21日举行的例行新闻发布会上，有记者问，近日有媒体报道，欧委会正在抓紧制定一项新贸易工具，以应对中国“产能过剩”问题。
 
-5月12日，九元航空发布关于调整国内航线燃油附加征收标准的通知。
+请问中方对此有何评论？
 
-自5月16日零时起，上调国内航线旅客运输燃油附加费征收标准。
+商务部新闻发言人何亚东表示，如果因为存在贸易顺差，就贴上“产能过剩”的标签，那欧盟出口的汽车、药品、葡萄酒、化妆品是不是都存在“产能过剩”？
 
-800公里（含）以下航线，每位旅客燃油附加征收标准调整为90元。
+我们关注到，有关国家正在调查欧盟的“产能过剩”问题，欧盟更不应在此种情况下采取双重标准。
 
-800公里以上航线，每位旅客燃油附加征收标准调整为170元。
+我们敦促欧方正视现实，回到对话磋商的正确轨道上，做真正有益于中欧经贸关系发展的事。
 
-这意味着，国内航线旅客运输燃油附加费将分别上调30元和50元。
+如欧方执意推动出台所谓新工具并对中国企业或产品采取歧视性限制措施，中方将坚决反制。
 
-九元航空公告指出，婴儿旅客免收燃油附加。
-
-儿童、按民航局规定享受成人公布普通票价50%优惠的革命伤残军人和因公致残的人民警察实行减半收取，800公里（含）以下航线每位旅客收取40元，800公里以上航线每位旅客收取80元。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 02:41 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-30 02:19 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 02:49 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 02:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 02:43 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 02:40 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 02:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 02:33 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 02:37 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 02:41 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 02:21 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 02:36 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 02:25 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 02:41 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 02:34 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 02:47 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 02:43 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 02:44 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 02:38 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 02:33 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 02:47 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 02:44 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 02:46 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 02:35 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 02:38 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:32 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/877451667703.shtml)
-- 2026-06-30 02:40 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/70542036125.shtml)
-- 2026-06-30 02:27 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/07079.shtml)
-- 2026-06-30 02:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/257419827823.shtml)
-- 2026-06-30 02:21 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/50678.shtml)
-- 2026-06-30 02:26 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/8953348559.shtml)
-- 2026-06-30 02:37 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/123524969301.shtml)
-- 2026-06-30 02:41 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/9344753.shtml)
-- 2026-06-30 02:26 - [天道](http://www.blog.kurohicncr.top/Article/details/92079.shtml)
-- 2026-06-30 02:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/254007877119.shtml)
-- 2026-06-30 02:20 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/0443592895.shtml)
-- 2026-06-30 02:37 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/50510158183.shtml)
-- 2026-06-30 02:48 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/297337.shtml)
-- 2026-06-30 02:19 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/953140498.shtml)
-- 2026-06-30 02:42 - [内马尔替补](https://www.blog.minike.top/Article/details/31348372137.shtml)
+- 2026-06-30 02:29 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/577534107725.shtml)
+- 2026-06-30 02:37 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/999193.shtml)
+- 2026-06-30 02:50 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/7125219909.shtml)
+- 2026-06-30 02:38 - [日本进球](http://www.share.kurohicncr.top/Article/details/00590189934.shtml)
+- 2026-06-30 02:47 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/61972252.shtml)
+- 2026-06-30 02:28 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/996142.shtml)
+- 2026-06-30 02:45 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/7038446.shtml)
+- 2026-06-30 02:44 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/01318811.shtml)
+- 2026-06-30 02:34 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/51412487.shtml)
+- 2026-06-30 02:33 - [啊啊啊](https://www.share.minike.top/Article/details/903116.shtml)
+- 2026-06-30 02:52 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/96701708.shtml)
+- 2026-06-30 02:32 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/5855339.shtml)
+- 2026-06-30 02:41 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/039626304.shtml)
+- 2026-06-30 02:32 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/78122.shtml)
+- 2026-06-30 02:28 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/60453048.shtml)

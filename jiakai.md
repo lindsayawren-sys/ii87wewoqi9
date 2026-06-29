@@ -1,59 +1,48 @@
-# 酒价内参5月12日价格发布：五粮液普五八代上涨1元
+# 《给阿嬷的情书》总制片人谈电影从南到北破圈
 
-> 更新时间：2026-06-30 02:49:31 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月12日整体平稳。如果主要单品各取一瓶整体打包售卖，今日总售价为9954元，较昨日微跌1元，连续两日站稳9950元上方。昨天总酒价创下12天来新高，今日市场在连续走强后进入横盘整理，终端交投情绪保持稳定。 今日白酒市场11大单品七涨四
+中新网南宁5月20日电 5月19日，2026年中国网络文明大会网络文明国际交流互鉴分论坛在广西南宁举行，电影《给阿嬷的情书》总制片人罗展宏分享影片出圈密码。这段时间，影片从广东潮汕逐步走向全国，持续登顶单日票房冠军，对此罗展宏表示，作为潮汕方言电影，它能突破地域壁垒、实现全民共情，核心在于题材打通了共通情感与人性共鸣。此外，一批具有潮汕风情的元素亦通过电影被全国观众熟知。罗展宏
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月12日整体平稳。
+中新网南宁5月20日电 5月19日，2026年中国网络文明大会网络文明国际交流互鉴分论坛在广西南宁举行，电影《给阿嬷的情书》总制片人罗展宏分享影片出圈密码。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9954元，较昨日微跌1元，连续两日站稳9950元上方。
+这段时间，影片从广东潮汕逐步走向全国，持续登顶单日票房冠军，对此罗展宏表示，作为潮汕方言电影，它能突破地域壁垒、实现全民共情，核心在于题材打通了共通情感与人性共鸣。
 
-昨天总酒价创下12天来新高，今日市场在连续走强后进入横盘整理，终端交投情绪保持稳定。
+此外，一批具有潮汕风情的元素亦通过电影被全国观众熟知。
 
-今日白酒市场11大单品七涨四跌，赢家占据优势。
-
-上涨方面，飞天茅台与古井贡古20涨幅居前，均上涨5元/瓶，后者收获三连阳，价格快速上升重回550元月内最高位；国窖1573与洋河梦之蓝M6+均上涨3元/瓶；五粮液普五八代、五粮液1618及水晶剑南春均上涨1元/瓶。
-
-下跌方面，习酒君品与青花汾20跌幅居前，均下跌6元/瓶，前者失守640元，后者创下近一月最大跌幅，平五月以来最低价位纪录；青花郎下跌5元/瓶；精品茅台下跌3元/瓶。
-
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
-
-随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
+罗展宏笑称，影片将木棉花、橄榄菜、侨批等潮汕本土元素融入故事，更容易让观众感受到它们的独特魅力。
 
 ## 相关推荐
 
-- 2026-06-30 02:23 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 02:29 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 02:37 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 02:44 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 02:40 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 02:49 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 02:21 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 02:29 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 02:37 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 02:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 02:28 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 02:22 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 02:29 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 02:44 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 02:53 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 02:36 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 02:32 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 02:48 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 02:27 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 02:44 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-30 02:41 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 02:27 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 02:27 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:22 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/894693268.shtml)
-- 2026-06-30 02:21 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/53389435494.shtml)
-- 2026-06-30 02:32 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/726003.shtml)
-- 2026-06-30 02:28 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/278870.shtml)
-- 2026-06-30 02:46 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/75898979.shtml)
-- 2026-06-30 02:20 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/60963771.shtml)
-- 2026-06-30 02:23 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/843008034085.shtml)
-- 2026-06-30 02:41 - [美人鱼](https://www.share.minike.top/Article/details/3484981.shtml)
-- 2026-06-30 02:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/08189068.shtml)
-- 2026-06-30 02:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/20311050415.shtml)
-- 2026-06-30 02:32 - [起风了](https://www.blog.kurohicncr.top/Article/details/75526019670.shtml)
-- 2026-06-30 02:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/241871148.shtml)
-- 2026-06-30 02:31 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/64512922083.shtml)
-- 2026-06-30 02:49 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/001871686592.shtml)
-- 2026-06-30 02:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/67540299843.shtml)
+- 2026-06-30 02:29 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/72408825.shtml)
+- 2026-06-30 02:29 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/330616003356.shtml)
+- 2026-06-30 02:54 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/602041531095.shtml)
+- 2026-06-30 02:44 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/3660053251.shtml)
+- 2026-06-30 02:46 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/12298458239.shtml)
+- 2026-06-30 02:30 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/6327770.shtml)
+- 2026-06-30 02:45 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/87230188051.shtml)
+- 2026-06-30 02:49 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/855421870902.shtml)
+- 2026-06-30 02:48 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/6696839849.shtml)
+- 2026-06-30 02:39 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/14009.shtml)
+- 2026-06-30 02:46 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/699606705697.shtml)
+- 2026-06-30 02:37 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/30969944.shtml)
+- 2026-06-30 02:27 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/47405.shtml)
+- 2026-06-30 02:40 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/4621915.shtml)
+- 2026-06-30 02:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/903127146.shtml)

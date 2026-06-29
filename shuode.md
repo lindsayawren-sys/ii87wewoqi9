@@ -1,60 +1,56 @@
-# 今年前四个月无人机袭击造成880名苏丹平民丧生
+# 中消协、中国市场监督管理学会发布“六一”消费提示
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-中新社北京5月12日电 喀土穆消息：当地时间5月11日，联合国人权事务高级专员沃尔克·图尔克透露，今年1月至4月，无人机袭击在苏丹造成至少880名平民死亡，占同期所有与冲突相关的平民死亡人数的80%以上。 综合《苏丹论坛报》等媒体消息，图尔克强烈谴责武装无人机使用量的增加，并指出无人机袭击已成为苏丹平民死亡的首要原因。图尔克警告说，此类袭击正将这场持续三年多的战争推向“新的、更
+中新网5月21日电 据中国消费者协会网站消息，“六一”国际儿童节即将来临，各类儿童消费品迎来选购高峰。为切实保护未成年消费者的合法权益，引导广大家长科学、理性、安全消费，中国消费者协会、中国市场监督管理学会结合当前儿童消费领域投诉热点，发布以下消费提示。一、警惕盲盒卡牌“概率陷阱”，防范诱导过度消费 近年来，盲盒、卡牌等新兴消费形态深受青少年喜爱，但相关投诉日趋增多。“全国消协
 
 ## 正文
 
-中新社北京5月12日电 喀土穆消息：当地时间5月11日，联合国人权事务高级专员沃尔克·图尔克透露，今年1月至4月，无人机袭击在苏丹造成至少880名平民死亡，占同期所有与冲突相关的平民死亡人数的80%以上。
+中新网5月21日电 据中国消费者协会网站消息，“六一”国际儿童节即将来临，各类儿童消费品迎来选购高峰。
 
-综合《苏丹论坛报》等媒体消息，图尔克强烈谴责武装无人机使用量的增加，并指出无人机袭击已成为苏丹平民死亡的首要原因。
+为切实保护未成年消费者的合法权益，引导广大家长科学、理性、安全消费，中国消费者协会、中国市场监督管理学会结合当前儿童消费领域投诉热点，发布以下消费提示。
 
-图尔克警告说，此类袭击正将这场持续三年多的战争推向“新的、更加致命的阶段”。
+一、警惕盲盒卡牌“概率陷阱”，防范诱导过度消费 近年来，盲盒、卡牌等新兴消费形态深受青少年喜爱，但相关投诉日趋增多。
 
-尽管雨季即将到来，但对无人机的日益依赖使得敌对行动持续不断，且冲突即将进入更加致命的阶段。
+“全国消协智慧315”平台2025年受理的盲盒消费投诉显示，消费者平均涉诉金额高达4427元，单起投诉涉诉金额最高达30万元。
 
-图尔克透露，大多数因无人机袭击造成的平民死亡事件发生在科尔多凡地区和达尔富尔，但袭击也越来越多地蔓延到青尼罗河州、白尼罗河州和喀土穆等地。
+投诉主要集中在信息不透明、诱导过度消费及售后服务延迟推诿等方面，其中不乏未成年人未经监护人知晓或同意，多次下单购买盲盒商品的情形。
 
-交战各方多次使用无人机袭击民用目标和基础设施，“导致民众难以获得充足的食物、清洁用水和医疗保健”。
+当前盲盒、卡牌市场还存在“类赌博”倾向，部分商家利用青少年的好奇心和收集欲，诱导其做出超出自身消费能力的购买行为，影响学业和身心健康。
 
-数据显示，在今年前四个月中，市场至少遭到28次袭击，医疗机构至少遭到12次袭击，这些机构经常因袭击被迫关闭。
+根据《盲盒经营行为规范指引(试行)》，经营者不得向未满8周岁的未成年人销售盲盒，向8周岁及以上未成年人销售时，应依法取得监护人同意。
 
-图尔克呼吁采取强有力的措施，防止先进武器和无人机被转让给交战各方。
+中消协提醒广大家长：一方面，要引导孩子理性看待盲盒、卡牌类商品，认清隐藏款、限量款的实际获得概率极低，切勿抱持“再试一次或许就能回本”的赌博心态；另一方面，要妥善管理个人支付账户和密码，防止未成年人擅自进行大额消费。
 
 ## 相关推荐
 
-- 2026-06-30 02:36 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 02:42 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 02:22 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 02:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 02:40 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 02:37 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 02:47 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 02:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 02:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 02:42 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 02:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 02:22 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 02:45 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 02:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 02:40 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 02:52 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 02:50 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 02:42 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 02:46 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 02:35 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 02:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 02:53 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 02:30 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 02:46 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:48 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/43750687.shtml)
-- 2026-06-30 02:46 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/931413395620.shtml)
-- 2026-06-30 02:22 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/56371.shtml)
-- 2026-06-30 02:28 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/597055.shtml)
-- 2026-06-30 02:41 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/913877.shtml)
-- 2026-06-30 02:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/57455648.shtml)
-- 2026-06-30 02:39 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/54795293.shtml)
-- 2026-06-30 02:34 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/21762.shtml)
-- 2026-06-30 02:30 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/82260668.shtml)
-- 2026-06-30 02:41 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/5943490.shtml)
-- 2026-06-30 02:36 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/577424979704.shtml)
-- 2026-06-30 02:27 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/564709809.shtml)
-- 2026-06-30 02:21 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/7599707.shtml)
-- 2026-06-30 02:32 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/37162.shtml)
-- 2026-06-30 02:36 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/172019371.shtml)
+- 2026-06-30 02:50 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/00401278437.shtml)
+- 2026-06-30 02:41 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/641181326.shtml)
+- 2026-06-30 02:29 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/815784529.shtml)
+- 2026-06-30 02:52 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/73143.shtml)
+- 2026-06-30 02:45 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/2392995867.shtml)
+- 2026-06-30 02:52 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/02600294386.shtml)
+- 2026-06-30 02:34 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/2482371679.shtml)
+- 2026-06-30 02:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/96559.shtml)
+- 2026-06-30 02:47 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/13844054717.shtml)
+- 2026-06-30 02:46 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/56655496.shtml)
+- 2026-06-30 02:38 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/8614949.shtml)
+- 2026-06-30 02:50 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/9087746936.shtml)
+- 2026-06-30 02:43 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/6944990545.shtml)
+- 2026-06-30 02:53 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/71605.shtml)
+- 2026-06-30 02:50 - [第一炉香](https://www.blog.minike.top/Article/details/8682399.shtml)

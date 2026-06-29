@@ -1,52 +1,46 @@
-# ASMPT盘中涨超4% 拟剥离NEXX业务进一步聚焦后端封装
+# 先导智能聘任德勤华永会计师事务所为2026年度财务报告审计机构和内部控制审计机构
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-ASMPT（00522）盘中涨超4%，截至发稿，股价上涨2.72%，现报173.50港元，成交额2.78亿港元。 近日，ASMPT发布公告，公司已通过间接全资附属公司ASMPT USA Holding， Inc．，与美国应用材料公司（Applied Materials， Inc．）于2026年4月30日签署购股协议，计划出售其所持的ASMPT NEXX， Inc．全部普通股股权
+先导智能（00470）发布公告，聘任2026年度审计机构的决议案已获正式通过，德勤华永会计师事务所（特殊普通合伙）已获聘任为公司2026年度财务报告审计机构和内部控制审计机构，为期一年。天职国际会计师事务所（特殊普通合伙）及德勤•关黄陈方会计师行已于年度股东会结束时退任公司审计机构。责任编辑：卢昱君
 
 ## 正文
 
-ASMPT（00522）盘中涨超4%，截至发稿，股价上涨2.72%，现报173.50港元，成交额2.78亿港元。
+先导智能（00470）发布公告，聘任2026年度审计机构的决议案已获正式通过，德勤华永会计师事务所（特殊普通合伙）已获聘任为公司2026年度财务报告审计机构和内部控制审计机构，为期一年。
 
-近日，ASMPT发布公告，公司已通过间接全资附属公司ASMPT USA Holding， Inc．，与美国应用材料公司（Applied Materials， Inc．）于2026年4月30日签署购股协议，计划出售其所持的ASMPT NEXX， Inc．全部普通股股权。
-
-公告指出，基于本集团业务战略整合考量，本集团决定通过出售方式，将目标公司从半导体解决方案板块中剥离，此举有助于本集团进一步聚焦后端封装业务。
-
-华鑫证券指出，SK海力士和三星电子积极扩张HBM产能，SK海力士将龙仁集群首座晶圆厂投产时间提前至2027年2月，三星计划投入110万亿韩元支持HBM4及混合键合技术。
-
-高端存储领域，ASMPT TCB设备已被SK海力士采购用于HBM4量产，此前在12层HBM3E生产中获超30台批量订单，近期再获单价约40亿韩元的TCB设备共约300亿韩元。
+天职国际会计师事务所（特殊普通合伙）及德勤•关黄陈方会计师行已于年度股东会结束时退任公司审计机构。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:37 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 02:31 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 02:28 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 02:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 02:27 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 02:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 02:41 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 02:23 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 02:32 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 02:33 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 02:50 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 02:53 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 02:45 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 02:26 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 02:36 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 02:45 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 02:41 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 02:46 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 02:53 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 02:31 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:22 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/097055527.shtml)
-- 2026-06-30 02:27 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/8520658.shtml)
-- 2026-06-30 02:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/18885142504.shtml)
-- 2026-06-30 02:35 - [沙丘](http://www.blog.kurohicncr.top/Article/details/191459869.shtml)
-- 2026-06-30 02:45 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/08266247.shtml)
-- 2026-06-30 02:44 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/2865038654.shtml)
-- 2026-06-30 02:39 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/02036.shtml)
-- 2026-06-30 02:34 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/0136193751.shtml)
-- 2026-06-30 02:22 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/469172.shtml)
-- 2026-06-30 02:23 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/810161.shtml)
-- 2026-06-30 02:37 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/9105658.shtml)
-- 2026-06-30 02:21 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/738553005526.shtml)
-- 2026-06-30 02:36 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/734607.shtml)
-- 2026-06-30 02:45 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/66990.shtml)
-- 2026-06-30 02:30 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/702589665451.shtml)
+- 2026-06-30 02:33 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/61852672.shtml)
+- 2026-06-30 02:38 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/5819615833.shtml)
+- 2026-06-30 02:47 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/87705193597.shtml)
+- 2026-06-30 02:30 - [85花告别古偶](http://www.blog.minike.top/Article/details/127299619.shtml)
+- 2026-06-30 02:53 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/49410873478.shtml)
+- 2026-06-30 02:47 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/52636428.shtml)
+- 2026-06-30 02:49 - [美股](http://www.share.kurohicncr.top/Article/details/445031510.shtml)
+- 2026-06-30 02:43 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/24633539.shtml)
+- 2026-06-30 02:52 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/6226500851.shtml)
+- 2026-06-30 02:37 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/4551492020.shtml)
+- 2026-06-30 02:35 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/10223203527.shtml)
+- 2026-06-30 02:34 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/577656994750.shtml)
+- 2026-06-30 02:25 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/82924246265.shtml)
+- 2026-06-30 02:25 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/7831279.shtml)
+- 2026-06-30 02:37 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/612631.shtml)

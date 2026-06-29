@@ -1,57 +1,61 @@
-# 长安期货张晨：中东地缘风险仍有反复 甲醇震荡运行
+# 明晚，成品油价格或调整
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-一、行情回顾：中东地缘冲突缓和预期上行，能化品震荡偏弱 五一假期归来甲醇期货大幅下挫，受美伊局势缓和预期升温、国际原油价格大幅下跌影响，能化板块集体走弱，甲醇09合约三个交易日下跌5.12%。 现货市场走势分化，内地市场凭借供需基本面支撑展现出较强抗跌韧性，而港口市场受情绪扰动回调幅度较大。具体来看，华东太仓进口价3145元/吨，环比节前下跌140元/吨；广东市场价3215元/
+按照成品油调价时间表，5月21日（周四）24时，国内成品油零售限价将迎来新一轮调整时间点。 机构跟踪的最新国际原油价格变动状况预测数据显示，本轮成品油零售限价上调幅度超过50元/吨的调整红线，因此本轮成品油零售限价大概率迎上调。 成品油零售限价或迎上调 国内成品油本轮计价周期以来，受中东地缘局势影响，国际原油价格整体以上涨为主，国内参考的原油变化率由负转正。 卓创资讯成品油分析
 
 ## 正文
 
-一、行情回顾：中东地缘冲突缓和预期上行，能化品震荡偏弱 五一假期归来甲醇期货大幅下挫，受美伊局势缓和预期升温、国际原油价格大幅下跌影响，能化板块集体走弱，甲醇09合约三个交易日下跌5.12%。
+按照成品油调价时间表，5月21日（周四）24时，国内成品油零售限价将迎来新一轮调整时间点。
 
-现货市场走势分化，内地市场凭借供需基本面支撑展现出较强抗跌韧性，而港口市场受情绪扰动回调幅度较大。
+机构跟踪的最新国际原油价格变动状况预测数据显示，本轮成品油零售限价上调幅度超过50元/吨的调整红线，因此本轮成品油零售限价大概率迎上调。
 
-具体来看，华东太仓进口价3145元/吨，环比节前下跌140元/吨；广东市场价3215元/吨，环比下跌130元/吨；鲁南市场价3000元/吨，环比持平；川渝市场价2775元/吨，环比上涨55元/吨；陕西市场价2705元/吨，环比下跌10元/吨；内蒙古市场价2715元/吨，环比上涨10元/吨。
+成品油零售限价或迎上调 国内成品油本轮计价周期以来，受中东地缘局势影响，国际原油价格整体以上涨为主，国内参考的原油变化率由负转正。
 
-产销区价差迅速收窄，后续需重点关注内地货源流向港口的情况。
+卓创资讯成品油分析师王芦青表示，国内成品油本轮计价周期以来，美伊谈判陷入停滞，霍尔木兹海峡航运局势紧张，市场避险担忧升温，推动国际原油价格大幅走高。
 
-国际市场方面，CFR中国主港现货价417美元/吨，环比减少3美元/吨；CFR东南亚现货价636.5美元/吨，环比减少5美元/吨；FOB美国海湾现货价561.79美元/吨，环比减少23.41美元/吨；FOB鹿特丹现货价531欧元/吨，环比上涨1欧元/吨，整体国际甲醇市场报价承压。
+受此带动，国内成品油参考原油变化率由负转正。
 
-假期过后最核心的变化在于宏观面中东局势的缓和预期。
+卓创资讯监测模型测算显示，截至5月19日收盘，即国内成品油本轮计价周期的第9个工作日，参考的原油变化率为2.01%，按照当前数据计算，预计汽柴油价格将上调。
 
-市场消息显示，美伊双方接近达成停战谅解备忘录，结束后双方的战争状态或宣布结束。
+隆众资讯成品油分析师刘炳娟表示，本轮国内成品油零售限价大概率将迎上调，若此次调价政策落实，将是2026年以来第八次上涨。
 
-特朗普方面宣称将开展护航行动以确保船只通行安全，受此影响，地缘紧张气氛骤然降温，原油价格大幅下跌，甲醇等能化品种跟随板块深度回调。
+2026年以来，国内成品油零售限价已经历九轮调整窗口，分别为“七涨一跌一搁浅”。
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 02:37 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 02:46 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 02:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 02:29 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 02:27 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 02:48 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 02:24 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 02:24 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 02:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 02:46 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 02:45 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 02:39 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 02:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 02:31 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-30 02:26 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 02:46 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 02:26 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 02:24 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 02:42 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 02:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 02:31 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 02:41 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 02:51 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 02:53 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 02:35 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:47 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/2053291.shtml)
-- 2026-06-30 02:27 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/1728026.shtml)
-- 2026-06-30 02:28 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/5212499.shtml)
-- 2026-06-30 02:49 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/5219376.shtml)
-- 2026-06-30 02:47 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/446518.shtml)
-- 2026-06-30 02:38 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/01680945.shtml)
-- 2026-06-30 02:45 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/915722.shtml)
-- 2026-06-30 02:26 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/33430263.shtml)
-- 2026-06-30 02:33 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/185552.shtml)
-- 2026-06-30 02:42 - [扬名立万](http://www.blog.minike.top/Article/details/1994272.shtml)
-- 2026-06-30 02:39 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/175751.shtml)
-- 2026-06-30 02:40 - [内马尔替补](https://www.share.minike.top/Article/details/462360072.shtml)
-- 2026-06-30 02:48 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/746114155.shtml)
-- 2026-06-30 02:23 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/89663.shtml)
-- 2026-06-30 02:33 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/98632.shtml)
+- 2026-06-30 02:46 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/3019776.shtml)
+- 2026-06-30 02:34 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/252376555.shtml)
+- 2026-06-30 02:40 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/406168413.shtml)
+- 2026-06-30 02:33 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/7733050.shtml)
+- 2026-06-30 02:46 - [斗破苍穹](https://www.blog.minike.top/Article/details/82093384.shtml)
+- 2026-06-30 02:37 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/91640918027.shtml)
+- 2026-06-30 02:30 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/408650.shtml)
+- 2026-06-30 02:50 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/98624.shtml)
+- 2026-06-30 02:30 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/391475138415.shtml)
+- 2026-06-30 02:35 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/19345.shtml)
+- 2026-06-30 02:38 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/655206.shtml)
+- 2026-06-30 02:36 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/8918548.shtml)
+- 2026-06-30 02:37 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/72807.shtml)
+- 2026-06-30 02:41 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/4855201.shtml)
+- 2026-06-30 02:25 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/5386908183.shtml)

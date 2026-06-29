@@ -1,57 +1,61 @@
-# 王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表
+# SpaceX IPO招股书首度曝光：星链年赚113亿美元，航天业务亏损，估值剑指1.8万亿美元
 
-> 更新时间：2026-06-30 02:49:32 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-新华社北京5月11日电 中共中央政治局常委、全国政协主席王沪宁11日在京会见中国国民党副主席张荣恭和第三届海峡两岸中华文化峰会两岸文化界人士代表。 王沪宁表示，习近平总书记会见中国国民党主席郑丽文时发表重要讲话，为两岸关系发展指明了方向，激励全体中华儿女携手推进祖国统一大业、民族复兴伟业。习近平总书记多次强调，中华文化是两岸同胞共同的精神财富，是两岸同胞的“根”和“魂”。本届峰
+SpaceX终于向投资者公开了其内部财务状况。这家火箭公司已向美国证券交易委员会（SEC）提交了S-1 IPO招股说明书，为其投资者路演做准备。据报道，路演计划于6月5日启动。 截至2026年3月31日的三个月内，SpaceX在合并基础上实现营收46.94亿美元，运营亏损19.43亿美元，调整后EBITDA为11.27亿美元。 2025年全年，SpaceX在合并基础上实现营收1
 
 ## 正文
 
-新华社北京5月11日电 中共中央政治局常委、全国政协主席王沪宁11日在京会见中国国民党副主席张荣恭和第三届海峡两岸中华文化峰会两岸文化界人士代表。
+SpaceX终于向投资者公开了其内部财务状况。
 
-王沪宁表示，习近平总书记会见中国国民党主席郑丽文时发表重要讲话，为两岸关系发展指明了方向，激励全体中华儿女携手推进祖国统一大业、民族复兴伟业。
+这家火箭公司已向美国证券交易委员会（SEC）提交了S-1 IPO招股说明书，为其投资者路演做准备。
 
-习近平总书记多次强调，中华文化是两岸同胞共同的精神财富，是两岸同胞的“根”和“魂”。
+据报道，路演计划于6月5日启动。
 
-本届峰会以“血脉相连、文化相通”为主题，就是要彰显两岸同胞坚守国土不可分、国家不可乱、民族不可散、文明不可断的共同信念，彰显两岸同胞做中华文化守护者、传承者、弘扬者的使命担当。
+截至2026年3月31日的三个月内，SpaceX在合并基础上实现营收46.94亿美元，运营亏损19.43亿美元，调整后EBITDA为11.27亿美元。
 
-王沪宁表示，中华文化是中华民族的精神命脉，两岸同胞共同的中华根、中华魂，源于血脉、植根历史、铸于心中，不会忘却，不可磨灭。
+2025年全年，SpaceX在合并基础上实现营收186.74亿美元，运营亏损25.89亿美元，调整后EBITDA为65.84亿美元。
 
-两岸同胞要坚定中华文化自信，担负起赓续中华文脉、繁荣中华文化的使命，铸牢中华民族共同体意识。
+SpaceX表示，其航天与连接两大业务板块“贡献了截至2026年3月31日止三个月及2025年12月31日止年度合并收入的绝大部分”。
 
-要把中华民族精神、中华民族价值体系传承好，加强两岸文化交流，促进两岸交流合作，深化两岸融合发展，实现两岸同胞心灵契合。
+主要由星链（Starlink）驱动的连接业务板块，在截至2026年3月31日的三个月内实现营收32.57亿美元，运营利润11.88亿美元，调整后EBITDA为20.87亿美元。
 
-要推动中华文化创新发展，增强实现中华民族伟大复兴的精神力量。
+2025年全年，该业务板块实现营收113.87亿美元，运营利润44.23亿美元，调整后EBITDA为71.68亿美元，同比分别增长49.8%、120.4%和86.2%。
 
 ## 相关推荐
 
-- 2026-06-30 02:46 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 02:35 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 02:41 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 02:23 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 02:23 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 02:38 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 02:28 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-30 02:31 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 02:49 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 02:22 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 02:22 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 02:53 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 02:28 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 02:37 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 02:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 02:46 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 02:52 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 02:34 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 02:26 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 02:40 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 02:34 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 02:43 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 02:24 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 02:48 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 02:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 02:44 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/1620155745.shtml)
-- 2026-06-30 02:43 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/80271.shtml)
-- 2026-06-30 02:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/889708.shtml)
-- 2026-06-30 02:22 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/062769622.shtml)
-- 2026-06-30 02:40 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/82199005.shtml)
-- 2026-06-30 02:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/583539.shtml)
-- 2026-06-30 02:47 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/600515635.shtml)
-- 2026-06-30 02:49 - [扫黑风暴](http://www.blog.minike.top/Article/details/942344006.shtml)
-- 2026-06-30 02:49 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/5872831347.shtml)
-- 2026-06-30 02:30 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/1462040541.shtml)
-- 2026-06-30 02:34 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/13178593.shtml)
-- 2026-06-30 02:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/7983751413.shtml)
-- 2026-06-30 02:33 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/36894739583.shtml)
-- 2026-06-30 02:22 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/18730980097.shtml)
-- 2026-06-30 02:35 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/5089489259.shtml)
+- 2026-06-30 02:53 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/02263012759.shtml)
+- 2026-06-30 02:25 - [千香](http://www.share.kurohicncr.top/Article/details/771375878.shtml)
+- 2026-06-30 02:51 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/63392522619.shtml)
+- 2026-06-30 02:42 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/3713750.shtml)
+- 2026-06-30 02:36 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/1908404.shtml)
+- 2026-06-30 02:50 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/5744905137.shtml)
+- 2026-06-30 02:27 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/510913.shtml)
+- 2026-06-30 02:39 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/136679.shtml)
+- 2026-06-30 02:46 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/262134.shtml)
+- 2026-06-30 02:32 - [千香](https://www.blog.minike.top/Article/details/3784237.shtml)
+- 2026-06-30 02:31 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/29616.shtml)
+- 2026-06-30 02:40 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/129136745.shtml)
+- 2026-06-30 02:40 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/613403931.shtml)
+- 2026-06-30 02:30 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/33158.shtml)
+- 2026-06-30 02:49 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/8009761.shtml)

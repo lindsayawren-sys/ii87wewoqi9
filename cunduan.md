@@ -1,59 +1,58 @@
-# 原油基金风险“拉满”：多家银行上调至R5高风险，C4及以下客户被拒之门外
+# Scholar Rock将出席杰富瑞全球医疗保健大会，聚焦SMA新药apitegromab关键审批
 
-> 更新时间：2026-06-30 02:49:33 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-华夏时报记者 卢梦雪 北京报道 受油价高波动影响，近期多家银行公告上调代销原油类基金产品风险等级。 5月9日，记者查询多家银行渠道代销情况发现，银行渠道代销的直接跟踪油价的QDII-LOF商品基金，大多已调整为高风险等级（最高等级），当前仅C5 高风险承受能力客户可购买，C4 及以下无法交易。 相关分析人士指出，这一调整背后，既有市场波动倒逼的因素，也有监管要求收紧的考虑。一方
+Scholar Rock公司宣布，管理层将于2026年6月3日上午11：40在纽约出席杰富瑞全球医疗保健大会并进行炉边谈话。此次活动正值公司核心药物apitegromab处于FDA审批的关键窗口期，备受投资者关注。 会议日程与参与方式 根据公司公告，Scholar Rock董事长兼首席执行官David Hallal将代表公司出席此次大会。活动将在纽约举行，投资者可通过Schol
 
 ## 正文
 
-华夏时报记者 卢梦雪 北京报道 受油价高波动影响，近期多家银行公告上调代销原油类基金产品风险等级。
+Scholar Rock公司宣布，管理层将于2026年6月3日上午11：40在纽约出席杰富瑞全球医疗保健大会并进行炉边谈话。
 
-5月9日，记者查询多家银行渠道代销情况发现，银行渠道代销的直接跟踪油价的QDII-LOF商品基金，大多已调整为高风险等级（最高等级），当前仅C5 高风险承受能力客户可购买，C4 及以下无法交易。
+此次活动正值公司核心药物apitegromab处于FDA审批的关键窗口期，备受投资者关注。
 
-相关分析人士指出，这一调整背后，既有市场波动倒逼的因素，也有监管要求收紧的考虑。
+会议日程与参与方式 根据公司公告，Scholar Rock董事长兼首席执行官David Hallal将代表公司出席此次大会。
 
-一方面，原油市场大幅波动引发风险敞口扩大，银行须进行风险“排雷”以确保客户资金安全；另一方面，2025年下半年以来多项监管新规密集落地，对产品适当性管理提出更明确、更严格的要求。
+活动将在纽约举行，投资者可通过Scholar Rock官网投资者板块的“活动与演示”页面观看现场网络直播，回放将在网站上保留约90天。
 
-多家银行上调代销原油类基金风险等级 受地缘政治因素影响，原油价格剧烈波动以来，众多原油类基金净值出现高波动。
+此外，公司还计划出席6月6日的杰富瑞会议环节以及6月13日的高盛全球医疗保健大会。
 
-近期，已有多家银行调整其代销的原油类基金产品风险等级。
+Apitegromab审批进入倒计时 Scholar Rock的核心资产apitegromab是一种首创的肌肉靶向单克隆抗体，用于治疗脊髓性肌萎缩症。
 
-其中，上海银行将其代销的易方达原油证券投资基金（QDII）A类、C类人民币份额的风险等级从中高风险（R4）调整至高风险（R5）。
+FDA已于2026年5月接受了该药的生物制剂许可申请重新提交，并设定了2026年9月30日的处方药使用者费用法案行动日期。
 
-宁波银行将“易方达原油人民币C”及“易方达原油人民币A”从中高风险调整为高风险。
+此次重新提交的BLA包括了Catalent Indiana工厂和第二家美国工厂两个生产设施。
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 02:49 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 02:32 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 02:39 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 02:41 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 02:36 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-30 02:33 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 02:45 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 02:35 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 02:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 02:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 02:30 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 02:32 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 02:35 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 02:41 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 02:29 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 02:32 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 02:33 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 02:26 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 02:43 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-30 02:45 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 02:29 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 02:40 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 02:52 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 02:44 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:41 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/088203108289.shtml)
-- 2026-06-30 02:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/61944350.shtml)
-- 2026-06-30 02:44 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/131502.shtml)
-- 2026-06-30 02:19 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/3731844.shtml)
-- 2026-06-30 02:28 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/712066950.shtml)
-- 2026-06-30 02:31 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/3528210.shtml)
-- 2026-06-30 02:47 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/963280701745.shtml)
-- 2026-06-30 02:38 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/34733.shtml)
-- 2026-06-30 02:20 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/5184012.shtml)
-- 2026-06-30 02:35 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/33869.shtml)
-- 2026-06-30 02:39 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/545303215192.shtml)
-- 2026-06-30 02:36 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/74610988.shtml)
-- 2026-06-30 02:20 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/697578.shtml)
-- 2026-06-30 02:32 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/0915462.shtml)
-- 2026-06-30 02:30 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/01254.shtml)
+- 2026-06-30 02:41 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/9462994.shtml)
+- 2026-06-30 02:52 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/7071389.shtml)
+- 2026-06-30 02:24 - [千与千寻](http://www.share.kurohicncr.top/Article/details/61193915342.shtml)
+- 2026-06-30 02:27 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/1109775459.shtml)
+- 2026-06-30 02:24 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/472883550.shtml)
+- 2026-06-30 02:42 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/259279730124.shtml)
+- 2026-06-30 02:29 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/174417736651.shtml)
+- 2026-06-30 02:46 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/269977338.shtml)
+- 2026-06-30 02:31 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/809735758624.shtml)
+- 2026-06-30 02:46 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/3610154309.shtml)
+- 2026-06-30 02:45 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/823582283.shtml)
+- 2026-06-30 02:28 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/37703556501.shtml)
+- 2026-06-30 02:53 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/2604763.shtml)
+- 2026-06-30 02:30 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/85265.shtml)
+- 2026-06-30 02:34 - [天道](https://www.blog.kurohicncr.top/Article/details/80550395.shtml)

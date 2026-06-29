@@ -1,59 +1,61 @@
-# 社会救助法7月起施行 将保障哪些群体？一文了解
+# 本土创新药企迎收获期：抗肿瘤药守阵地，慢病领域拓新局
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-社会救助法于4月30日经十四届全国人大常委会第二十二次会议表决通过，将于2026年7月1日起施行。从纳入立法规划到落地，这部法律打磨三十年，不仅补齐社会救助领域法律短板，还新增个人信息保护、失信惩戒等群众关切条款。 新通过的社会救助法共7章78条，涵盖总则、救助对象和措施、救助程序等内容。草案审议期间，两次面向全社会公开征求意见，民意满满，公众意见聚焦隐私保护、简化审批、严惩骗
+当前，我国创新药产业在BD（商务拓展）出海与本土商业化放量的驱动下，产业结构加速优化，本土创新药从研发投入期转向价值收获期。 日前，药智网数据显示，2025年国内创新药销售收入TOP10药企合计营收突破千亿元大关。百济神州、恒瑞医药、中国生物制药、翰森制药、信达生物迈过创新药收入百亿元门槛。同时，百济神州、信达生物更是实现扭亏为盈，打破“国产创新药只烧钱不赚钱”的魔咒。 同期，
 
 ## 正文
 
-社会救助法于4月30日经十四届全国人大常委会第二十二次会议表决通过，将于2026年7月1日起施行。
+当前，我国创新药产业在BD（商务拓展）出海与本土商业化放量的驱动下，产业结构加速优化，本土创新药从研发投入期转向价值收获期。
 
-从纳入立法规划到落地，这部法律打磨三十年，不仅补齐社会救助领域法律短板，还新增个人信息保护、失信惩戒等群众关切条款。
+日前，药智网数据显示，2025年国内创新药销售收入TOP10药企合计营收突破千亿元大关。
 
-新通过的社会救助法共7章78条，涵盖总则、救助对象和措施、救助程序等内容。
+百济神州、恒瑞医药、中国生物制药、翰森制药、信达生物迈过创新药收入百亿元门槛。
 
-草案审议期间，两次面向全社会公开征求意见，民意满满，公众意见聚焦隐私保护、简化审批、严惩骗保等问题，这些诉求都在最终法律中得到回应。
+同时，百济神州、信达生物更是实现扭亏为盈，打破“国产创新药只烧钱不赚钱”的魔咒。
 
-全国人大常委会法工委社会法室副主任高莉娜在接受记者专访时表示，立法团队深入城乡基层，倾听低保家庭、特困老人等群体心声，吸纳各地实践经验，反复打磨条文。
+同期，在中国市场创新药销售额TOP10榜单中，入围门槛已提升至17亿元，总销售额超265亿元，且国产创新药以压倒性优势占据9个席位，彰显了中国医药创新实力。
 
-既兼顾地区差异、平衡部门衔接，更直面信息泄露、公职人员滥用职权、骗保等群众担心的痛点。
+而从治疗领域分布看，肿瘤领域仍是创新药研发与商业化的主战场，上述销售额TOP10榜单中就包含6款抗肿瘤药物；与此同时，慢病领域药物也崭露头角。
 
-这部法律来之不易，在此之前的十余年间，2014年出台的《社会救助暂行办法》是社会救助工作的主要依据，而社会救助法的落地，则标志着我国民生兜底保障迈入法治化新阶段。
+肿瘤领域创新成果持续兑现 在头部创新药企中，百济神州的表现尤为突出。
 
-全国人大常委会法工委社会法室副主任 高莉娜：制定社会救助法是贯彻落实习近平总书记重要指示批示精神和党中央决策部署的必然要求，社会救助是保基本、兜底线、救急难的制度。
+2025年，其产品收入达377.70亿元，同比增长39.9%，创新药收入占总营收比重高达99%，是国内创新药企“聚焦创新”的代表之一。
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 02:47 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 02:20 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 02:29 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 02:46 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 02:43 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 02:30 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 02:21 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 02:37 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 02:20 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 02:45 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 02:26 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 02:48 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 02:27 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 02:49 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 02:49 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 02:38 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 02:35 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 02:49 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 02:48 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 02:31 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 02:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 02:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 02:50 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 02:37 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 02:42 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 02:39 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 02:43 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:29 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/13298483.shtml)
-- 2026-06-30 02:46 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/6140907079.shtml)
-- 2026-06-30 02:30 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/555205266.shtml)
-- 2026-06-30 02:47 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/94057095.shtml)
-- 2026-06-30 02:40 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/1178438.shtml)
-- 2026-06-30 02:42 - [日本 高位逼抢](https://www.share.minike.top/Article/details/80469.shtml)
-- 2026-06-30 02:35 - [金牌调解](http://www.share.minike.top/Article/details/0805779.shtml)
-- 2026-06-30 02:36 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/820851546233.shtml)
-- 2026-06-30 02:31 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/66522525.shtml)
-- 2026-06-30 02:26 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/1903034433.shtml)
-- 2026-06-30 02:25 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/30873640956.shtml)
-- 2026-06-30 02:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/11424962.shtml)
-- 2026-06-30 02:30 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/280154932.shtml)
-- 2026-06-30 02:47 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/40754888898.shtml)
-- 2026-06-30 02:38 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/39384419.shtml)
+- 2026-06-30 02:25 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/68164.shtml)
+- 2026-06-30 02:41 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/01703848.shtml)
+- 2026-06-30 02:44 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/407002946241.shtml)
+- 2026-06-30 02:43 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/9379421.shtml)
+- 2026-06-30 02:24 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/8448443058.shtml)
+- 2026-06-30 02:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/254916487582.shtml)
+- 2026-06-30 02:45 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/74367.shtml)
+- 2026-06-30 02:51 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/484723590345.shtml)
+- 2026-06-30 02:32 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/2388688.shtml)
+- 2026-06-30 02:34 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/22434294580.shtml)
+- 2026-06-30 02:25 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/002599856459.shtml)
+- 2026-06-30 02:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/24927.shtml)
+- 2026-06-30 02:47 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/872103658610.shtml)
+- 2026-06-30 02:29 - [毒液2](https://www.share.kurohicncr.top/Article/details/07265.shtml)
+- 2026-06-30 02:46 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/170797.shtml)

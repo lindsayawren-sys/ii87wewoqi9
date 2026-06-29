@@ -1,53 +1,51 @@
-# 外交部：中方愿同俄方推动构建更加公正合理的全球治理体系
+# 东亚银行获董事会副主席李国章增持约26.4万股 每股作价14.12港元
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-新华社北京5月11日电(记者万倩仪、董雪)就俄罗斯总统普京表示俄中战略协作已成为遏制冲突、维护全球战略稳定的关键支柱，外交部发言人郭嘉昆11日在例行记者会上答问时表示，中俄是新时代全面战略协作伙伴。近年来，在习近平主席和普京总统的战略引领下，中俄关系保持高水平发展，为变乱交织的世界注入强大稳定性。今年，中俄关系发展迎来新的历史机遇。中方愿同俄方继续秉持永久睦邻友好、全面战略协作
+香港联交所最新资料显示，5月15日，董事会副主席李国章增持东亚银行（00023）26.3957万股，每股作价14.12港元，总金额约为372.71万港元。增持后最新持股数目约为3953.64万股，最新持股比例为1.50%。责任编辑：卢昱君
 
 ## 正文
 
-新华社北京5月11日电(记者万倩仪、董雪)就俄罗斯总统普京表示俄中战略协作已成为遏制冲突、维护全球战略稳定的关键支柱，外交部发言人郭嘉昆11日在例行记者会上答问时表示，中俄是新时代全面战略协作伙伴。
+香港联交所最新资料显示，5月15日，董事会副主席李国章增持东亚银行（00023）26.3957万股，每股作价14.12港元，总金额约为372.71万港元。
 
-近年来，在习近平主席和普京总统的战略引领下，中俄关系保持高水平发展，为变乱交织的世界注入强大稳定性。
+增持后最新持股数目约为3953.64万股，最新持股比例为1.50%。
 
-今年，中俄关系发展迎来新的历史机遇。
-
-中方愿同俄方继续秉持永久睦邻友好、全面战略协作、互利合作共赢精神，不断加强各领域合作，推动构建更加公正合理的全球治理体系。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:29 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 02:42 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 02:22 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-30 02:20 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 02:34 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 02:21 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 02:31 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 02:24 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 02:45 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 02:49 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 02:44 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 02:34 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 02:24 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 02:44 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 02:44 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 02:32 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 02:30 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 02:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-30 02:45 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 02:39 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 02:34 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 02:25 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 02:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 02:37 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 02:46 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 02:36 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 02:36 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 02:36 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 02:52 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 02:33 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:26 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/3178602077.shtml)
-- 2026-06-30 02:19 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/233465.shtml)
-- 2026-06-30 02:27 - [金牌调解](http://www.share.kurohicncr.top/Article/details/720816677256.shtml)
-- 2026-06-30 02:40 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/554659.shtml)
-- 2026-06-30 02:45 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/447378353.shtml)
-- 2026-06-30 02:35 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/049380236532.shtml)
-- 2026-06-30 02:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/18118324.shtml)
-- 2026-06-30 02:45 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/412267015.shtml)
-- 2026-06-30 02:27 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/3045043.shtml)
-- 2026-06-30 02:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/380473886453.shtml)
-- 2026-06-30 02:39 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/748402.shtml)
-- 2026-06-30 02:33 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/26503054.shtml)
-- 2026-06-30 02:45 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/69388770.shtml)
-- 2026-06-30 02:20 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/834265021.shtml)
-- 2026-06-30 02:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/688954155.shtml)
+- 2026-06-30 02:40 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/8681939514.shtml)
+- 2026-06-30 02:28 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/879041653.shtml)
+- 2026-06-30 02:32 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/07985885335.shtml)
+- 2026-06-30 02:40 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/716790.shtml)
+- 2026-06-30 02:29 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/443808534494.shtml)
+- 2026-06-30 02:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/29016354615.shtml)
+- 2026-06-30 02:47 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/6341375007.shtml)
+- 2026-06-30 02:46 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/4556886971.shtml)
+- 2026-06-30 02:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/4428644076.shtml)
+- 2026-06-30 02:35 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/0358774462.shtml)
+- 2026-06-30 02:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/94805970.shtml)
+- 2026-06-30 02:27 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/87395.shtml)
+- 2026-06-30 02:25 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/62696637531.shtml)
+- 2026-06-30 02:49 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/9239595638.shtml)
+- 2026-06-30 02:52 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/06726.shtml)

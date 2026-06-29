@@ -1,56 +1,57 @@
-# 希音诉特姆版权侵权案在伦敦开审，跨境电商巨头法律博弈升级
+# 32位中外博主共聚“此刻，新疆”全球网红共创传播活动
 
-> 更新时间：2026-06-30 02:49:34 UTC+8
+> 更新时间：2026-06-30 02:54:02 UTC+8
 
 ## 摘要
 
-中国跨境电商平台希音（Shein）起诉特姆（Temu）侵犯版权案在伦敦高等法院正式开审。作为全球快时尚领域的两大有力竞争者，双方此次就版权保护、市场竞争秩序及平台治理规则展开了激烈的法律交锋。 在当日的庭审中，希音方面指控称，特姆存在“工业规模”的版权侵权行为，指其在网站上非法使用数千张希音拥有版权的服装照片，用于推广和销售仿制品，意图借此获取不公平的竞争优势。希音代理律师贝内
+中新网伊犁5月20日电 “此刻，新疆”全球网红共创传播活动日前在新疆伊犁哈萨克自治州启动，来自越南、泰国、俄罗斯、瑞典、英国、墨西哥等国以及中国的32位中外网红博主齐聚天山脚下。 活动以伊犁为起点，联动14个国家的海外博主和总台多语种主播深入新疆，通过他们个性化的国际视角，记录新疆的山河风光、人文风貌与发展活力，向世界呈现真实、立体、鲜活的新时代新疆。 瑞典网红博主帕特里克·巴
 
 ## 正文
 
-中国跨境电商平台希音（Shein）起诉特姆（Temu）侵犯版权案在伦敦高等法院正式开审。
+中新网伊犁5月20日电 “此刻，新疆”全球网红共创传播活动日前在新疆伊犁哈萨克自治州启动，来自越南、泰国、俄罗斯、瑞典、英国、墨西哥等国以及中国的32位中外网红博主齐聚天山脚下。
 
-作为全球快时尚领域的两大有力竞争者，双方此次就版权保护、市场竞争秩序及平台治理规则展开了激烈的法律交锋。
+活动以伊犁为起点，联动14个国家的海外博主和总台多语种主播深入新疆，通过他们个性化的国际视角，记录新疆的山河风光、人文风貌与发展活力，向世界呈现真实、立体、鲜活的新时代新疆。
 
-在当日的庭审中，希音方面指控称，特姆存在“工业规模”的版权侵权行为，指其在网站上非法使用数千张希音拥有版权的服装照片，用于推广和销售仿制品，意图借此获取不公平的竞争优势。
+瑞典网红博主帕特里克·巴赫施泰特说：“通过新疆的雪山、草原、稻田等景观，让我感受到了中国山河之美，各个民族欢歌热舞的热闹场景，也让我心生愉悦。
 
-希音代理律师贝内特·布兰德雷斯（Benet Brandreth）指出，此举旨在对现有市场参与者实现“不正当超越”。
+我要赶紧出发，用镜头记录新疆的自然风光和多元文化，捕捉温暖瞬间，传递真实的新疆声音。
 
-针对上述指控，特姆方面予以坚决否认，并向法院提起反诉。
+”越南网红博主阮氏清清被伊犁的秀美风光和当地人的热情深深打动，现场共舞的体验让她倍感愉悦，十分期待后续解锁新疆更多美景与特色美食。
 
-特姆指责希音利用法律诉讼手段恶意打压竞争对手，并涉嫌违反竞争法，通过与快时尚供应商签署排他性协议（即“二选一”）来限制市场竞争。
+活动以行进式表演拉开帷幕，身着民族服饰的表演者为海外博主送上刺绣香包，欢快节奏与浓郁民俗风情瞬间感染全场，博主们在共舞共乐中沉浸式感受新疆魅力。
 
-据悉，涉及竞争法的部分案件预计将于2027年另行开审。
+随后，非遗展示、稻田舞蹈、乐队表演等精彩节目接续呈现，将气氛推向高潮。
 
-庭审最新进展显示，特姆已撤回针对约2300张由希音员工拍摄照片的版权辩护。
+博主们沿着迎宾大道观赏歌舞、品尝特色冰淇淋、了解锡伯刺绣等非遗技艺，与当地民众面对面交流，近距离感受伊犁的烟火气息。
 
 ## 相关推荐
 
-- 2026-06-30 02:28 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 02:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 02:30 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-30 02:32 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 02:42 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 02:34 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 02:39 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 02:31 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 02:36 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 02:36 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 02:27 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 02:34 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 02:34 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 02:31 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 02:34 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 02:45 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 02:45 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 02:26 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 02:45 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 02:27 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 02:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/61318217.shtml)
-- 2026-06-30 02:41 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/137980308.shtml)
-- 2026-06-30 02:24 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/617066027.shtml)
-- 2026-06-30 02:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/0395775.shtml)
-- 2026-06-30 02:41 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/8553260.shtml)
-- 2026-06-30 02:34 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/4762381.shtml)
-- 2026-06-30 02:28 - [勇敢的心第二部](https://www.share.minike.top/Article/details/137378.shtml)
-- 2026-06-30 02:32 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/45030.shtml)
-- 2026-06-30 02:23 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/79913.shtml)
-- 2026-06-30 02:21 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/2775886.shtml)
-- 2026-06-30 02:20 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/21424310965.shtml)
-- 2026-06-30 02:27 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/134819.shtml)
-- 2026-06-30 02:46 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/07778536.shtml)
-- 2026-06-30 02:30 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/29369.shtml)
-- 2026-06-30 02:27 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/163573036390.shtml)
+- 2026-06-30 02:34 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/436297.shtml)
+- 2026-06-30 02:50 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/4595828122.shtml)
+- 2026-06-30 02:38 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/48857.shtml)
+- 2026-06-30 02:36 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/670258345891.shtml)
+- 2026-06-30 02:38 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/6794893.shtml)
+- 2026-06-30 02:34 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/311989801693.shtml)
+- 2026-06-30 02:46 - [流金岁月](https://www.share.kurohicncr.top/Article/details/9225635073.shtml)
+- 2026-06-30 02:32 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/90311.shtml)
+- 2026-06-30 02:37 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/9437113432.shtml)
+- 2026-06-30 02:50 - [美股](http://www.blog.minike.top/Article/details/30301.shtml)
+- 2026-06-30 02:45 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/7438303.shtml)
+- 2026-06-30 02:50 - [千香](https://www.blog.kurohicncr.top/Article/details/328462.shtml)
+- 2026-06-30 02:29 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/4243948223.shtml)
+- 2026-06-30 02:25 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/60081.shtml)
+- 2026-06-30 02:49 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/80824306788.shtml)
