@@ -1,60 +1,56 @@
-# AI成旅游新“搭子” 数智型出游走俏“五一”
+# 高盛因强劲的盈利前景将标普500指数年末目标上调至8,000点
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月3日电(郭其钰)“不用自己做攻略，不用排队等讲解器，还能和机器狗击掌，这趟旅行我的‘搭子’是AI。”5月3日，正在浙江杭州旅游的“00后”游客刘耀凯接受中新网采访时说。 从出发前定制旅游攻略，到游玩中沉浸式互动体验，今年“五一”假期，AI正悄然嵌入旅游全链条，一种以“数智”为特征的新型出游方式持续走热。 在杭州，打开城市级文旅智能体“杭小忆”，游客只需输入旅游需求
+高盛将标普500指数 的2026年底预测值从7，600点上调至8，000点，理由是企业盈利持续强劲。该目标值较该指数最近的收盘价7，519.12点高出6.4%。 高盛周二在一份报告中表示：“迄今为止，盈利增长是推动标普500指数整体回报的主要动力，我们预计未来几个月这一趋势将持续。” 该券商还将2026年标普500指数每股收益预期上调至340美元，意味着同比增长24%；2027
 
 ## 正文
 
-中新网杭州5月3日电(郭其钰)“不用自己做攻略，不用排队等讲解器，还能和机器狗击掌，这趟旅行我的‘搭子’是AI。
+高盛将标普500指数 的2026年底预测值从7，600点上调至8，000点，理由是企业盈利持续强劲。
 
-”5月3日，正在浙江杭州旅游的“00后”游客刘耀凯接受中新网采访时说。
+该目标值较该指数最近的收盘价7，519.12点高出6.4%。
 
-从出发前定制旅游攻略，到游玩中沉浸式互动体验，今年“五一”假期，AI正悄然嵌入旅游全链条，一种以“数智”为特征的新型出游方式持续走热。
+高盛周二在一份报告中表示：“迄今为止，盈利增长是推动标普500指数整体回报的主要动力，我们预计未来几个月这一趋势将持续。
 
-在杭州，打开城市级文旅智能体“杭小忆”，游客只需输入旅游需求，系统便可自动完成信息筛选与路线规划，生成图文并茂的定制攻略。
+” 该券商还将2026年标普500指数每股收益预期上调至340美元，意味着同比增长24%；2027年预期上调至385美元，进一步增长13%。
 
-“我对‘杭小忆’说，我要带父母玩三天，喜欢喝茶，想了解历史文化，不想太累。
+高盛此举进一步加剧了券商看涨预期的浪潮，瑞银GWM上周刚刚上调了其展望，理由是强劲的人工智能驱动盈利有望帮助抵消通胀压力以及伊朗冲突带来的供应风险。
 
-几秒钟后，一份包含龙井村喝茶、良渚古城大空间VR沉浸体验等避开人流的路线就发到了我手机上。
+该券商表示，人工智能基础设施的受益者预计将推动今年该指数约一半的盈利增长，并补充称，尽管消费疲软和成本上升构成风险，但强劲的人工智能投资将抵消这些压力。
 
-”刘耀凯形容，就像有个本地朋友在帮忙规划。
+高盛分析师表示：“此外，尽管标普500指数的盈利预期增速快于指数价格涨幅，但作为AI基础设施核心的半导体股近期表现已超越其前瞻性盈利。
 
-如果说行前的AI攻略是“看不见的助手”，走进景区后，AI就成了“看得见的伙伴”。
+”责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 21:35 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 21:12 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 21:35 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 21:19 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 21:10 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 21:19 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 21:16 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 21:12 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 21:26 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 21:15 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 21:23 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 21:10 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 21:20 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 21:29 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 21:40 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 21:17 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 21:32 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 21:35 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 21:41 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 21:17 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 21:34 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 21:39 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 21:14 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 21:36 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:33 - [宜宾地震已转移安置225人](https://www.share.minike.top/Article/details/8896926127.shtml)
-- 2026-06-29 21:24 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/6537013090.shtml)
-- 2026-06-29 21:33 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/6666343.shtml)
-- 2026-06-29 21:30 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/245683028.shtml)
-- 2026-06-29 21:30 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/14377817.shtml)
-- 2026-06-29 21:33 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/78755481.shtml)
-- 2026-06-29 21:08 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/806344.shtml)
-- 2026-06-29 21:26 - [恋与深空客服的回应](https://www.blog.minike.top/Article/details/0844393.shtml)
-- 2026-06-29 21:23 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/065486.shtml)
-- 2026-06-29 21:15 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/609328834447.shtml)
-- 2026-06-29 21:07 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/57396815606.shtml)
-- 2026-06-29 21:06 - [18岁高二体育生训练晕倒后离世](https://www.blog.kurohicncr.top/Article/details/1710576168.shtml)
-- 2026-06-29 21:27 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/62408636640.shtml)
-- 2026-06-29 21:35 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/98241550927.shtml)
-- 2026-06-29 21:15 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/8798330624.shtml)
+- 2026-06-29 21:27 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/521600051.shtml)
+- 2026-06-29 21:39 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.kurohicncr.top/Article/details/5733038.shtml)
+- 2026-06-29 21:14 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/22141.shtml)
+- 2026-06-29 21:36 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/6892743000.shtml)
+- 2026-06-29 21:17 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/9128715.shtml)
+- 2026-06-29 21:14 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/1247798.shtml)
+- 2026-06-29 21:22 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/0452061895.shtml)
+- 2026-06-29 21:33 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/492572404.shtml)
+- 2026-06-29 21:39 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/0793168.shtml)
+- 2026-06-29 21:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/26171.shtml)
+- 2026-06-29 21:23 - [天道](https://www.share.kurohicncr.top/Article/details/29812581391.shtml)
+- 2026-06-29 21:13 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/954011.shtml)
+- 2026-06-29 21:25 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/45652.shtml)
+- 2026-06-29 21:18 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/594751532297.shtml)
+- 2026-06-29 21:41 - [田曦薇没招了](https://www.blog.minike.top/Article/details/6652426895.shtml)

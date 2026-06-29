@@ -1,53 +1,44 @@
-# 花旗：建设银行给予“买入”评级 目标价9.88港元
+# NIRAKU将于7月15日派发末期股息每股0.24日元
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-花旗发布研报称，建设银行（00939）今年首季拨备前利润（PPOP）同比增长13%，增速较去年第四季的5%加快，受惠于净息差回升、交易收益强劲、费用收入良好及成本收入比率（CIR）改善。花旗认为，建行首季拨备前利润表现优于该行预期，盈利增长符合预期，在大型银行中分别排名第二及第三。该行对建行净息差显著回升感到鼓舞，认为其估值具吸引力。给予建行H股“买入”评级，目标价9.88港元
+NIRAKU（01245）发布公告，该公司将于2026年7月15日派发末期股息每股0.24日元。责任编辑：卢昱君
 
 ## 正文
 
-花旗发布研报称，建设银行（00939）今年首季拨备前利润（PPOP）同比增长13%，增速较去年第四季的5%加快，受惠于净息差回升、交易收益强劲、费用收入良好及成本收入比率（CIR）改善。
-
-花旗认为，建行首季拨备前利润表现优于该行预期，盈利增长符合预期，在大型银行中分别排名第二及第三。
-
-该行对建行净息差显著回升感到鼓舞，认为其估值具吸引力。
-
-给予建行H股“买入”评级，目标价9.88港元。
+NIRAKU（01245）发布公告，该公司将于2026年7月15日派发末期股息每股0.24日元。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:28 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 21:10 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 21:15 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 21:20 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 21:29 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 21:07 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 21:29 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 21:29 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 21:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 21:06 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 21:14 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 21:19 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 21:25 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 21:15 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 21:13 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 21:27 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 21:22 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 21:25 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 21:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 21:41 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 21:22 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 21:35 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 21:23 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:13 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/97257956746.shtml)
-- 2026-06-29 21:26 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/6331006.shtml)
-- 2026-06-29 21:16 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/337058372395.shtml)
-- 2026-06-29 21:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/80388965.shtml)
-- 2026-06-29 21:28 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/50493214.shtml)
-- 2026-06-29 21:29 - [锐评白玉兰提名片段](https://www.blog.kurohicncr.top/Article/details/361651.shtml)
-- 2026-06-29 21:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/8066526132.shtml)
-- 2026-06-29 21:26 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/6094610014.shtml)
-- 2026-06-29 21:29 - [美人鱼](https://www.share.kurohicncr.top/Article/details/04360.shtml)
-- 2026-06-29 21:08 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/45030509383.shtml)
-- 2026-06-29 21:13 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/56531.shtml)
-- 2026-06-29 21:32 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/446777781.shtml)
-- 2026-06-29 21:24 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/812306428267.shtml)
-- 2026-06-29 21:24 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/87346.shtml)
-- 2026-06-29 21:16 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/794041362318.shtml)
+- 2026-06-29 21:24 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/012528612258.shtml)
+- 2026-06-29 21:29 - [法拉利车主已自行承担修理费近3万](http://www.share.minike.top/Article/details/16347429.shtml)
+- 2026-06-29 21:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/149565596891.shtml)
+- 2026-06-29 21:20 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/2258789219.shtml)
+- 2026-06-29 21:14 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/57924611392.shtml)
+- 2026-06-29 21:31 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/05173.shtml)
+- 2026-06-29 21:17 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/50717.shtml)
+- 2026-06-29 21:15 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/771332.shtml)
+- 2026-06-29 21:32 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/2583514369.shtml)
+- 2026-06-29 21:13 - [田曦薇没招了](http://www.share.minike.top/Article/details/433271.shtml)
+- 2026-06-29 21:22 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/412675.shtml)
+- 2026-06-29 21:29 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/80575207557.shtml)
+- 2026-06-29 21:35 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/766005055.shtml)
+- 2026-06-29 21:14 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/5711741315.shtml)
+- 2026-06-29 21:21 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/40584639.shtml)

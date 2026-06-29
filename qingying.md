@@ -1,56 +1,56 @@
-# Spirit为停业做准备 特朗普称政府已经提出最终版救助方案
+# 长鑫科技董事长，减持603986
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普表示，他已提出一项救助 Spirit Aviation Holdings Inc．的最终方案，但只有在对美国政府有利的情况下才会推进。这一表态令该低成本航空公司的纾困前景被蒙上阴影，其正开始为停业做准备。 此前报道，受近期燃料成本飙升冲击，Spirit一直在与美国政府就融资问题进行谈判，但这些磋商在最近几天陷入僵局。与此同时，据不愿具名的知情人士透露，Sp
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】又减持啦 中国基金报记者 泰勒 大家好啊，一边是芯片股高歌猛进，一边是大股东的减持。 今晚轮到兆易创新这只近期翻倍的牛股了，而减持的股东来头更不小，是长鑫科技的董事长朱一明！ 5月26日晚间，芯片牛股兆易创新发布公告，收到股东朱一明先生发来的《关于权益变动比例触及1%刻度的告知函》
 
 ## 正文
 
-美国总统唐纳德·特朗普表示，他已提出一项救助 Spirit Aviation Holdings Inc．的最终方案，但只有在对美国政府有利的情况下才会推进。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这一表态令该低成本航空公司的纾困前景被蒙上阴影，其正开始为停业做准备。
+来源：中国基金报 【导读】又减持啦 中国基金报记者 泰勒 大家好啊，一边是芯片股高歌猛进，一边是大股东的减持。
 
-此前报道，受近期燃料成本飙升冲击，Spirit一直在与美国政府就融资问题进行谈判，但这些磋商在最近几天陷入僵局。
+今晚轮到兆易创新这只近期翻倍的牛股了，而减持的股东来头更不小，是长鑫科技的董事长朱一明！
 
-与此同时，据不愿具名的知情人士透露，Spirit Aviation的现金正在迅速耗尽。
+5月26日晚间，芯片牛股兆易创新发布公告，收到股东朱一明先生发来的《关于权益变动比例触及1%刻度的告知函》，在2026年5月11日至2026年5月25日期间，朱一明通过集中竞价和大宗交易方式累计减持公司股份 6，329，905股，占公司总股本的0.90%。
 
-知情人士表示，随着流动性状况恶化、获得救助的前景趋于渺茫，Spirit正在为业务收缩做准备。
+本次权益变动后，朱一明先生及其一致行动人香港赢富得有限公司的合计持股比例由7.90%减少至7.00%。
 
-一些知情人士称，该公司已开始通知部分债权人，如果没有政府救助，最快可能周六上午暂停运营。
+另外，公司还对近期股价暴涨做了进一步澄清。
 
-特朗普周五在白宫对记者表示：“如果可以做到，我们会这么做，但前提是这是一笔好交易。
+兆易创新称，近期关注到部分网络媒体报道，称公司股票为“长鑫科技首次公开发行股票并上市的相关概念股。
 
-”他还称，政府可能在周五或周六就此事发布公告，但未提供更多细节。
+公司现将相关情况说明如下：截至本报告披露日，公司持有长鑫科技股份仅占其当前总股本的1.80%，持股比例较小，公司无法对其生产经营决策施加重大影响。
 
 ## 相关推荐
 
-- 2026-06-29 21:25 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 21:33 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 21:08 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 21:06 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 21:34 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 21:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 21:20 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 21:21 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 21:22 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 21:20 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 21:41 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 21:25 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 21:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 21:32 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 21:13 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 21:16 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 21:35 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 21:18 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 21:13 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 21:36 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:30 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/80521021495.shtml)
-- 2026-06-29 21:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/226042815.shtml)
-- 2026-06-29 21:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/8162744.shtml)
-- 2026-06-29 21:18 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/31417821.shtml)
-- 2026-06-29 21:11 - [东方风云榜](http://www.share.minike.top/Article/details/6897200.shtml)
-- 2026-06-29 21:30 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/526641678.shtml)
-- 2026-06-29 21:20 - [《新闻联播》正在直播](https://www.share.minike.top/Article/details/596246.shtml)
-- 2026-06-29 21:20 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/61392.shtml)
-- 2026-06-29 21:30 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/3351134.shtml)
-- 2026-06-29 21:20 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/79977.shtml)
-- 2026-06-29 21:16 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/513199846.shtml)
-- 2026-06-29 21:19 - [LPL第三赛段赛制公布](http://www.blog.minike.top/Article/details/35000.shtml)
-- 2026-06-29 21:23 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/793988.shtml)
-- 2026-06-29 21:08 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/1321558.shtml)
-- 2026-06-29 21:07 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/687360305413.shtml)
+- 2026-06-29 21:34 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/33405963618.shtml)
+- 2026-06-29 21:29 - [小龙女配音去世 李若彤发文悼念](https://www.share.kurohicncr.top/Article/details/034168846380.shtml)
+- 2026-06-29 21:25 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/213917697367.shtml)
+- 2026-06-29 21:25 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/484518268.shtml)
+- 2026-06-29 21:23 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/186507.shtml)
+- 2026-06-29 21:37 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/47831431.shtml)
+- 2026-06-29 21:39 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/88628802191.shtml)
+- 2026-06-29 21:27 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/33209.shtml)
+- 2026-06-29 21:26 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.kurohicncr.top/Article/details/61054.shtml)
+- 2026-06-29 21:29 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/20190.shtml)
+- 2026-06-29 21:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/2786724657.shtml)
+- 2026-06-29 21:23 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/5744547.shtml)
+- 2026-06-29 21:31 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/1864283.shtml)
+- 2026-06-29 21:27 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/10460.shtml)
+- 2026-06-29 21:37 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/4252222.shtml)

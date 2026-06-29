@@ -1,61 +1,56 @@
-# 福建首个侨台档案融合展示馆吸引参观者
+# 去年买Compart、今年1.89亿元买下上海日扬，富创精密把并购触角伸向真空阀赛道 | 长三角资本局
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！孩子吃饭少、长不高、脾气暴？专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲
+登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 一家科创板半导体零部件公司，继续沿着并购路线补拼图。 5月26日晚，富创精密公告称，公司拟以现金方式收购日扬电子科技（上海）有限公司65%股权，交易对价为1.89亿元。交易完成后，上海日扬将纳入富创精密合并报表范围。 这不是一笔体量很大的交易，但位置并不边缘。公告显示，上海日扬主营真空腔体、真空阀、真空
 
 ## 正文
 
-日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
+登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 一家科创板半导体零部件公司，继续沿着并购路线补拼图。
 
-这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？
+5月26日晚，富创精密公告称，公司拟以现金方式收购日扬电子科技（上海）有限公司65%股权，交易对价为1.89亿元。
 
-上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！
+交易完成后，上海日扬将纳入富创精密合并报表范围。
 
-孩子吃饭少、长不高、脾气暴？
+这不是一笔体量很大的交易，但位置并不边缘。
 
-专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲53国“敞开怀抱”绍兴黄酒“春藏”热 中外家庭“封藏”人生喜事百年冰泉豆浆香飘海内外：烟火乡愁 味引八方多家景区宣布免门票，这个五一，跟着电影去旅游！
+公告显示，上海日扬主营真空腔体、真空阀、真空零组件及尾气处理设备等产品，产品主要应用于半导体、光伏、面板等领域。
 
-中国文学何以打动世界读者？
+对于一家以半导体设备精密零部件起家的公司而言，真空阀、真空腔体、真空零组件本身就处在设备核心零部件链条中。
 
-凤何以成为中华民族文化标识？
+富创精密此番出手，更像是在已有版图上补一块关键拼图。
 
-“王的盛宴”：从“No Kings”到“TWO KINGS”“王的演讲”：满堂笑声之后，查尔斯说了大家爱听的，唯独漏了英美必须听的记者手记：亚沙会，让世界从三亚看见开放中国AI末日论：真实风险还是叙事陷阱？
+过去一年，富创精密已经频繁出现在半导体零部件并购新闻里。
 
 ## 相关推荐
 
-- 2026-06-29 21:30 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 21:35 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 21:29 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 21:15 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 21:16 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 21:27 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 21:25 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 21:20 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 21:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 21:23 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 21:22 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 21:19 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 21:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 21:10 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 21:12 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 21:41 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 21:18 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 21:23 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 21:25 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 21:37 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 21:19 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 21:31 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 21:21 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 21:31 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 21:28 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:06 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/518198775.shtml)
-- 2026-06-29 21:13 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/81540358.shtml)
-- 2026-06-29 21:30 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/52543719.shtml)
-- 2026-06-29 21:32 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/266234087529.shtml)
-- 2026-06-29 21:24 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/124660.shtml)
-- 2026-06-29 21:34 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/12804.shtml)
-- 2026-06-29 21:09 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/819857324.shtml)
-- 2026-06-29 21:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/80161.shtml)
-- 2026-06-29 21:33 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/654548.shtml)
-- 2026-06-29 21:20 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/1038740073.shtml)
-- 2026-06-29 21:06 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/17895.shtml)
-- 2026-06-29 21:35 - [急先锋](http://www.share.minike.top/Article/details/2419034.shtml)
-- 2026-06-29 21:09 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/5677700.shtml)
-- 2026-06-29 21:30 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/153000750.shtml)
-- 2026-06-29 21:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/05986.shtml)
+- 2026-06-29 21:18 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/929082.shtml)
+- 2026-06-29 21:40 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/56478.shtml)
+- 2026-06-29 21:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/607970609107.shtml)
+- 2026-06-29 21:28 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/8840853173.shtml)
+- 2026-06-29 21:41 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/4929918.shtml)
+- 2026-06-29 21:18 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/10185.shtml)
+- 2026-06-29 21:39 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/341847536793.shtml)
+- 2026-06-29 21:26 - [2026全国田径冠军赛江苏队4金收官](https://www.share.kurohicncr.top/Article/details/374831548.shtml)
+- 2026-06-29 21:14 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/02044756075.shtml)
+- 2026-06-29 21:41 - [国际清算银行警告AI投资热潮](http://www.share.kurohicncr.top/Article/details/9925185166.shtml)
+- 2026-06-29 21:23 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/19130.shtml)
+- 2026-06-29 21:41 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/7731959031.shtml)
+- 2026-06-29 21:21 - [起风了](https://www.blog.minike.top/Article/details/535134728.shtml)
+- 2026-06-29 21:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/8164584.shtml)
+- 2026-06-29 21:29 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/007943332.shtml)

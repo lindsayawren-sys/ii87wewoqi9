@@ -1,53 +1,61 @@
-# 河南灵宝发生一起火灾事故致6人死亡
+# 美联储理事库克：如果通胀持续朝错误方向发展 将准备加息
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-新华社郑州5月2日电(记者韩朝阳)5月2日，河南省三门峡市灵宝市消防救援局发布火情通报，2日早晨，灵宝市一足疗店发生火灾，6名被困人员送医抢救无效死亡。 5月2日6时30分，灵宝市119指挥中心接到报警称：灵宝市澜风足疗店起火，有人员被困。119指挥中心立即调派力量前往处置，6时36分到达现场，迅速开展救人、救火，6时56分扑灭明火，从现场搜救出6名被困人员送医抢救无效后死亡，
+美联储理事丽莎·库克表示，通胀正朝着错误的方向发展，如果这种情况持续下去，她准备提高利率。 库克表示，她倾向于暂时维持借贷利率不变，并预计未来几个月物价上涨速度将再次放缓。她的言论与多位已暗示当前通胀加速比劳动力市场更值得关注的美联储官员一致。 “我想明确我的风险评估：风险仍然偏向通胀走高，”库克周三在为斯坦福大学一场活动准备的讲稿中说道。 库克表示，通胀连续五年高于美联储2%
 
 ## 正文
 
-新华社郑州5月2日电(记者韩朝阳)5月2日，河南省三门峡市灵宝市消防救援局发布火情通报，2日早晨，灵宝市一足疗店发生火灾，6名被困人员送医抢救无效死亡。
+美联储理事丽莎·库克表示，通胀正朝着错误的方向发展，如果这种情况持续下去，她准备提高利率。
 
-5月2日6时30分，灵宝市119指挥中心接到报警称：灵宝市澜风足疗店起火，有人员被困。
+库克表示，她倾向于暂时维持借贷利率不变，并预计未来几个月物价上涨速度将再次放缓。
 
-119指挥中心立即调派力量前往处置，6时36分到达现场，迅速开展救人、救火，6时56分扑灭明火，从现场搜救出6名被困人员送医抢救无效后死亡，另有5人获救无受伤，现场发现浓烈烟熏痕迹。
+她的言论与多位已暗示当前通胀加速比劳动力市场更值得关注的美联储官员一致。
 
-目前，事故原因正在调查中。
+“我想明确我的风险评估：风险仍然偏向通胀走高，”库克周三在为斯坦福大学一场活动准备的讲稿中说道。
+
+库克表示，通胀连续五年高于美联储2%的目标，这可能造成价格压力深深嵌入定价和工资制定行为。
+
+“因此，如果预期中的通胀下降未能及时出现，我准备提高利率，”她说道。
+
+美国在伊朗的战争持续扰乱能源市场，给通胀带来上行压力。
+
+4月消费者价格指数（CPI）同比升幅为2023年以来最大，原因是汽油、房租和食品价格上涨。
 
 ## 相关推荐
 
-- 2026-06-29 21:21 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 21:26 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 21:29 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 21:17 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 21:28 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 21:07 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 21:33 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 21:07 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 21:18 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 21:23 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 21:30 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 21:20 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 21:20 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 21:28 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 21:13 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 21:15 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 21:34 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 21:37 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 21:16 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 21:31 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 21:20 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 21:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 21:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 21:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 21:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 21:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 21:15 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 21:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 21:15 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 21:37 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:14 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/347979770210.shtml)
-- 2026-06-29 21:12 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/1835862102.shtml)
-- 2026-06-29 21:21 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/858676602.shtml)
-- 2026-06-29 21:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/212335.shtml)
-- 2026-06-29 21:23 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/399284030173.shtml)
-- 2026-06-29 21:22 - [金牌调解](https://www.blog.minike.top/Article/details/127451729700.shtml)
-- 2026-06-29 21:11 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/234055090.shtml)
-- 2026-06-29 21:34 - [恋与深空7天掉粉超50万](http://www.blog.kurohicncr.top/Article/details/4697487.shtml)
-- 2026-06-29 21:07 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/730215138.shtml)
-- 2026-06-29 21:20 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/9743695444.shtml)
-- 2026-06-29 21:18 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/83818.shtml)
-- 2026-06-29 21:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/2689701.shtml)
-- 2026-06-29 21:31 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/85433284839.shtml)
-- 2026-06-29 21:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/4979439.shtml)
-- 2026-06-29 21:22 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/5885643209.shtml)
+- 2026-06-29 21:19 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/12426937192.shtml)
+- 2026-06-29 21:40 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/97197.shtml)
+- 2026-06-29 21:36 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/729607.shtml)
+- 2026-06-29 21:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/52654879.shtml)
+- 2026-06-29 21:21 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/58563.shtml)
+- 2026-06-29 21:30 - [Ella回应SHE何时合体](http://www.share.kurohicncr.top/Article/details/5581436.shtml)
+- 2026-06-29 21:32 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/387221722.shtml)
+- 2026-06-29 21:28 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/8624299.shtml)
+- 2026-06-29 21:12 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/0689342.shtml)
+- 2026-06-29 21:12 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/760691.shtml)
+- 2026-06-29 21:12 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/692202790.shtml)
+- 2026-06-29 21:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/020596809.shtml)
+- 2026-06-29 21:39 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/796527514658.shtml)
+- 2026-06-29 21:28 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/27072.shtml)
+- 2026-06-29 21:15 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/3144129.shtml)

@@ -1,58 +1,55 @@
-# 内蒙古17岁走失女生遗体被找到 善后工作有序推进
+# 海内外高校辩论队齐聚贵阳 以辩明理探心学
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新网乌兰察布5月2日电 (记者 张林虎)5月2日，记者从内蒙古自治区乌兰察布市公安局集宁分局获悉，17岁女生郭某玥的遗体被找到。此前，她于4月26日傍晚离开学校后失联。 郭某玥是集宁师范学院附属实验中学的高二学生，家住化德县，平时在校住宿，每两周回家一次。4月26日傍晚6点多，她从学校离开后再未返回。 父亲郭建云回忆，当天女儿曾发信息说自己头疼。“我安顿她吃点感冒药，还给老师
+发布时间：2026年05月27日 09:04 来源：中国新闻网 5月26日，“中国心学与世界”2026年世界名校儒学辩论(孔学堂)邀请赛正式开赛。新加坡国立大学、贵州大学、清华大学、香港大学、国防科技大学、西安交通大学六支顶尖高校辩论队齐聚一堂，展开思想交锋。活动以儒学辩论为载体，聚焦王阳明心学这一核心议题，各参赛队伍将结合历史底蕴、时代价值、世界影响等多个维度展开精彩论辩。选
 
 ## 正文
 
-中新网乌兰察布5月2日电 (记者 张林虎)5月2日，记者从内蒙古自治区乌兰察布市公安局集宁分局获悉，17岁女生郭某玥的遗体被找到。
+发布时间：2026年05月27日 09:04 来源：中国新闻网 5月26日，“中国心学与世界”2026年世界名校儒学辩论(孔学堂)邀请赛正式开赛。
 
-此前，她于4月26日傍晚离开学校后失联。
+新加坡国立大学、贵州大学、清华大学、香港大学、国防科技大学、西安交通大学六支顶尖高校辩论队齐聚一堂，展开思想交锋。
 
-郭某玥是集宁师范学院附属实验中学的高二学生，家住化德县，平时在校住宿，每两周回家一次。
+活动以儒学辩论为载体，聚焦王阳明心学这一核心议题，各参赛队伍将结合历史底蕴、时代价值、世界影响等多个维度展开精彩论辩。
 
-4月26日傍晚6点多，她从学校离开后再未返回。
+选手们引经据典、各抒己见，在唇枪舌剑中解读心学智慧。
 
-父亲郭建云回忆，当天女儿曾发信息说自己头疼。
-
-“我安顿她吃点感冒药，还给老师发信息请了晚自习的假，让她在宿舍休息。
-
-”他当时并未意识到女儿会离校。
-
-直到27日早上，他接到学校老师的电话，才知道女儿已于前一晚离校。
+(记者 袁超 贵阳报道) 责任编辑：【刘欢】
 
 ## 相关推荐
 
-- 2026-06-29 21:24 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 21:06 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 21:13 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 21:25 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 21:34 - [林逸向方筱然求婚了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 21:33 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 21:15 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 21:21 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 21:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 21:11 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 21:07 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 21:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 21:22 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 21:18 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 21:33 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 21:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 21:16 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 21:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 21:17 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 21:14 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 21:12 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 21:18 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 21:27 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 21:28 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 21:32 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 21:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 21:38 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:24 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/58238890894.shtml)
-- 2026-06-29 21:14 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/380496817.shtml)
-- 2026-06-29 21:31 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/076888914300.shtml)
-- 2026-06-29 21:13 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/813458036659.shtml)
-- 2026-06-29 21:15 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.minike.top/Article/details/5334450763.shtml)
-- 2026-06-29 21:18 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/047996.shtml)
-- 2026-06-29 21:25 - [记者暗访养老机构消防安全](http://www.blog.minike.top/Article/details/098403.shtml)
-- 2026-06-29 21:33 - [乔家的儿女](https://www.share.minike.top/Article/details/58814438821.shtml)
-- 2026-06-29 21:35 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/96241.shtml)
-- 2026-06-29 21:10 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/48478495678.shtml)
-- 2026-06-29 21:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/713119739.shtml)
-- 2026-06-29 21:29 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/716789.shtml)
-- 2026-06-29 21:20 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/978575246604.shtml)
-- 2026-06-29 21:06 - [多人将马路护栏当球网打羽毛球](http://www.share.kurohicncr.top/Article/details/83998.shtml)
-- 2026-06-29 21:12 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/03821.shtml)
+- 2026-06-29 21:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/622976343322.shtml)
+- 2026-06-29 21:26 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/648246.shtml)
+- 2026-06-29 21:40 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/094253963.shtml)
+- 2026-06-29 21:30 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/45090271349.shtml)
+- 2026-06-29 21:16 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/68496.shtml)
+- 2026-06-29 21:32 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/48170809.shtml)
+- 2026-06-29 21:31 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/175683261651.shtml)
+- 2026-06-29 21:18 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/75959203012.shtml)
+- 2026-06-29 21:22 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/0827381.shtml)
+- 2026-06-29 21:20 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/4418761757.shtml)
+- 2026-06-29 21:12 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.minike.top/Article/details/080252.shtml)
+- 2026-06-29 21:17 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/8548600.shtml)
+- 2026-06-29 21:18 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/54352.shtml)
+- 2026-06-29 21:17 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/950350.shtml)
+- 2026-06-29 21:38 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/57658928533.shtml)

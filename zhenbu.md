@@ -1,58 +1,58 @@
-# Roblox下跌21%，安全措施推进拖累用户增长
+# 华创证券：智谱首次覆盖给予“推荐”评级 领跑独立大模型
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-Roblox第一季度财报显示其安全措施的推进正开始给平台带来明显的阻力，公司股价因此再度承压。该公司报告日活跃用户数为1.32亿，同比增长35%，但低于分析师预期的1.438亿。这一差距尤为重要，因为它也标志着日活跃用户数连续第二个季度环比下降。预订量达到17亿美元，略低于华尔街预期的17.3亿美元。财报公布后，该公司股价下跌约21%，投资者正在权衡Roblox的儿童安全改革是
+华创证券发布研报称，智谱（02513）凭借清华技术底座与领先的MaaS生态，在AI通用化及智能体浪潮中卡位核心赛道，有望持续受益于商业化加速与Token消耗爆发。该行预计公司2026-2028年营业收入为30.20亿元、71.08亿元、122.78亿元，对应增速316.9%、135.4%、72.7%。首次覆盖，给予“推荐”评级。 华创证券主要观点如下： 清华技术底座，智谱奠定先
 
 ## 正文
 
-Roblox第一季度财报显示其安全措施的推进正开始给平台带来明显的阻力，公司股价因此再度承压。
+华创证券发布研报称，智谱（02513）凭借清华技术底座与领先的MaaS生态，在AI通用化及智能体浪潮中卡位核心赛道，有望持续受益于商业化加速与Token消耗爆发。
 
-该公司报告日活跃用户数为1.32亿，同比增长35%，但低于分析师预期的1.438亿。
+该行预计公司2026-2028年营业收入为30.20亿元、71.08亿元、122.78亿元，对应增速316.9%、135.4%、72.7%。
 
-这一差距尤为重要，因为它也标志着日活跃用户数连续第二个季度环比下降。
+首次覆盖，给予“推荐”评级。
 
-预订量达到17亿美元，略低于华尔街预期的17.3亿美元。
+华创证券主要观点如下： 清华技术底座，智谱奠定先发优势 智谱源自清华KEG实验室，继承深厚产学研技术积淀，是国内最早布局通用大模型的企业之一。
 
-财报公布后，该公司股价下跌约21%，投资者正在权衡Roblox的儿童安全改革是否会在短期内继续压制增长。
+公司自研GLM预训练架构，兼具鲁棒性、可控性与幻觉率低等优势，并适配40余款国产芯片，实现软硬协同优化。
 
-该公司还下调了全年预订量预测，将其直接归因于“积极推动加强安全措施”。
+智谱提出“智能上界×Token消耗”的核心增长理念，通过模型迭代与工程优化降低单位部署成本50%，并率先完成从Vibe Coding到Agentic Engineering的跨越。
 
-Roblox目前预计今年预订量最高可达76亿美元，低于此前预计的最高85.5亿美元，同时预计用户数量将在下一季度继续下降。
+2025年GLM系列高频迭代，蝉联全球开源榜首，推动高质量Token消耗指数增长，为MaaS平台及开发者生态打下坚实基础。
 
-管理层表示，新用户增长受到了年龄验证功能推出所带来的“大于预期的阻力”的抑制。
+顶尖人才驱动，构筑持续创新能力 公司汇聚院士领衔的高端研发团队，核心成员在知识工程、大模型预训练及数据挖掘等领域具备深厚积累。
 
 ## 相关推荐
 
-- 2026-06-29 21:13 - [高质量发展看新疆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 21:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 21:23 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 21:21 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 21:11 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 21:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 21:06 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 21:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 21:30 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 21:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 21:24 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 21:33 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 21:21 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 21:25 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 21:38 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 21:32 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 21:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 21:38 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 21:18 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 21:20 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 21:41 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 21:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 21:19 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 21:42 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/28993447.shtml)
-- 2026-06-29 21:10 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/7918039.shtml)
-- 2026-06-29 21:15 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/41378.shtml)
-- 2026-06-29 21:34 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/3336530.shtml)
-- 2026-06-29 21:09 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/3958302606.shtml)
-- 2026-06-29 21:32 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/021485404.shtml)
-- 2026-06-29 21:14 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/20990486.shtml)
-- 2026-06-29 21:11 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/00663.shtml)
-- 2026-06-29 21:07 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/682182.shtml)
-- 2026-06-29 21:06 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/3043619.shtml)
-- 2026-06-29 21:33 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/222817198946.shtml)
-- 2026-06-29 21:31 - [小娘惹](http://www.blog.minike.top/Article/details/8677368199.shtml)
-- 2026-06-29 21:13 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/377268320679.shtml)
-- 2026-06-29 21:14 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/4644149778.shtml)
-- 2026-06-29 21:20 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/07717095534.shtml)
+- 2026-06-29 21:24 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/3501649.shtml)
+- 2026-06-29 21:28 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/67135970557.shtml)
+- 2026-06-29 21:25 - [TOP Prada](http://www.share.minike.top/Article/details/3600620.shtml)
+- 2026-06-29 21:12 - [18岁高二体育生训练晕倒后离世](http://www.blog.minike.top/Article/details/88103.shtml)
+- 2026-06-29 21:31 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/03324513095.shtml)
+- 2026-06-29 21:22 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/580651117229.shtml)
+- 2026-06-29 21:36 - [天道](http://www.share.minike.top/Article/details/570782713247.shtml)
+- 2026-06-29 21:34 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/2904669.shtml)
+- 2026-06-29 21:26 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/95941958.shtml)
+- 2026-06-29 21:35 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/9396382560.shtml)
+- 2026-06-29 21:41 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/38835.shtml)
+- 2026-06-29 21:19 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/51163343146.shtml)
+- 2026-06-29 21:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/322396.shtml)
+- 2026-06-29 21:27 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.minike.top/Article/details/25196.shtml)
+- 2026-06-29 21:28 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/402765376.shtml)

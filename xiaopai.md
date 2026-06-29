@@ -1,57 +1,56 @@
-# 欧盟誓言将考虑所有反制选项 以应对特朗普威胁的汽车关税
+# 罗素微盘股指数年度调整：公用事业板块迎Royalty Management Holding
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-欧盟国家财长表示，如果美国总统唐纳德·特朗普落实将对欧盟汽车关税税率提高至25%的威胁，欧洲将考虑所有反制选项。 不过，如果可能，欧盟希望维持现有的美欧贸易协议。 “我们的路径是明确的，我们不希望局势恶化，我们希望与美国找到共同解决方案，”德国副总理兼财政部长Lars Klingbeil表示。但他补充称，“如果局势恶化，我们将做好准备。” 这一争端加剧了围绕一项久拖未决的跨大西
+富时罗素近日公布了罗素微盘股指数的年度成分股初步调整名单，多家公用事业板块公司面临变动。根据公告，Royalty Management Holding将被纳入该指数，而Zeo Energy、AI Financial Corporation和Quest Resource Holding则将遭到剔除。本次调整将于6月26日美国股市收盘后正式生效。 Royalty Managemen
 
 ## 正文
 
-欧盟国家财长表示，如果美国总统唐纳德·特朗普落实将对欧盟汽车关税税率提高至25%的威胁，欧洲将考虑所有反制选项。
+富时罗素近日公布了罗素微盘股指数的年度成分股初步调整名单，多家公用事业板块公司面临变动。
 
-不过，如果可能，欧盟希望维持现有的美欧贸易协议。
+根据公告，Royalty Management Holding将被纳入该指数，而Zeo Energy、AI Financial Corporation和Quest Resource Holding则将遭到剔除。
 
-“我们的路径是明确的，我们不希望局势恶化，我们希望与美国找到共同解决方案，”德国副总理兼财政部长Lars Klingbeil表示。
+本次调整将于6月26日美国股市收盘后正式生效。
 
-但他补充称，“如果局势恶化，我们将做好准备。
+Royalty Management Holding是一家专注于收购和管理各类资产特许权使用权的公司，其业务模式涵盖矿产、知识产权及其他无形资产领域。
 
-” 这一争端加剧了围绕一项久拖未决的跨大西洋贸易协议的紧张局势。
+被纳入罗素微盘股指数有望为该股带来被动资金的配置需求，提升其市场流动性。
 
-双方最初于去年7月达成协议，但欧盟议员仍在寻求进一步修订，尚未批准该协议。
+在剔除名单中，Zeo Energy是一家总部位于佛罗里达州的户用太阳能系统集成商。
 
-特朗普上周五声称欧盟未能完全遵守该贸易协议。
+该公司近年来面临行业竞争加剧和需求放缓的双重压力，财务表现持续承压，最新财报显示公司仍处于亏损状态。
 
-官员周一在布鲁塞尔举行的欧元区财长会议前对此说法予以反驳，称欧盟只是在走立法程序，仍然希望落实这项协议。
+AI Financial Corporation的业务则涉及金融相关服务，具体变动原因尚未详细披露。
 
 ## 相关推荐
 
-- 2026-06-29 21:26 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 21:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 21:27 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 21:25 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 21:32 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 21:29 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 21:35 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 21:28 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 21:12 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 21:18 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 21:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 21:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 21:30 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 21:15 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 21:34 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 21:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 21:22 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 21:23 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 21:15 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 21:28 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 21:17 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:10 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/50216.shtml)
-- 2026-06-29 21:22 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/55504420.shtml)
-- 2026-06-29 21:24 - [2026全国田径冠军赛江苏队4金收官](https://www.share.minike.top/Article/details/17593682420.shtml)
-- 2026-06-29 21:23 - [新官上任三把火](https://www.blog.minike.top/Article/details/9351587310.shtml)
-- 2026-06-29 21:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/5302670631.shtml)
-- 2026-06-29 21:16 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/605500759553.shtml)
-- 2026-06-29 21:08 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/94421148.shtml)
-- 2026-06-29 21:34 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/6009349463.shtml)
-- 2026-06-29 21:26 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.kurohicncr.top/Article/details/4448590245.shtml)
-- 2026-06-29 21:34 - [夫妻生活太无聊，所以我……](https://www.share.kurohicncr.top/Article/details/802813995.shtml)
-- 2026-06-29 21:11 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/509474.shtml)
-- 2026-06-29 21:11 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/87408.shtml)
-- 2026-06-29 21:35 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/5960207.shtml)
-- 2026-06-29 21:23 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/388028.shtml)
-- 2026-06-29 21:30 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/903289.shtml)
+- 2026-06-29 21:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/19308382.shtml)
+- 2026-06-29 21:20 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/0436046.shtml)
+- 2026-06-29 21:16 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/22077.shtml)
+- 2026-06-29 21:20 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/393880415.shtml)
+- 2026-06-29 21:18 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/11575.shtml)
+- 2026-06-29 21:28 - [急先锋](http://www.blog.minike.top/Article/details/70102311.shtml)
+- 2026-06-29 21:26 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/13452.shtml)
+- 2026-06-29 21:25 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/14612.shtml)
+- 2026-06-29 21:31 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/99630192.shtml)
+- 2026-06-29 21:15 - [媒体评恋与深空用“引狼入室”台词](https://www.share.minike.top/Article/details/73870341690.shtml)
+- 2026-06-29 21:35 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/12387.shtml)
+- 2026-06-29 21:29 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/291900153.shtml)
+- 2026-06-29 21:12 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/96891065008.shtml)
+- 2026-06-29 21:26 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/443577518.shtml)
+- 2026-06-29 21:16 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/443781430.shtml)

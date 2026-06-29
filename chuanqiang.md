@@ -1,52 +1,45 @@
-# 斗沙十余年，荒漠披绿毯 巴基斯坦人士：新疆治沙经验值得借鉴丨真相
+# 2026年01月-04月广西出口主要商品量值表（人民币值、美元值）
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月01日 17:45 来源：中国新闻网 近日，“巴基斯坦媒体智库人士中国行”参访活动走进新疆喀什地区麦盖提县。 位于塔克拉玛干沙漠西南边缘的麦盖提县，自2012年启动百万亩防风固沙生态林建设工程以来，持续推进荒漠化治理，十余年来，生态环境显著改善。当地年降雨量由2010年的50多毫米提升至110毫米以上，沙尘天气由150余天减少至50天以下。 昔日荒漠如
+2026年01月-04月广西出口主要商品量值表(人民币值、美元值).xls
 
 ## 正文
 
-发布时间：2026年05月01日 17:45 来源：中国新闻网 近日，“巴基斯坦媒体智库人士中国行”参访活动走进新疆喀什地区麦盖提县。
-
-位于塔克拉玛干沙漠西南边缘的麦盖提县，自2012年启动百万亩防风固沙生态林建设工程以来，持续推进荒漠化治理，十余年来，生态环境显著改善。
-
-当地年降雨量由2010年的50多毫米提升至110毫米以上，沙尘天气由150余天减少至50天以下。
-
-昔日荒漠如今已被连片绿洲所取代，参访团成员表示，当地在政府引导与民众参与下推动生态修复的实践令人印象深刻，不仅有效改善区域生态环境，也为包括巴基斯坦在内的其他国家应对干旱与荒漠化问题提供了有益借鉴。
-
-(记者 许佳雯 实习：许自然) 责任编辑：【孟湘君】
+2026年01月-04月广西出口主要商品量值表(人民币值、美元值).xls
 
 ## 相关推荐
 
-- 2026-06-29 21:17 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 21:19 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 21:11 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 21:12 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 21:14 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 21:31 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 21:11 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 21:17 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 21:28 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 21:16 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 21:23 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 21:10 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 21:18 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 21:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 21:13 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 21:27 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 21:32 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 21:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 21:22 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 21:36 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 21:19 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 21:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 21:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 21:40 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 21:19 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:08 - [千与千寻](https://www.blog.minike.top/Article/details/491222545.shtml)
-- 2026-06-29 21:18 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/758952772304.shtml)
-- 2026-06-29 21:29 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/934537.shtml)
-- 2026-06-29 21:31 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/41604.shtml)
-- 2026-06-29 21:13 - [TOP Prada](http://www.blog.minike.top/Article/details/39986.shtml)
-- 2026-06-29 21:06 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/12617860786.shtml)
-- 2026-06-29 21:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/463967.shtml)
-- 2026-06-29 21:30 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/563251488.shtml)
-- 2026-06-29 21:25 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/87019209803.shtml)
-- 2026-06-29 21:06 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/133505817307.shtml)
-- 2026-06-29 21:22 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/0705419.shtml)
-- 2026-06-29 21:23 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/4052611374.shtml)
-- 2026-06-29 21:20 - [我和我的家乡](https://www.share.minike.top/Article/details/9963202581.shtml)
-- 2026-06-29 21:20 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/96921789332.shtml)
-- 2026-06-29 21:35 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/683599025545.shtml)
+- 2026-06-29 21:24 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/0785421832.shtml)
+- 2026-06-29 21:32 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/85242.shtml)
+- 2026-06-29 21:14 - [这一刀 会很帅](http://www.share.minike.top/Article/details/8318103.shtml)
+- 2026-06-29 21:13 - [明星大侦探第四季](http://www.share.minike.top/Article/details/54436140162.shtml)
+- 2026-06-29 21:24 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/730632451.shtml)
+- 2026-06-29 21:24 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/788431995.shtml)
+- 2026-06-29 21:40 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/36135604.shtml)
+- 2026-06-29 21:22 - [逃狱兄弟](http://www.share.minike.top/Article/details/16916428.shtml)
+- 2026-06-29 21:22 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.minike.top/Article/details/56245929338.shtml)
+- 2026-06-29 21:29 - [网红小徐直播时突遇地震](https://www.share.minike.top/Article/details/1148195.shtml)
+- 2026-06-29 21:17 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/9748623.shtml)
+- 2026-06-29 21:29 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/858593.shtml)
+- 2026-06-29 21:23 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/99439.shtml)
+- 2026-06-29 21:37 - [网红小徐直播时突遇地震](http://www.blog.kurohicncr.top/Article/details/8051389330.shtml)
+- 2026-06-29 21:34 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/930810170912.shtml)

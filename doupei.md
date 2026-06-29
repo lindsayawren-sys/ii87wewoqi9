@@ -1,58 +1,59 @@
-# 山海协作三十载 上海长宁与云南红河书写乡村振兴答卷
+# 戴蒙预计摩根大通二季度市场业务收入增长11%或更高
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新网上海5月2日电(范宇斌 赵龙云)浦江潮涌三十载，哀牢叠翠情更长。30年来，上海长宁对口帮扶云南红河，从产业提质到民生改善，从爱心筑梦到招商兴县，以全方位、深层次的帮扶力度，扎实推进各项协作工作，筑牢乡村振兴根基。 产业帮扶是乡村振兴的核心引擎。在红河县三村乡，茶叶产业的蝶变是沪滇协作精准发力的见证。 在春季茶事繁忙时节，满山茶树吐露新芽，茶农穿梭其间采摘鲜叶。“以前，我们
+摩根大通首席执行官杰米·戴蒙表示，该行今年支出可能比高管们上个月预期的水平高出约10亿美元。 戴蒙周三在伯恩斯坦战略决策大会表示，摩根大通全年支出将“更接近”1060亿美元，而不是管理层在4月财报演示中重申的1050亿美元预期。 支出增加“主要由更好的业绩表现推动，因此这是不错的额外10亿美元”，戴蒙表示，并提到中间费收入和交易收入高于预期。 纽约时间上午10点03分，摩根大通
 
 ## 正文
 
-中新网上海5月2日电(范宇斌 赵龙云)浦江潮涌三十载，哀牢叠翠情更长。
+摩根大通首席执行官杰米·戴蒙表示，该行今年支出可能比高管们上个月预期的水平高出约10亿美元。
 
-30年来，上海长宁对口帮扶云南红河，从产业提质到民生改善，从爱心筑梦到招商兴县，以全方位、深层次的帮扶力度，扎实推进各项协作工作，筑牢乡村振兴根基。
+戴蒙周三在伯恩斯坦战略决策大会表示，摩根大通全年支出将“更接近”1060亿美元，而不是管理层在4月财报演示中重申的1050亿美元预期。
 
-产业帮扶是乡村振兴的核心引擎。
+支出增加“主要由更好的业绩表现推动，因此这是不错的额外10亿美元”，戴蒙表示，并提到中间费收入和交易收入高于预期。
 
-在红河县三村乡，茶叶产业的蝶变是沪滇协作精准发力的见证。
+纽约时间上午10点03分，摩根大通股价下跌近3%，至297.56美元，成为24只成份股组成的KBW银行指数中表现最差的股票。
 
-在春季茶事繁忙时节，满山茶树吐露新芽，茶农穿梭其间采摘鲜叶。
+戴蒙表示，截至6月30日的三个月市场业务收入可能同比增长11%，甚至更高。
 
-“以前，我们守着茶园赚不到钱，鲜叶低价都难卖，如今茶厂就在家门口，鲜叶随采随卖，我们还能进厂务工，收入比以前翻了几倍。
+他表示，投行部门中间费收入预计将增长10%，并且“可能会更好一些，取决于本季度剩余时间的表现”。
 
-”当地茶农李扎莫说。
-
-据了解，长宁区2025年累计投入对口帮扶财政性项目资金达6213万元；其中，4313万元专项资金投向产业领域，820万元资金在当地建成标准化茶叶厂房，配套搭建茶叶加工帮扶车间，破解当地茶叶加工落后、销路狭窄的发展困境。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 21:35 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 21:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 21:17 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 21:30 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 21:19 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 21:08 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 21:32 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 21:27 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 21:32 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 21:10 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 21:10 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 21:17 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 21:34 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 21:22 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 21:20 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 21:19 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 21:26 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 21:37 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 21:37 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 21:18 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 21:34 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 21:39 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 21:24 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 21:26 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 21:30 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 21:37 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:07 - [乌是否掌握了扭转战局的钥匙](http://www.share.kurohicncr.top/Article/details/94247.shtml)
-- 2026-06-29 21:06 - [锐评白玉兰提名片段](https://www.blog.minike.top/Article/details/20234723387.shtml)
-- 2026-06-29 21:13 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/8777477343.shtml)
-- 2026-06-29 21:26 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/15536052128.shtml)
-- 2026-06-29 21:14 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/7855430.shtml)
-- 2026-06-29 21:28 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.minike.top/Article/details/3186081.shtml)
-- 2026-06-29 21:13 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/8175099194.shtml)
-- 2026-06-29 21:28 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/1328033.shtml)
-- 2026-06-29 21:33 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/186449257.shtml)
-- 2026-06-29 21:21 - [回顾世界杯争议事件](https://www.blog.minike.top/Article/details/5249568170.shtml)
-- 2026-06-29 21:15 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/7561284073.shtml)
-- 2026-06-29 21:07 - [王安宇聪明到导演组炸了](https://www.blog.kurohicncr.top/Article/details/391006338.shtml)
-- 2026-06-29 21:33 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/74679.shtml)
-- 2026-06-29 21:30 - [恋与深空回应争议](http://www.share.minike.top/Article/details/22641.shtml)
-- 2026-06-29 21:08 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/4824911999.shtml)
+- 2026-06-29 21:21 - [极限挑战第一季](http://www.blog.minike.top/Article/details/12508685.shtml)
+- 2026-06-29 21:35 - [返利科技盘中上演“天地板”](https://www.blog.kurohicncr.top/Article/details/16635.shtml)
+- 2026-06-29 21:15 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/562658421.shtml)
+- 2026-06-29 21:36 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/69423.shtml)
+- 2026-06-29 21:31 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/671068.shtml)
+- 2026-06-29 21:38 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/1886414628.shtml)
+- 2026-06-29 21:30 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/44594775.shtml)
+- 2026-06-29 21:20 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/114091.shtml)
+- 2026-06-29 21:24 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/16748329986.shtml)
+- 2026-06-29 21:40 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/5917263.shtml)
+- 2026-06-29 21:24 - [乔家的儿女](http://www.share.minike.top/Article/details/65242365.shtml)
+- 2026-06-29 21:27 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/952772601169.shtml)
+- 2026-06-29 21:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/0974630.shtml)
+- 2026-06-29 21:33 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/85943951079.shtml)
+- 2026-06-29 21:14 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/314963783.shtml)

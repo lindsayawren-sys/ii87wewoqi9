@@ -1,56 +1,51 @@
-# 股票回购及股票投资组合或将成为热议焦点
+# 大美边疆看我家丨用《小螺号》打开海警视角下的蓝色海洋
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-专题：巴菲特2026年股东大会重磅来袭 众多长期观察人士预计，往年在 95 岁的巴菲特主持环节中占据主导的哲理理念类提问将会减少。取而代之的，大概率是针对实体业务与公司战略的更细化问询。 伯克希尔自 2024 年后于今年 3 月重启股票回购，投资者也将重点关注相关动向。不过自回购重启以来，股价并未获得明显提振。投资者或向阿贝尔追问，未来数月股票回购节奏是否会进一步加快。 另一大
+发布时间：2026年05月27日 10:54 来源：中国新闻网 熟悉的《小螺号》响起，藏着最硬核的守护！每一处风光里，都藏着海疆的安宁与壮阔，每一次航行都伴着对这片蓝色国土的热爱。(作者：任治澔 吴治邦） 责任编辑：【魏聪聪】
 
 ## 正文
 
-专题：巴菲特2026年股东大会重磅来袭 众多长期观察人士预计，往年在 95 岁的巴菲特主持环节中占据主导的哲理理念类提问将会减少。
+发布时间：2026年05月27日 10:54 来源：中国新闻网 熟悉的《小螺号》响起，藏着最硬核的守护！
 
-取而代之的，大概率是针对实体业务与公司战略的更细化问询。
+每一处风光里，都藏着海疆的安宁与壮阔，每一次航行都伴着对这片蓝色国土的热爱。
 
-伯克希尔自 2024 年后于今年 3 月重启股票回购，投资者也将重点关注相关动向。
-
-不过自回购重启以来，股价并未获得明显提振。
-
-投资者或向阿贝尔追问，未来数月股票回购节奏是否会进一步加快。
-
-另一大备受关注的焦点是伯克希尔庞大的股票投资组合，以及后巴菲特时代的管理思路。
-
-该投资组合规模约 3000 亿美元，据悉，阿贝尔已开始重塑持仓布局，在前投资经理托德・库姆斯 2025 年底跳槽至摩根大通后，逐步清退其此前配置的相关持仓。
-
-责任编辑：郭明煜
+(作者：任治澔 吴治邦） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 21:34 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 21:25 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 21:13 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 21:29 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 21:17 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 21:13 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 21:06 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 21:33 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 21:09 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 21:11 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 21:21 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 21:19 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 21:38 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 21:20 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 21:23 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 21:38 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 21:20 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 21:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 21:35 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 21:28 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 21:22 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 21:24 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 21:27 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 21:21 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 21:35 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/71559.shtml)
-- 2026-06-29 21:27 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/077939370.shtml)
-- 2026-06-29 21:16 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/1460434.shtml)
-- 2026-06-29 21:15 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/36055453470.shtml)
-- 2026-06-29 21:17 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/48432.shtml)
-- 2026-06-29 21:24 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/948666498.shtml)
-- 2026-06-29 21:22 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/0576523672.shtml)
-- 2026-06-29 21:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/74850966324.shtml)
-- 2026-06-29 21:06 - [沉睡花园](https://www.blog.minike.top/Article/details/10227902168.shtml)
-- 2026-06-29 21:06 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/042085649866.shtml)
-- 2026-06-29 21:17 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/048048757276.shtml)
-- 2026-06-29 21:20 - [恋与深空各大应用商店评分](http://www.share.kurohicncr.top/Article/details/097656120.shtml)
-- 2026-06-29 21:30 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/74614390424.shtml)
-- 2026-06-29 21:17 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/916331260170.shtml)
-- 2026-06-29 21:08 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/15625850.shtml)
+- 2026-06-29 21:41 - [如何看待乌空军3架米格-29被摧毁](https://www.share.minike.top/Article/details/13045037.shtml)
+- 2026-06-29 21:20 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/5036704511.shtml)
+- 2026-06-29 21:37 - [店员光脚踩入盆中清洗土豆](http://www.blog.kurohicncr.top/Article/details/98894576.shtml)
+- 2026-06-29 21:38 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/79830.shtml)
+- 2026-06-29 21:20 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/01114.shtml)
+- 2026-06-29 21:20 - [锐评白玉兰提名片段](https://www.share.minike.top/Article/details/448534833.shtml)
+- 2026-06-29 21:34 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/019114752766.shtml)
+- 2026-06-29 21:34 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/5003151.shtml)
+- 2026-06-29 21:36 - [请回答王牌2019](http://www.share.minike.top/Article/details/150921483.shtml)
+- 2026-06-29 21:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/71290669247.shtml)
+- 2026-06-29 21:35 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/19177077.shtml)
+- 2026-06-29 21:18 - [恋与深空回应争议](http://www.share.minike.top/Article/details/58424603374.shtml)
+- 2026-06-29 21:36 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/195329059.shtml)
+- 2026-06-29 21:39 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/17138.shtml)
+- 2026-06-29 21:25 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/30069864896.shtml)

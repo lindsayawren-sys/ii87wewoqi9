@@ -1,47 +1,56 @@
-# 今日全国铁路预计发送旅客1855万人次
+# 白宫草坪临时搭建UFC格斗场 庆独立250周年暨特朗普80大寿
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-记者从国铁集团了解到，今日(3日)全国铁路预计发送旅客1855万人次，计划加开旅客列车923列。昨日(2日)，全国铁路发送旅客1978.1万人次，运输安全平稳有序。 (央视新闻客户端 总台央视记者 王善涛)
+白宫又一项施工项目正在推进，不过这一回只是临时搭建。 工人们正在白宫南草坪搭建一座八角形格斗笼，用于举办下月的终极格斗冠军赛（UFC），以此纪念美国独立250周年——同时也是唐纳德・特朗普总统的80岁生日。 网上效果图展示了6月14日赛事前，这座完工后由铁丝网围起的格斗场地的样貌。场地四周将环绕红白蓝三色舞台，上方矗立着带有星条图案的巨型拱门，还设有两块大屏幕，实时直播赛事画面
 
 ## 正文
 
-记者从国铁集团了解到，今日(3日)全国铁路预计发送旅客1855万人次，计划加开旅客列车923列。
+白宫又一项施工项目正在推进，不过这一回只是临时搭建。
 
-昨日(2日)，全国铁路发送旅客1978.1万人次，运输安全平稳有序。
+工人们正在白宫南草坪搭建一座八角形格斗笼，用于举办下月的终极格斗冠军赛（UFC），以此纪念美国独立250周年——同时也是唐纳德・特朗普总统的80岁生日。
 
-(央视新闻客户端 总台央视记者 王善涛)
+网上效果图展示了6月14日赛事前，这座完工后由铁丝网围起的格斗场地的样貌。
+
+场地四周将环绕红白蓝三色舞台，上方矗立着带有星条图案的巨型拱门，还设有两块大屏幕，实时直播赛事画面。
+
+格斗笼与舞台周围将设置数千个临时座位，场边区域还可容纳一支完整的军乐队，全程奏响激昂乐曲。
+
+该项目是纪念1776年7月4日《独立宣言》签署250周年（半五百周年庆典）系列活动的一部分。
+
+其他筹备活动还包括一场途经白宫的印地车赛，以及在国家广场举办的“美国盛大博览会”。
+
+特朗普表示，这座UFC赛事场地将打造为“白宫正门外一座拥有5000个座位的竞技场”。
 
 ## 相关推荐
 
-- 2026-06-29 21:09 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 21:14 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 21:29 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 21:15 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 21:10 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 21:26 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 21:06 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 21:06 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 21:20 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 21:35 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 21:31 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 21:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 21:23 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 21:17 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 21:24 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 21:40 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 21:25 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 21:12 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 21:20 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 21:14 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 21:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/56585487002.shtml)
-- 2026-06-29 21:07 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/3961313738.shtml)
-- 2026-06-29 21:18 - [委内瑞拉发生余震](http://www.share.minike.top/Article/details/07942.shtml)
-- 2026-06-29 21:08 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/147546.shtml)
-- 2026-06-29 21:08 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/986287.shtml)
-- 2026-06-29 21:16 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/0175493605.shtml)
-- 2026-06-29 21:16 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/876879736930.shtml)
-- 2026-06-29 21:28 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/56284715651.shtml)
-- 2026-06-29 21:08 - [返利科技盘中上演“天地板”](https://www.blog.minike.top/Article/details/988730827.shtml)
-- 2026-06-29 21:24 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/31183343802.shtml)
-- 2026-06-29 21:16 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/9739635.shtml)
-- 2026-06-29 21:11 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/511070227610.shtml)
-- 2026-06-29 21:16 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/619700.shtml)
-- 2026-06-29 21:24 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/738456281368.shtml)
-- 2026-06-29 21:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/721505264.shtml)
+- 2026-06-29 21:23 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/02259.shtml)
+- 2026-06-29 21:30 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/46679750.shtml)
+- 2026-06-29 21:25 - [RAY评乘风2026总决赛](https://www.share.kurohicncr.top/Article/details/6014750973.shtml)
+- 2026-06-29 21:18 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/04745.shtml)
+- 2026-06-29 21:23 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/198226.shtml)
+- 2026-06-29 21:39 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/94028.shtml)
+- 2026-06-29 21:13 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/5962676195.shtml)
+- 2026-06-29 21:13 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/3608251.shtml)
+- 2026-06-29 21:34 - [锐评白玉兰提名片段](https://www.blog.kurohicncr.top/Article/details/0615960.shtml)
+- 2026-06-29 21:25 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/3934014.shtml)
+- 2026-06-29 21:35 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/737443301593.shtml)
+- 2026-06-29 21:31 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/177228.shtml)
+- 2026-06-29 21:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/519605861186.shtml)
+- 2026-06-29 21:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/618611903.shtml)
+- 2026-06-29 21:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/18824213.shtml)

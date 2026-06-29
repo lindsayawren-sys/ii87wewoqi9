@@ -1,57 +1,55 @@
-# 小鹏集团-W4月交付新车31011辆 环比增长13%
+# 法拉利电动超跑惊艳但股价下挫
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-小鹏集团-W（09868）发布公告，2026年4月，小鹏集团共交付新车31011辆，较上月增长13%。 此外，继第二代视觉语言动作模型（VLA 2.0）于2026年3月正式发布后，截至2026年4月底，小鹏集团门店的试驾满意度取得显著提升。消费者试驾后作出订购决定的平均用时亦按月缩短44.7%，进一步印证智能驾驶成为带动销售增长的核心动力。 2026年4月15日，本公司发布小鹏
+法拉利正式发布首款纯电动车型Luce，起售价高达55万欧元，将限量生产并于2026年底开始交付。尽管新车融合了标志性设计语言与三电机全驱技术，但资本市场反应冷淡，股价当日重挫约6%。投资者担忧，高昂定价与电动化转型可能稀释法拉利稀缺品牌的利润率，同时充电基础设施和用户驾驶习惯的差异或影响需求。不过，管理层对超高端电动市场的定位保持乐观。责任编辑：张俊 SF065
 
 ## 正文
 
-小鹏集团-W（09868）发布公告，2026年4月，小鹏集团共交付新车31011辆，较上月增长13%。
+法拉利正式发布首款纯电动车型Luce，起售价高达55万欧元，将限量生产并于2026年底开始交付。
 
-此外，继第二代视觉语言动作模型（VLA 2.0）于2026年3月正式发布后，截至2026年4月底，小鹏集团门店的试驾满意度取得显著提升。
+尽管新车融合了标志性设计语言与三电机全驱技术，但资本市场反应冷淡，股价当日重挫约6%。
 
-消费者试驾后作出订购决定的平均用时亦按月缩短44.7%，进一步印证智能驾驶成为带动销售增长的核心动力。
+投资者担忧，高昂定价与电动化转型可能稀释法拉利稀缺品牌的利润率，同时充电基础设施和用户驾驶习惯的差异或影响需求。
 
-2026年4月15日，本公司发布小鹏GX，标志着搭载其最先进的跨域技术的首款全尺寸旗舰SUV正式登场。
+不过，管理层对超高端电动市场的定位保持乐观。
 
-2026年4月7日，小鹏集团与欧洲生产合作伙伴麦格纳，在位于奥地利格拉茨的麦格纳工厂见证首批本地生产P7+下线。
-
-P7+是继G6与G9之后第三款在奥地利实现本地化生产的车型，标志着小鹏集团通过合作关系进一步夯实欧洲生产布局。
-
-责任编辑：卢昱君
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 21:22 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 21:25 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 21:26 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 21:24 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 21:27 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 21:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 21:22 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 21:14 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 21:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 21:24 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-29 21:12 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 21:22 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 21:28 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 21:23 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 21:40 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 21:16 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 21:40 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 21:15 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 21:19 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 21:26 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 21:26 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 21:12 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 21:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 21:36 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 21:28 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 21:37 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 21:14 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 21:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:08 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.kurohicncr.top/Article/details/814758129228.shtml)
-- 2026-06-29 21:32 - [一诺变着花样秀新驾照](https://www.share.minike.top/Article/details/231711473.shtml)
-- 2026-06-29 21:07 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/5358937.shtml)
-- 2026-06-29 21:17 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/421802.shtml)
-- 2026-06-29 21:15 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/81843.shtml)
-- 2026-06-29 21:34 - [千与千寻](http://www.share.minike.top/Article/details/042936451681.shtml)
-- 2026-06-29 21:36 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/250561694.shtml)
-- 2026-06-29 21:12 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/6099906.shtml)
-- 2026-06-29 21:12 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/258973.shtml)
-- 2026-06-29 21:24 - [日防卫省正考虑引进美企人工智能系统](https://www.share.kurohicncr.top/Article/details/271454604.shtml)
-- 2026-06-29 21:28 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/8374243930.shtml)
-- 2026-06-29 21:34 - [网约车出事故平台拒赔称只是中介](https://www.blog.kurohicncr.top/Article/details/769763887.shtml)
-- 2026-06-29 21:17 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/60133168601.shtml)
-- 2026-06-29 21:30 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/131219.shtml)
-- 2026-06-29 21:09 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/8694806149.shtml)
+- 2026-06-29 21:26 - [《贺子珍》](http://www.blog.minike.top/Article/details/586353.shtml)
+- 2026-06-29 21:21 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/10059801.shtml)
+- 2026-06-29 21:28 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/15448803453.shtml)
+- 2026-06-29 21:12 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/48212218.shtml)
+- 2026-06-29 21:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/796090840.shtml)
+- 2026-06-29 21:36 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/4572477.shtml)
+- 2026-06-29 21:32 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/3658766.shtml)
+- 2026-06-29 21:17 - [女生学医适合选什么专业](http://www.share.kurohicncr.top/Article/details/44017031.shtml)
+- 2026-06-29 21:24 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/36142812.shtml)
+- 2026-06-29 21:33 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/349343089.shtml)
+- 2026-06-29 21:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/996583438406.shtml)
+- 2026-06-29 21:37 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/35868.shtml)
+- 2026-06-29 21:25 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/920834.shtml)
+- 2026-06-29 21:31 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/173287297728.shtml)
+- 2026-06-29 21:25 - [起风了](http://www.blog.kurohicncr.top/Article/details/05907743959.shtml)

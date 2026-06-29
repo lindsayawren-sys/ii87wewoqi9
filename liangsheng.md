@@ -1,59 +1,50 @@
-# “见行见效 津彩绽放”网络正能量创作分享会在津举行，中外共叙“津彩故事”
+# 最高检挂牌督办山西沁源煤矿爆炸重大责任事故案
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新网5月1日电(黄方)奋楫“十五五”，津彩正当时。4月30日，“见行见效 津彩绽放”网络正能量创作分享会在天津举行。由天津市委网信办、中新网联合出品的《“遇见上合 共享津彩”网络国际传播活动》入选2025中国正能量网络精品网络正能量主题活动，并在活动现场接受颁奖。 本次分享会由天津市委宣传部指导，天津市委网信办、海河传媒中心主办，津云新媒体集团承办，国网天津市电力公司、中国移
+为依法严厉打击危害生产安全刑事犯罪，保护人民群众生命财产安全，最高人民检察院5月25日决定对山西沁源煤矿爆炸重大责任事故案挂牌督办。 5月22日，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸，造成特别重大人员伤亡。最高检要求山西省检察机关充分履行检察职能，协同公安机关及有关部门，依法查明事故原因、案件事实，对于事故主要责任人员，依法从严惩处。 检察机关将保持对
 
 ## 正文
 
-中新网5月1日电(黄方)奋楫“十五五”，津彩正当时。
+为依法严厉打击危害生产安全刑事犯罪，保护人民群众生命财产安全，最高人民检察院5月25日决定对山西沁源煤矿爆炸重大责任事故案挂牌督办。
 
-4月30日，“见行见效 津彩绽放”网络正能量创作分享会在天津举行。
+5月22日，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸，造成特别重大人员伤亡。
 
-由天津市委网信办、中新网联合出品的《“遇见上合 共享津彩”网络国际传播活动》入选2025中国正能量网络精品网络正能量主题活动，并在活动现场接受颁奖。
+最高检要求山西省检察机关充分履行检察职能，协同公安机关及有关部门，依法查明事故原因、案件事实，对于事故主要责任人员，依法从严惩处。
 
-本次分享会由天津市委宣传部指导，天津市委网信办、海河传媒中心主办，津云新媒体集团承办，国网天津市电力公司、中国移动天津公司特别支持。
-
-活动既是对第二届活动的总结，也是对第三届活动的展望，共设置三大篇章，主题覆盖维度丰富，包括：“思想引领·彰显伟力”“融合共生·启迪实践”“多元共创·汇聚合力”。
-
-谈及中国传统文化的传承与发展，非物质文化遗产代表性项目音乐大三弦演奏技艺传承人褚琪桂梓表示：“在我看来，中国文化最动人的底色，正是传统与现代的和鸣、本土与世界的交融、古老与现代的共生。
-
-而我手中这把流传千年的三弦，正是这种和合精神的重要载体。
-
-” “天津是一个让人愿意留下来、愿意成为桥、把故事讲给世界听的地方。
+检察机关将保持对危害生产安全犯罪高压态势，依法从严惩处造成群死群伤、人民群众反映强烈的重特大危害生产安全犯罪，切实维护人民群众生命财产安全和社会大局稳定。
 
 ## 相关推荐
 
-- 2026-06-29 21:25 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 21:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 21:14 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 21:22 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 21:24 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 21:09 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 21:20 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 21:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 21:10 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 21:28 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 21:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 21:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 21:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 21:35 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 21:26 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 21:37 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 21:28 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 21:32 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 21:23 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 21:22 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 21:37 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 21:25 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 21:22 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 21:36 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 21:24 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:12 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/322080.shtml)
-- 2026-06-29 21:26 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/9636329476.shtml)
-- 2026-06-29 21:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/443116029024.shtml)
-- 2026-06-29 21:21 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/8610001995.shtml)
-- 2026-06-29 21:23 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/7213139266.shtml)
-- 2026-06-29 21:25 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/82524.shtml)
-- 2026-06-29 21:25 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/70470676.shtml)
-- 2026-06-29 21:07 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/186002.shtml)
-- 2026-06-29 21:21 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/3292908.shtml)
-- 2026-06-29 21:19 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/521029.shtml)
-- 2026-06-29 21:33 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/7271378.shtml)
-- 2026-06-29 21:32 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/59070712.shtml)
-- 2026-06-29 21:07 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/083492512.shtml)
-- 2026-06-29 21:07 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/529871318.shtml)
-- 2026-06-29 21:35 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/65769.shtml)
+- 2026-06-29 21:16 - [周生如故](http://www.share.minike.top/Article/details/2788195.shtml)
+- 2026-06-29 21:39 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/56053.shtml)
+- 2026-06-29 21:18 - [85花告别古偶](http://www.blog.minike.top/Article/details/0750901538.shtml)
+- 2026-06-29 21:27 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/84837.shtml)
+- 2026-06-29 21:25 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/748999.shtml)
+- 2026-06-29 21:30 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/4553231.shtml)
+- 2026-06-29 21:21 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/6109642532.shtml)
+- 2026-06-29 21:16 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/80162.shtml)
+- 2026-06-29 21:23 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/10140113.shtml)
+- 2026-06-29 21:20 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/26369.shtml)
+- 2026-06-29 21:35 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/89538301.shtml)
+- 2026-06-29 21:35 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/373382574550.shtml)
+- 2026-06-29 21:31 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/852267.shtml)
+- 2026-06-29 21:23 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/62317121304.shtml)
+- 2026-06-29 21:12 - [爱很美味](http://www.share.kurohicncr.top/Article/details/9497097289.shtml)

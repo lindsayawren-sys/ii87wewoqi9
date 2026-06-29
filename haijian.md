@@ -1,60 +1,56 @@
-# 带着宠物去旅行！“五一”假期全国铁路宠物托运订单大幅增加
+# 甘肃榆中：“花样经济”让昔日荒山变身兰州“后花园”
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-“五一”假期，“带着宠物去旅行”成为不少爱宠人士的新选择，铁路部门全新升级了宠物托运服务，宠物不仅能和主人同车出发、同时到达，还能自己单独“坐”高铁。 上午10点，在杭州东站，焦先生带着自己的宠物猫来办理宠物托运手续，这是他首次尝试带着宠物去旅行。 记者了解到，目前，全国共有121座高铁车站、228趟动车组列车实行“爱宠行”服务。数据显示，“五一”假期，全国铁路办理宠物托运的订
+中新网兰州5月27日电 (戴文昌)从无人问津的贫瘠荒山，到风光宜人的生态绿地；从闲置荒废的山地资源，到增收致富的特色产业……近年来，甘肃兰州市榆中县和平镇范家营村立足山地禀赋，深耕特色发展“花样经济”，探索一花多产发展路径，让昔日荒山逐步变身为景致秀美的兰州“后花园”。 范家营村地处和平镇南部山区，距兰州市区约20公里，属典型黄土高原地貌，干旱少雨、山地居多。村内耕地多为零散山
 
 ## 正文
 
-“五一”假期，“带着宠物去旅行”成为不少爱宠人士的新选择，铁路部门全新升级了宠物托运服务，宠物不仅能和主人同车出发、同时到达，还能自己单独“坐”高铁。
+中新网兰州5月27日电 (戴文昌)从无人问津的贫瘠荒山，到风光宜人的生态绿地；从闲置荒废的山地资源，到增收致富的特色产业……近年来，甘肃兰州市榆中县和平镇范家营村立足山地禀赋，深耕特色发展“花样经济”，探索一花多产发展路径，让昔日荒山逐步变身为景致秀美的兰州“后花园”。
 
-上午10点，在杭州东站，焦先生带着自己的宠物猫来办理宠物托运手续，这是他首次尝试带着宠物去旅行。
+范家营村地处和平镇南部山区，距兰州市区约20公里，属典型黄土高原地貌，干旱少雨、山地居多。
 
-记者了解到，目前，全国共有121座高铁车站、228趟动车组列车实行“爱宠行”服务。
+村内耕地多为零散山地梯田，不适宜大型农机作业，传统种植效益偏低。
 
-数据显示，“五一”假期，全国铁路办理宠物托运的订单量同比增长了九倍以上。
+加之青壮年劳动力外流，部分耕地长期撂荒，土地资源未能得到有效利用。
 
-铁路部门提醒，“五一”假期期间车站客流量较大，在乘车当日至少提前两个小时前往高铁站办理托运手续，并且出具与乘车区间一致且在托运日期内有效的《动物检疫合格证明》。
+为破解山地发展短板、盘活闲置土地资源，范家营村依托本地光照、土壤自然优势，因地制宜发展牡丹特色产业。
 
-价格方面，宠物托运服务按运输里程梯次计价。
+该村党支部书记范多俊说，自2008年起，村里整合梯田、院落闲置土地，规模化种植紫斑牡丹、丹凤牡丹，让荒芜已久的山地重焕生机。
 
-旅客如果选择让宠物单独“坐”高铁，每只宠物价格在558元至1258元不等； 选择“携宠同行”的话，每只宠物价格则在360元至860元不等。
+经过多年深耕培育，范家营村牡丹产业初具规模。
 
-两种服务均可获赠2000元基础保险。
+目前，村内牡丹种植面积达1200亩，保有各类牡丹20余万株，是兰州近郊颇具规模的紫斑牡丹种植基地。
 
 ## 相关推荐
 
-- 2026-06-29 21:28 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 21:29 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 21:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 21:34 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 21:18 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 21:27 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 21:22 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 21:21 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 21:16 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 21:33 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 21:12 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 21:27 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 21:18 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 21:33 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 21:31 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 21:16 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 21:17 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 21:32 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 21:22 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 21:35 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 21:30 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 21:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 21:16 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 21:13 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [沙丘](http://www.share.kurohicncr.top/Article/details/480706924.shtml)
-- 2026-06-29 21:12 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/9945882.shtml)
-- 2026-06-29 21:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/619853.shtml)
-- 2026-06-29 21:19 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/8528527.shtml)
-- 2026-06-29 21:23 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/32732.shtml)
-- 2026-06-29 21:07 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/676942.shtml)
-- 2026-06-29 21:33 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/950496838.shtml)
-- 2026-06-29 21:12 - [美人鱼](https://www.share.minike.top/Article/details/693846.shtml)
-- 2026-06-29 21:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/47527306.shtml)
-- 2026-06-29 21:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/329955627.shtml)
-- 2026-06-29 21:15 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/59334832.shtml)
-- 2026-06-29 21:08 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/67592941.shtml)
-- 2026-06-29 21:08 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/291245.shtml)
-- 2026-06-29 21:14 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/279424132.shtml)
-- 2026-06-29 21:21 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/1714174.shtml)
+- 2026-06-29 21:22 - [流金岁月](https://www.share.kurohicncr.top/Article/details/21005.shtml)
+- 2026-06-29 21:41 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/5244419.shtml)
+- 2026-06-29 21:25 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/2148795.shtml)
+- 2026-06-29 21:36 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/83554246543.shtml)
+- 2026-06-29 21:31 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/406768.shtml)
+- 2026-06-29 21:41 - [18岁高二体育生训练晕倒后离世](http://www.blog.minike.top/Article/details/55427655027.shtml)
+- 2026-06-29 21:34 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/58739820527.shtml)
+- 2026-06-29 21:13 - [高质量发展看新疆](http://www.share.minike.top/Article/details/57576360476.shtml)
+- 2026-06-29 21:26 - [啊啊啊](https://www.blog.minike.top/Article/details/48292406.shtml)
+- 2026-06-29 21:18 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/206991910.shtml)
+- 2026-06-29 21:20 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/805485232221.shtml)
+- 2026-06-29 21:26 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/250599.shtml)
+- 2026-06-29 21:15 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/848410615165.shtml)
+- 2026-06-29 21:16 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/8952753.shtml)
+- 2026-06-29 21:28 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/48760655892.shtml)

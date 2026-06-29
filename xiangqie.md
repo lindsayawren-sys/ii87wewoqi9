@@ -1,61 +1,57 @@
-# 为日本军国主义翻案 必将被再次押上历史审判台
+# 惠普六连涨后迎考：AI、PC叙事能否接力
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-国际锐评丨为日本军国主义翻案 必将被再次押上历史审判台 “忘记过去的苦难可能招致未来的灾祸。”80年前，参与东京审判的中国法官梅汝璈发出这样的警示。80年后的今天，日本“新型军国主义”再次露出獠牙，东京审判的历史价值与现实意义更加凸显。 1946年5月3日，东京日本陆军士官学校礼堂内，一场对二战中日本甲级战犯进行的集体审判开庭。这是继纽伦堡审判之后，人类历史上又一次大规模、多国
+在录得连续六个交易日上涨后，惠普公司股价于5月26日出现回调，即将结束这波自5月中旬以来累计涨幅超过20%的强劲走势。市场目光正聚焦于该公司即将在5月27日盘后发布的2026财年第二季度财报，以检验这轮由AI PC预期驱动的行情能否获得基本面支撑。 此轮涨势的直接催化剂来自竞争对手联想集团。5月21日，联想公布的财报显示其营收增速创五年来新高，且近40%的销售额已来自AI相关产
 
 ## 正文
 
-国际锐评丨为日本军国主义翻案 必将被再次押上历史审判台 “忘记过去的苦难可能招致未来的灾祸。
+在录得连续六个交易日上涨后，惠普公司股价于5月26日出现回调，即将结束这波自5月中旬以来累计涨幅超过20%的强劲走势。
 
-”80年前，参与东京审判的中国法官梅汝璈发出这样的警示。
+市场目光正聚焦于该公司即将在5月27日盘后发布的2026财年第二季度财报，以检验这轮由AI PC预期驱动的行情能否获得基本面支撑。
 
-80年后的今天，日本“新型军国主义”再次露出獠牙，东京审判的历史价值与现实意义更加凸显。
+此轮涨势的直接催化剂来自竞争对手联想集团。
 
-1946年5月3日，东京日本陆军士官学校礼堂内，一场对二战中日本甲级战犯进行的集体审判开庭。
+5月21日，联想公布的财报显示其营收增速创五年来新高，且近40%的销售额已来自AI相关产品。
 
-这是继纽伦堡审判之后，人类历史上又一次大规模、多国合作的战争罪行审判。
+这一强劲数据被市场解读为整个PC行业，尤其是同样处于头部阵营的惠普，正面临类似的AI换机需求红利。
 
-历时两年半，来自11国的法官和检察官对日本发动的侵略战争进行全面清算与法律追责。
+消息公布后，惠普股价在5月22日单日飙升15%，创下近两年来最大单日涨幅。
 
-中国法官梅汝璈、检察官向哲濬等人经过艰苦较量，用铁证坐实了日本战犯的罪行，捍卫了中国作为世界反法西斯战争东方主战场和主要战胜国的尊严。
+此前的五个交易日，该股已持续温和上涨，形成了六连涨的强势格局。
 
-最终，25名被告全部被判有罪，其中东条英机、松井石根等7名被告被判处绞刑。
+然而，华尔街分析师对惠普的前景存在显著分歧。
 
 ## 相关推荐
 
-- 2026-06-29 21:31 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 21:13 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 21:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 21:35 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 21:20 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 21:26 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 21:32 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 21:30 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 21:33 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 21:34 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 21:31 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 21:13 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 21:26 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 21:19 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 21:31 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 21:36 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 21:40 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 21:29 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 21:41 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 21:33 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 21:40 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 21:33 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 21:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 21:35 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 21:30 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 21:17 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:25 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/738603183285.shtml)
-- 2026-06-29 21:06 - [85花告别古偶](https://www.share.minike.top/Article/details/963802851.shtml)
-- 2026-06-29 21:06 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/633638104073.shtml)
-- 2026-06-29 21:26 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/740767156.shtml)
-- 2026-06-29 21:09 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/5955028849.shtml)
-- 2026-06-29 21:17 - [一生一世](http://www.share.minike.top/Article/details/465055.shtml)
-- 2026-06-29 21:28 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/989803.shtml)
-- 2026-06-29 21:11 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/8096492.shtml)
-- 2026-06-29 21:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/6543643.shtml)
-- 2026-06-29 21:25 - [C罗10球7球对垫底队](http://www.blog.minike.top/Article/details/16731130646.shtml)
-- 2026-06-29 21:15 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/1880874.shtml)
-- 2026-06-29 21:32 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/560553448.shtml)
-- 2026-06-29 21:35 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/49684.shtml)
-- 2026-06-29 21:28 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/23505.shtml)
-- 2026-06-29 21:22 - [速度与激情9](https://www.blog.minike.top/Article/details/4345351003.shtml)
+- 2026-06-29 21:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/683524523209.shtml)
+- 2026-06-29 21:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/3167558.shtml)
+- 2026-06-29 21:37 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/2286995.shtml)
+- 2026-06-29 21:26 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/76786.shtml)
+- 2026-06-29 21:41 - [85花告别古偶](http://www.share.minike.top/Article/details/7024978166.shtml)
+- 2026-06-29 21:18 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/98402826.shtml)
+- 2026-06-29 21:32 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/114866.shtml)
+- 2026-06-29 21:36 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/189948939192.shtml)
+- 2026-06-29 21:34 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/2738938774.shtml)
+- 2026-06-29 21:15 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/7606550.shtml)
+- 2026-06-29 21:40 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/7366799579.shtml)
+- 2026-06-29 21:37 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/09150.shtml)
+- 2026-06-29 21:35 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/0150850477.shtml)
+- 2026-06-29 21:16 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/65045860785.shtml)
+- 2026-06-29 21:40 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/000637021.shtml)

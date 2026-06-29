@@ -1,59 +1,47 @@
-# 嫌对标华为小米“格局小”？追觅CEO放话：手机业务要跟苹果三星平分天下
+# 特朗普称伊朗“表现得当”后才能拿回资金
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！追觅科技CEO俞浩近日在社交平台发文，为旗下尚未全面开售的手机业务立下了极为惊人的目标。他表示，此前内部提出“与华为、小米三分天下”的说法显得“格局太小”，追觅手机的真正野心是在全球范围内与苹果、三星三分天下，并最终登顶世界第一。他更是极其罕见地抛出具体市值指标，直言“追觅手机BU，一定会超越苹果的4万亿美
+美国总统特朗普在谈到伊朗时说，“当他们表现得当、做正确的事情时，我们就会让他们拿回自己的钱。” 特朗普在内阁会议上发表讲话。责任编辑：丁文武
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美国总统特朗普在谈到伊朗时说，“当他们表现得当、做正确的事情时，我们就会让他们拿回自己的钱。
 
-追觅科技CEO俞浩近日在社交平台发文，为旗下尚未全面开售的手机业务立下了极为惊人的目标。
+” 特朗普在内阁会议上发表讲话。
 
-他表示，此前内部提出“与华为、小米三分天下”的说法显得“格局太小”，追觅手机的真正野心是在全球范围内与苹果、三星三分天下，并最终登顶世界第一。
-
-他更是极其罕见地抛出具体市值指标，直言“追觅手机BU，一定会超越苹果的4万亿美元市值”。
-
-这家以智能清洁设备闻名的企业，其造手机之路始于2025年9月。
-
-当时俞浩在内部定调进军手机赛道，果断避开中低端红海，直接锚定5000元以上的超高端市场。
-
-短短几个月后，追觅手机的产品轮廓已在海外经销商面前揭开面纱。
-
-今年1月的西南欧经销商大会上，追觅手机团队携“高奢系列”与“旗舰模块化系列”高调亮相。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 21:15 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 21:32 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 21:07 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 21:14 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 21:20 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 21:31 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 21:20 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 21:17 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 21:26 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 21:09 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 21:11 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 21:33 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 21:14 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 21:15 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 21:27 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 21:22 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 21:25 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 21:23 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 21:32 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 21:37 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 21:41 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 21:20 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 21:17 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 21:30 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:09 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/170524.shtml)
-- 2026-06-29 21:15 - [起风了](http://www.share.kurohicncr.top/Article/details/6137864623.shtml)
-- 2026-06-29 21:12 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/99128.shtml)
-- 2026-06-29 21:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/9459509.shtml)
-- 2026-06-29 21:15 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.kurohicncr.top/Article/details/12131959.shtml)
-- 2026-06-29 21:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/32595747.shtml)
-- 2026-06-29 21:30 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/307680959554.shtml)
-- 2026-06-29 21:29 - [天气热脾气都变差了](https://www.blog.kurohicncr.top/Article/details/91128363.shtml)
-- 2026-06-29 21:28 - [周生如故](http://www.blog.minike.top/Article/details/5440103.shtml)
-- 2026-06-29 21:09 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/8443835982.shtml)
-- 2026-06-29 21:15 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/20357.shtml)
-- 2026-06-29 21:14 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/5985428.shtml)
-- 2026-06-29 21:32 - [无畏为自己的猫正名了](https://www.share.minike.top/Article/details/4227187790.shtml)
-- 2026-06-29 21:32 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/4145473.shtml)
-- 2026-06-29 21:13 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/779493048902.shtml)
+- 2026-06-29 21:30 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/65054447.shtml)
+- 2026-06-29 21:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/418449430722.shtml)
+- 2026-06-29 21:36 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/34019753251.shtml)
+- 2026-06-29 21:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/18400462786.shtml)
+- 2026-06-29 21:26 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/43274689.shtml)
+- 2026-06-29 21:34 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/6613101.shtml)
+- 2026-06-29 21:29 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/674359605588.shtml)
+- 2026-06-29 21:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/608791737159.shtml)
+- 2026-06-29 21:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/021478.shtml)
+- 2026-06-29 21:31 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/106551174.shtml)
+- 2026-06-29 21:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/12256.shtml)
+- 2026-06-29 21:37 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/90466566.shtml)
+- 2026-06-29 21:37 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/30468.shtml)
+- 2026-06-29 21:15 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/0298520201.shtml)
+- 2026-06-29 21:13 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/74298384.shtml)

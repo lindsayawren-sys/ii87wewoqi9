@@ -1,56 +1,56 @@
-# 再度包揽世界杯总决赛9金 中国跳水队新阵容彰显硬实力
+# 国台办回应民进党卖农求荣
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新社北京5月3日电 (记者 国璇)2026世界泳联跳水世界杯总决赛3日在国家游泳中心“水立方”收官，中国选手陈佳和陈艺文包揽女子3米板金银牌，白钰鸣和练俊杰分获男子10米台冠军和季军，以老带新的中国队继2025年之后再度包揽世界杯总决赛全部9枚金牌。 和去年总决赛相比，中国队的参赛阵容进行了“大换血”，除了男、女单人3米板分别保留王宗源、郑九源以及陈艺文、陈佳外，其他7个项目
+中新网5月27日电 5月27日，国台办举行例行新闻发布会。有记者问：据报道，“美台对等贸易协议”签订后，美国宽皮柑等农产进口关税从原来35%调降为10%，引发岛内业界不满，有舆论认为民进党当局事前、事后都未与岛内农民沟通，根本是“卖农求荣”。请问对此有何评论？国台办发言人陈斌华表示，所谓“对等协议”，实则是美国对台湾经济、产业的霸凌清单，是民进党当局无底线跪美的卖台契约。民进党
 
 ## 正文
 
-中新社北京5月3日电 (记者 国璇)2026世界泳联跳水世界杯总决赛3日在国家游泳中心“水立方”收官，中国选手陈佳和陈艺文包揽女子3米板金银牌，白钰鸣和练俊杰分获男子10米台冠军和季军，以老带新的中国队继2025年之后再度包揽世界杯总决赛全部9枚金牌。
+中新网5月27日电 5月27日，国台办举行例行新闻发布会。
 
-和去年总决赛相比，中国队的参赛阵容进行了“大换血”，除了男、女单人3米板分别保留王宗源、郑九源以及陈艺文、陈佳外，其他7个项目均发生人员变动。
+有记者问：据报道，“美台对等贸易协议”签订后，美国宽皮柑等农产进口关税从原来35%调降为10%，引发岛内业界不满，有舆论认为民进党当局事前、事后都未与岛内农民沟通，根本是“卖农求荣”。
 
-奥运冠军全红婵未参赛，陈芋汐只参加女子双人10米台比赛，参赛的奥运冠军还包括王宗源、陈艺文和练俊杰。
+请问对此有何评论？
 
-此外，蒋林静、白钰鸣、赵仁杰、杨志豪和刘承瓒等新生力量首次亮相总决赛。
+国台办发言人陈斌华表示，所谓“对等协议”，实则是美国对台湾经济、产业的霸凌清单，是民进党当局无底线跪美的卖台契约。
 
-陈芋汐牵手卢为，以366.12分夺得女子双人10米台冠军。
+民进党当局为“倚美谋独”，罔顾台湾民众福祉，将台湾变为美国产品倾销地。
 
-陈芋汐说，她的下一个目标是名古屋亚运会，并将努力参加单人项目比赛。
+这种卑劣行径背离台湾社会主流民意，损害台湾产业和民众的切身利益，必遭反噬。
 
-两届奥运会冠军王宗源联手郑九源拿到男子双人3米板金牌，并在单人比赛中战胜搭档夺冠，实现总决赛单人项目“四连冠”，荣膺2026年世界泳联跳水世界杯最佳男运动员。
-
-王宗源表示，这次总决赛的优异成绩给予他继续前进的动力和勇气，“希望未来拿到更多荣誉”。
+(中新网“燕新台”工作室)
 
 ## 相关推荐
 
-- 2026-06-29 21:09 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 21:15 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 21:18 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 21:13 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 21:16 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 21:07 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 21:32 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 21:24 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 21:35 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 21:30 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 21:34 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 21:39 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 21:21 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 21:32 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 21:28 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 21:24 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 21:40 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 21:20 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 21:35 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 21:30 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 21:38 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 21:12 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/891243482449.shtml)
-- 2026-06-29 21:12 - [沙丘](https://www.blog.minike.top/Article/details/06955169869.shtml)
-- 2026-06-29 21:19 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/327159.shtml)
-- 2026-06-29 21:16 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/494137.shtml)
-- 2026-06-29 21:21 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/491398.shtml)
-- 2026-06-29 21:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/4836257.shtml)
-- 2026-06-29 21:17 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.kurohicncr.top/Article/details/095590531.shtml)
-- 2026-06-29 21:15 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/517750784.shtml)
-- 2026-06-29 21:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/159882083717.shtml)
-- 2026-06-29 21:22 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/969904159490.shtml)
-- 2026-06-29 21:09 - [天道](http://www.share.kurohicncr.top/Article/details/77894774.shtml)
-- 2026-06-29 21:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/113583667695.shtml)
-- 2026-06-29 21:11 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.kurohicncr.top/Article/details/43486.shtml)
-- 2026-06-29 21:24 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/90709062.shtml)
-- 2026-06-29 21:24 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/88124.shtml)
+- 2026-06-29 21:38 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/19944.shtml)
+- 2026-06-29 21:24 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/0672185095.shtml)
+- 2026-06-29 21:20 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/69315.shtml)
+- 2026-06-29 21:32 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/641393.shtml)
+- 2026-06-29 21:18 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/7904615.shtml)
+- 2026-06-29 21:22 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/72375.shtml)
+- 2026-06-29 21:28 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/723306277254.shtml)
+- 2026-06-29 21:31 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/46108313040.shtml)
+- 2026-06-29 21:38 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/63838721.shtml)
+- 2026-06-29 21:23 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/4480033.shtml)
+- 2026-06-29 21:28 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/141843664.shtml)
+- 2026-06-29 21:40 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/685284632.shtml)
+- 2026-06-29 21:18 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/871052671.shtml)
+- 2026-06-29 21:26 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/639829469.shtml)
+- 2026-06-29 21:25 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/06830.shtml)

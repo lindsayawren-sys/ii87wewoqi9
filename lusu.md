@@ -1,58 +1,56 @@
-# 湖南烟花爆炸企业负责人被控制
+# 中国银行成功发行欧洲首笔自贸离岸债
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：央视 昨天，湖南长沙浏阳市华盛烟花制造燃放有限公司车间发生爆炸。截至今早8时，经过第一轮摸排，浏阳烟花厂爆炸事故已致21死，61人受伤，伤者被紧急送往医院救治。 目前，现场救援指挥部正组织开展第二轮排查。公安机关已对涉事企业负责人采取控制措施，事故原因调查、善后处置等工作正在进行。 相关报道： 湖南浏
+来源：中国银行 近日，中国银行成功发行5亿元人民币自贸离岸债，期限9个月，发行利率为1.6%。这不仅是欧洲市场首笔成功落地发行的自贸离岸债，也是欧洲发行人首单引入自贸区分账核算单元（FTU）投资者的自贸离岸债创新实践。 本次发行由中国银行法兰克福分行作为发行人，中国银行香港分行、中国银行（香港）有限公司及中银国际控股有限公司担任牵头全球协调人，由银行间市场清算所股份有限公司提供
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：中国银行 近日，中国银行成功发行5亿元人民币自贸离岸债，期限9个月，发行利率为1.6%。
 
-来源：央视 昨天，湖南长沙浏阳市华盛烟花制造燃放有限公司车间发生爆炸。
+这不仅是欧洲市场首笔成功落地发行的自贸离岸债，也是欧洲发行人首单引入自贸区分账核算单元（FTU）投资者的自贸离岸债创新实践。
 
-截至今早8时，经过第一轮摸排，浏阳烟花厂爆炸事故已致21死，61人受伤，伤者被紧急送往医院救治。
+本次发行由中国银行法兰克福分行作为发行人，中国银行香港分行、中国银行（香港）有限公司及中银国际控股有限公司担任牵头全球协调人，由银行间市场清算所股份有限公司提供登记托管服务。
 
-目前，现场救援指挥部正组织开展第二轮排查。
+该笔发行获得境外投资者踊跃认购，不仅彰显了国际资本市场对中国银行综合实力与信用资质的高度认可，也展现了中国银行在多元化融资方面的强劲实力，为欧洲企业及金融机构拓宽人民币多元化融资渠道提供了有力示范与借鉴。
 
-公安机关已对涉事企业负责人采取控制措施，事故原因调查、善后处置等工作正在进行。
+自贸离岸债，全称自贸区离岸债券，是依托上海自贸区创新账户体系推出的重要跨境债务融资工具，遵循发行端、投资端“两头在外”原则，与离岸美元债券、离岸人民币债券（点心债）一起，构成了多层次、互补性的中资机构境外融资体系。
 
-相关报道： 湖南浏阳烟花厂爆炸已致21死61伤（新华社） 5月4日16时43分左右，长沙浏阳市华盛烟花制造燃放有限公司车间发生爆炸。
+FTU，是境内金融机构为开展离岸业务和投资，在银行内部开立的自贸专用账户核算体系。
 
-事故发生后，湖南立即启动应急预案，省市县（市）三级联动，成立现场救援指挥部，紧急调派5支救援队伍共482人，对事故现场进行紧急处置，全力开展人员搜救等抢险救援工作，调集省市专业医疗力量对获救人员进行救治。
+首次引入FTU是此次发行最核心的突破，进一步扩大了投资者基础，切实推动了人民币国际使用。
 
-应急管理部派出专家赶赴现场指导开展抢险救援工作。
+中国银行将依托全球服务网络，不断丰富自贸离岸债发行产品和发行人类型，持续深化跨境投融资产品创新，为推进人民币国际使用、服务中欧经贸高水平合作贡献更多金融力量。
 
 ## 相关推荐
 
-- 2026-06-29 21:08 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 21:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 21:11 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 21:12 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 21:26 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 21:10 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 21:17 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 21:16 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 21:06 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 21:08 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 21:10 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 21:15 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 21:16 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 21:41 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 21:22 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 21:40 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 21:18 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 21:32 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 21:20 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 21:14 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 21:41 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 21:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:14 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/91294770171.shtml)
-- 2026-06-29 21:33 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/6955478.shtml)
-- 2026-06-29 21:08 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/926964.shtml)
-- 2026-06-29 21:23 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/92588664.shtml)
-- 2026-06-29 21:19 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/57298500.shtml)
-- 2026-06-29 21:08 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/458427916.shtml)
-- 2026-06-29 21:16 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/70501.shtml)
-- 2026-06-29 21:18 - [一见倾心](http://www.blog.minike.top/Article/details/25686.shtml)
-- 2026-06-29 21:28 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/8920704160.shtml)
-- 2026-06-29 21:32 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/32486.shtml)
-- 2026-06-29 21:16 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/749340208571.shtml)
-- 2026-06-29 21:18 - [送你一朵小红花](https://www.blog.minike.top/Article/details/30818.shtml)
-- 2026-06-29 21:26 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/0501589430.shtml)
-- 2026-06-29 21:21 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/30278.shtml)
-- 2026-06-29 21:25 - [新官上任三把火](http://www.share.minike.top/Article/details/35781716.shtml)
+- 2026-06-29 21:16 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/516817.shtml)
+- 2026-06-29 21:39 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/00884018.shtml)
+- 2026-06-29 21:37 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/68924.shtml)
+- 2026-06-29 21:26 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/5011845680.shtml)
+- 2026-06-29 21:16 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/43496763.shtml)
+- 2026-06-29 21:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/59972.shtml)
+- 2026-06-29 21:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/003893.shtml)
+- 2026-06-29 21:38 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/6825827.shtml)
+- 2026-06-29 21:18 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/3709459.shtml)
+- 2026-06-29 21:15 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/49417730667.shtml)
+- 2026-06-29 21:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/98282.shtml)
+- 2026-06-29 21:20 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/256195.shtml)
+- 2026-06-29 21:19 - [天气热脾气都变差了](http://www.share.kurohicncr.top/Article/details/078914.shtml)
+- 2026-06-29 21:38 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/75707.shtml)
+- 2026-06-29 21:16 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/3326559685.shtml)

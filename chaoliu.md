@@ -1,61 +1,60 @@
-# 特朗普称仍在考虑对Spirit Airlines的纾困方案 可能本周发布声明
+# 坦博尔港股IPO：实控人亲属已离职仍拖家带口坐享分红 存货高企、周转效率持续下降 半年新增数百条投诉
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普表示，联邦政府仍在研究对 Spirit Airlines的救助方案，将会拿出最终提议。 特朗普周五在白宫对记者表示：“如果可以做到，我们会这么做，但前提是这是一笔好交易。”他还称，相关公告可能在当天晚些时候或次日发布。 据知情人士称透露，Spirit Aviation Holdings Inc． 正因现金即将耗尽而着手准备停止运营。 燃料成本飙升令Spir
+出品：新浪财经上市公司研究院 作者：渚 4月29日，坦博尔集团股份有限公司（下称“坦博尔”）更新招股书，第二次向港股主板发起冲击，中金公司担任其独家保荐人。 坦博尔家族治理特征显著，实控人家族合计掌握96.64%的表决权，多名亲属即便早已离职，仍持有公司员工持股平台份额，使得股权激励异化为家族分利工具，公司内部制衡机制明显缺失。递表港股前夕，坦博尔实施了2.9亿元的现金分红，金
 
 ## 正文
 
-美国总统唐纳德·特朗普表示，联邦政府仍在研究对 Spirit Airlines的救助方案，将会拿出最终提议。
+出品：新浪财经上市公司研究院 作者：渚 4月29日，坦博尔集团股份有限公司（下称“坦博尔”）更新招股书，第二次向港股主板发起冲击，中金公司担任其独家保荐人。
 
-特朗普周五在白宫对记者表示：“如果可以做到，我们会这么做，但前提是这是一笔好交易。
+坦博尔家族治理特征显著，实控人家族合计掌握96.64%的表决权，多名亲属即便早已离职，仍持有公司员工持股平台份额，使得股权激励异化为家族分利工具，公司内部制衡机制明显缺失。
 
-”他还称，相关公告可能在当天晚些时候或次日发布。
+递表港股前夕，坦博尔实施了2.9亿元的现金分红，金额超过当年全年净利润，其中2.8亿元全落入实控人家族囊中。
 
-据知情人士称透露，Spirit Aviation Holdings Inc． 正因现金即将耗尽而着手准备停止运营。
+经营层面，坦博尔在收入增长的同时始终伴随高库存问题。
 
-燃料成本飙升令Spirit大受冲击，该公司一直在与美国政府就救助融资进行谈判，但相关磋商陷入了僵局。
+截至2025年底，公司存货余额已攀升至9.26亿元，存货周转天数高达309天，远高于安踏、波司登等行业头部企业水平。
 
-“我希望保住这些工作岗位，”特朗普周五表示。
+公司盈利质量偏弱、品牌溢价能力不足，高端户外产品线持续降价，同时销售费用率居高不下，净利率远低于同行。
 
-谈判重点在于一项最高达5亿美元的联邦纾困方案，作为交换，政府将获得可购买公司最多约90%股份的认股权证。
+财务层面，坦博尔现金流持续走弱，资产负债率已飙升至74.60%，短期借款规模大幅增长，偿债风险凸显。
 
-但这一方案遭到债权人反对，因为如果协议达成，他们的债权优先级将被下调，意味着其回收资金的可能性可能低于公司直接清算的情况。
+此外，公司产品质量与售后服务问题频发，半年内新增数百条消费者投诉 【下载黑猫投诉客户端】，品牌口碑持续承压。
 
 ## 相关推荐
 
-- 2026-06-29 21:16 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 21:34 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 21:15 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 21:07 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 21:14 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 21:27 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 21:08 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 21:07 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 21:33 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 21:27 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 21:07 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 21:28 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 21:24 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 21:07 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 21:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 21:22 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 21:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 21:41 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 21:31 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 21:18 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 21:24 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 21:40 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 21:13 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 21:23 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 21:38 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 21:35 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 21:25 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 21:17 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 21:29 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:23 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/98025956775.shtml)
-- 2026-06-29 21:21 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/81104435354.shtml)
-- 2026-06-29 21:34 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/95577.shtml)
-- 2026-06-29 21:06 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/70222077.shtml)
-- 2026-06-29 21:34 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/698893999.shtml)
-- 2026-06-29 21:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/871219179.shtml)
-- 2026-06-29 21:12 - [小娘惹](http://www.share.minike.top/Article/details/701814048.shtml)
-- 2026-06-29 21:24 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/81761539778.shtml)
-- 2026-06-29 21:07 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/181767.shtml)
-- 2026-06-29 21:21 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/66048631.shtml)
-- 2026-06-29 21:16 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/34259.shtml)
-- 2026-06-29 21:33 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/2117173337.shtml)
-- 2026-06-29 21:10 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.minike.top/Article/details/099635667.shtml)
-- 2026-06-29 21:16 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/2106731.shtml)
-- 2026-06-29 21:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/894638.shtml)
+- 2026-06-29 21:40 - [记者：预计热火将追求小哈达威和康利](https://www.blog.kurohicncr.top/Article/details/12151346062.shtml)
+- 2026-06-29 21:33 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/57761320.shtml)
+- 2026-06-29 21:25 - [请回答王牌2019](https://www.blog.minike.top/Article/details/35961314506.shtml)
+- 2026-06-29 21:16 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/62534.shtml)
+- 2026-06-29 21:32 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/166302.shtml)
+- 2026-06-29 21:28 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/27596409.shtml)
+- 2026-06-29 21:37 - [东宫女主是不是顶级恋爱脑](http://www.blog.kurohicncr.top/Article/details/22237311196.shtml)
+- 2026-06-29 21:23 - [谁在推动“成都造”影视持续出圈](http://www.share.kurohicncr.top/Article/details/9662810762.shtml)
+- 2026-06-29 21:38 - [恋与深空 巧合](https://www.share.minike.top/Article/details/6347153.shtml)
+- 2026-06-29 21:23 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/489239880308.shtml)
+- 2026-06-29 21:24 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/24780772618.shtml)
+- 2026-06-29 21:19 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/69497214267.shtml)
+- 2026-06-29 21:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/360590477602.shtml)
+- 2026-06-29 21:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/4014404.shtml)
+- 2026-06-29 21:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/63676859689.shtml)

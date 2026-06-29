@@ -1,54 +1,61 @@
-# 云南墨江用最“黑”的方式 送最真的祝福
+# 高盛称伊朗战争期间美元走强拖累外国官方美债需求
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月01日 21:50 来源：中国新闻网 5月1日，第二十届墨江北回归线国际双胞胎节在云南普洱墨江哈尼族自治县启幕，抹黑脸祝福活动热闹上演，吸引各地游客参与体验。 抹黑脸源于哈尼族太阳崇拜，寓意辟邪消灾、幸福平安，是墨江哈尼族传递祝福的传统民俗。 活动现场，当地民众与游客相互涂抹黑脸、互送祝福，黑脸映着白齿，欢笑声不断响起。人们以互抹为礼、以黑纳福，感受哈
+高盛称，美元在美伊冲突第一个月走强，促使外国官方机构卖出美国国债。 高盛策略师Isabella Rosenberg周三在报告中写道，美元是“经估值调整后外国官方美国国债需求最有意义的驱动因素之一”。外国持有的美国国债规模3月份从纪录高位回落，而彭博美元指数上涨2.4%，创7月份以来最大单月涨幅。 Rosenberg指出，这些转变似乎发生在一些外国政府在战争期间致力于支撑本国货币
 
 ## 正文
 
-发布时间：2026年05月01日 21:50 来源：中国新闻网 5月1日，第二十届墨江北回归线国际双胞胎节在云南普洱墨江哈尼族自治县启幕，抹黑脸祝福活动热闹上演，吸引各地游客参与体验。
+高盛称，美元在美伊冲突第一个月走强，促使外国官方机构卖出美国国债。
 
-抹黑脸源于哈尼族太阳崇拜，寓意辟邪消灾、幸福平安，是墨江哈尼族传递祝福的传统民俗。
+高盛策略师Isabella Rosenberg周三在报告中写道，美元是“经估值调整后外国官方美国国债需求最有意义的驱动因素之一”。
 
-活动现场，当地民众与游客相互涂抹黑脸、互送祝福，黑脸映着白齿，欢笑声不断响起。
+外国持有的美国国债规模3月份从纪录高位回落，而彭博美元指数上涨2.4%，创7月份以来最大单月涨幅。
 
-人们以互抹为礼、以黑纳福，感受哈尼族民俗的热烈氛围与古朴风情。
+Rosenberg指出，这些转变似乎发生在一些外国政府在战争期间致力于支撑本国货币并缓解资本外流之际。
 
-(王临梓) 责任编辑：【张令旗】
+她表示，这很可能是一种暂时性模式，并不表明美国国债需求出现结构性转变。
+
+美国和以色列2月底对伊朗发动打击后，美元受益于对传统避险资产的需求，以及美国作为全球最大产油国的地位。
+
+冲突扰乱能源市场，加剧全球通胀担忧，给严重依赖进口能源的经济体带来压力。
+
+自战争开始以来，在彭博追踪的31种主要货币中，印度卢比、韩元、土耳其里拉和日元等位列兑美元表现最差的10种货币。
 
 ## 相关推荐
 
-- 2026-06-29 21:25 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 21:11 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 21:14 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 21:08 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 21:30 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 21:23 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 21:28 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 21:25 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 21:13 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 21:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 21:23 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 21:06 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 21:22 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 21:12 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 21:27 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 21:14 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 21:14 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 21:27 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 21:41 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 21:33 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 21:12 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 21:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 21:41 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 21:31 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 21:29 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 21:38 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 21:17 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 21:28 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 21:17 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:20 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/6477690.shtml)
-- 2026-06-29 21:23 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/564672818.shtml)
-- 2026-06-29 21:14 - [郑钦文谈再战西尼亚科娃](http://www.share.kurohicncr.top/Article/details/697871586184.shtml)
-- 2026-06-29 21:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/03159702402.shtml)
-- 2026-06-29 21:11 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/3806411.shtml)
-- 2026-06-29 21:22 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/54414723040.shtml)
-- 2026-06-29 21:24 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/15104547.shtml)
-- 2026-06-29 21:14 - [千与千寻](https://www.share.kurohicncr.top/Article/details/84426.shtml)
-- 2026-06-29 21:06 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/403292407374.shtml)
-- 2026-06-29 21:25 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/43095299.shtml)
-- 2026-06-29 21:10 - [TI2026参赛战队出炉](https://www.blog.kurohicncr.top/Article/details/56869.shtml)
-- 2026-06-29 21:11 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/461800120.shtml)
-- 2026-06-29 21:28 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/926785247968.shtml)
-- 2026-06-29 21:28 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/187290681.shtml)
-- 2026-06-29 21:30 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/30086368.shtml)
+- 2026-06-29 21:21 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/51304431.shtml)
+- 2026-06-29 21:19 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/8889140.shtml)
+- 2026-06-29 21:36 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/748111569948.shtml)
+- 2026-06-29 21:30 - [王楚钦开门红](https://www.blog.minike.top/Article/details/77962.shtml)
+- 2026-06-29 21:39 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/117616375.shtml)
+- 2026-06-29 21:37 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/8870992132.shtml)
+- 2026-06-29 21:30 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/11169.shtml)
+- 2026-06-29 21:28 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/47302745.shtml)
+- 2026-06-29 21:24 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/6969418514.shtml)
+- 2026-06-29 21:38 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/02871806.shtml)
+- 2026-06-29 21:41 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/40951911325.shtml)
+- 2026-06-29 21:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/035823116.shtml)
+- 2026-06-29 21:18 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/952108759658.shtml)
+- 2026-06-29 21:28 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/38676.shtml)
+- 2026-06-29 21:40 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/19481.shtml)

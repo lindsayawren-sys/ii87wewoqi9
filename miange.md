@@ -1,58 +1,45 @@
-# 美国精神航空救助谈判破裂，全面停止运营
+# 鲁西南最大铁路货运枢纽完成扩能改造
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-美国廉价航空公司精神航空（Spirit Airlines）于周六宣布，因债权人就特朗普政府拟提供的5亿美元救助方案谈判破裂，公司将停止所有运营活动。 公司在官网声明中表示：“2026年5月2日，我们万分遗憾地启动有序停业程序，即刻生效。所有航班已取消，客户服务全面终止。过去34年，我们的超低成本运营模式深刻影响了行业发展，对此我们深感自豪。” 债务僵局：债权人与政府谈不拢 过去
+发布时间：2026年05月28日 09:32 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-美国廉价航空公司精神航空（Spirit Airlines）于周六宣布，因债权人就特朗普政府拟提供的5亿美元救助方案谈判破裂，公司将停止所有运营活动。
-
-公司在官网声明中表示：“2026年5月2日，我们万分遗憾地启动有序停业程序，即刻生效。
-
-所有航班已取消，客户服务全面终止。
-
-过去34年，我们的超低成本运营模式深刻影响了行业发展，对此我们深感自豪。
-
-” 债务僵局：债权人与政府谈不拢 过去10天，精神航空与白宫及投行顾问展开密集谈判，但债券持有人坚决反对政府贷款优先于其债权，最终导致谈判崩盘。
-
-支持方：花旗集团管理的2.75亿美元高级循环信贷额度持有人、无担保债权人委员会（持有数十亿美元次级债权） 反对方：部分债券持有人（包括城堡投资、赛勒斯资本、阿瑞斯、太平洋投资管理公司、竞技场资本），他们更倾向于清算资产而非重组。
-
-反对派指出，2026年初公司已累积巨额运营亏损，而伊朗冲突爆发后燃油价格暴涨，进一步压垮了这家本就脆弱的航司。
-
-救助方案流产：政府入股计划落空 特朗普政府原计划向精神航空注资5亿美元，助其走出破产保护，此举将使美国政府持有公司最高90%股权，成为近年政府深度介入私营企业的典型案例。
+发布时间：2026年05月28日 09:32 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 21:28 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 21:34 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 21:28 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 21:23 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 21:06 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 21:28 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 21:19 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 21:33 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 21:26 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 21:26 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 21:30 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 21:30 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 21:29 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 21:21 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 21:39 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 21:34 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 21:35 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 21:17 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 21:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 21:34 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 21:28 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 21:23 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 21:23 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 21:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 21:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:21 - [T1零封KC MSI](https://www.share.minike.top/Article/details/120600131608.shtml)
-- 2026-06-29 21:25 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/47477716.shtml)
-- 2026-06-29 21:21 - [勇敢的心第二部](https://www.share.minike.top/Article/details/96030556314.shtml)
-- 2026-06-29 21:19 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/999214.shtml)
-- 2026-06-29 21:20 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/1597772640.shtml)
-- 2026-06-29 21:30 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/07887548937.shtml)
-- 2026-06-29 21:31 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/09212.shtml)
-- 2026-06-29 21:21 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/514093345884.shtml)
-- 2026-06-29 21:17 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/790645930.shtml)
-- 2026-06-29 21:33 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/056043715.shtml)
-- 2026-06-29 21:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/24315979254.shtml)
-- 2026-06-29 21:06 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/38586651.shtml)
-- 2026-06-29 21:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/35692.shtml)
-- 2026-06-29 21:08 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/328802901036.shtml)
-- 2026-06-29 21:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/12025474334.shtml)
+- 2026-06-29 21:12 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/43615611.shtml)
+- 2026-06-29 21:15 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/59073625.shtml)
+- 2026-06-29 21:36 - [小娘惹](http://www.share.minike.top/Article/details/932873.shtml)
+- 2026-06-29 21:34 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/87689464650.shtml)
+- 2026-06-29 21:40 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/335658920989.shtml)
+- 2026-06-29 21:22 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/095118484256.shtml)
+- 2026-06-29 21:21 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/57467538936.shtml)
+- 2026-06-29 21:25 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/195126107685.shtml)
+- 2026-06-29 21:28 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/41162105.shtml)
+- 2026-06-29 21:25 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/494288.shtml)
+- 2026-06-29 21:19 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/717413856855.shtml)
+- 2026-06-29 21:25 - [扫黑风暴](http://www.blog.minike.top/Article/details/711023256.shtml)
+- 2026-06-29 21:37 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/5679027420.shtml)
+- 2026-06-29 21:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/103817.shtml)
+- 2026-06-29 21:13 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.kurohicncr.top/Article/details/38894695.shtml)

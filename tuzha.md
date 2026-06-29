@@ -1,54 +1,52 @@
-# 浙江省省长：形成既有参天大树也有葱茏草木的“热带雨林”式发展格局
+# 欧洲4月汽车销售增长 比亚迪与奇瑞强势扩张
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月01日 19:36 来源：中国新闻网 4月30日，浙江省省长刘捷在“开局起步‘十五五’”浙江专场新闻发布会上表示，要让良好的创新生态成为最好的营商环境，形成既有参天大树也有葱茏草木的“热带雨林”式发展格局。 “热带雨林”的生长离不开“阳光、土壤、水份和空气”。“阳光”指的是科学的顶层设计、明确的政策导向；“土壤”指的是支撑有力的创新平台、高效配置的创新
+欧洲汽车工业协会周三发布的数据显示，欧洲4月车市持续增长，对电动车的需求，抵消汽油车和柴油车需求疲软的影响，并助攻中国品牌扩大市场份额。数据显示，4月欧盟、英国和欧洲自由贸易联盟（EFTA）的新车注册量增长7%，达到1，152，315辆，使得1月至4月的累计注册量较去年同期增长4.8%。电动车（包括纯电动、插电式混合动力和混合动力车型）销量增长约21%，占总注册量超过三分之二；
 
 ## 正文
 
-发布时间：2026年05月01日 19:36 来源：中国新闻网 4月30日，浙江省省长刘捷在“开局起步‘十五五’”浙江专场新闻发布会上表示，要让良好的创新生态成为最好的营商环境，形成既有参天大树也有葱茏草木的“热带雨林”式发展格局。
+欧洲汽车工业协会周三发布的数据显示，欧洲4月车市持续增长，对电动车的需求，抵消汽油车和柴油车需求疲软的影响，并助攻中国品牌扩大市场份额。
 
-“热带雨林”的生长离不开“阳光、土壤、水份和空气”。
+数据显示，4月欧盟、英国和欧洲自由贸易联盟（EFTA）的新车注册量增长7%，达到1，152，315辆，使得1月至4月的累计注册量较去年同期增长4.8%。
 
-“阳光”指的是科学的顶层设计、明确的政策导向；“土壤”指的是支撑有力的创新平台、高效配置的创新要素；“水份”指的是丰沛的创新投入；“空气”指的是高效务实的服务保障、开放包容的创新文化。
+电动车（包括纯电动、插电式混合动力和混合动力车型）销量增长约21%，占总注册量超过三分之二；汽油车与柴油车销量分别下滑约15%和17%。
 
-政府将用心用情做好“店小二”“保姆式”服务，全力营造支持创新、崇尚创新、投身创新的浓厚氛围。
+特斯拉连续第三个月延续复苏势头，在经历一年多下滑后，4月注册量增长46.5%至10，654辆，但仍落后中国的比亚迪，后者的注册量激增114.5%至27，008辆。
 
-(吴君毅） 责任编辑：【李季】
+中国车企奇瑞也迅速扩张，注册量增长约322%；传统车企表现不一，大众汽车增长3.5%，Stellantis增长6.7%，BMWYY>宝马增长2.4%，奔驰增长7%，雷诺汽车下降3.6%。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 21:10 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 21:17 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 21:15 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 21:06 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 21:19 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 21:15 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 21:23 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 21:23 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 21:30 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 21:23 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 21:09 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 21:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 21:27 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 21:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 21:31 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 21:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 21:31 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 21:34 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 21:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 21:19 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 21:20 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 21:35 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 21:25 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 21:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:07 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/5946606.shtml)
-- 2026-06-29 21:24 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/439469.shtml)
-- 2026-06-29 21:19 - [记者乘坐无人驾驶汽车去采访](https://www.blog.minike.top/Article/details/2985562116.shtml)
-- 2026-06-29 21:33 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/887315405893.shtml)
-- 2026-06-29 21:24 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/0071584.shtml)
-- 2026-06-29 21:09 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/2960842.shtml)
-- 2026-06-29 21:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/851236150080.shtml)
-- 2026-06-29 21:34 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/158467.shtml)
-- 2026-06-29 21:14 - [乔家的儿女](http://www.share.minike.top/Article/details/34826.shtml)
-- 2026-06-29 21:17 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/39583142.shtml)
-- 2026-06-29 21:16 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/933749.shtml)
-- 2026-06-29 21:34 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/531025830266.shtml)
-- 2026-06-29 21:21 - [起风了](https://www.share.kurohicncr.top/Article/details/522050.shtml)
-- 2026-06-29 21:12 - [温网](http://www.blog.minike.top/Article/details/603332.shtml)
-- 2026-06-29 21:28 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/892194122364.shtml)
+- 2026-06-29 21:21 - [小娘惹](http://www.share.kurohicncr.top/Article/details/50213683.shtml)
+- 2026-06-29 21:22 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/90952116.shtml)
+- 2026-06-29 21:34 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/234988.shtml)
+- 2026-06-29 21:30 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/551727860.shtml)
+- 2026-06-29 21:40 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.kurohicncr.top/Article/details/194433306.shtml)
+- 2026-06-29 21:26 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/75047.shtml)
+- 2026-06-29 21:26 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/09362648.shtml)
+- 2026-06-29 21:18 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/3994199.shtml)
+- 2026-06-29 21:41 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/192149850.shtml)
+- 2026-06-29 21:41 - [男子40度高温下骑行严重晒伤](https://www.share.kurohicncr.top/Article/details/3237485191.shtml)
+- 2026-06-29 21:31 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/6342336012.shtml)
+- 2026-06-29 21:32 - [千与千寻](https://www.share.kurohicncr.top/Article/details/65147.shtml)
+- 2026-06-29 21:13 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/88152.shtml)
+- 2026-06-29 21:29 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/1115268.shtml)
+- 2026-06-29 21:31 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/002057425.shtml)

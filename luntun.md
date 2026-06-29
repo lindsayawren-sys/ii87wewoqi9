@@ -1,61 +1,61 @@
-# 明天，两大龙头来了
+# 国产存储龙头来了！长鑫科技IPO已提交注册 融资客重金押注这些票(名单)
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-根据目前的发行安排，本周有3只新股申购，深市主板新股2只、北交所新股1只。 日程安排上，周三（5月6日）可申购深市主板新股维通利、北交所新股嘉晨智能，周四（5月7日）可申购深市主板新股天海电子。 维通利是国内电连接领域龙头企业。 维通利的发行价为30.38元/股，发行市盈率为25.36倍，参考行业市盈率为29.4倍。公司本次公开发行股票数量为6233.33万股，网上发行申购上限
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！全球存储三巨头刚刚集体跻身“万亿美元市值俱乐部”，中国最大的DRAM厂商也将敲开资本市场大门。 上半年预盈超500亿的存储巨头顺利过会 5月27日，长鑫科技科创板IPO申请通过上交所上市委审议。当晚，上交所网站显示，其IPO审核状态变更为提交注册。 作为科创板试点IPO预先审阅机制后的首单受理项目，长鑫科技
 
 ## 正文
 
-根据目前的发行安排，本周有3只新股申购，深市主板新股2只、北交所新股1只。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-日程安排上，周三（5月6日）可申购深市主板新股维通利、北交所新股嘉晨智能，周四（5月7日）可申购深市主板新股天海电子。
+全球存储三巨头刚刚集体跻身“万亿美元市值俱乐部”，中国最大的DRAM厂商也将敲开资本市场大门。
 
-维通利是国内电连接领域龙头企业。
+上半年预盈超500亿的存储巨头顺利过会 5月27日，长鑫科技科创板IPO申请通过上交所上市委审议。
 
-维通利的发行价为30.38元/股，发行市盈率为25.36倍，参考行业市盈率为29.4倍。
+当晚，上交所网站显示，其IPO审核状态变更为提交注册。
 
-公司本次公开发行股票数量为6233.33万股，网上发行申购上限为2万股，顶格申购需配深市市值20万元。
+作为科创板试点IPO预先审阅机制后的首单受理项目，长鑫科技此次IPO从获受理到过会仅用耗时148天。
 
-维通利主营业务为硬连接、柔性连接、触头组件、叠层母排和CCS等系列化电连接产品以及同步分解器等产品的研发、生产和销售，应用领域由传统的电力电工、轨道交通逐步拓展至新能源车、风光储等新兴行业。
+根据招股书，长鑫科技本次IPO拟公开发行不超106.22亿股，拟募资295亿元，将成为2026年以来A股最大IPO，也是科创板历史上仅次于中芯国际的第二大IPO。
 
-公司重点服务电连接产品中高端客户。
+所募资金净额将用于存储器晶圆制造量产线技术升级改造项目、DRAM存储器技术升级项目、动态随机存取存储器前瞻技术研究与开发项目。
 
-电力电工领域，产品供应西门子、施耐德、ABB、日立能源、GE等；新能源汽车领域，产品供应比亚迪、斯特兰蒂斯、零跑汽车、中创新航、欣旺达、蜂巢能源、孚能科技等；风光储领域，产品供应金风科技、台达电子、明阳智能、维谛技术、易事特（维权）、索英电气、海辰储能等；轨道交通领域，产品供应中国中车、西屋制动、阿尔斯通等。
+长鑫科技是我国规模最大、技术最先进、布局最全的DRAM研发设计制造一体化企业，其产能规模位居中国第一、全球第四。
 
 ## 相关推荐
 
-- 2026-06-29 21:12 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 21:32 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 21:32 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 21:07 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 21:11 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 21:06 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 21:15 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 21:14 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 21:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 21:32 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 21:29 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 21:16 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 21:17 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 21:30 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 21:30 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 21:40 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 21:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 21:30 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 21:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 21:25 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 21:35 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 21:40 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 21:18 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 21:12 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 21:40 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 21:36 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 21:36 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 21:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 21:21 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 21:32 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:32 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/81984105763.shtml)
-- 2026-06-29 21:23 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/964883103.shtml)
-- 2026-06-29 21:18 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/504345.shtml)
-- 2026-06-29 21:29 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/24206774.shtml)
-- 2026-06-29 21:33 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/982049233983.shtml)
-- 2026-06-29 21:13 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/4463808442.shtml)
-- 2026-06-29 21:20 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/688259.shtml)
-- 2026-06-29 21:34 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/90347.shtml)
-- 2026-06-29 21:18 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/14432303.shtml)
-- 2026-06-29 21:14 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/2326810.shtml)
-- 2026-06-29 21:31 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/520520819513.shtml)
-- 2026-06-29 21:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/198057885.shtml)
-- 2026-06-29 21:17 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/6841693.shtml)
-- 2026-06-29 21:06 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/7646732.shtml)
-- 2026-06-29 21:21 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/98100977.shtml)
+- 2026-06-29 21:24 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/7542473.shtml)
+- 2026-06-29 21:37 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/66051.shtml)
+- 2026-06-29 21:39 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/81855288893.shtml)
+- 2026-06-29 21:21 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/4921194858.shtml)
+- 2026-06-29 21:12 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/63623.shtml)
+- 2026-06-29 21:18 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/3836331.shtml)
+- 2026-06-29 21:31 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/16844620.shtml)
+- 2026-06-29 21:16 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/58912104442.shtml)
+- 2026-06-29 21:37 - [网红小徐直播时突遇地震](http://www.share.minike.top/Article/details/883170914.shtml)
+- 2026-06-29 21:28 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/30204779.shtml)
+- 2026-06-29 21:32 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/80819038485.shtml)
+- 2026-06-29 21:31 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/85022.shtml)
+- 2026-06-29 21:37 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/3215262044.shtml)
+- 2026-06-29 21:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/02332.shtml)
+- 2026-06-29 21:33 - [一生一世](https://www.share.kurohicncr.top/Article/details/64615393.shtml)

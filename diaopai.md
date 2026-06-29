@@ -1,50 +1,59 @@
-# 直击湖南浏阳烟花厂爆炸事故现场：浓烟滚滚 多部门紧急救援
+# 辽宁省数字人才协同创新培育行动正式启动
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月05日 12:59 来源：中国新闻网 5月4日16时40分许，湖南长沙浏阳市华盛烟花制造燃放有限公司车间发生爆炸。截至5月5日8时，爆炸事故已致21人死亡，61人受伤。(记者 杨华峰 唐小晴 制作 田敏娜 ） 责任编辑：【卢岩】
+中新网沈阳5月27日电 (李晛)为激活数据要素赋能新质生产力的创新引擎作用，促进数据领域教育链、人才链与产业链、创新链融合发展，5月27日，2026年度辽宁省数字人才协同创新培育行动在营口正式启动。 据悉，培育行动坚持需求导向，推行“地方点单”工作模式，各市结合产业发展、企业转型、政务服务等领域实际梳理培育需求，辽宁省数据局统筹整合全省优质师资、技术、平台资源，创新政校企协同培
 
 ## 正文
 
-发布时间：2026年05月05日 12:59 来源：中国新闻网 5月4日16时40分许，湖南长沙浏阳市华盛烟花制造燃放有限公司车间发生爆炸。
+中新网沈阳5月27日电 (李晛)为激活数据要素赋能新质生产力的创新引擎作用，促进数据领域教育链、人才链与产业链、创新链融合发展，5月27日，2026年度辽宁省数字人才协同创新培育行动在营口正式启动。
 
-截至5月5日8时，爆炸事故已致21人死亡，61人受伤。
+据悉，培育行动坚持需求导向，推行“地方点单”工作模式，各市结合产业发展、企业转型、政务服务等领域实际梳理培育需求，辽宁省数据局统筹整合全省优质师资、技术、平台资源，创新政校企协同培育模式，开展精准化、定制化培训活动。
 
-(记者 杨华峰 唐小晴 制作 田敏娜 ） 责任编辑：【卢岩】
+针对区域差异分类施策，建立分层递进的数字人才培养体系，为全省数字经济、数字政府、数字社会高质量发展提供人才保障，也是全省数据部门精准服务基层、赋能地方发展的有效实践。
+
+培育行动首站在营口举办。
+
+活动设置主会场与多个分会场，来自辽宁省数字人才协同创新试点单位及各类专业机构的行业专家，紧扣当地实际需求精心设计培训内容，活动首日参训人员近500人次。
+
+在活动主会场，行业专家围绕具身智能、大模型融合等前沿技术，结合地区现状解读产业发展趋势，帮助全市首席数据官、数据领域工作人员理清发展思路、提升专业能力。
+
+在营口理工学院分会场，专家聚焦 AI赋能教育主题，实操讲解垂类模型搭建、智能体应用等实用技能，助力师生紧跟数字技术发展步伐。
+
+在企业培训专场，培训内容紧贴市场需求，授课专家依次讲解数据资源入表、确权、估值、交易等数据资产化全流程规范，解读数字经济领域扶持政策，分享成熟的企业数字化转型解决方案，全方位助力市场主体降本增效、提档升级。
 
 ## 相关推荐
 
-- 2026-06-29 21:33 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 21:15 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 21:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 21:09 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 21:18 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 21:29 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 21:29 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 21:25 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 21:13 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 21:17 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 21:33 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 21:06 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 21:11 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 21:35 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 21:18 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 21:25 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 21:31 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 21:25 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 21:22 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 21:17 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 21:32 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 21:15 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 21:33 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 21:18 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 21:19 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 21:30 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 21:13 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:06 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/68178.shtml)
-- 2026-06-29 21:18 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/7528829.shtml)
-- 2026-06-29 21:18 - [杨德龙：创新药迎来新的发展机遇](http://www.share.minike.top/Article/details/06259445181.shtml)
-- 2026-06-29 21:20 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/98715353.shtml)
-- 2026-06-29 21:30 - [温网](http://www.share.kurohicncr.top/Article/details/891766.shtml)
-- 2026-06-29 21:21 - [高质量发展看新疆](https://www.blog.minike.top/Article/details/4005315.shtml)
-- 2026-06-29 21:35 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/98629800.shtml)
-- 2026-06-29 21:33 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/22779304694.shtml)
-- 2026-06-29 21:25 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/52641754.shtml)
-- 2026-06-29 21:33 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.kurohicncr.top/Article/details/002646435783.shtml)
-- 2026-06-29 21:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/980878163.shtml)
-- 2026-06-29 21:26 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/283304.shtml)
-- 2026-06-29 21:10 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/76946368.shtml)
-- 2026-06-29 21:32 - [极限挑战第一季](https://www.share.minike.top/Article/details/57229386.shtml)
-- 2026-06-29 21:26 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/040001.shtml)
+- 2026-06-29 21:26 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/8785439.shtml)
+- 2026-06-29 21:37 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/072222192713.shtml)
+- 2026-06-29 21:29 - [金牌调解](https://www.share.minike.top/Article/details/7964969179.shtml)
+- 2026-06-29 21:39 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/323516587.shtml)
+- 2026-06-29 21:15 - [沙丘](http://www.blog.minike.top/Article/details/203453952679.shtml)
+- 2026-06-29 21:23 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/075909915.shtml)
+- 2026-06-29 21:39 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/7634805568.shtml)
+- 2026-06-29 21:41 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/56632995199.shtml)
+- 2026-06-29 21:37 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/71823.shtml)
+- 2026-06-29 21:28 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/2829959.shtml)
+- 2026-06-29 21:31 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/12736277011.shtml)
+- 2026-06-29 21:33 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/42643694262.shtml)
+- 2026-06-29 21:26 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/1837520.shtml)
+- 2026-06-29 21:20 - [无畏为自己的猫正名了](https://www.blog.minike.top/Article/details/5404957297.shtml)
+- 2026-06-29 21:32 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/95603.shtml)

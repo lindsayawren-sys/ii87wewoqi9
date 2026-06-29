@@ -1,60 +1,55 @@
-# Owens-Brockway启动5亿美元优先票据发行 用于再融资
+# 中国500千伏交流超高压等级电力实现首次进出口
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-玻璃容器制造商Owens-Brockway Glass Container Inc．周一宣布，将发行5亿美元2033年到期的优先票据，募集资金主要用于赎回2027年到期的存量高息债券。 该公司是O-I Glass， Inc．（NYSE： OI）的全资间接子公司。根据公告，此次发行将面向合格机构买家依据144A规则进行私募，相关票据义务将由Owens-Illinois Group
+中新网昆明5月27日电 (刘佳龙 李夕妹)西双版纳海关27日消息，随着中老500千伏联网工程电力首次实现进出口，全国范围内500千伏交流超高压等级电力进出口实现零突破，标志着中老跨境清洁能源贸易正式从小规模低电压互济，迈入大规模高电压互联互通的全新转型升级发展阶段。 2026年4月20日，纳入中老命运共同体行动计划的中老500千伏联网工程正式投产，这是中国首个500千伏跨境交流
 
 ## 正文
 
-玻璃容器制造商Owens-Brockway Glass Container Inc．周一宣布，将发行5亿美元2033年到期的优先票据，募集资金主要用于赎回2027年到期的存量高息债券。
+中新网昆明5月27日电 (刘佳龙 李夕妹)西双版纳海关27日消息，随着中老500千伏联网工程电力首次实现进出口，全国范围内500千伏交流超高压等级电力进出口实现零突破，标志着中老跨境清洁能源贸易正式从小规模低电压互济，迈入大规模高电压互联互通的全新转型升级发展阶段。
 
-该公司是O-I Glass， Inc．（NYSE： OI）的全资间接子公司。
+2026年4月20日，纳入中老命运共同体行动计划的中老500千伏联网工程正式投产，这是中国首个500千伏跨境交流联网工程，也是中老两国建设规模最大、电压等级最高的跨境电网工程。
 
-根据公告，此次发行将面向合格机构买家依据144A规则进行私募，相关票据义务将由Owens-Illinois Group， Inc．及其信贷协议下的部分美国国内子公司提供联合担保。
+该工程起点位于老挝乌多姆塞省，落点位于中国云南省，输电线路全长177.5公里，其中中国段145公里、老挝段32.5公里，分别由中国南方电网云南电网公司和老挝国家输电网公司(EDL-T)投资建设，是继中老铁路之后，两国高质量共建“一带一路”的又一标志性成果。
 
-公司计划将本次发行所得，连同循环信贷额度下的借款及自有现金，用于赎回所有未偿还的6.625%2027年到期优先票据。
+中老500千伏联网工程投运后，中老电力互济能力从5万千瓦提升至150万千瓦，彻底改变此前小规模、低电压的互济格局，实现每年约30亿千瓦时的清洁电力送电规模，相当于减排二氧化碳约250万吨。
 
-此次再融资有助于优化债务结构、降低利息成本。
+此次中老500千伏跨境电力贸易的成功通关与绿色能源通道的贯通，不仅实现了跨境电力基础设施的跨越式升级，为中老铁路重点项目及老挝北部“水电+光伏”多能互补系统提供了稳定的能源保障，更让铁塔银线之间织就的“电力高速路”互联互通织密中老经贸合作纽带，有效带动双边产业协同发展、助力沿线民生改善。
 
-O-I Glass总部位于俄亥俄州佩里斯堡，在全球18个国家运营61家工厂，拥有约19，000名员工，2025年净销售额为64亿美元。
-
-该公司是全球领先的玻璃瓶罐生产商，专注于硬质包装市场的玻璃容器领域，产品涵盖啤酒、葡萄酒、食品、饮料及药品包装。
-
-今年以来，OI股价累计下跌约35.7%至9.49美元，公司总债务49.6亿美元，市值约14.5亿美元。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 21:30 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 21:22 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 21:18 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 21:17 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 21:35 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 21:36 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 21:10 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 21:30 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 21:32 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 21:13 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 21:09 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 21:34 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 21:17 - [林逸向方筱然求婚了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 21:23 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 21:29 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 21:22 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 21:31 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 21:19 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 21:24 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 21:33 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 21:18 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 21:29 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 21:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 21:36 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 21:37 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 21:12 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/0823303.shtml)
-- 2026-06-29 21:16 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/4911216189.shtml)
-- 2026-06-29 21:06 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/90889320398.shtml)
-- 2026-06-29 21:08 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/09056856953.shtml)
-- 2026-06-29 21:30 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.minike.top/Article/details/17456490.shtml)
-- 2026-06-29 21:17 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/95599.shtml)
-- 2026-06-29 21:23 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/36338.shtml)
-- 2026-06-29 21:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/7851808.shtml)
-- 2026-06-29 21:14 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/6666276.shtml)
-- 2026-06-29 21:32 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.minike.top/Article/details/062672.shtml)
-- 2026-06-29 21:28 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.minike.top/Article/details/857965342434.shtml)
-- 2026-06-29 21:07 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/592597078332.shtml)
-- 2026-06-29 21:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/40871631.shtml)
-- 2026-06-29 21:30 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/6654450867.shtml)
-- 2026-06-29 21:10 - [记者：预计热火将追求小哈达威和康利](https://www.blog.kurohicncr.top/Article/details/273064792.shtml)
+- 2026-06-29 21:18 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/0126426089.shtml)
+- 2026-06-29 21:32 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/035764252.shtml)
+- 2026-06-29 21:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/241881085.shtml)
+- 2026-06-29 21:41 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/88866174594.shtml)
+- 2026-06-29 21:36 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/3687073.shtml)
+- 2026-06-29 21:26 - [千与千寻](https://www.share.kurohicncr.top/Article/details/196446549.shtml)
+- 2026-06-29 21:19 - [新官上任三把火](https://www.blog.minike.top/Article/details/38277005229.shtml)
+- 2026-06-29 21:41 - [天道](https://www.share.minike.top/Article/details/5645239619.shtml)
+- 2026-06-29 21:19 - [郑钦文谈再战西尼亚科娃](http://www.share.minike.top/Article/details/89837.shtml)
+- 2026-06-29 21:29 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/598831723808.shtml)
+- 2026-06-29 21:19 - [一诺变着花样秀新驾照](https://www.blog.kurohicncr.top/Article/details/05006.shtml)
+- 2026-06-29 21:19 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/95554687779.shtml)
+- 2026-06-29 21:32 - [青春环游记第三季](http://www.share.minike.top/Article/details/09987578318.shtml)
+- 2026-06-29 21:21 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/917451.shtml)
+- 2026-06-29 21:25 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/6194289545.shtml)

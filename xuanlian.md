@@ -1,44 +1,50 @@
-# 湖北洪湖：革命旧址变剧场 红色文旅“活”起来
+# 三大投行齐称美债收益率将高位持久
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月05日 13:05 来源：中国新闻网 “一曲洪湖水，唱遍天下知”，2026年“五一”期间，湖北洪湖瞿家湾首次将81处革命旧址整体转化为实景剧场，推出“梦回瞿家湾 遇见1931”沉浸式红色文旅项目，让游客全时段“穿越”回湘鄂西革命根据地的烽火岁月。 (吴淘淘 张冲亚 柯以鹏 湖北洪湖报道） 责任编辑：【卢岩】
+高盛、美银及巴克莱最新研究指出，即便中东局势降温带动通胀回落，美国长期国债收益率也可能维持在较高水平。荷兰国际集团补充称，实际收益率（而非通胀预期）是支撑这一格局的核心动力。市场此前押注美联储降息会迅速压低长债利率，但投行们认为，强劲的经济数据、财政赤字扩张以及全球资本对美元资产的重新定价，将使10年期美债收益率在2026年大部分时间里保持在4%以上。责任编辑：张俊 SF065
 
 ## 正文
 
-发布时间：2026年05月05日 13:05 来源：中国新闻网 “一曲洪湖水，唱遍天下知”，2026年“五一”期间，湖北洪湖瞿家湾首次将81处革命旧址整体转化为实景剧场，推出“梦回瞿家湾 遇见1931”沉浸式红色文旅项目，让游客全时段“穿越”回湘鄂西革命根据地的烽火岁月。
+高盛、美银及巴克莱最新研究指出，即便中东局势降温带动通胀回落，美国长期国债收益率也可能维持在较高水平。
 
-(吴淘淘 张冲亚 柯以鹏 湖北洪湖报道） 责任编辑：【卢岩】
+荷兰国际集团补充称，实际收益率（而非通胀预期）是支撑这一格局的核心动力。
+
+市场此前押注美联储降息会迅速压低长债利率，但投行们认为，强劲的经济数据、财政赤字扩张以及全球资本对美元资产的重新定价，将使10年期美债收益率在2026年大部分时间里保持在4%以上。
+
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 21:20 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 21:33 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 21:32 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 21:21 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 21:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 21:34 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 21:28 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 21:15 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 21:11 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 21:29 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 21:17 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 21:12 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 21:13 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 21:16 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 21:19 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 21:37 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 21:37 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 21:20 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 21:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 21:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 21:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 21:29 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:27 - [温网](https://www.share.minike.top/Article/details/332728.shtml)
-- 2026-06-29 21:16 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/75912773.shtml)
-- 2026-06-29 21:11 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/900883024.shtml)
-- 2026-06-29 21:32 - [上世纪90年代玩具成新宠](http://www.blog.kurohicncr.top/Article/details/54697.shtml)
-- 2026-06-29 21:31 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/705539.shtml)
-- 2026-06-29 21:28 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/410049448915.shtml)
-- 2026-06-29 21:35 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/88405.shtml)
-- 2026-06-29 21:21 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/9713480840.shtml)
-- 2026-06-29 21:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/21917.shtml)
-- 2026-06-29 21:27 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/94668432923.shtml)
-- 2026-06-29 21:22 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/6100889139.shtml)
-- 2026-06-29 21:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/49558474.shtml)
-- 2026-06-29 21:31 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/14787402.shtml)
-- 2026-06-29 21:24 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/00397.shtml)
-- 2026-06-29 21:09 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/436712.shtml)
+- 2026-06-29 21:21 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/0294961.shtml)
+- 2026-06-29 21:34 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/727723070048.shtml)
+- 2026-06-29 21:14 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/5351374.shtml)
+- 2026-06-29 21:22 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/27543.shtml)
+- 2026-06-29 21:27 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/93862.shtml)
+- 2026-06-29 21:34 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/5115616.shtml)
+- 2026-06-29 21:34 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/46529.shtml)
+- 2026-06-29 21:29 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/542571.shtml)
+- 2026-06-29 21:28 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/674152.shtml)
+- 2026-06-29 21:35 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/92036.shtml)
+- 2026-06-29 21:24 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/31097821831.shtml)
+- 2026-06-29 21:35 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/51171027839.shtml)
+- 2026-06-29 21:34 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/05485.shtml)
+- 2026-06-29 21:41 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/4981488364.shtml)
+- 2026-06-29 21:31 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/0082517702.shtml)

@@ -1,61 +1,57 @@
-# 外交部发言人就东京审判开庭80周年答记者问
+# 中国驻俄使馆举办“领事服务进侨团”专场活动
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-外交部发言人就东京审判开庭80周年答记者问，具体内容如下。 问：今天是远东国际军事法庭（东京审判）开庭80周年纪念日。近期，中国、日本、国际社会都举行了一系列纪念活动，重温东京审判历史意义。请问中方对此有何评论？ 答：1946年5月3日，根据日本无条件投降安排和盟军最高统帅颁布的《远东国际军事法庭宪章》，远东国际军事法庭正式开庭。这场历史性审判汇聚11国司法力量，以海量铁证和严
+中新网莫斯科5月27日电 (记者 田冰)为畅通领事保护与协助渠道，进一步提升对在俄同胞的服务质效，中国驻俄罗斯大使馆26日在莫斯科举办“领事服务进侨团”专场活动。 活动中，各主要侨团负责人结合各自领域踊跃发言，既总结工作经验，又就经营中遇到的难点、痛点及对当前复杂国际局势下的生存发展问题提问。律师事务所专家进行了涉侨法律法规专题解读，以案释法，提供专业的法律合规指导。 中国驻俄
 
 ## 正文
 
-外交部发言人就东京审判开庭80周年答记者问，具体内容如下。
+中新网莫斯科5月27日电 (记者 田冰)为畅通领事保护与协助渠道，进一步提升对在俄同胞的服务质效，中国驻俄罗斯大使馆26日在莫斯科举办“领事服务进侨团”专场活动。
 
-问：今天是远东国际军事法庭（东京审判）开庭80周年纪念日。
+活动中，各主要侨团负责人结合各自领域踊跃发言，既总结工作经验，又就经营中遇到的难点、痛点及对当前复杂国际局势下的生存发展问题提问。
 
-近期，中国、日本、国际社会都举行了一系列纪念活动，重温东京审判历史意义。
+律师事务所专家进行了涉侨法律法规专题解读，以案释法，提供专业的法律合规指导。
 
-请问中方对此有何评论？
+中国驻俄使馆公使刘军首先向长期以来关心支持中俄友好事业的广大侨胞表示诚挚问候。
 
-答：1946年5月3日，根据日本无条件投降安排和盟军最高统帅颁布的《远东国际军事法庭宪章》，远东国际军事法庭正式开庭。
+刘军深入分析了当前俄宏观经济走势及双边经贸合作面临的新机遇与新挑战。
 
-这场历史性审判汇聚11国司法力量，以海量铁证和严谨法理，判定日本军国主义发动侵略战争、严重违反国际法，揭露日本侵略者在亚洲多国犯下的累累罪行，判处东条英机等25名甲级战犯绞刑、徒刑，驳斥所谓“胜利者审判”“自卫战争”“事后立法”等谬论。
+他指出，中俄关系持续深化，为在俄华商和企业提供了广阔的发展空间，但同时也伴随着一定的合规风险与市场波动。
 
-东京审判是《开罗宣言》《波茨坦公告》规定的实施，反映战胜国与受害者集体意志，践行《联合国宪章》的宗旨与原则，捍卫了二战胜利成果。
+他强调，广大侨胞要牢固树立“安全第一”意识，增强风险预判能力，依法依规经营。
 
-接受东京审判判决是战后日本回归国际社会的前提。
+使馆将一如既往地做大家的坚强后盾，积极维护中国公民和机构的合法权益，为大家在俄发展保驾护航。
 
 ## 相关推荐
 
-- 2026-06-29 21:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 21:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 21:10 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-29 21:17 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 21:21 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 21:33 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 21:23 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 21:10 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 21:33 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 21:29 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 21:26 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 21:29 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-29 21:16 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 21:16 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 21:19 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 21:17 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 21:29 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 21:23 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 21:39 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 21:15 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 21:39 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 21:30 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 21:23 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 21:17 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 21:27 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 21:31 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:32 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/720213.shtml)
-- 2026-06-29 21:30 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/93342448.shtml)
-- 2026-06-29 21:26 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/507845.shtml)
-- 2026-06-29 21:13 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/69207891347.shtml)
-- 2026-06-29 21:34 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/667801210911.shtml)
-- 2026-06-29 21:09 - [记者：预计热火将追求小哈达威和康利](https://www.blog.minike.top/Article/details/30524.shtml)
-- 2026-06-29 21:35 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/5231285.shtml)
-- 2026-06-29 21:32 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/0094804785.shtml)
-- 2026-06-29 21:23 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/2839551171.shtml)
-- 2026-06-29 21:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/52611.shtml)
-- 2026-06-29 21:30 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/198403533.shtml)
-- 2026-06-29 21:32 - [英法德葡存在什么隐患](https://www.share.minike.top/Article/details/30134.shtml)
-- 2026-06-29 21:11 - [韩国队主帅遭极端网友死亡威胁](https://www.share.minike.top/Article/details/63046111983.shtml)
-- 2026-06-29 21:22 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/600348065.shtml)
-- 2026-06-29 21:16 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/891254.shtml)
+- 2026-06-29 21:39 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/20933127220.shtml)
+- 2026-06-29 21:23 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/037805612906.shtml)
+- 2026-06-29 21:27 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/0199496228.shtml)
+- 2026-06-29 21:35 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/317330385605.shtml)
+- 2026-06-29 21:15 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.kurohicncr.top/Article/details/431683049.shtml)
+- 2026-06-29 21:12 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/112443758.shtml)
+- 2026-06-29 21:25 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/49359614.shtml)
+- 2026-06-29 21:40 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/167100.shtml)
+- 2026-06-29 21:24 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/02675780.shtml)
+- 2026-06-29 21:24 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/2685103120.shtml)
+- 2026-06-29 21:33 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/363791207.shtml)
+- 2026-06-29 21:21 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/1722116.shtml)
+- 2026-06-29 21:36 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/842354577.shtml)
+- 2026-06-29 21:19 - [温网](https://www.share.kurohicncr.top/Article/details/75696197.shtml)
+- 2026-06-29 21:41 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/54258083.shtml)

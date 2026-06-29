@@ -1,57 +1,56 @@
-# “拼小团”出游热度高，这份“避坑指南”请收好
+# 王毅谈中国对联合国事业所做贡献
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-35岁的郑州游客安迪还记得去年3月的新疆之行。8天7晚的行程，她和几位陌生游客一起“拼小团”。“一个人想在短时间内转一圈北疆，拼团是性价比最高的方式。”安迪说。 川西、新疆、内蒙古，这些地方风景壮美，但有一个共同的难题：公共交通覆盖有限，自驾对路况不熟悉的游客来说挑战不小。“拼小团”恰好解决了这个痛点。在社交平台搜索“新疆小团”“川西拼团”，评论区里问路线、求推荐的网友成百上千
+新华社联合国5月26日电(记者尚绪谦 潘云召)26日，中共中央政治局委员、外交部长王毅在主持联合国安理会“维护联合国宪章宗旨和原则，加强以联合国为核心的国际体系”高级别会议时，介绍中方为推动联合国事业所做贡献。 王毅表示，今年是新中国恢复联合国合法席位55周年。55年来，中国作为安理会常任理事国，积极参与推动了联合国事业。 在世界动荡变革之时，中国高举旗帜。习近平主席提出构建人
 
 ## 正文
 
-35岁的郑州游客安迪还记得去年3月的新疆之行。
+新华社联合国5月26日电(记者尚绪谦 潘云召)26日，中共中央政治局委员、外交部长王毅在主持联合国安理会“维护联合国宪章宗旨和原则，加强以联合国为核心的国际体系”高级别会议时，介绍中方为推动联合国事业所做贡献。
 
-8天7晚的行程，她和几位陌生游客一起“拼小团”。
+王毅表示，今年是新中国恢复联合国合法席位55周年。
 
-“一个人想在短时间内转一圈北疆，拼团是性价比最高的方式。
+55年来，中国作为安理会常任理事国，积极参与推动了联合国事业。
 
-”安迪说。
+在世界动荡变革之时，中国高举旗帜。
 
-川西、新疆、内蒙古，这些地方风景壮美，但有一个共同的难题：公共交通覆盖有限，自驾对路况不熟悉的游客来说挑战不小。
+习近平主席提出构建人类命运共同体重要理念和四大全球倡议，迅速得到国际社会广泛响应。
 
-“拼小团”恰好解决了这个痛点。
+在国际冲突频发之时，中国劝和促谈。
 
-在社交平台搜索“新疆小团”“川西拼团”，评论区里问路线、求推荐的网友成百上千。
+我们践行中国特色热点问题解决之道，包括在联合国平台发起成立乌克兰危机“和平之友”小组，不断为世界和平贡献智慧与力量。
 
-某在线旅游平台数据显示，近期“拼小团”产品订单量同比增长1.5倍。
+在全球发展困顿之时，中国赋能增效。
 
 ## 相关推荐
 
-- 2026-06-29 21:13 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 21:09 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 21:28 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 21:21 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 21:26 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 21:27 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 21:23 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 21:27 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 21:13 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 21:21 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 21:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 21:32 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 21:21 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 21:38 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 21:35 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 21:30 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 21:15 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 21:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 21:37 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 21:20 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 21:16 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:17 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/215419762.shtml)
-- 2026-06-29 21:11 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/05989692662.shtml)
-- 2026-06-29 21:32 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/598779.shtml)
-- 2026-06-29 21:17 - [Ella回应SHE何时合体](https://www.share.kurohicncr.top/Article/details/73686.shtml)
-- 2026-06-29 21:16 - [沙丘](http://www.blog.kurohicncr.top/Article/details/502335649.shtml)
-- 2026-06-29 21:31 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/39022.shtml)
-- 2026-06-29 21:31 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/67777744937.shtml)
-- 2026-06-29 21:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/9415059.shtml)
-- 2026-06-29 21:14 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/67504975139.shtml)
-- 2026-06-29 21:27 - [爱奇艺抬高国剧新标尺](https://www.share.minike.top/Article/details/37547322662.shtml)
-- 2026-06-29 21:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/79517373466.shtml)
-- 2026-06-29 21:34 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/93018967.shtml)
-- 2026-06-29 21:12 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/48008.shtml)
-- 2026-06-29 21:18 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/1636355.shtml)
-- 2026-06-29 21:17 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/324416875624.shtml)
+- 2026-06-29 21:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/11385479.shtml)
+- 2026-06-29 21:24 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/74792484.shtml)
+- 2026-06-29 21:32 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/9397833079.shtml)
+- 2026-06-29 21:32 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/954346.shtml)
+- 2026-06-29 21:17 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/974389.shtml)
+- 2026-06-29 21:18 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/71157117830.shtml)
+- 2026-06-29 21:22 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/0216193128.shtml)
+- 2026-06-29 21:21 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/2600513.shtml)
+- 2026-06-29 21:35 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/092253.shtml)
+- 2026-06-29 21:22 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/1829048.shtml)
+- 2026-06-29 21:33 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/74883068.shtml)
+- 2026-06-29 21:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/84177.shtml)
+- 2026-06-29 21:33 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/209317.shtml)
+- 2026-06-29 21:22 - [85花告别古偶](http://www.blog.minike.top/Article/details/54528914859.shtml)
+- 2026-06-29 21:17 - [巴西10号球衣是天才传承史](http://www.share.minike.top/Article/details/741236088.shtml)

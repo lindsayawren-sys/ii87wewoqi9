@@ -1,47 +1,61 @@
-# 微视频｜奋斗铸伟业
+# 华泰期货：成本支撑减弱，PTA基差修复
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月03日 13:45 来源：新华社 责任编辑：【姜媛媛】
+来源：华泰期货 作者： 陈莉 市场要闻与数据 无 市场分析 成本端，近期市场焦点依然在伊朗局势，原油价格跟随地缘变动。 PX方面，上上个交易日PXN258美元/吨（环比变动-1.00美元/吨）。近期中国PX负荷持稳，当前霍尔木兹海峡通行量环比提升，但整体仍低，亚洲负荷降至近几年低位。但因PTA负荷集中下降，PX去库幅度有所缩窄，现货浮动价格商谈明显回落，但季节性低库存下有支撑，
 
 ## 正文
 
-发布时间：2026年05月03日 13:45 来源：新华社 责任编辑：【姜媛媛】
+来源：华泰期货 作者： 陈莉 市场要闻与数据 无 市场分析 成本端，近期市场焦点依然在伊朗局势，原油价格跟随地缘变动。
+
+PX方面，上上个交易日PXN258美元/吨（环比变动-1.00美元/吨）。
+
+近期中国PX负荷持稳，当前霍尔木兹海峡通行量环比提升，但整体仍低，亚洲负荷降至近几年低位。
+
+但因PTA负荷集中下降，PX去库幅度有所缩窄，现货浮动价格商谈明显回落，但季节性低库存下有支撑，若霍尔木兹海峡通行问题持续不解决，PX供应缺口仍大。
+
+TA方面，PTA现货基差 122元/吨 元/吨（环比变动+21元/吨），PTA现货加工费483元/吨（环比变动+35元/吨），主力合约盘面加工费396元/吨（环比变动+6元/吨），短期PTA负荷预计维持低位。
+
+当前仓单和社会库存仍偏高，但 随着PX缓冲库存的消耗，PTA负荷下降至低位，5月去库幅度预计较大，继续关注聚酯减产情况。
+
+需求方面，聚酯开工率81.5%（环比-0.3%），本周聚酯小幅下降，织机/加弹负荷小幅反弹，当前订单整体仍偏弱，同时高价下替代效益显现，终端以消化原料备货为主，采购跟进有限，目前织造成品库存和原料库存均不高，但下游尽可能降低开机控制库存上升速度。
+
+短期聚酯负荷持稳，但库存压力偏高，关注织机负荷变化和订单变化，需求负反馈仍存。
 
 ## 相关推荐
 
-- 2026-06-29 21:12 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 21:19 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 21:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 21:26 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 21:27 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 21:16 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 21:24 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 21:20 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 21:24 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 21:23 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 21:24 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 21:19 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 21:33 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 21:14 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 21:09 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 21:36 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 21:33 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 21:40 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 21:20 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 21:16 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 21:15 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 21:18 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 21:36 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 21:39 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 21:18 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 21:15 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 21:32 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 21:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 21:39 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 21:41 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:06 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/829807308.shtml)
-- 2026-06-29 21:23 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/308581336264.shtml)
-- 2026-06-29 21:11 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/68238761680.shtml)
-- 2026-06-29 21:12 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/96024812.shtml)
-- 2026-06-29 21:17 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/68191358.shtml)
-- 2026-06-29 21:07 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/73097501.shtml)
-- 2026-06-29 21:13 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/75807317568.shtml)
-- 2026-06-29 21:07 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/96265815553.shtml)
-- 2026-06-29 21:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/51798381.shtml)
-- 2026-06-29 21:29 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/4780351296.shtml)
-- 2026-06-29 21:16 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/3399338641.shtml)
-- 2026-06-29 21:35 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/35658868.shtml)
-- 2026-06-29 21:13 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/143301273.shtml)
-- 2026-06-29 21:34 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/234486349220.shtml)
-- 2026-06-29 21:32 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/901233746.shtml)
+- 2026-06-29 21:14 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/0551057.shtml)
+- 2026-06-29 21:16 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/4373233.shtml)
+- 2026-06-29 21:33 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/53922740.shtml)
+- 2026-06-29 21:13 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/83764.shtml)
+- 2026-06-29 21:13 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/458942.shtml)
+- 2026-06-29 21:37 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/583684883161.shtml)
+- 2026-06-29 21:21 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/948039514612.shtml)
+- 2026-06-29 21:21 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.minike.top/Article/details/062247150334.shtml)
+- 2026-06-29 21:38 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/442585.shtml)
+- 2026-06-29 21:13 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/384362.shtml)
+- 2026-06-29 21:21 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.kurohicncr.top/Article/details/17239002917.shtml)
+- 2026-06-29 21:21 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/9698082.shtml)
+- 2026-06-29 21:24 - [男子40度高温下骑行严重晒伤](http://www.blog.kurohicncr.top/Article/details/1671555.shtml)
+- 2026-06-29 21:26 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/4817884175.shtml)
+- 2026-06-29 21:18 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/251886.shtml)

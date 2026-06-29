@@ -1,59 +1,58 @@
-# 从“我看过”到“我学过” 知识型体验成假期出游“标配”
+# 法国消费者信心指数跌至三年来新低
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新网济南5月2日电(记者 赵晓)当春假与“五一”假期相连，中国多地拼出8天“超长假”。年轻游客和亲子家庭作为出游主力，渐别“特种兵式”打卡观光，转而追求慢节奏、有内涵的“游有所学”“游有所获”。一种慢充式的知识型体验成为假期“标配”。 手持马克笔喷枪，在纸上层层叠叠喷绘“釉色”，模拟出瓷器窑变的韵致。这个假期，游客王曾带着8岁女儿在山东美术馆体验了一场趣味手工。“孩子放假后，
+受伊朗局势引发的市场不确定性与能源价格上涨影响，法国5月消费者信心指数进一步下滑，民众消费情绪持续受挫。 法国国家统计与经济研究所（Insee）周三发布的数据显示，当月消费者信心指数从4月的84点降至82点，创下2023年3月以来新低。 该统计机构表示：“民众对自身过往及未来财务状况的看法再度转差。” 报告同时指出，民众购置大件商品的意愿也出现大幅回落。 中东冲突持续拖累5月市
 
 ## 正文
 
-中新网济南5月2日电(记者 赵晓)当春假与“五一”假期相连，中国多地拼出8天“超长假”。
+受伊朗局势引发的市场不确定性与能源价格上涨影响，法国5月消费者信心指数进一步下滑，民众消费情绪持续受挫。
 
-年轻游客和亲子家庭作为出游主力，渐别“特种兵式”打卡观光，转而追求慢节奏、有内涵的“游有所学”“游有所获”。
+法国国家统计与经济研究所（Insee）周三发布的数据显示，当月消费者信心指数从4月的84点降至82点，创下2023年3月以来新低。
 
-一种慢充式的知识型体验成为假期“标配”。
+该统计机构表示：“民众对自身过往及未来财务状况的看法再度转差。
 
-手持马克笔喷枪，在纸上层层叠叠喷绘“釉色”，模拟出瓷器窑变的韵致。
+” 报告同时指出，民众购置大件商品的意愿也出现大幅回落。
 
-这个假期，游客王曾带着8岁女儿在山东美术馆体验了一场趣味手工。
+中东冲突持续拖累5月市场情绪，美伊双方始终未能达成重启霍尔木兹海峡通航的协议。
 
-“孩子放假后，我喜欢带她泡在美术馆、博物馆，多看多学，潜移默化地培养她的审美能力。
+战事走向不明令消费者选择暂缓消费，而居高不下的能源价格也持续削弱居民购买力。
 
-” 山东美术馆公共教育部主任孙靖东介绍，“五一”假期，该馆结合正在举办的第四届当代陶瓷艺术展览，推出10场手工坊活动，面向全年龄段人群开放。
+冲突爆发前法国物价涨势本就趋于平缓，因此该国短期内出现恶性通胀的风险依旧有限。
 
-“以前这类课程仅限儿童参与，后来发现很多家长比孩子还爱学，我们便放宽门槛，让感兴趣的观众都能体验一把。
+但战事若长期持续，预计会加剧法国经济与金融领域的动荡，进一步打击市场信心。
 
 ## 相关推荐
 
-- 2026-06-29 21:13 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 21:18 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 21:27 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 21:30 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 21:20 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 21:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 21:22 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 21:16 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 21:06 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 21:11 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 21:19 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 21:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 21:17 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 21:31 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 21:20 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 21:21 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 21:25 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 21:38 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 21:39 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 21:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 21:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 21:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 21:26 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 21:12 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 21:32 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:10 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/99491346.shtml)
-- 2026-06-29 21:07 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/19018.shtml)
-- 2026-06-29 21:09 - [高质量发展看新疆](http://www.blog.kurohicncr.top/Article/details/60247834049.shtml)
-- 2026-06-29 21:09 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/9808309306.shtml)
-- 2026-06-29 21:22 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/12120474.shtml)
-- 2026-06-29 21:22 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/7564156.shtml)
-- 2026-06-29 21:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/64512.shtml)
-- 2026-06-29 21:24 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/5384382.shtml)
-- 2026-06-29 21:22 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/1820586429.shtml)
-- 2026-06-29 21:25 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/75543036.shtml)
-- 2026-06-29 21:11 - [法拉利车主已自行承担修理费近3万](http://www.share.minike.top/Article/details/285761412534.shtml)
-- 2026-06-29 21:19 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/994629218.shtml)
-- 2026-06-29 21:31 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/4327113363.shtml)
-- 2026-06-29 21:19 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/55273281.shtml)
-- 2026-06-29 21:34 - [宜宾地震已转移安置225人](http://www.blog.kurohicncr.top/Article/details/453183244.shtml)
+- 2026-06-29 21:26 - [任泽平：AI浪潮刚刚开始](https://www.share.minike.top/Article/details/50355068253.shtml)
+- 2026-06-29 21:40 - [沉睡花园](https://www.blog.minike.top/Article/details/643068.shtml)
+- 2026-06-29 21:29 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/933287270195.shtml)
+- 2026-06-29 21:20 - [一生一世](https://www.blog.kurohicncr.top/Article/details/096402.shtml)
+- 2026-06-29 21:37 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/16058.shtml)
+- 2026-06-29 21:37 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/662182651.shtml)
+- 2026-06-29 21:20 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/7972157482.shtml)
+- 2026-06-29 21:38 - [男子40度高温下骑行严重晒伤](http://www.blog.kurohicncr.top/Article/details/646203459.shtml)
+- 2026-06-29 21:35 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/432125891133.shtml)
+- 2026-06-29 21:22 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/0720514174.shtml)
+- 2026-06-29 21:14 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.kurohicncr.top/Article/details/79323140942.shtml)
+- 2026-06-29 21:12 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/9777733977.shtml)
+- 2026-06-29 21:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/7404554441.shtml)
+- 2026-06-29 21:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/00235968.shtml)
+- 2026-06-29 21:26 - [一生一世](http://www.blog.minike.top/Article/details/045274939.shtml)

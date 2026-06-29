@@ -1,56 +1,60 @@
-# 谢霆锋、容祖儿、Twins等英皇群星香港开唱
+# 对冲基金Squarepoint多名大宗商品交易员及分析师离职
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-百年中山装何以穿出“国潮”新生？全球出行新选择 世界爱上了“中国造”沙漠里的“追光者”：旅拍定制师为游客定制专属记忆五四 | 今天为青年们喝彩！一只流浪狗，为何让这座安徽小城收获泼天流量？短评：欧洲议会的“选择性失明”东京审判为何关乎今天？爱奇艺，到底在急什么？榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？从《神
+知情人士透露，近几个月来，数名专注于能源和大宗商品市场的交易员和分析师已从对冲基金Squarepoint Capital离职。 这些因未获授权而要求匿名的知情人士表示，离职人员包括：专注于欧洲天然气及其他大宗商品的投资组合经理Benjamin Basset、大宗商品业务风险经理Fabien Cagnol、常驻休斯顿、专注于天然气领域的量化研究员Ben Chu、以及专注于全球石油
 
 ## 正文
 
-百年中山装何以穿出“国潮”新生？
+知情人士透露，近几个月来，数名专注于能源和大宗商品市场的交易员和分析师已从对冲基金Squarepoint Capital离职。
 
-全球出行新选择 世界爱上了“中国造”沙漠里的“追光者”：旅拍定制师为游客定制专属记忆五四 | 今天为青年们喝彩！
+这些因未获授权而要求匿名的知情人士表示，离职人员包括：专注于欧洲天然气及其他大宗商品的投资组合经理Benjamin Basset、大宗商品业务风险经理Fabien Cagnol、常驻休斯顿、专注于天然气领域的量化研究员Ben Chu、以及专注于全球石油自主交易业务的Devin Magnuson。
 
-一只流浪狗，为何让这座安徽小城收获泼天流量？
+Squarepoint于2014年从nQuant拆分出来，凭借在实物大宗商品市场的强大影响力从众多量化对冲基金中脱颖而出。
 
-短评：欧洲议会的“选择性失明”东京审判为何关乎今天？
+Ken Griffin旗下城堡的商品交易部门开展了利润丰厚的实物大宗商品业务，尤其是在天然气领域。
 
-爱奇艺，到底在急什么？
+而Jane Street和Jain Global等其他对冲基金及量化机构也正开展类似布局。
 
-榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？
+今年前五个月，大宗商品市场价格剧烈波动。
 
-从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？
+一场席卷美国的冬季风暴一度引发天然气期货价格飙升，而伊朗局势紧张以及霍尔木兹海峡停摆导致全球石油及欧洲天然气价格大涨。
 
-“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
+与此同时，黄金和铜的价格也在今年早些时候创下历史新高。
 
 ## 相关推荐
 
-- 2026-06-29 21:15 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 21:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 21:07 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 21:28 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 21:23 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 21:18 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 21:15 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 21:30 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 21:13 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 21:13 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 21:15 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 21:24 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 21:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 21:17 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 21:34 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 21:13 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 21:19 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 21:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 21:24 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 21:26 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 21:22 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 21:29 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 21:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 21:29 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:22 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/276144.shtml)
-- 2026-06-29 21:23 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/839499837.shtml)
-- 2026-06-29 21:27 - [周生如故](https://www.share.minike.top/Article/details/19941.shtml)
-- 2026-06-29 21:11 - [扬名立万](https://www.share.kurohicncr.top/Article/details/85203087.shtml)
-- 2026-06-29 21:21 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/67662.shtml)
-- 2026-06-29 21:08 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/83711102397.shtml)
-- 2026-06-29 21:08 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/112674507462.shtml)
-- 2026-06-29 21:23 - [福建海警位金门附近海域常态执法巡查](http://www.blog.kurohicncr.top/Article/details/9273217.shtml)
-- 2026-06-29 21:24 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/9248975480.shtml)
-- 2026-06-29 21:14 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/785722604.shtml)
-- 2026-06-29 21:23 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/4367943.shtml)
-- 2026-06-29 21:12 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/06544371.shtml)
-- 2026-06-29 21:12 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/527247069615.shtml)
-- 2026-06-29 21:20 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/3212596.shtml)
-- 2026-06-29 21:21 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.kurohicncr.top/Article/details/5153397584.shtml)
+- 2026-06-29 21:32 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/2115194.shtml)
+- 2026-06-29 21:26 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/34295444.shtml)
+- 2026-06-29 21:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/037178105052.shtml)
+- 2026-06-29 21:34 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/26760798.shtml)
+- 2026-06-29 21:25 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/3423778.shtml)
+- 2026-06-29 21:19 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/550010055097.shtml)
+- 2026-06-29 21:17 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/109187498.shtml)
+- 2026-06-29 21:15 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/30830241.shtml)
+- 2026-06-29 21:17 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/0737987905.shtml)
+- 2026-06-29 21:28 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/785045807.shtml)
+- 2026-06-29 21:32 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/55341699.shtml)
+- 2026-06-29 21:26 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/91388.shtml)
+- 2026-06-29 21:32 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/9021565595.shtml)
+- 2026-06-29 21:40 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/18905866509.shtml)
+- 2026-06-29 21:13 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/43111559.shtml)

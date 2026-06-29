@@ -1,60 +1,59 @@
-# 国内外名将云集 2026射箭世界杯赛上海站将开赛
+# 贵州赫章：山村“微心愿” 件件有着落
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新网上海5月4日电(记者 缪璐)2026现代汽车·射箭世界杯赛上海站新闻发布会4日举行。5月5日至10日，来自全球42个国家和地区的400余名运动员、教练员等将齐聚黄浦江畔，在“体育+城市景观”的独特舞台上尽展“百步穿杨”的绝技。 作为由国际单项体育组织——世界射箭联合会打造的国际A类赛事，本届射箭世界杯赛上海站依然设置了男女反曲弓、男女复合弓个人和团体以及混合团体共10个比
+中新网贵州赫章5月27日电(陈镜宇)在贵州省毕节市赫章县水塘堡彝族苗族乡新河村，许多村民的心愿是：老人屋里能添一台实用的电磁炉、屋前的小路能亮起一盏路灯……如今，这些藏在日常生活里的“微心愿”，正通过一个小程序平台被看见、被认领、被实现。 “没想到我们随口说的小心愿，真的有人记在心上。”收到物资的新河村村民感慨道。还有村民说：“现在有人惦记着我们，心里暖乎乎的。”一句句朴素的话
 
 ## 正文
 
-中新网上海5月4日电(记者 缪璐)2026现代汽车·射箭世界杯赛上海站新闻发布会4日举行。
+中新网贵州赫章5月27日电(陈镜宇)在贵州省毕节市赫章县水塘堡彝族苗族乡新河村，许多村民的心愿是：老人屋里能添一台实用的电磁炉、屋前的小路能亮起一盏路灯……如今，这些藏在日常生活里的“微心愿”，正通过一个小程序平台被看见、被认领、被实现。
 
-5月5日至10日，来自全球42个国家和地区的400余名运动员、教练员等将齐聚黄浦江畔，在“体育+城市景观”的独特舞台上尽展“百步穿杨”的绝技。
+“没想到我们随口说的小心愿，真的有人记在心上。
 
-作为由国际单项体育组织——世界射箭联合会打造的国际A类赛事，本届射箭世界杯赛上海站依然设置了男女反曲弓、男女复合弓个人和团体以及混合团体共10个比赛项目。
+”收到物资的新河村村民感慨道。
 
-其中，5月5日至8日的资格赛和淘汰赛场地设在源深体育中心，决赛将于5月9日至10日在浦东新区滨江金融广场进行，实现体育竞技与城市景观完美融合。
+还有村民说：“现在有人惦记着我们，心里暖乎乎的。
 
-参赛阵容方面，从新秀黑马到传奇老将，一幅星光熠熠的群英图将在赛场铺陈。
+”一句句朴素的话，道出了群众最真实的感受。
 
-随着复合弓混合团体赛被纳入2028年洛杉矶奥运会正式比赛项目，本届世界杯赛上海站对各国选手来说，都是一个以赛代练的关键平台。
+这改变背后，是南开大学软件学院与中央统战部挂职干部共同推动的一次社会实践。
 
-东道主中国队“箭”指佳绩。
+南开大学软件学院依托南开大学“师生四同”暑期社会实践活动，组织师生赴赫章县水塘堡彝族苗族乡开展实地调研。
 
-在2026射箭世界杯揭幕战上，中国队发挥出色，以3金1银2铜的不俗战绩迎来新赛季“开门红”。
+在新河村党支部的带领下，师生们与驻村干部一起下队入户，结合政策宣传、民情走访等工作，面对面了解群众生产生活中的实际困难和日常所需，梳理形成困难群众“微心愿”清单，并将相关需求上传公益平台，面向社会各界爱心人士公开发布，推动群众心愿点对点认领、精准化落实。
 
 ## 相关推荐
 
-- 2026-06-29 21:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 21:30 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 21:32 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 21:08 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 21:14 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 21:10 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 21:06 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 21:09 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 21:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 21:12 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 21:25 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 21:25 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 21:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 21:17 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 21:13 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 21:41 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 21:29 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 21:41 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 21:35 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 21:12 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 21:38 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 21:35 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 21:37 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 21:24 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 21:40 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 21:22 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 21:13 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:06 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/429566644477.shtml)
-- 2026-06-29 21:06 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/719204847.shtml)
-- 2026-06-29 21:24 - [扫黑风暴](https://www.blog.minike.top/Article/details/2709395890.shtml)
-- 2026-06-29 21:20 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/84914.shtml)
-- 2026-06-29 21:12 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/027782911.shtml)
-- 2026-06-29 21:15 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/631586717968.shtml)
-- 2026-06-29 21:07 - [天道](https://www.blog.kurohicncr.top/Article/details/70083.shtml)
-- 2026-06-29 21:11 - [一生一世](https://www.blog.kurohicncr.top/Article/details/8415579.shtml)
-- 2026-06-29 21:22 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/1264924565.shtml)
-- 2026-06-29 21:34 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/2777941.shtml)
-- 2026-06-29 21:28 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/18178515.shtml)
-- 2026-06-29 21:13 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/38254977071.shtml)
-- 2026-06-29 21:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/0888762511.shtml)
-- 2026-06-29 21:30 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/8113977504.shtml)
-- 2026-06-29 21:15 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/58796423093.shtml)
+- 2026-06-29 21:35 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.kurohicncr.top/Article/details/171368.shtml)
+- 2026-06-29 21:30 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/7677679.shtml)
+- 2026-06-29 21:24 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/8564751528.shtml)
+- 2026-06-29 21:15 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/07389274.shtml)
+- 2026-06-29 21:25 - [欧洲安装一台空调要花近8000元](http://www.blog.minike.top/Article/details/558165522.shtml)
+- 2026-06-29 21:14 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/01839250.shtml)
+- 2026-06-29 21:13 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/265712028.shtml)
+- 2026-06-29 21:27 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/5201736102.shtml)
+- 2026-06-29 21:15 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/355943512534.shtml)
+- 2026-06-29 21:15 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/2877886.shtml)
+- 2026-06-29 21:29 - [王鸿薇要求删陆委会百余万特别费](http://www.share.kurohicncr.top/Article/details/727959094853.shtml)
+- 2026-06-29 21:40 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/97921774.shtml)
+- 2026-06-29 21:36 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.kurohicncr.top/Article/details/6653049.shtml)
+- 2026-06-29 21:17 - [爱奇艺抬高国剧新标尺](http://www.blog.minike.top/Article/details/90039.shtml)
+- 2026-06-29 21:29 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/2668256.shtml)

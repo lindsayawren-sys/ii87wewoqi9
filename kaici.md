@@ -1,61 +1,58 @@
-# 程伟豪谈《消失的人》：日常缝隙中的不安视角
+# 建筑系统解决方案公司Limbach将出席Stifel波士顿跨行业一对一会议
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新网北京5月4日电 (记者 高凯)2026年五一档行程过半，立于档期票房榜高位的，是犯罪悬疑惊悚电影《消失的人》。该片不仅在竞争激烈的档期中稳居票房前列，更在豆瓣以7.7分开局，被认为显示出观众对高品质类型作品的持续需求。 “这次最想挑战的，恰恰是那种我们每个人都身处其中的日常熟悉感。”该片编剧/导演程伟豪日前接受中新网记者专访，如此概括其新作的创作核心。 这位以《目击者之追
+建筑系统解决方案公司Limbach Holdings近日宣布，将出席2026年6月2日举行的Stifel第九届波士顿跨行业一对一会议。公司管理层将在会议当天与投资者进行一对一的交流，介绍业务进展及战略规划。 Q1业绩：营收增长，盈利承压 就在此次会议宣布前约三周，Limbach刚刚公布了2026年第一季度财报。公司当季营收为1.389亿美元，同比增长4.3%，符合管理层预期。然
 
 ## 正文
 
-中新网北京5月4日电 (记者 高凯)2026年五一档行程过半，立于档期票房榜高位的，是犯罪悬疑惊悚电影《消失的人》。
+建筑系统解决方案公司Limbach Holdings近日宣布，将出席2026年6月2日举行的Stifel第九届波士顿跨行业一对一会议。
 
-该片不仅在竞争激烈的档期中稳居票房前列，更在豆瓣以7.7分开局，被认为显示出观众对高品质类型作品的持续需求。
+公司管理层将在会议当天与投资者进行一对一的交流，介绍业务进展及战略规划。
 
-“这次最想挑战的，恰恰是那种我们每个人都身处其中的日常熟悉感。
+Q1业绩：营收增长，盈利承压 就在此次会议宣布前约三周，Limbach刚刚公布了2026年第一季度财报。
 
-”该片编剧/导演程伟豪日前接受中新网记者专访，如此概括其新作的创作核心。
+公司当季营收为1.389亿美元，同比增长4.3%，符合管理层预期。
 
-这位以《目击者之追凶》《缉魂》等片在犯罪悬疑类型领域建立起鲜明风格的创作者，此次将镜头从相对极端的戏剧环境，转向最具烟火气的日常生活空间。
+然而，盈利端出现明显下滑：净利润降至440万美元，较上年同期的1020万美元下降57.1%；调整后EBITDA为870万美元，较上年同期的1490万美元下降41.7%。
 
-在他看来，真正的惊悚往往潜藏于日常表象之下，“犯罪故事离我们越近，那种不安全感就越真实、越有冲击力。
+盈利下滑主要归因于三方面因素：ODR业务收入下降导致的固定成本吸收不足、上年度高额净项目调增的缺失，以及新收购的Pioneer Power业务利润率偏低。
 
-我想做的，就是让观众从最熟悉的环境里，感受到陌生的战栗。
+业主直接关系业务：战略转型的核心 Limbach近年来的核心战略是向业主直接关系业务转型，即直接服务于拥有关键基础设施的建筑业主，而非依赖新建项目的总承包商关系业务。
 
-” 电影《消失的人》以父母寻子、独居女性遭遇入室侵犯、赌徒藏尸三条相互交织的线索，构筑了一个发生在同一栋居民楼内的环形谜局。
+2024年，ODR业务已贡献了公司约67%的收入和约75%的毛利润。
 
 ## 相关推荐
 
-- 2026-06-29 21:17 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 21:15 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 21:31 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 21:14 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 21:15 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 21:33 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 21:09 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 21:22 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 21:19 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 21:07 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 21:31 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 21:07 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 21:19 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 21:07 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 21:11 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 21:35 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 21:17 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 21:28 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 21:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 21:12 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 21:34 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 21:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 21:16 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 21:22 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 21:26 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 21:35 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 21:34 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:11 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/549223164930.shtml)
-- 2026-06-29 21:22 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/647767663.shtml)
-- 2026-06-29 21:18 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/735542464890.shtml)
-- 2026-06-29 21:35 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/4388181318.shtml)
-- 2026-06-29 21:36 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/8478438083.shtml)
-- 2026-06-29 21:11 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/98524.shtml)
-- 2026-06-29 21:33 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/121908.shtml)
-- 2026-06-29 21:19 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/096231343468.shtml)
-- 2026-06-29 21:07 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/771961373.shtml)
-- 2026-06-29 21:34 - [福建海警位金门附近海域常态执法巡查](http://www.blog.kurohicncr.top/Article/details/6642286.shtml)
-- 2026-06-29 21:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/886970565.shtml)
-- 2026-06-29 21:17 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/6343205.shtml)
-- 2026-06-29 21:25 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/67446.shtml)
-- 2026-06-29 21:19 - [田曦薇没招了](https://www.share.minike.top/Article/details/7773280560.shtml)
-- 2026-06-29 21:16 - [本届世界杯已有5人涉性侵风波](http://www.share.minike.top/Article/details/61021197871.shtml)
+- 2026-06-29 21:26 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/466129167576.shtml)
+- 2026-06-29 21:39 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/002399818319.shtml)
+- 2026-06-29 21:15 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/18677213339.shtml)
+- 2026-06-29 21:39 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/1868073.shtml)
+- 2026-06-29 21:25 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/266158.shtml)
+- 2026-06-29 21:14 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/737762.shtml)
+- 2026-06-29 21:14 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/394231776132.shtml)
+- 2026-06-29 21:14 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/91528209074.shtml)
+- 2026-06-29 21:33 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/1829803567.shtml)
+- 2026-06-29 21:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/7290440384.shtml)
+- 2026-06-29 21:22 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/99127256.shtml)
+- 2026-06-29 21:20 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/576370322.shtml)
+- 2026-06-29 21:17 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/51602177.shtml)
+- 2026-06-29 21:32 - [国际清算银行警告AI投资热潮](http://www.share.kurohicncr.top/Article/details/757386334.shtml)
+- 2026-06-29 21:25 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/715900930.shtml)

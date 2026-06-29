@@ -1,60 +1,61 @@
-# 法庭文件显示：马斯克在奥克兰开庭前曾寻求与 OpenAI 和解
+# 摩根大通上调评级至增持，美高梅股价应声上涨3%
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-最新法庭文件披露，在加州奥克兰联邦法院这场高风险诉讼开庭前两天，埃隆・马斯克曾联系 OpenAI 总裁格雷格・布罗克曼，试探对方和解意愿。 这份周日提交的法庭文件显示，当布罗克曼提议双方互相撤诉、放弃所有诉求时，马斯克据称回应称： “到本周末，你和山姆（奥尔特曼）将会成为全美最遭人痛恨的两个人。如果你们执意不肯和解，那就等着瞧。” 这番对话，成为这场本就充满火药味的诉讼又一新冲
+摩根大通周三发布研究报告，将美高梅国际酒店集团的股票评级从“中性”上调至“增持”，并将目标股价从41美元上调至46美元。该行认为，尽管宏观经济面临逆风，美国休闲旅客的需求依然展现出韧性，这将为拉斯维加斯大道业务的增长前景带来提振。受此消息影响，美高梅股价周三盘前上涨约3%。 评级上调核心逻辑：拉斯维加斯EBITDA已触底 摩根大通分析师Daniel Politzer在报告中指出
 
 ## 正文
 
-最新法庭文件披露，在加州奥克兰联邦法院这场高风险诉讼开庭前两天，埃隆・马斯克曾联系 OpenAI 总裁格雷格・布罗克曼，试探对方和解意愿。
+摩根大通周三发布研究报告，将美高梅国际酒店集团的股票评级从“中性”上调至“增持”，并将目标股价从41美元上调至46美元。
 
-这份周日提交的法庭文件显示，当布罗克曼提议双方互相撤诉、放弃所有诉求时，马斯克据称回应称： “到本周末，你和山姆（奥尔特曼）将会成为全美最遭人痛恨的两个人。
+该行认为，尽管宏观经济面临逆风，美国休闲旅客的需求依然展现出韧性，这将为拉斯维加斯大道业务的增长前景带来提振。
 
-如果你们执意不肯和解，那就等着瞧。
+受此消息影响，美高梅股价周三盘前上涨约3%。
 
-” 这番对话，成为这场本就充满火药味的诉讼又一新冲突焦点。
+评级上调核心逻辑：拉斯维加斯EBITDA已触底 摩根大通分析师Daniel Politzer在报告中指出，美高梅在拉斯维加斯大道的息税折旧摊销前利润估值已经触底，未来有望迎来改善。
 
-这位太空探索技术公司创始人周四出庭作证称，2017 年 OpenAI 从非营利转型为营利架构相关的条款清单，他当时只看了核心概要，并未细读细则条款。
+预计市场需求将得到价值促销和大量本地驾车游客客流的有力支撑。
 
-马斯克起诉 OpenAI，指控其转为营利模式背弃了最初为公共利益研发安全人工智能的非营利使命，并认为公司高层利用他的慈善捐款不当牟利。
+分析师表示，公司业绩增长前景将在未来数月改善，原因是比较基数趋于容易，同时美国休闲旅客展现出“韧性”。
 
-马斯克要求改组 OpenAI 管理层，并向 OpenAI 及其最大投资方之一微软索赔1500 亿美元。
+数据显示，拉斯维加斯大道在2025年贡献了美高梅约56%的EBITDAR，是该公司的核心收入来源。
 
-该案由加州奥克兰联邦地区法官伊冯・冈萨雷斯・罗杰斯审理，庭审已于 4 月 28 日启动，预计持续数周，5 月中旬或迎来裁决。
+美高梅也是拉斯维加斯大道上最大的度假村运营商，拥有37，000间客房和套房，约占该市场所有客房总数的四分之一，旗下物业包括MGM Grand、Mandalay Bay和Bellagio等知名地标。
 
 ## 相关推荐
 
-- 2026-06-29 21:11 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 21:28 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 21:20 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 21:16 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 21:34 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 21:32 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 21:18 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 21:07 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 21:29 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 21:28 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 21:33 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 21:17 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 21:33 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 21:30 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 21:37 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 21:16 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 21:21 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 21:39 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 21:18 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 21:38 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 21:41 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 21:13 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 21:29 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 21:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 21:19 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 21:29 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 21:26 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 21:27 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 21:24 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:21 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/1896552724.shtml)
-- 2026-06-29 21:15 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/7096106.shtml)
-- 2026-06-29 21:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/20100.shtml)
-- 2026-06-29 21:23 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/7156087124.shtml)
-- 2026-06-29 21:06 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/3853831.shtml)
-- 2026-06-29 21:18 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/510052.shtml)
-- 2026-06-29 21:20 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/31363.shtml)
-- 2026-06-29 21:09 - [逃狱兄弟](https://www.share.minike.top/Article/details/228208456.shtml)
-- 2026-06-29 21:28 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/684288231824.shtml)
-- 2026-06-29 21:23 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/99367383.shtml)
-- 2026-06-29 21:29 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/94526746340.shtml)
-- 2026-06-29 21:26 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/94393749.shtml)
-- 2026-06-29 21:33 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.kurohicncr.top/Article/details/020927.shtml)
-- 2026-06-29 21:32 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/5759717.shtml)
-- 2026-06-29 21:24 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/55246014.shtml)
+- 2026-06-29 21:26 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/38524989.shtml)
+- 2026-06-29 21:23 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/99917.shtml)
+- 2026-06-29 21:35 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/7340969756.shtml)
+- 2026-06-29 21:39 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/973570518.shtml)
+- 2026-06-29 21:16 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/0899613869.shtml)
+- 2026-06-29 21:39 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/35910671.shtml)
+- 2026-06-29 21:26 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/447139817.shtml)
+- 2026-06-29 21:17 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/66194506466.shtml)
+- 2026-06-29 21:15 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/75658658149.shtml)
+- 2026-06-29 21:12 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.kurohicncr.top/Article/details/632292433472.shtml)
+- 2026-06-29 21:14 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/13692.shtml)
+- 2026-06-29 21:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/6540673.shtml)
+- 2026-06-29 21:14 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/308847503942.shtml)
+- 2026-06-29 21:32 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/789045625.shtml)
+- 2026-06-29 21:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/8926940.shtml)

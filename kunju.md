@@ -1,57 +1,58 @@
-# 云南德宏：边关“守门人”24小时护航“五一”平安
+# 取材“湘超”赛事 体育励志电影《永冲锋》演绎永州队逆袭故事
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新网云南德宏5月2日电 题：云南德宏：边关“守门人”24小时护航“五一”平安 作者 王正 李果玲 “五一”假期，当人们踏上旅途、享受惬意时光，驻守在中缅边境云南德宏要道的木康边境检查站却是车流如织、灯火通明。 该站是扼守边境咽喉的“缉毒先锋站”，也是节日里守护群众平安出行的重要关口。从晨曦微露到夜色深沉，该站全体民警以24小时“不打烊”的坚守，筑牢边境安全屏障，护航旅客顺畅通
+中新网永州5月27日电 (记者 唐小晴)27日，体育励志电影《永冲锋》剧本研讨会在湖南永州举行。业内专家、主创团队及永州文旅宣传部门负责人齐聚，围绕影片创作打磨、湖湘精神诠释、永州本土文化融合等议题深入研讨，致力将湘超赛场的青年逆袭故事，打造成彰显永州气质、传递湖湘风骨的影视精品。 电影《永冲锋》取材于真实赛事故事。在2025赛季湖南省足球超级联赛(简称“湘超”)中，平均年龄仅
 
 ## 正文
 
-中新网云南德宏5月2日电 题：云南德宏：边关“守门人”24小时护航“五一”平安 作者 王正 李果玲 “五一”假期，当人们踏上旅途、享受惬意时光，驻守在中缅边境云南德宏要道的木康边境检查站却是车流如织、灯火通明。
+中新网永州5月27日电 (记者 唐小晴)27日，体育励志电影《永冲锋》剧本研讨会在湖南永州举行。
 
-该站是扼守边境咽喉的“缉毒先锋站”，也是节日里守护群众平安出行的重要关口。
+业内专家、主创团队及永州文旅宣传部门负责人齐聚，围绕影片创作打磨、湖湘精神诠释、永州本土文化融合等议题深入研讨，致力将湘超赛场的青年逆袭故事，打造成彰显永州气质、传递湖湘风骨的影视精品。
 
-从晨曦微露到夜色深沉，该站全体民警以24小时“不打烊”的坚守，筑牢边境安全屏障，护航旅客顺畅通行。
+电影《永冲锋》取材于真实赛事故事。
 
-全天候查缉：车流不停 查验不止 清晨，第一缕阳光穿透山间薄雾，木康边境检查站的执勤现场早已忙碌起来。
+在2025赛季湖南省足球超级联赛(简称“湘超”)中，平均年龄仅19.8岁的永州青年足球队，克服场地简陋、经费紧张等诸多困难，顽强拼搏、一路突围，最终斩获联赛冠军，书写了青春逆袭的“湘超奇迹”，也成为影片核心创作蓝本。
 
-接班前，带班组长仔细检查每个人的执法记录仪、对讲机，反复叮嘱：“假期车流量增大，查验要细、态度要好，不漏一人一车。
+中共永州市委宣传部副部长吴东涛在研讨会上表示，永州市委宣传部已批复支持该影片拍摄创作。
 
-” “五一”期间，德宏旅游热度攀升，进出的人流、车流明显增加。
+她说，影片创作要坚守正确创作导向，尊重原型人物经历与权益，严格履行影视创作备案流程，真实立体讲好永州青年奋斗故事。
 
-为应对管控压力，木康边境检查站提前谋划、合理调配警力，优化查验流程，在保障通行效率的同时坚决守牢防线。
+影片出品人、美国湖南商会会长王飞林表示，永州足球队逆境拼搏、永不言弃的青春姿态极具感染力，因此集结优质主创团队倾力打造影片，希望通过光影艺术生动诠释湖南“霸蛮”精神，展现新时代青年的责任与担当。
 
-白天，民警们身穿厚重的防弹衣和执勤装具，在滚滚车流中一次次重复规范的查验流程：核查身份、询问行程、排查疑点。
+联合制片人蒋财兵分享创作初心时介绍，这支青年球队的成长充满艰辛，教练自掏腰包、多方筹措资金维系队伍运转，队员们不畏艰苦、刻苦训练，完美诠释了永州儿女“吃得苦、耐得烦、霸得蛮”的精神特质。
 
 ## 相关推荐
 
-- 2026-06-29 21:36 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 21:20 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 21:31 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 21:19 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 21:26 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 21:22 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 21:28 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 21:14 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 21:33 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 21:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 21:31 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 21:35 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 21:31 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 21:21 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 21:14 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 21:17 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 21:16 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 21:29 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 21:29 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 21:31 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 21:26 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 21:41 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 21:36 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:23 - [第一炉香](http://www.share.kurohicncr.top/Article/details/58701742819.shtml)
-- 2026-06-29 21:13 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/722548.shtml)
-- 2026-06-29 21:10 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/76719792.shtml)
-- 2026-06-29 21:29 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/7625226.shtml)
-- 2026-06-29 21:30 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/560363696449.shtml)
-- 2026-06-29 21:35 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/62310736.shtml)
-- 2026-06-29 21:26 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/79975.shtml)
-- 2026-06-29 21:35 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/0375054.shtml)
-- 2026-06-29 21:32 - [无畏为自己的猫正名了](http://www.blog.minike.top/Article/details/448199193320.shtml)
-- 2026-06-29 21:35 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/11554916.shtml)
-- 2026-06-29 21:19 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/6640380.shtml)
-- 2026-06-29 21:07 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/0286383166.shtml)
-- 2026-06-29 21:26 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/14664.shtml)
-- 2026-06-29 21:28 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/1683160465.shtml)
-- 2026-06-29 21:24 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/269402385262.shtml)
+- 2026-06-29 21:36 - [男子称在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/1825906.shtml)
+- 2026-06-29 21:13 - [男子称在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/73949947.shtml)
+- 2026-06-29 21:25 - [毒液2](https://www.share.kurohicncr.top/Article/details/143077395072.shtml)
+- 2026-06-29 21:16 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/90901915718.shtml)
+- 2026-06-29 21:39 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/17334.shtml)
+- 2026-06-29 21:32 - [温网](https://www.blog.kurohicncr.top/Article/details/34281.shtml)
+- 2026-06-29 21:14 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/320759598372.shtml)
+- 2026-06-29 21:39 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/722576861.shtml)
+- 2026-06-29 21:14 - [极限挑战第一季](http://www.blog.minike.top/Article/details/2779700.shtml)
+- 2026-06-29 21:31 - [郑钦文谈再战西尼亚科娃](https://www.share.minike.top/Article/details/19306147.shtml)
+- 2026-06-29 21:36 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/8970024.shtml)
+- 2026-06-29 21:27 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/573035954422.shtml)
+- 2026-06-29 21:28 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/20397854.shtml)
+- 2026-06-29 21:38 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/162896007631.shtml)
+- 2026-06-29 21:23 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/9241621968.shtml)

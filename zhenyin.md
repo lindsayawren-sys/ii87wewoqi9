@@ -1,58 +1,60 @@
-# 广州共青团积极探索助力培育发展“青春经济”新路径
+# 19国媒体走进台资企业 感受中国潮流IP与科技活力
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新网广州5月2日电 (记者 张璐)据共青团广州市委员会(简称“团市委”)5月2日消息，“青春有好‘市’·集‘甜’创未来”——“青甜创市”首发场(简称“市集”)正在广州举行。 据了解，“青甜创市”是广州共青团针对青年消费习惯、兴趣业态与成长发展需求，助力发展“青春经济”而打造的公益性青年创业孵化平台，旨在培育推广文创手作等特色业态，丰富青年消费场景。 在非遗手作区，传统技艺与青
+机器狗卖萌撒娇、太极招式刚柔并济、全民健身操动感律动……5月25日，由中国公共外交协会和环球网共同举办的“走读中国”国际媒体交流项目邀请来自阿塞拜疆、乌兹别克斯坦、阿尔及利亚等18个国家的19名国际媒体记者走进巨星传奇集团有限公司昆山总部，体验音乐、武术、机器人与潮流IP多元互动，解锁中国文化消费升级新图景。巨星传奇依托大陆完善产业生态、广阔消费市场，深耕华语原创IP孵化运营，
 
 ## 正文
 
-中新网广州5月2日电 (记者 张璐)据共青团广州市委员会(简称“团市委”)5月2日消息，“青春有好‘市’·集‘甜’创未来”——“青甜创市”首发场(简称“市集”)正在广州举行。
+机器狗卖萌撒娇、太极招式刚柔并济、全民健身操动感律动……5月25日，由中国公共外交协会和环球网共同举办的“走读中国”国际媒体交流项目邀请来自阿塞拜疆、乌兹别克斯坦、阿尔及利亚等18个国家的19名国际媒体记者走进巨星传奇集团有限公司昆山总部，体验音乐、武术、机器人与潮流IP多元互动，解锁中国文化消费升级新图景。
 
-据了解，“青甜创市”是广州共青团针对青年消费习惯、兴趣业态与成长发展需求，助力发展“青春经济”而打造的公益性青年创业孵化平台，旨在培育推广文创手作等特色业态，丰富青年消费场景。
+巨星传奇依托大陆完善产业生态、广阔消费市场，深耕华语原创IP孵化运营，探索两岸文化产业融合共生新路径。
 
-在非遗手作区，传统技艺与青春创意碰撞出别样火花。
+在一层科技展区，前沿智能产品展现出中国潮玩消费的科技活力。
 
-“小馥生活”的主理人用香云纱、宋锦打造的服饰、茶席、抱枕，将东方美学融入日常；“美成在久”团队以宋锦为原料手工缝制发饰、耳环，古典精致；“观效文创”则专注于掐丝珐琅技艺，培养残障技师创作精美画作。
+四足机器狗具备情感交互能力，可通过触觉、语音、视觉识别人类情绪，在不同指令下完成行走、转身及坐下等动作，成为海外记者镜头下的焦点；智能机器人活力热舞，点燃现场氛围。
 
-据主办方介绍，本次市集严格遵循“公益优先、青年导向、品质达标、业态多元”的原则，重点遴选平均年龄在35岁以下15个青年创业团队，共设置21个摊位，覆盖多个领域。
+巨星传奇携手科技企业布局“IP+机器人+AI”，打造消费级智能新品，也折射出中国年轻消费市场正从功能体验转向情绪互动，催生更多兼具陪伴感与互动感的潮流产品。
 
-“我们希望通过‘青春市集’特色IP的打造，探索可复制、可推广的运营模式，激发青年创新创业活力，反哺支持更多有需要的青少年成长发展，让青春之‘市’点亮全城美好。
+中国功夫作为享誉全球的文化符号，也让海外记者收获沉浸式体验。
 
-”团市委相关负责人表示。
+成家班成员张峰现场展示武术技艺，带领记者学习太极基础动作。
 
-据介绍，“青甜创市”是培育壮大“青春经济”、扶持“青春小店”发展的重要探索。
+哈萨克斯坦腾格里新闻网数字发展部总编叶赛托夫・达尼亚尔・阿迪尔汉诺维奇感慨，武术兼具观赏性与文化内涵，希望能深入学习。
 
 ## 相关推荐
 
-- 2026-06-29 21:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 21:13 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 21:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 21:11 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 21:20 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 21:14 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 21:31 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 21:06 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 21:21 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 21:35 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 21:24 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 21:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 21:15 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 21:27 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 21:22 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 21:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 21:36 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 21:22 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 21:39 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 21:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 21:40 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 21:34 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 21:16 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 21:37 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 21:30 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 21:37 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:16 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/23091.shtml)
-- 2026-06-29 21:29 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/1585249.shtml)
-- 2026-06-29 21:08 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/50975.shtml)
-- 2026-06-29 21:34 - [毒液2](http://www.blog.minike.top/Article/details/775043447387.shtml)
-- 2026-06-29 21:33 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/9833374405.shtml)
-- 2026-06-29 21:32 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/716145.shtml)
-- 2026-06-29 21:31 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/74283194.shtml)
-- 2026-06-29 21:07 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/670111944.shtml)
-- 2026-06-29 21:27 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/981654517.shtml)
-- 2026-06-29 21:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/85566941284.shtml)
-- 2026-06-29 21:30 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/832547.shtml)
-- 2026-06-29 21:30 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/66481.shtml)
-- 2026-06-29 21:30 - [T1零封KC MSI](https://www.share.minike.top/Article/details/61400269023.shtml)
-- 2026-06-29 21:12 - [斗破苍穹](http://www.share.minike.top/Article/details/6319274522.shtml)
-- 2026-06-29 21:14 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/935451471629.shtml)
+- 2026-06-29 21:37 - [速度与激情9](http://www.share.minike.top/Article/details/60140290254.shtml)
+- 2026-06-29 21:13 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/61492.shtml)
+- 2026-06-29 21:31 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/18625113.shtml)
+- 2026-06-29 21:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/024141166.shtml)
+- 2026-06-29 21:28 - [新官上任三把火](http://www.blog.minike.top/Article/details/6419070.shtml)
+- 2026-06-29 21:25 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/75447461948.shtml)
+- 2026-06-29 21:27 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/243721988.shtml)
+- 2026-06-29 21:19 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/110090.shtml)
+- 2026-06-29 21:40 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/597755871.shtml)
+- 2026-06-29 21:31 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/489958561731.shtml)
+- 2026-06-29 21:25 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/903305233.shtml)
+- 2026-06-29 21:40 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/8853432.shtml)
+- 2026-06-29 21:21 - [黄金也扛不住了](https://www.share.minike.top/Article/details/934904166984.shtml)
+- 2026-06-29 21:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/01442724837.shtml)
+- 2026-06-29 21:29 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/2591386525.shtml)

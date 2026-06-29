@@ -1,49 +1,57 @@
-# 西藏拉萨：马背上的精彩
+# 人工智能如何撼动咨询行业巨头
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月02日 19:48 来源：中国新闻网 5月2日，“圣地拉萨·魅力城关”赛马活动在西藏拉萨市北郊赛马场举办。活动现场，开场走秀、速度赛马和传统走马项目决赛等活动展现马背上的精彩，吸引民众观看。(李林 制作 王佳琪) 责任编辑：【罗攀】
+数十年来，咨询行业一直由少数巨头把持，其中既有麦肯锡、贝恩、波士顿咨询集团（BCG）这类顶尖战略咨询公司，也有德勤、安永、毕马威、普华永道四大会计师事务所的咨询部门，以及埃森哲等技术落地服务巨头。这些企业均拥有大批初级顾问，可在全球各地承接大型项目。 人工智能正首次打破这种行业垄断，也为资金充裕的新晋竞争者打开了大门。这项技术瓦解了老牌巨头的核心优势——规模效应。随着部分工作逐
 
 ## 正文
 
-发布时间：2026年05月02日 19:48 来源：中国新闻网 5月2日，“圣地拉萨·魅力城关”赛马活动在西藏拉萨市北郊赛马场举办。
+数十年来，咨询行业一直由少数巨头把持，其中既有麦肯锡、贝恩、波士顿咨询集团（BCG）这类顶尖战略咨询公司，也有德勤、安永、毕马威、普华永道四大会计师事务所的咨询部门，以及埃森哲等技术落地服务巨头。
 
-活动现场，开场走秀、速度赛马和传统走马项目决赛等活动展现马背上的精彩，吸引民众观看。
+这些企业均拥有大批初级顾问，可在全球各地承接大型项目。
 
-(李林 制作 王佳琪) 责任编辑：【罗攀】
+人工智能正首次打破这种行业垄断，也为资金充裕的新晋竞争者打开了大门。
+
+这项技术瓦解了老牌巨头的核心优势——规模效应。
+
+随着部分工作逐渐由智能代理承接，小型咨询公司如今也能接手以往无力承担的大型项目。
+
+英国管理咨询协会测算，借助人工智能与大型对手展开竞争，小型咨询企业的增长率最高可达50%。
+
+德勤高级顾问合伙人邦克表示，人工智能大幅降低了行业准入门槛。
+
+“一家原本仅有20人的团队，依托AI的效能加持，业务能力能迅速比肩百人、甚至一百五十人的团队。
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 21:11 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 21:14 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 21:16 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 21:31 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 21:10 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 21:25 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 21:18 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 21:23 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 21:18 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 21:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 21:28 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 21:25 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 21:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 21:15 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 21:36 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 21:27 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 21:28 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 21:36 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 21:34 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 21:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 21:16 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 21:34 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 21:32 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/3064159.shtml)
-- 2026-06-29 21:26 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/75816327221.shtml)
-- 2026-06-29 21:32 - [请回答王牌2019](https://www.share.minike.top/Article/details/080483.shtml)
-- 2026-06-29 21:10 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/764394602.shtml)
-- 2026-06-29 21:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/33819.shtml)
-- 2026-06-29 21:26 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/47850.shtml)
-- 2026-06-29 21:21 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/5844658234.shtml)
-- 2026-06-29 21:17 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/41967876157.shtml)
-- 2026-06-29 21:16 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/868040845058.shtml)
-- 2026-06-29 21:30 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/752415273797.shtml)
-- 2026-06-29 21:11 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/333508412969.shtml)
-- 2026-06-29 21:34 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/922944900.shtml)
-- 2026-06-29 21:13 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/9819099.shtml)
-- 2026-06-29 21:21 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/033481.shtml)
-- 2026-06-29 21:19 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/1246801100.shtml)
+- 2026-06-29 21:26 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/4034706.shtml)
+- 2026-06-29 21:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/0494356535.shtml)
+- 2026-06-29 21:20 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/513657.shtml)
+- 2026-06-29 21:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/3149437569.shtml)
+- 2026-06-29 21:40 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/12138731942.shtml)
+- 2026-06-29 21:20 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/64123.shtml)
+- 2026-06-29 21:19 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/3811574.shtml)
+- 2026-06-29 21:31 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/63086356554.shtml)
+- 2026-06-29 21:25 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/115178606.shtml)
+- 2026-06-29 21:33 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.kurohicncr.top/Article/details/38037.shtml)
+- 2026-06-29 21:25 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/662168629.shtml)
+- 2026-06-29 21:24 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/89460.shtml)
+- 2026-06-29 21:32 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/62180.shtml)
+- 2026-06-29 21:26 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/43161669119.shtml)
+- 2026-06-29 21:33 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/462852785151.shtml)

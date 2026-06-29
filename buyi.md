@@ -1,56 +1,60 @@
-# 蜜雪集团拟实施H股全流通计划
+# 鸡蛋：唯一正向基差的市场，梅雨的临近？
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-蜜雪集团（02097）发布公告，基于指引并考虑到本公司自股东接获的意向，经本公司董事会批准，本公司已于2026年4月30日向中国证监会提交申请，以将本公司2282.4万股非上市股份（占本公司于本公告日期已发行股份总数约6.01%），转换为本公司H股，以实行H股全流通。于取得所有相关批准及╱或备案（包括中国证监会的备案通知及联交所的批准）及遵守所有适用法律、法规及规则后，该等非上
+来源：CFC商品策略研究 作者 | 中信建投期货研究发展部 田亚雄 研究员 | 中信建投期货研究发展部 邓昊然 期货交易咨询业务资格：证监许可〔2011〕1461号 本报告完成时间 | 2026年5月28日 正基差通常暗示商品的供需存在缺口，是基本面向好的关键标识。2026年1季度农产品中唯有棉花是正基差的品种，随后展开了千点的行情。近期的正向基差市场转向了鸡蛋，并在整个5月份
 
 ## 正文
 
-蜜雪集团（02097）发布公告，基于指引并考虑到本公司自股东接获的意向，经本公司董事会批准，本公司已于2026年4月30日向中国证监会提交申请，以将本公司2282.4万股非上市股份（占本公司于本公告日期已发行股份总数约6.01%），转换为本公司H股，以实行H股全流通。
+来源：CFC商品策略研究 作者 | 中信建投期货研究发展部 田亚雄 研究员 | 中信建投期货研究发展部 邓昊然 期货交易咨询业务资格：证监许可〔2011〕1461号 本报告完成时间 | 2026年5月28日 正基差通常暗示商品的供需存在缺口，是基本面向好的关键标识。
 
-于取得所有相关批准及╱或备案（包括中国证监会的备案通知及联交所的批准）及遵守所有适用法律、法规及规则后，该等非上市股份将转换为H股，以及本公司将申请该等H股于联交所主板上市及买卖。
+2026年1季度农产品中唯有棉花是正基差的品种，随后展开了千点的行情。
 
-根据本公司的章程，H股全流通毋须本公司股东进一步批准。
+近期的正向基差市场转向了鸡蛋，并在整个5月份上演了经典的鸡蛋近月期货上行收敛基差的行情。
 
-于本公告日期，本公司（i）尚未完成中国证监会的备案程序；（ii）尚未向联交所申请转换及上市；及（iii）有关H股全流通的实行计划详情尚未落实。
+目前恰是市场最为强劲的时间点，以至于鸡蛋主产区现货价格在五月传统淡季以来从3.8元上涨至4.5元左右。
 
-本公司将适时就申请H股全流通及转换及上市的进展及详情作出进一步公告。
+目前市场的主流预期继续朝向现货淡季不淡，以2025年下半年整体的补栏（6月-12月）低于预期作为主要的交易驱动，形成定价。
 
-责任编辑：卢昱君
+从卓创口径的数据上看，2025年6月-12月补栏5.57亿羽，同比下降10%，较2024年降低5%，但高于2020-2022年的同期水平。
+
+从现货的强势程度来看，数据或对于补栏下滑的幅度有所低估。
+
+当下很值得多头进一步押注的关键逻辑： A．梅雨季节并非蛋价趋势性的拐点，出梅之后的上涨行情是历年的季节性规律。
 
 ## 相关推荐
 
-- 2026-06-29 21:11 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 21:10 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 21:31 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 21:17 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 21:21 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 21:34 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 21:11 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 21:13 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 21:19 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 21:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 21:20 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 21:15 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 21:06 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 21:07 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 21:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 21:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 21:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 21:41 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 21:31 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 21:17 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 21:16 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 21:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 21:38 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 21:39 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 21:36 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 21:34 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 21:13 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 21:41 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:29 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/71491002676.shtml)
-- 2026-06-29 21:06 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/67552295.shtml)
-- 2026-06-29 21:22 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/46912701.shtml)
-- 2026-06-29 21:19 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/0290814146.shtml)
-- 2026-06-29 21:19 - [周杰伦千禧年就有小卡了](http://www.blog.minike.top/Article/details/196656347125.shtml)
-- 2026-06-29 21:30 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/05400630.shtml)
-- 2026-06-29 21:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/2287953.shtml)
-- 2026-06-29 21:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/67204657069.shtml)
-- 2026-06-29 21:31 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/9123980.shtml)
-- 2026-06-29 21:34 - [杨德龙：创新药迎来新的发展机遇](http://www.share.minike.top/Article/details/89782116208.shtml)
-- 2026-06-29 21:34 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/6177199969.shtml)
-- 2026-06-29 21:11 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/497915778.shtml)
-- 2026-06-29 21:14 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/962160559.shtml)
-- 2026-06-29 21:20 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/646650.shtml)
-- 2026-06-29 21:07 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/5245325651.shtml)
+- 2026-06-29 21:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/5143869707.shtml)
+- 2026-06-29 21:14 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/9921135.shtml)
+- 2026-06-29 21:30 - [急先锋](http://www.share.kurohicncr.top/Article/details/829082.shtml)
+- 2026-06-29 21:22 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/2080065687.shtml)
+- 2026-06-29 21:27 - [2026全国田径冠军赛江苏队4金收官](http://www.share.minike.top/Article/details/17007245432.shtml)
+- 2026-06-29 21:20 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/24623955012.shtml)
+- 2026-06-29 21:20 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/73378501077.shtml)
+- 2026-06-29 21:26 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/34298517497.shtml)
+- 2026-06-29 21:39 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/092825138.shtml)
+- 2026-06-29 21:38 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/4178760.shtml)
+- 2026-06-29 21:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/59170.shtml)
+- 2026-06-29 21:39 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/59017.shtml)
+- 2026-06-29 21:29 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/7500991213.shtml)
+- 2026-06-29 21:26 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/6981131.shtml)
+- 2026-06-29 21:15 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/462122.shtml)

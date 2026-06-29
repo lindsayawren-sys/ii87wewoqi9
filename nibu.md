@@ -1,59 +1,57 @@
-# 酒价内参5月4日价格发布：青花郎领跌 总价自近4日高位回落
+# SK海力士和美光市值突破1万亿美元 AI热引爆存储芯片股涨势
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月4日整体小幅走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9942元，较昨日下跌10元，结束此前连续三日反弹。市场在持续修复后出现小幅回调，终端交投情绪有所降温，核心单品涨跌分化依然显著。 今日白酒市场11大单品四涨七跌，输家
+随着投资人押注AI热潮将持续提升存储芯片行业的估值，相关股票的涨势欲罢不能，SK海力士和美光市值首次突破1万亿美元大关。 SK海力士周三在韩国股价一度上涨13%，过去12个月的涨幅超过1000%，成为继本月稍早的三星电子之后、第三家市值突破1万亿美元的亚洲公司。美光股价周二飙升19%，创下 2011年以来的最大涨幅，此前瑞银集团一位分析师表示，该公司股价未来一年可能会翻倍。 这
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月4日整体小幅走弱。
+随着投资人押注AI热潮将持续提升存储芯片行业的估值，相关股票的涨势欲罢不能，SK海力士和美光市值首次突破1万亿美元大关。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9942元，较昨日下跌10元，结束此前连续三日反弹。
+SK海力士周三在韩国股价一度上涨13%，过去12个月的涨幅超过1000%，成为继本月稍早的三星电子之后、第三家市值突破1万亿美元的亚洲公司。
 
-市场在持续修复后出现小幅回调，终端交投情绪有所降温，核心单品涨跌分化依然显著。
+美光股价周二飙升19%，创下 2011年以来的最大涨幅，此前瑞银集团一位分析师表示，该公司股价未来一年可能会翻倍。
 
-今日白酒市场11大单品四涨七跌，输家占据明显上风。
+这三家高频宽存储芯片（HBM）制造商位于全球AI基础建设扩张中的关键枢纽，它们的产品成为限制资料中心扩产速度的重要瓶颈。
 
-上涨方面，洋河梦之蓝M6+涨幅居前，上涨8元/瓶，一举突破600元整数关口，创近一个月最大涨幅，价格亦创4月4日以来最高；国窖1573上涨7元/瓶，价格大幅反弹收获二连阳，价格重回900元整数关口上方；五粮液普五八代上涨6元/瓶，重返820元上方；精品茅台上涨5元/瓶，近半月其价格呈缓慢上升势头。
+投资人和分析师预计，存储芯片短缺将持续到2027年，这使得它们对全球大型科技公司拥有非同寻常的定价权。
 
-下跌方面，青花郎的跌幅居前，下跌9元/瓶，失守700元关口；古井贡古20下跌8元/瓶；五粮液1618下跌7元/瓶，回吐昨日全部涨幅；习酒君品与青花汾20均下跌4元/瓶；飞天茅台与水晶剑南春均下跌2元/瓶。
+“存储芯片制造商的股价一直被非理性地低估，但我们现在看到这种估值落差正在被修复，”首尔Life Asset Management投资长Kang DaeKwun表示。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+“我们仍处于这轮涨势的早期阶段。
 
-随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
+” Counterpoint Research的数据显示，2025年第四季SK海力士在全球HBM市场收入份额达57%。
 
 ## 相关推荐
 
-- 2026-06-29 21:08 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 21:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 21:32 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 21:26 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 21:12 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 21:24 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 21:33 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 21:21 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 21:12 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 21:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 21:16 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 21:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 21:21 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 21:30 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 21:24 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 21:18 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 21:24 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 21:21 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 21:33 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 21:31 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 21:23 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 21:17 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 21:17 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 21:34 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:20 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/74534304076.shtml)
-- 2026-06-29 21:08 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/94969.shtml)
-- 2026-06-29 21:35 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/954946.shtml)
-- 2026-06-29 21:09 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/00177504631.shtml)
-- 2026-06-29 21:17 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/000417224005.shtml)
-- 2026-06-29 21:18 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/866743.shtml)
-- 2026-06-29 21:35 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/489840743.shtml)
-- 2026-06-29 21:07 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/20289.shtml)
-- 2026-06-29 21:25 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/423334670.shtml)
-- 2026-06-29 21:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/1366663071.shtml)
-- 2026-06-29 21:17 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/781128.shtml)
-- 2026-06-29 21:07 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/049719.shtml)
-- 2026-06-29 21:24 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.minike.top/Article/details/2299328.shtml)
-- 2026-06-29 21:31 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/669832687.shtml)
-- 2026-06-29 21:07 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/137642485.shtml)
+- 2026-06-29 21:19 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/0777448.shtml)
+- 2026-06-29 21:37 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/90254905.shtml)
+- 2026-06-29 21:31 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/180608887.shtml)
+- 2026-06-29 21:33 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/97131.shtml)
+- 2026-06-29 21:31 - [绘画区你赢了](https://www.blog.minike.top/Article/details/61591.shtml)
+- 2026-06-29 21:17 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/833211150796.shtml)
+- 2026-06-29 21:20 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/8986176.shtml)
+- 2026-06-29 21:22 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/4877367237.shtml)
+- 2026-06-29 21:12 - [教育部高校学生资助热线7月1日开通](http://www.share.kurohicncr.top/Article/details/972943.shtml)
+- 2026-06-29 21:13 - [世界杯高票价为何没劝退球迷](http://www.blog.minike.top/Article/details/27948015.shtml)
+- 2026-06-29 21:21 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/1391436.shtml)
+- 2026-06-29 21:35 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/70600.shtml)
+- 2026-06-29 21:27 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/313548720.shtml)
+- 2026-06-29 21:23 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/654548266105.shtml)
+- 2026-06-29 21:24 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/483714620.shtml)

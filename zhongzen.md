@@ -1,55 +1,61 @@
-# 大摩：中国中免目标价降至77港元 给予“与大市同步”评级
+# 450亿茶饮之王，开打9块9咖啡大战
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-摩根士丹利发布研报称，考虑到近期市场趋势及中国中免（01880） 首季业绩，将公司2026至2027年每股盈利预测下调6%至7%，并将收入预测各下调13%；H股目标价由89 港元下调至77港元，评级“与大市同步”。 该行指，3月海南免税销售慢于预期，4月数据亦显示增长进一步减速，将全年增长预测由25%至30%，下调至20%至30%。同时，公司正调整上海及北京机场免税店，预计于今
+茶饮新贵王云安，打响又一场咖啡大战。 5月下旬，古茗在合作伙伴大会上宣布，准备投入4亿元，发力咖啡品类，今年预备将咖啡营收占比提升至20%~25%，几乎翻倍。 “9块9”风暴，再次来临。 5月，苦尽柑来拿铁、香草籽维也纳等爆款，价格打到了9.9元。古茗方面称，6月起，还将推出“每周9.9元喝指定咖啡”活动。 瑞幸、库迪占据的平价咖啡赛道，迎来市值超450亿元的茶饮对手。 有消费
 
 ## 正文
 
-摩根士丹利发布研报称，考虑到近期市场趋势及中国中免（01880） 首季业绩，将公司2026至2027年每股盈利预测下调6%至7%，并将收入预测各下调13%；H股目标价由89 港元下调至77港元，评级“与大市同步”。
+茶饮新贵王云安，打响又一场咖啡大战。
 
-该行指，3月海南免税销售慢于预期，4月数据亦显示增长进一步减速，将全年增长预测由25%至30%，下调至20%至30%。
+5月下旬，古茗在合作伙伴大会上宣布，准备投入4亿元，发力咖啡品类，今年预备将咖啡营收占比提升至20%~25%，几乎翻倍。
 
-同时，公司正调整上海及北京机场免税店，预计于今年次季至第三季完成，进度较预期慢。
+“9块9”风暴，再次来临。
 
-公司亦正整合线上平台，转型期间销售或面临风险。
+5月，苦尽柑来拿铁、香草籽维也纳等爆款，价格打到了9.9元。
 
-由于机场及线上业务利润率较低，对盈利影响较小；首季利润率仍优于预期。
+古茗方面称，6月起，还将推出“每周9.9元喝指定咖啡”活动。
 
-责任编辑：卢昱君
+瑞幸、库迪占据的平价咖啡赛道，迎来市值超450亿元的茶饮对手。
+
+有消费者向《21CBR》表示，在常光顾的古茗门店，早上常遇到咖啡出餐慢、等待时间过长的情况。
+
+打造爆款 “希望我们的赛道从奶茶变成茶咖。
 
 ## 相关推荐
 
-- 2026-06-29 21:21 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 21:17 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 21:22 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 21:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 21:29 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 21:28 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 21:27 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 21:22 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 21:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 21:30 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 21:19 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 21:34 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 21:10 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 21:36 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 21:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 21:12 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 21:17 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 21:33 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 21:35 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 21:41 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 21:39 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 21:25 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 21:17 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 21:24 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 21:20 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 21:24 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 21:23 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 21:38 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:13 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/90625198947.shtml)
-- 2026-06-29 21:22 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/2976783453.shtml)
-- 2026-06-29 21:34 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/327956388534.shtml)
-- 2026-06-29 21:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/650262688820.shtml)
-- 2026-06-29 21:08 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/28715914705.shtml)
-- 2026-06-29 21:20 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.kurohicncr.top/Article/details/60775.shtml)
-- 2026-06-29 21:34 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/87751.shtml)
-- 2026-06-29 21:23 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/6104269065.shtml)
-- 2026-06-29 21:13 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/9269901265.shtml)
-- 2026-06-29 21:23 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/461446130492.shtml)
-- 2026-06-29 21:21 - [东方风云榜](http://www.blog.minike.top/Article/details/7317403.shtml)
-- 2026-06-29 21:17 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/425489787.shtml)
-- 2026-06-29 21:06 - [周生如故](https://www.share.kurohicncr.top/Article/details/033358697.shtml)
-- 2026-06-29 21:35 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/210538.shtml)
-- 2026-06-29 21:09 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/99005.shtml)
+- 2026-06-29 21:15 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.kurohicncr.top/Article/details/85642863.shtml)
+- 2026-06-29 21:18 - [网红小徐直播时突遇地震](http://www.blog.kurohicncr.top/Article/details/82564.shtml)
+- 2026-06-29 21:19 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/841035.shtml)
+- 2026-06-29 21:28 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/889416.shtml)
+- 2026-06-29 21:29 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/657479307285.shtml)
+- 2026-06-29 21:29 - [王安宇聪明到导演组炸了](https://www.share.kurohicncr.top/Article/details/594273919.shtml)
+- 2026-06-29 21:16 - [我们的少年时代2](https://www.blog.minike.top/Article/details/1798378.shtml)
+- 2026-06-29 21:33 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/5811641875.shtml)
+- 2026-06-29 21:30 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/1727883064.shtml)
+- 2026-06-29 21:35 - [英法德葡存在什么隐患](https://www.blog.kurohicncr.top/Article/details/08957966791.shtml)
+- 2026-06-29 21:29 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/82181309.shtml)
+- 2026-06-29 21:16 - [回顾世界杯争议事件](http://www.share.minike.top/Article/details/2826254000.shtml)
+- 2026-06-29 21:35 - [王楚钦开门红](http://www.share.minike.top/Article/details/816407468.shtml)
+- 2026-06-29 21:18 - [温网](https://www.share.kurohicncr.top/Article/details/379187.shtml)
+- 2026-06-29 21:24 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/96698.shtml)

@@ -1,57 +1,47 @@
-# 中国各民族的人权，不用你们指手画脚！
+# 汽车试验基地延伸出来的“新检测”
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-4月30日，欧洲议会通过涉中国新颁布民族团结进步促进法有关决议，这一决议以所谓人权和民族正义为借口，罔顾事实与法理，恶意抹黑、刻意曲解中国法律和民族政策，粗暴干涉中国内政，属于典型的民族领域“人权干预主义”，暴露出对中国的无知和偏见。 民族团结进步促进法在今年3月闭幕的第十四届全国人大四次会议上审议通过，将于2026年7月1日起施行，这既是时代的法治呼声，也是国家立法机关对于时
+发布时间：2026年05月27日 10:11 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-4月30日，欧洲议会通过涉中国新颁布民族团结进步促进法有关决议，这一决议以所谓人权和民族正义为借口，罔顾事实与法理，恶意抹黑、刻意曲解中国法律和民族政策，粗暴干涉中国内政，属于典型的民族领域“人权干预主义”，暴露出对中国的无知和偏见。
-
-民族团结进步促进法在今年3月闭幕的第十四届全国人大四次会议上审议通过，将于2026年7月1日起施行，这既是时代的法治呼声，也是国家立法机关对于时代呼声的法治回应。
-
-在中华民族伟大复兴的历史节点上，制定民族团结进步促进法，推进民族事务治理体系和治理能力现代化，以法治方式保障民族团结进步，促进人权保障事业，是新时代中国共产党治国理政的重大制度创新，是推进国家治理体系和治理能力现代化的重要举措，必将为新时代中华民族的伟大复兴与中国特色人权事业的健康发展注入强大动力。
-
-(一)彰显中国特色人权保障的独特优势 人权是各族人民普遍具有的法律权利。
-
-人权，是指人按其本质和尊严享有或应当享有的基本权利。
-
-在我国，人权的内涵丰富而全面，不仅包括生存权、发展权等基本权利，还涵盖了政治权利、经济权利、文化权利等各个方面。
-
-制定民族团结进步促进法，是顺应时代发展潮流、保障各族人民根本利益和合法权益的重大决策，对于加强民族团结、促进人权保障、实现中华民族伟大复兴，具有不可替代的重大作用。
-
-必将成为我国民族工作和人权事业发展的一座重要里程碑，引领我国在民族和谐、人民幸福、国家富强的道路上不断前进。
+发布时间：2026年05月27日 10:11 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 21:19 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 21:29 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 21:06 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 21:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 21:18 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 21:18 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 21:20 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 21:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 21:31 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 21:06 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 21:23 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 21:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 21:22 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 21:27 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 21:41 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 21:23 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 21:34 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 21:18 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 21:22 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 21:33 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 21:29 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 21:32 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 21:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 21:40 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 21:33 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 21:26 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:08 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/02876.shtml)
-- 2026-06-29 21:28 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/97300204.shtml)
-- 2026-06-29 21:07 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.kurohicncr.top/Article/details/83989188.shtml)
-- 2026-06-29 21:19 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/9851109.shtml)
-- 2026-06-29 21:25 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/0111100.shtml)
-- 2026-06-29 21:23 - [C罗10球7球对垫底队](https://www.blog.minike.top/Article/details/788349.shtml)
-- 2026-06-29 21:15 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/274181980.shtml)
-- 2026-06-29 21:23 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/518720258909.shtml)
-- 2026-06-29 21:20 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/317991596.shtml)
-- 2026-06-29 21:09 - [《新闻联播》正在直播](https://www.blog.kurohicncr.top/Article/details/6499146.shtml)
-- 2026-06-29 21:17 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/779061041.shtml)
-- 2026-06-29 21:22 - [一诺变着花样秀新驾照](http://www.share.kurohicncr.top/Article/details/0774028920.shtml)
-- 2026-06-29 21:24 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/558617684.shtml)
-- 2026-06-29 21:23 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/3222120.shtml)
-- 2026-06-29 21:35 - [郑钦文谈再战西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/048982301468.shtml)
+- 2026-06-29 21:32 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/274680631.shtml)
+- 2026-06-29 21:24 - [网约车出事故平台拒赔称只是中介](https://www.blog.minike.top/Article/details/294212500208.shtml)
+- 2026-06-29 21:16 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/2594783.shtml)
+- 2026-06-29 21:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/849146776535.shtml)
+- 2026-06-29 21:38 - [田曦薇没招了](https://www.share.minike.top/Article/details/51613.shtml)
+- 2026-06-29 21:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/98361611712.shtml)
+- 2026-06-29 21:22 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/87123.shtml)
+- 2026-06-29 21:27 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/657663667.shtml)
+- 2026-06-29 21:35 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/842724.shtml)
+- 2026-06-29 21:24 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/046900304212.shtml)
+- 2026-06-29 21:35 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/1182940971.shtml)
+- 2026-06-29 21:25 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/6519022796.shtml)
+- 2026-06-29 21:40 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/7959762.shtml)
+- 2026-06-29 21:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/941018135045.shtml)
+- 2026-06-29 21:14 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/86141592.shtml)

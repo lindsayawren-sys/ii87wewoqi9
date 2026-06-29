@@ -1,60 +1,56 @@
-# 房地美宣布要约回购部分STACR票据
+# 创新药筑底，华宝基金药ETF、港股通创新药ETF（520880）再创新低，场内频现溢价！重磅行业大会即将召开
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-房地美（Freddie Mac）周一宣布，将启动一项固定价格现金要约收购，回购其作为唯一实益信托所有人的若干未偿STACR信用风险转移票据类别。 此次要约收购于2026年5月4日开始，预计于5月8日下午5时（纽约时间）截止，结算日预计为5月12日。要约涵盖多个STACR REMIC信托，原始本金金额从1亿美元至5.37亿美元不等，对价基于每1，000美元原始本金加应计利息计算。
+5月27日，AH创新药延续低位震荡，重仓A股创新药的药ETF华宝（562050）、100%布局港药的港股通创新药ETF华宝（520880）再创历史新低。 A股方面，百济神州跌逾2%，新和成跌逾3%，恒瑞医药下探近1年新低后回升翻红，场内唯一药ETF华宝（562050）跌逾1%，场内频现溢价，显示买盘资金活跃。 港股通创新药个股亦跌多涨少，百济神州、信达生物、石药集团、中国生物制
 
 ## 正文
 
-房地美（Freddie Mac）周一宣布，将启动一项固定价格现金要约收购，回购其作为唯一实益信托所有人的若干未偿STACR信用风险转移票据类别。
+5月27日，AH创新药延续低位震荡，重仓A股创新药的药ETF华宝（562050）、100%布局港药的港股通创新药ETF华宝（520880）再创历史新低。
 
-此次要约收购于2026年5月4日开始，预计于5月8日下午5时（纽约时间）截止，结算日预计为5月12日。
+A股方面，百济神州跌逾2%，新和成跌逾3%，恒瑞医药下探近1年新低后回升翻红，场内唯一药ETF华宝（562050）跌逾1%，场内频现溢价，显示买盘资金活跃。
 
-要约涵盖多个STACR REMIC信托，原始本金金额从1亿美元至5.37亿美元不等，对价基于每1，000美元原始本金加应计利息计算。
+港股通创新药个股亦跌多涨少，百济神州、信达生物、石药集团、中国生物制药等权重龙头集体飘绿，康方生物逆市涨逾3%。
 
-美国银行证券和花旗集团担任本次要约的牵头交易商经理，CastleOak Securities担任联合交易商经理。
+100%创新药研发标的——港股通创新药ETF华宝（520880）跌逾1.5%，场内持续溢价交易，多头或逢跌介入。
 
-STACR是房地美单户信用风险转移计划的核心组成部分，旨在将住宅抵押贷款信用风险从美国纳税人转移至全球私人资本投资者。
+分析指出，创新药短期情绪偏弱，资金面承压。
 
-自2013年发行首批STACR票据以来，房地美已将CRT建设为私人资本参与美国抵押贷款信用的主要渠道。
+AI板块跷跷板效应、外资撤退、南向资金成交占比下降是短期调整主因，创新药权重龙头5月普遍回调，或属“错杀”机会。
 
-房地美是美国政府资助企业，专注于为住房金融市场提供流动性、稳定性和可负担性。
+中长期来看，创新药基本面扎实：2026年Q1 BD出海超600亿美元，恒瑞152亿美元平台型大交易标志行业升维；政策端首发定价机制优化、医保商保双目录衔接形成持续支撑；港股通创新药已整体进入盈利阶段。
 
-该公司通过其单户信用风险转移计划（包括STACR票据和ACIS保险结构）吸引投资者资本，同时减少纳税人对抵押贷款信用损失的敞口。
+值得关注的是，5月29日至6月2日，2026年美国临床肿瘤学会（ASCO）年会将于芝加哥举行。
 
 ## 相关推荐
 
-- 2026-06-29 21:19 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 21:26 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 21:17 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 21:20 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-29 21:30 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 21:28 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 21:08 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 21:34 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 21:25 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 21:08 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 21:06 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 21:14 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 21:10 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 21:27 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 21:19 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 21:29 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 21:37 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 21:29 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 21:20 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 21:41 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 21:31 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 21:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 21:32 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 21:18 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:16 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/114853301669.shtml)
-- 2026-06-29 21:31 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/36156871024.shtml)
-- 2026-06-29 21:29 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/637384512.shtml)
-- 2026-06-29 21:23 - [让AI做一个账号，它会做成什么样？](https://www.blog.minike.top/Article/details/7896034833.shtml)
-- 2026-06-29 21:35 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/33124821183.shtml)
-- 2026-06-29 21:34 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/2637354218.shtml)
-- 2026-06-29 21:20 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/862792721.shtml)
-- 2026-06-29 21:14 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/275264.shtml)
-- 2026-06-29 21:26 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/34695153323.shtml)
-- 2026-06-29 21:23 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/6933815.shtml)
-- 2026-06-29 21:29 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/437147122.shtml)
-- 2026-06-29 21:07 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/0596298.shtml)
-- 2026-06-29 21:11 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/32387984.shtml)
-- 2026-06-29 21:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/3928701334.shtml)
-- 2026-06-29 21:32 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/50658.shtml)
+- 2026-06-29 21:17 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/800681204.shtml)
+- 2026-06-29 21:12 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/7445911271.shtml)
+- 2026-06-29 21:22 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/0179825.shtml)
+- 2026-06-29 21:40 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/270753.shtml)
+- 2026-06-29 21:19 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/8428221.shtml)
+- 2026-06-29 21:18 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/1046149027.shtml)
+- 2026-06-29 21:15 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/586878854538.shtml)
+- 2026-06-29 21:28 - [金鹰奖第二阶段投票明日开启](http://www.share.kurohicncr.top/Article/details/775363314.shtml)
+- 2026-06-29 21:13 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/7611519001.shtml)
+- 2026-06-29 21:30 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/140944.shtml)
+- 2026-06-29 21:20 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/2182259.shtml)
+- 2026-06-29 21:14 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/3362572.shtml)
+- 2026-06-29 21:33 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/839701.shtml)
+- 2026-06-29 21:16 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/846062416.shtml)
+- 2026-06-29 21:13 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/1300255456.shtml)

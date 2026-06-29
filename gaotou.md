@@ -1,60 +1,57 @@
-# 这群年轻人用AI“吵了一架” ，最后成了朋友
+# 逆市爆发！600744，直线涨停！
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新网衢州5月1日电 (张斌)最近，在浙江衢州柯城，一群年轻人在周五下午放下手头工作，请假来参加一场辩论活动。 辩题很“潮”：技术发展应优先追求效率，还是要更加坚守伦理底线？过度依赖AI技术，是否会让人丧失竞争力？ 这是柯城区委统战部“同心·思辨荟”的活动现场。这个品牌活动已持续举办三年，初衷很简单：把青年党外代表人士聚在一起，用辩论的形式，实现思想深度交流，更好同心同行。辩论
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月27日，A股整体回调，沪指跌超1%失守4100点，科创综指跌超2%；港股亦走弱，恒生指数跌超1%。 具体来看，沪指盘中震荡下探，创业板指早盘一度冲高，但午后逐渐回落。截至收盘，沪指跌1.25%报4093.73点，深证成指跌0.88%，创业板指微涨0.07%，科创综指跌2.53%，沪深北三市合计成交约3.
 
 ## 正文
 
-中新网衢州5月1日电 (张斌)最近，在浙江衢州柯城，一群年轻人在周五下午放下手头工作，请假来参加一场辩论活动。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-辩题很“潮”：技术发展应优先追求效率，还是要更加坚守伦理底线？
+5月27日，A股整体回调，沪指跌超1%失守4100点，科创综指跌超2%；港股亦走弱，恒生指数跌超1%。
 
-过度依赖AI技术，是否会让人丧失竞争力？
+具体来看，沪指盘中震荡下探，创业板指早盘一度冲高，但午后逐渐回落。
 
-这是柯城区委统战部“同心·思辨荟”的活动现场。
+截至收盘，沪指跌1.25%报4093.73点，深证成指跌0.88%，创业板指微涨0.07%，科创综指跌2.53%，沪深北三市合计成交约3.26万亿元。
 
-这个品牌活动已持续举办三年，初衷很简单：把青年党外代表人士聚在一起，用辩论的形式，实现思想深度交流，更好同心同行。
+A股市场近4500股飘绿，上涨个股不足千只。
 
-辩论不是目的，见面才是。
+石油、有色、钢铁、化工等资源股集体下挫；人形机器人概念回落，上纬新材跌超10%，浙江荣泰、五洲新春（维权）尾盘双双跌停。
 
-签到处，两位女生正在准备辩论稿子。
+电力板块逆市拉升，华银电力（600744）盘中垂直涨停，华电能源（600726）斩获3连板，华电辽能、韶能股份等均涨停；酒类股午后异动，水井坊涨停，舍得酒业涨超9%，盘中一度涨停；部分光伏产业链股活跃，扬杰科技、锦浪科技涨超10%，罗曼股份涨停。
 
-被问及准备情况时，她们笑道：“其实很多都是AI写的。
+值得注意的是，华天科技盘中涨停斩获3连板，但尾盘开板，收盘涨约8%，全日成交244.5亿元。
 
 ## 相关推荐
 
-- 2026-06-29 21:06 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 21:09 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 21:25 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 21:35 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 21:28 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 21:26 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 21:34 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 21:07 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 21:31 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 21:06 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 21:15 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 21:21 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 21:06 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 21:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 21:13 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 21:34 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 21:25 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 21:24 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 21:32 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 21:25 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 21:16 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 21:41 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 21:29 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 21:24 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 21:24 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:31 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/11780143424.shtml)
-- 2026-06-29 21:31 - [一生一世](http://www.share.kurohicncr.top/Article/details/10900.shtml)
-- 2026-06-29 21:20 - [高质量发展看新疆](http://www.blog.minike.top/Article/details/27277081413.shtml)
-- 2026-06-29 21:35 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/8879819298.shtml)
-- 2026-06-29 21:10 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/481390528372.shtml)
-- 2026-06-29 21:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/7518510.shtml)
-- 2026-06-29 21:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/67125041542.shtml)
-- 2026-06-29 21:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/2632258.shtml)
-- 2026-06-29 21:07 - [金刚川](http://www.blog.minike.top/Article/details/706090.shtml)
-- 2026-06-29 21:16 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/68249907153.shtml)
-- 2026-06-29 21:31 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/428551051874.shtml)
-- 2026-06-29 21:07 - [温网](https://www.share.kurohicncr.top/Article/details/17389819.shtml)
-- 2026-06-29 21:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/30791121.shtml)
-- 2026-06-29 21:28 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/433533411.shtml)
-- 2026-06-29 21:13 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/456325926269.shtml)
+- 2026-06-29 21:15 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/0629624.shtml)
+- 2026-06-29 21:19 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/7773198.shtml)
+- 2026-06-29 21:27 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/0084087.shtml)
+- 2026-06-29 21:14 - [无畏为自己的猫正名了](https://www.blog.minike.top/Article/details/10587857680.shtml)
+- 2026-06-29 21:21 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/06740.shtml)
+- 2026-06-29 21:17 - [起风了](https://www.blog.kurohicncr.top/Article/details/98125.shtml)
+- 2026-06-29 21:40 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/473087199332.shtml)
+- 2026-06-29 21:23 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/595681853265.shtml)
+- 2026-06-29 21:29 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/851720335.shtml)
+- 2026-06-29 21:23 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/82479182312.shtml)
+- 2026-06-29 21:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/04444275411.shtml)
+- 2026-06-29 21:12 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/28379330112.shtml)
+- 2026-06-29 21:30 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/9758560483.shtml)
+- 2026-06-29 21:29 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/77462.shtml)
+- 2026-06-29 21:13 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/9367831.shtml)

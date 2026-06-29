@@ -1,60 +1,61 @@
-# 沉下心来干实事、谋长远——“树立和践行正确政绩观”系列评
+# 白银高位承压！美银喊出百元目标价但警示涨势难持续 光伏“去银化”成最大阻力
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-人民论坛网评 | 沉下心来干实事、谋长远 ——“树立和践行正确政绩观”系列评 习近平总书记指出，形式主义实质是主观主义、功利主义，根源是政绩观错位、责任心缺失。一些党员干部急功近利，本质上是政绩观有偏差、责任心缺失，把履职尽责作为算计个人得失、权衡利弊的工具。树立和践行正确政绩观，容不得党员干部因追求功利，稀释初心使命、弱化责任担当。 有什么样的政绩观，就有怎样的作为。破除功利
+本周，国际贵金属市场延续弱势。截至周三，黄金期货连续第三个交易日收跌，白银期货跌幅更为显著。COMEX 5月白银期货当日结算价报74.599美元/盎司，重挫2.2%，为5月5日以来的最低收盘水平。自伊朗冲突爆发以来，贵金属整体走势承压，其根源在于霍尔木兹海峡实质性封锁推动油价飙升，由此引发通胀忧虑升温，市场对美联储加息的预期持续加强。 尽管白银短期走势低迷，华尔街大行对其后续走
 
 ## 正文
 
-人民论坛网评 | 沉下心来干实事、谋长远 ——“树立和践行正确政绩观”系列评 习近平总书记指出，形式主义实质是主观主义、功利主义，根源是政绩观错位、责任心缺失。
+本周，国际贵金属市场延续弱势。
 
-一些党员干部急功近利，本质上是政绩观有偏差、责任心缺失，把履职尽责作为算计个人得失、权衡利弊的工具。
+截至周三，黄金期货连续第三个交易日收跌，白银期货跌幅更为显著。
 
-树立和践行正确政绩观，容不得党员干部因追求功利，稀释初心使命、弱化责任担当。
+COMEX 5月白银期货当日结算价报74.599美元/盎司，重挫2.2%，为5月5日以来的最低收盘水平。
 
-有什么样的政绩观，就有怎样的作为。
+自伊朗冲突爆发以来，贵金属整体走势承压，其根源在于霍尔木兹海峡实质性封锁推动油价飙升，由此引发通胀忧虑升温，市场对美联储加息的预期持续加强。
 
-破除功利主义，涵养责任担当，关键要树立正确政绩观。
+尽管白银短期走势低迷，华尔街大行对其后续走势的判断却出现显著分化。
 
-干事创业，‌要始终牢记“我是谁、为了谁、依靠谁”，摒弃“一分付出兑换一分回报”的功利思维，把“公权为民，一丝一毫都不能私用”刻在心中，在岗位上多比“贡献度”，以实干诠释担当。
+美国银行大宗商品团队在其最新研报中给出了“先升后降”的研判——该行由金属研究主管迈克尔·威德默（Michael Widmer）领衔的分析团队仍维持乐观判断，认为银价有望在2026年第四季度触及每盎司100美元。
 
-算好“全局账”，自觉将本职工作置于发展大局中谋划，做到局部服从整体‌；算好“长远账”，以“功成不必在我”的境界，甘于从事那些周期长、见效慢但利于长远的基础性工作‌；算好“民心账”，坚持把群众满意作为衡量政绩的根本标准。
+然而，美银同时发出了明确警示：此轮上攻或为“昙花一现”，不具备可持续性。
 
-纠正错位的政绩观，需要标本兼治，强化责任担当。
+该行预计，随着工业需求的结构性衰退，到2027年第二季度银价将重新回落至75美元/盎司附近。
 
 ## 相关推荐
 
-- 2026-06-29 21:17 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 21:07 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 21:17 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 21:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 21:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 21:30 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 21:30 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 21:13 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 21:08 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 21:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 21:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 21:33 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 21:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 21:14 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 21:25 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 21:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 21:23 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 21:29 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 21:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 21:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 21:27 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 21:18 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 21:31 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 21:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 21:28 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 21:33 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 21:34 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 21:19 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 21:37 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:32 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/4600538.shtml)
-- 2026-06-29 21:07 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/94977.shtml)
-- 2026-06-29 21:06 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/20676313884.shtml)
-- 2026-06-29 21:13 - [TOP Prada](https://www.blog.minike.top/Article/details/965666218.shtml)
-- 2026-06-29 21:30 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/8360730.shtml)
-- 2026-06-29 21:24 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/43308.shtml)
-- 2026-06-29 21:30 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/336645952.shtml)
-- 2026-06-29 21:15 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/48944460.shtml)
-- 2026-06-29 21:10 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/99675591.shtml)
-- 2026-06-29 21:26 - [金刚川](http://www.blog.kurohicncr.top/Article/details/175258.shtml)
-- 2026-06-29 21:25 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/3784771629.shtml)
-- 2026-06-29 21:32 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/08194941562.shtml)
-- 2026-06-29 21:24 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/07946561784.shtml)
-- 2026-06-29 21:26 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/00838.shtml)
-- 2026-06-29 21:23 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.kurohicncr.top/Article/details/7839236004.shtml)
+- 2026-06-29 21:40 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/57519.shtml)
+- 2026-06-29 21:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/6602703.shtml)
+- 2026-06-29 21:14 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/128884485.shtml)
+- 2026-06-29 21:23 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/07137.shtml)
+- 2026-06-29 21:31 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/3745348.shtml)
+- 2026-06-29 21:41 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/748160.shtml)
+- 2026-06-29 21:27 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/75915.shtml)
+- 2026-06-29 21:25 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/97944248061.shtml)
+- 2026-06-29 21:24 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/87694.shtml)
+- 2026-06-29 21:40 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/1427201.shtml)
+- 2026-06-29 21:24 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/29633.shtml)
+- 2026-06-29 21:29 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/3055336230.shtml)
+- 2026-06-29 21:24 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/6729653576.shtml)
+- 2026-06-29 21:13 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/79817283.shtml)
+- 2026-06-29 21:21 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/70170977.shtml)

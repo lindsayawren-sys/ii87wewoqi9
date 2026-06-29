@@ -1,59 +1,52 @@
-# 三星创下历史新高，但SK海力士12%的涨幅抢尽风头
+# 韩国央行上调今年经济增长预期至2.6%，因芯片需求推动出口强劲增长
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-三星的劳资争议可能给其AI芯片业务复苏带来压力，而SK海力士在高带宽存储器领域的领先优势正在扩大。 三星电子（Samsung Electronics）股价即使在创下历史新高后，仍可能面临更为艰难的局面。投资者正在权衡该公司由人工智能驱动的半导体复苏与一场迫在眉睫的劳资纠纷——这场纠纷可能进一步扩大其近期与SK海力士（SK Hynix）的差距。周一，受持续的人工智能乐观情绪推动，
+韩国央行周四将2026年韩国经济增长预期上调至2.6%，主要原因是半导体超级周期推动出口强劲增长。 韩国央行此次上调预期较2月份发布的2%的预测值提高了0.6个百分点。 对于2027年，韩国央行预计经济增长率为2.1%。 韩国经济今年第一季度增长1.7%，创下五年半以来的最大季度增速。责任编辑：于健 SF069
 
 ## 正文
 
-三星的劳资争议可能给其AI芯片业务复苏带来压力，而SK海力士在高带宽存储器领域的领先优势正在扩大。
+韩国央行周四将2026年韩国经济增长预期上调至2.6%，主要原因是半导体超级周期推动出口强劲增长。
 
-三星电子（Samsung Electronics）股价即使在创下历史新高后，仍可能面临更为艰难的局面。
+韩国央行此次上调预期较2月份发布的2%的预测值提高了0.6个百分点。
 
-投资者正在权衡该公司由人工智能驱动的半导体复苏与一场迫在眉睫的劳资纠纷——这场纠纷可能进一步扩大其近期与SK海力士（SK Hynix）的差距。
+对于2027年，韩国央行预计经济增长率为2.1%。
 
-周一，受持续的人工智能乐观情绪推动，三星在全球股市上涨行情中一度上涨4.8%，但其涨幅完全被SK海力士12%的飙升所掩盖。
+韩国经济今年第一季度增长1.7%，创下五年半以来的最大季度增速。
 
-这种分化已成为投资者的一个重要信号，上个月三星的表现落后其存储芯片竞争对手超过25个百分点。
-
-市场担忧的并非AI需求减退，而是在面临如何分享AI驱动利润的内部压力不断上升之际，三星能否充分抓住这一需求。
-
-这场劳资纠纷正日益成为三星投资故事的重要组成部分。
-
-该公司工会于4月23日举行集会，要求获得更大份额的利润，并威胁从5月21日起举行为期18天的罢工。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 21:08 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 21:06 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 21:16 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 21:26 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 21:08 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 21:18 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 21:10 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 21:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 21:24 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 21:10 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 21:16 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 21:35 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 21:35 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 21:38 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 21:30 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 21:19 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 21:14 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 21:25 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 21:30 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 21:16 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 21:33 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 21:27 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 21:21 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 21:36 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 21:34 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:31 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/690417026879.shtml)
-- 2026-06-29 21:29 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/930310425385.shtml)
-- 2026-06-29 21:06 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/817441619221.shtml)
-- 2026-06-29 21:18 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/21575.shtml)
-- 2026-06-29 21:29 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/1608721658.shtml)
-- 2026-06-29 21:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/2083671.shtml)
-- 2026-06-29 21:07 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/25593214949.shtml)
-- 2026-06-29 21:23 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/7215617098.shtml)
-- 2026-06-29 21:32 - [谁在推动“成都造”影视持续出圈](https://www.blog.minike.top/Article/details/16474369906.shtml)
-- 2026-06-29 21:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/8470148.shtml)
-- 2026-06-29 21:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/953467.shtml)
-- 2026-06-29 21:32 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/20162947.shtml)
-- 2026-06-29 21:16 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/475133011.shtml)
-- 2026-06-29 21:11 - [美人鱼](http://www.blog.minike.top/Article/details/88191168.shtml)
-- 2026-06-29 21:26 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/34458204605.shtml)
+- 2026-06-29 21:34 - [2026全国田径冠军赛江苏队4金收官](https://www.share.kurohicncr.top/Article/details/26520.shtml)
+- 2026-06-29 21:22 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/435759621.shtml)
+- 2026-06-29 21:25 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/48333642.shtml)
+- 2026-06-29 21:28 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/48542.shtml)
+- 2026-06-29 21:16 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/819291502.shtml)
+- 2026-06-29 21:21 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/9547954139.shtml)
+- 2026-06-29 21:25 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/10560.shtml)
+- 2026-06-29 21:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/5627594.shtml)
+- 2026-06-29 21:15 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/4750569.shtml)
+- 2026-06-29 21:14 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/9560091.shtml)
+- 2026-06-29 21:19 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/658040.shtml)
+- 2026-06-29 21:41 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/555417.shtml)
+- 2026-06-29 21:18 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/108955053.shtml)
+- 2026-06-29 21:34 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/217545682.shtml)
+- 2026-06-29 21:15 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/79450.shtml)

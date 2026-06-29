@@ -1,57 +1,57 @@
-# 戈壁变“蓝海”！西藏扎囊县首届高原蓝莓季开启“莓”好假期
+# （台海观澜）廿载守望 在福建泉州读懂“闽台缘”
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新网拉萨5月2日电 (记者 贡桑拉姆)戈壁变“蓝海”！在今年的“五一”小长假期间，西藏扎囊县用一场蓝莓采摘季，开启了八方游客的“莓”好假期——以“‘蓝’得遇见·‘莓’好时光”为主题的首届高原蓝莓采摘季5月1日在该县阿扎乡“戈壁田园”农业科技园区内拉开帷幕，吸引众多民众前来体验采摘乐趣，共享“变废为宝”的丰收喜悦。 开幕式上，民族歌舞表演营造出浓厚的节日氛围，观众随着旋律哼唱、
+中新社泉州5月27日电 题：廿载守望 在福建泉州读懂“闽台缘” 中新社记者 孙虹 “台胞捐赠的藏品涵盖宗教造像、陶瓷器皿、名人手稿、古籍文献、谱牒家书等多个品类。”中国唯一一座以反映大陆与台湾历史关系为主题的国家一级博物馆——中国闽台缘博物馆馆长郑国防向中新社记者介绍，这些藏品见证了两岸同胞同心共绘闽台缘的深厚情谊。 2006年5月27日，坐落于福建泉州的中国闽台缘博物馆正式对
 
 ## 正文
 
-中新网拉萨5月2日电 (记者 贡桑拉姆)戈壁变“蓝海”！
+中新社泉州5月27日电 题：廿载守望 在福建泉州读懂“闽台缘” 中新社记者 孙虹 “台胞捐赠的藏品涵盖宗教造像、陶瓷器皿、名人手稿、古籍文献、谱牒家书等多个品类。
 
-在今年的“五一”小长假期间，西藏扎囊县用一场蓝莓采摘季，开启了八方游客的“莓”好假期——以“‘蓝’得遇见·‘莓’好时光”为主题的首届高原蓝莓采摘季5月1日在该县阿扎乡“戈壁田园”农业科技园区内拉开帷幕，吸引众多民众前来体验采摘乐趣，共享“变废为宝”的丰收喜悦。
+”中国唯一一座以反映大陆与台湾历史关系为主题的国家一级博物馆——中国闽台缘博物馆馆长郑国防向中新社记者介绍，这些藏品见证了两岸同胞同心共绘闽台缘的深厚情谊。
 
-开幕式上，民族歌舞表演营造出浓厚的节日氛围，观众随着旋律哼唱、鼓掌，欢呼声此起彼伏。
+2006年5月27日，坐落于福建泉州的中国闽台缘博物馆正式对外开放。
 
-园区内还设置了多个网红打卡点，游客纷纷拍照留念，记录下与家人朋友共度的“莓”好时光。
+20年来，该馆通过各种方式充实文物藏品24560件、馆藏谱牒11456册、两岸家书9649件/套，其中40%的藏品为台胞捐赠；累计接待观众逾1770万人次，其中台胞逾103.8万人次。
 
-曾经的戈壁荒滩，如今已成为一片生机盎然的蓝莓种植基地。
+“闽台缘”不只体现在馆名，更分布在馆里的各个角落。
 
-园区依托戈壁生态农业与高原特色林果产业优势，通过“农业+旅游+科普+体验”融合发展模式，不仅实现了土地资源的再生利用，更带动了当地农牧民增收，成为扎囊县推动乡村振兴、富农惠农的生动实践。
+郑国防说，馆内收藏着数不尽的两岸故事，见证了300多个两岸家族的团圆、数千位游子的笑与泪。
 
-活动期间，游客与当地民众在企业负责人带领下，走进采用水肥一体化滴灌技术的智能温室，深入了解在戈壁滩上种出高品质蓝莓的科技奥秘，亲身感受“荒滩变良田”的生态农业奇迹。
+志愿讲解员黄芳萍还记得，2019年7月自己第一次正式上岗讲解，接待的是一个台湾进香团。
 
-采摘区内，男女老少手提果篮，化身“一日果农”，兴致勃勃地穿梭在蓝莓树间。
+当她用闽南语说出“大家好”时，全团长辈们突然安静下来，有人眼眶泛红。
 
 ## 相关推荐
 
-- 2026-06-29 21:07 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 21:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 21:12 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 21:08 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 21:34 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 21:23 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 21:21 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 21:25 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 21:11 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 21:06 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 21:23 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 21:26 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 21:22 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 21:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 21:36 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 21:21 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 21:29 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 21:18 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 21:18 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 21:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 21:20 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 21:36 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/69730.shtml)
-- 2026-06-29 21:10 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/58021.shtml)
-- 2026-06-29 21:10 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/9883553.shtml)
-- 2026-06-29 21:15 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/63912.shtml)
-- 2026-06-29 21:16 - [男子称在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/95686.shtml)
-- 2026-06-29 21:22 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/9778572494.shtml)
-- 2026-06-29 21:25 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/707638730002.shtml)
-- 2026-06-29 21:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/934793291.shtml)
-- 2026-06-29 21:23 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/96950.shtml)
-- 2026-06-29 21:32 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/21130511.shtml)
-- 2026-06-29 21:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/7088576902.shtml)
-- 2026-06-29 21:28 - [一诺变着花样秀新驾照](https://www.share.kurohicncr.top/Article/details/84674011678.shtml)
-- 2026-06-29 21:34 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/0939536680.shtml)
-- 2026-06-29 21:32 - [佛得角队长门德斯被控强奸](https://www.share.minike.top/Article/details/92219019039.shtml)
-- 2026-06-29 21:07 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/09911502.shtml)
+- 2026-06-29 21:33 - [华工科技龙虎榜数据](http://www.blog.minike.top/Article/details/291306.shtml)
+- 2026-06-29 21:28 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/549864878019.shtml)
+- 2026-06-29 21:35 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/2823998785.shtml)
+- 2026-06-29 21:36 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/90961.shtml)
+- 2026-06-29 21:41 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/12805474837.shtml)
+- 2026-06-29 21:22 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/995626762.shtml)
+- 2026-06-29 21:23 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/915126871.shtml)
+- 2026-06-29 21:34 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/007060.shtml)
+- 2026-06-29 21:32 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/6240420823.shtml)
+- 2026-06-29 21:32 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.minike.top/Article/details/4610422.shtml)
+- 2026-06-29 21:39 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/23859482.shtml)
+- 2026-06-29 21:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/55512.shtml)
+- 2026-06-29 21:23 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/1711697329.shtml)
+- 2026-06-29 21:31 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/71763.shtml)
+- 2026-06-29 21:41 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.kurohicncr.top/Article/details/987121.shtml)

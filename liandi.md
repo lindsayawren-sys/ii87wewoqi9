@@ -1,58 +1,57 @@
-# “五一”小长假上海多个著名景区迎来大客流
+# 美国网红哈桑·皮克尔因访问古巴被传唤
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新网上海5月2日电 (记者 李姝徵)“五一”小长假，上海外滩、南京路步行街、豫园、新天地等标志性景区客流如织。 记者2日从上海警方获悉，据统计，2026年5月1日，外滩滨水区累计客流58.5万人次，同比上升5.9%；南京路步行街累计客流29.8万人次，同比上升34.6%。 为维护节日期间中心城区的持续稳定，上海黄浦警方坚持科技赋能，启动“互联网+大客流”安保模式，以客流管控实
+中新网5月27日电 据美媒报道，美国最知名的政治主播之一哈桑·皮克尔近日表示，他收到了美国财政部外国资产控制办公室的传票，该传票与他2026年3月前往古巴参与人道主义援助有关。在24日的直播中，皮克尔表示：“情况不太妙。”报道称，2026年3月，皮克尔加入了CodePink组织的“我们的美洲车队”，于3月18日至24日前往哈瓦那。车队由来自33个国家和120个组织的650名代表
 
 ## 正文
 
-中新网上海5月2日电 (记者 李姝徵)“五一”小长假，上海外滩、南京路步行街、豫园、新天地等标志性景区客流如织。
+中新网5月27日电 据美媒报道，美国最知名的政治主播之一哈桑·皮克尔近日表示，他收到了美国财政部外国资产控制办公室的传票，该传票与他2026年3月前往古巴参与人道主义援助有关。
 
-记者2日从上海警方获悉，据统计，2026年5月1日，外滩滨水区累计客流58.5万人次，同比上升5.9%；南京路步行街累计客流29.8万人次，同比上升34.6%。
+在24日的直播中，皮克尔表示：“情况不太妙。
 
-为维护节日期间中心城区的持续稳定，上海黄浦警方坚持科技赋能，启动“互联网+大客流”安保模式，以客流管控实战需求为牵引，通过前期开展多警种实战实训进一步提升管理能力，并依托警务大客流监测系统以及现场设置的智能移动引导屏、警务瞭望台、无人机移动部署平台等科技化手段，持续加强社会面整体防控、客流安全疏导、交通组织管理等各项工作。
+”报道称，2026年3月，皮克尔加入了CodePink组织的“我们的美洲车队”，于3月18日至24日前往哈瓦那。
 
-5月1日，黄浦警方依托警务大客流监测系统，对外滩、南京路等区域客流热力图进行全时段追踪，当客流量达预警值，外围疏导力量迅速前出，在远端道路、地铁出入口提前分流，避免客流过度扎堆。
+车队由来自33个国家和120个组织的650名代表组成，车队的目的是运送人道主义物资，包括向古巴的儿科医院提供医疗援助，并在美国封锁期间从古巴境内进行实地报道。
 
-在外滩滨水区，黄浦警方采取“南北均衡、交替开关”等策略，重点强化江堤、步道、路口等易拥堵节点的现场指挥。
+美国政府于2026年2月恢复了对古巴的全面石油封锁，切断了该岛的能源供应。
 
-执勤警力通过智能移动引导屏、语音提示与铁马设施相结合，引导游客有序行进，避免游客对冲滞留。
+在皮克尔的传票公开的前一周，美国还起诉了94岁的古巴前领导人劳尔·卡斯特罗，美国司法部表示将开始调查同情古巴的非营利组织。
 
-外滩江堤核心观景区落实“潮汐式”疏导，现场民警根据实时人流密度动态调整上下行通道流向。
+皮克尔的传票是这场大规模行动的一部分。
 
-“五一”期间，豫园客流持续走高。
+报道指出，皮克尔是美国观看人数最多的主播之一，随着他在直播中报道古巴、伊朗和巴勒斯坦等议题，他受到的政治审查也日益加剧。
 
 ## 相关推荐
 
-- 2026-06-29 21:16 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 21:09 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 21:34 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 21:27 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 21:21 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 21:21 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 21:28 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 21:34 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 21:09 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 21:14 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 21:17 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 21:28 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 21:21 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 21:38 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 21:22 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 21:29 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 21:29 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 21:17 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 21:39 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 21:29 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 21:23 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 21:38 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 21:15 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:30 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/847221743021.shtml)
-- 2026-06-29 21:15 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/3127805465.shtml)
-- 2026-06-29 21:22 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/2873712.shtml)
-- 2026-06-29 21:26 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/988527026.shtml)
-- 2026-06-29 21:10 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/5625508.shtml)
-- 2026-06-29 21:22 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.kurohicncr.top/Article/details/8179474360.shtml)
-- 2026-06-29 21:27 - [网红小徐直播时突遇地震](https://www.blog.minike.top/Article/details/74575827916.shtml)
-- 2026-06-29 21:33 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/831129717.shtml)
-- 2026-06-29 21:17 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/060251.shtml)
-- 2026-06-29 21:34 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/33236628.shtml)
-- 2026-06-29 21:17 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/385555520.shtml)
-- 2026-06-29 21:18 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/3081791662.shtml)
-- 2026-06-29 21:17 - [T1零封KC MSI](http://www.share.minike.top/Article/details/72081934.shtml)
-- 2026-06-29 21:34 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/45685729873.shtml)
-- 2026-06-29 21:27 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/144785323.shtml)
+- 2026-06-29 21:16 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/56609782436.shtml)
+- 2026-06-29 21:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/97720559364.shtml)
+- 2026-06-29 21:40 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/89741.shtml)
+- 2026-06-29 21:24 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/25778969317.shtml)
+- 2026-06-29 21:27 - [第一炉香](https://www.share.kurohicncr.top/Article/details/60398.shtml)
+- 2026-06-29 21:19 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/371892337353.shtml)
+- 2026-06-29 21:31 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/36180729.shtml)
+- 2026-06-29 21:40 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/38604.shtml)
+- 2026-06-29 21:33 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.minike.top/Article/details/3653038.shtml)
+- 2026-06-29 21:12 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/3703950755.shtml)
+- 2026-06-29 21:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/60117168570.shtml)
+- 2026-06-29 21:27 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/078811.shtml)
+- 2026-06-29 21:33 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/048936.shtml)
+- 2026-06-29 21:37 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/82511709.shtml)
+- 2026-06-29 21:29 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.kurohicncr.top/Article/details/4930330100.shtml)

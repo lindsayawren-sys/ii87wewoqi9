@@ -1,58 +1,59 @@
-# 2026天津国际汽车交易会：智电新车集中亮相吸引观众
+# LG电子首尔办公室发生持刀伤人事件，两人受伤
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！孩子吃饭少、长不高、脾气暴？专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲
+韩国LG电子公司位于首尔西部的办公室周三发生一起持刀伤人事件，两名男子被刺伤，嫌疑人已被警方拘留。 据韩国警方和消防部门官员称，当地时间上午11点18分接到报案后，两名男子——一名50多岁，另一名40多岁——被发现倒在位于江西区麻谷商业中心二楼的LG电子办公楼内，身上有多处刀伤。 两人均被送往医院，手臂和肋骨受伤，但均无生命危险。 警方称，嫌疑人作案后逃离现场，后在数码媒体城站
 
 ## 正文
 
-日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
+韩国LG电子公司位于首尔西部的办公室周三发生一起持刀伤人事件，两名男子被刺伤，嫌疑人已被警方拘留。
 
-这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？
+据韩国警方和消防部门官员称，当地时间上午11点18分接到报案后，两名男子——一名50多岁，另一名40多岁——被发现倒在位于江西区麻谷商业中心二楼的LG电子办公楼内，身上有多处刀伤。
 
-上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！
+两人均被送往医院，手臂和肋骨受伤，但均无生命危险。
 
-孩子吃饭少、长不高、脾气暴？
+警方称，嫌疑人作案后逃离现场，后在数码媒体城站附近被捕。
 
-专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲53国“敞开怀抱”绍兴黄酒“春藏”热 中外家庭“封藏”人生喜事百年冰泉豆浆香飘海内外：烟火乡愁 味引八方多家景区宣布免门票，这个五一，跟着电影去旅游！
+他声称自己正前往警察局自首。
 
-中国文学何以打动世界读者？
+据悉，嫌疑人是LG电子合作公司的员工，并声称在袭击受害者之前曾遭到他们的骚扰，一时冲动之下才出手。
 
-凤何以成为中华民族文化标识？
+警方表示，他们计划对嫌疑人进行讯问，以查明案件详情。
 
-“王的盛宴”：从“No Kings”到“TWO KINGS”“王的演讲”：满堂笑声之后，查尔斯说了大家爱听的，唯独漏了英美必须听的记者手记：亚沙会，让世界从三亚看见开放中国AI末日论：真实风险还是叙事陷阱？
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 21:28 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 21:18 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 21:26 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 21:12 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 21:19 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 21:23 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 21:21 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 21:20 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 21:18 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 21:20 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 21:20 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 21:09 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 21:34 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 21:40 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 21:32 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 21:34 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 21:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 21:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 21:24 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 21:14 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 21:36 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 21:19 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 21:35 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 21:26 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 21:39 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/62144.shtml)
-- 2026-06-29 21:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/13866045740.shtml)
-- 2026-06-29 21:15 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/119635.shtml)
-- 2026-06-29 21:06 - [周生如故](http://www.share.minike.top/Article/details/11766.shtml)
-- 2026-06-29 21:19 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/5082242.shtml)
-- 2026-06-29 21:33 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/13532842.shtml)
-- 2026-06-29 21:06 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/27955982.shtml)
-- 2026-06-29 21:12 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/8242351933.shtml)
-- 2026-06-29 21:13 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/0899089.shtml)
-- 2026-06-29 21:30 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/751862.shtml)
-- 2026-06-29 21:09 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/89692809468.shtml)
-- 2026-06-29 21:10 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/73360.shtml)
-- 2026-06-29 21:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/38938.shtml)
-- 2026-06-29 21:27 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/16095.shtml)
-- 2026-06-29 21:20 - [扫黑风暴](http://www.share.minike.top/Article/details/42439.shtml)
+- 2026-06-29 21:24 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/84583461953.shtml)
+- 2026-06-29 21:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/36716168368.shtml)
+- 2026-06-29 21:19 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/29248585.shtml)
+- 2026-06-29 21:26 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/9703114504.shtml)
+- 2026-06-29 21:38 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/39833.shtml)
+- 2026-06-29 21:24 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/946953006.shtml)
+- 2026-06-29 21:38 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/7092961.shtml)
+- 2026-06-29 21:18 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/67761038.shtml)
+- 2026-06-29 21:24 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/971091186.shtml)
+- 2026-06-29 21:36 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/9901097.shtml)
+- 2026-06-29 21:14 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/14111023.shtml)
+- 2026-06-29 21:38 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/18648.shtml)
+- 2026-06-29 21:33 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/502002599.shtml)
+- 2026-06-29 21:24 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/872735.shtml)
+- 2026-06-29 21:36 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/584452.shtml)

@@ -1,61 +1,60 @@
-# “灰烬下的史诗”庞贝文物展开幕 108件古罗马珍宝云南首展
+# 必和必拓搁置皮尔巴拉脱碳项目，内部警告运营许可面临风险
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新网昆明5月1日电 (罗婕)5月1日，由云南省博物馆与意大利那不勒斯国家考古博物馆联合主办的“灰烬下的史诗——意大利那不勒斯国家考古博物馆馆藏庞贝文物展”正式开幕，108件(套)古罗马时期珍贵文物，首次在云南昆明展出。 庞贝曾是罗马帝国的核心港口市镇，这里土地肥沃、海产丰富、气候宜人。公元79年，维苏威火山的喷发让庞贝被掩埋，关于古代世界日常生活独特且珍贵的记录就此保留下来。
+全球最大矿商必和必拓周二被曝出已搁置其西澳大利亚皮尔巴拉地区的一项关键脱碳项目，该项目原计划大幅降低铁矿石生产过程中的碳排放。据《卫报》与澳大利亚广播公司《四角方圆》节目联合调查获得的一批内部文件显示，该公司在公开宣称气候领导地位的同时，却在系统性推迟减排行动。 据悉，被搁置的项目包括一座原本有望每年减少170万吨碳排放的铁矿石加工设施，这相当于每年减少超过35万辆汽车上路。文
 
 ## 正文
 
-中新网昆明5月1日电 (罗婕)5月1日，由云南省博物馆与意大利那不勒斯国家考古博物馆联合主办的“灰烬下的史诗——意大利那不勒斯国家考古博物馆馆藏庞贝文物展”正式开幕，108件(套)古罗马时期珍贵文物，首次在云南昆明展出。
+全球最大矿商必和必拓周二被曝出已搁置其西澳大利亚皮尔巴拉地区的一项关键脱碳项目，该项目原计划大幅降低铁矿石生产过程中的碳排放。
 
-庞贝曾是罗马帝国的核心港口市镇，这里土地肥沃、海产丰富、气候宜人。
+据《卫报》与澳大利亚广播公司《四角方圆》节目联合调查获得的一批内部文件显示，该公司在公开宣称气候领导地位的同时，却在系统性推迟减排行动。
 
-公元79年，维苏威火山的喷发让庞贝被掩埋，关于古代世界日常生活独特且珍贵的记录就此保留下来。
+据悉，被搁置的项目包括一座原本有望每年减少170万吨碳排放的铁矿石加工设施，这相当于每年减少超过35万辆汽车上路。
 
-此次展品涵盖大理石雕塑、巨幅壁画、青铜器、金银饰品及火山灰下出土的生活遗存。
+文件披露，尽管公司内部警告减排迟缓将带来声誉影响并危及运营许可，但相关投资计划仍被叫停。
 
-观众可看到高达2.3米的托加长袍雕像，身着罗马公民标志性长袍；长达3.1米的巨幅壁画，描绘家庭的守护神。
+更早之前，必和必拓董事会在2023年年中批准的一个价值4000万美元的太阳能及电池项目，也在获批后不久被管理层以现金优先为由搁置。
 
-此外，色泽如初的蓝色玻璃化妆碗和鹿头造型的青铜来通杯，展现古罗马工匠对材质与形态的精准把控。
+与此形成对比的是，必和必拓被曝出正在大规模采购新的柴油卡车。
 
-庞贝的命运，与海紧密相连。
+一份文件显示，公司在价格下跌后购买了62辆新的卡特彼勒柴油卡车，这将使其在皮尔巴拉地区的化石燃料使用锁定至少延续至2030年代末，甚至可能到2041年。
 
-萨尔诺河绕城而过，通达地中海，使这座城市成为罗马帝国重要的贸易枢纽。
+此举与其在智利铜矿业务中成功实现大规模脱碳的行动形成鲜明反差。
 
 ## 相关推荐
 
-- 2026-06-29 21:28 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 21:18 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 21:22 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 21:27 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 21:24 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 21:35 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 21:30 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 21:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 21:09 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 21:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 21:28 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 21:07 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 21:12 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 21:13 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 21:14 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 21:15 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 21:16 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 21:38 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 21:24 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 21:25 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 21:17 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 21:32 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 21:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 21:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 21:22 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 21:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 21:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 21:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 21:29 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:11 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/238849608887.shtml)
-- 2026-06-29 21:18 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/900439970563.shtml)
-- 2026-06-29 21:27 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/1829327050.shtml)
-- 2026-06-29 21:13 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/493129484.shtml)
-- 2026-06-29 21:24 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/66886.shtml)
-- 2026-06-29 21:24 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/710170643.shtml)
-- 2026-06-29 21:28 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/41095106293.shtml)
-- 2026-06-29 21:32 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/2719665252.shtml)
-- 2026-06-29 21:20 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/831578066.shtml)
-- 2026-06-29 21:11 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/5373005.shtml)
-- 2026-06-29 21:24 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/372718567.shtml)
-- 2026-06-29 21:06 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.minike.top/Article/details/236832.shtml)
-- 2026-06-29 21:21 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/132179555.shtml)
-- 2026-06-29 21:21 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/25960410.shtml)
-- 2026-06-29 21:34 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/4057082.shtml)
+- 2026-06-29 21:39 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/40044835.shtml)
+- 2026-06-29 21:36 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/8143340.shtml)
+- 2026-06-29 21:18 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/29205.shtml)
+- 2026-06-29 21:33 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/660044160.shtml)
+- 2026-06-29 21:26 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/25265949.shtml)
+- 2026-06-29 21:32 - [欧洲安装一台空调要花近8000元](https://www.share.kurohicncr.top/Article/details/531002.shtml)
+- 2026-06-29 21:24 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/68591919211.shtml)
+- 2026-06-29 21:24 - [一见倾心](https://www.share.minike.top/Article/details/6166339.shtml)
+- 2026-06-29 21:26 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/652774872114.shtml)
+- 2026-06-29 21:32 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/673800.shtml)
+- 2026-06-29 21:16 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/99028437.shtml)
+- 2026-06-29 21:39 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/09284547.shtml)
+- 2026-06-29 21:13 - [周杰伦千禧年就有小卡了](https://www.share.kurohicncr.top/Article/details/996288.shtml)
+- 2026-06-29 21:35 - [无畏为自己的猫正名了](http://www.share.kurohicncr.top/Article/details/677828.shtml)
+- 2026-06-29 21:30 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/7664408.shtml)

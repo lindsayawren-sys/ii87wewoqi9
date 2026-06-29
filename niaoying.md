@@ -1,58 +1,50 @@
-# 贵州台江举行苗族姊妹节万人盛装游演
+# 公益性岗位谁能申请？权威解答来了
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新社贵州台江5月2日电 (瞿宏伦 曾琪男)“一进入县城就被热闹的氛围包围，亲眼见到长长的银饰队伍时，感到非常震撼，银饰碰撞发出的清脆声响不绝于耳。”老挝游客王云兰说，这趟旅程非常值得，一定会把这里的美好分享给老挝的亲友。 贵州·台江2026年苗族姊妹节主要活动——万人盛装游演2日在贵州省黔东南苗族侗族自治州台江县上演，吸引海内外游客一同体验，感受苗族文化魅力。 苗族姊妹节被誉
+近日，不少网友提问哪些人能申请公益性岗位就业，我们来看人力资源社会保障部的权威解答。 公益性岗位安置对象为就业困难人员。就业困难人员指因身体状况、技能水平、家庭因素、失去土地等原因难以实现就业，以及连续失业一定时间仍然没能实现就业的人员，具体范围由各省级人民政府根据本行政区域实际情况规定，并实施动态调整。 劳动者想认定就业困难人员，要先做失业登记，经过就业帮扶仍然无法实现就业，
 
 ## 正文
 
-中新社贵州台江5月2日电 (瞿宏伦 曾琪男)“一进入县城就被热闹的氛围包围，亲眼见到长长的银饰队伍时，感到非常震撼，银饰碰撞发出的清脆声响不绝于耳。
+近日，不少网友提问哪些人能申请公益性岗位就业，我们来看人力资源社会保障部的权威解答。
 
-”老挝游客王云兰说，这趟旅程非常值得，一定会把这里的美好分享给老挝的亲友。
+公益性岗位安置对象为就业困难人员。
 
-贵州·台江2026年苗族姊妹节主要活动——万人盛装游演2日在贵州省黔东南苗族侗族自治州台江县上演，吸引海内外游客一同体验，感受苗族文化魅力。
+就业困难人员指因身体状况、技能水平、家庭因素、失去土地等原因难以实现就业，以及连续失业一定时间仍然没能实现就业的人员，具体范围由各省级人民政府根据本行政区域实际情况规定，并实施动态调整。
 
-苗族姊妹节被誉为“藏在花蕊里的节日”，于2006年被列入第一批中国国家级非物质文化遗产代表性项目名录。
-
-它是以青年男女谈情说爱为主的传统节日，有对歌、跳芦笙舞、互赠信物等特色活动，成为苗族文化最具代表性的符号之一。
-
-苗族姊妹节是台江苗族文化的鲜活载体，万人盛装游演更是节日最具代表性的核心环节。
-
-本次游演共集结20多支特色队伍，涵盖台江方你、方纠、方白、方南等苗族各支系，全方位呈现“一服一史、一饰一韵”的奇观。
-
-姊妹花方队、高排芦笙方队等组成的游演队伍，伴随着悠扬的木鼓声和芦笙曲依次亮相。
+劳动者想认定就业困难人员，要先做失业登记，经过就业帮扶仍然无法实现就业，并且符合当地就业困难人员认定条件，就可以申请认定为就业困难人员。
 
 ## 相关推荐
 
-- 2026-06-29 21:24 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 21:25 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 21:24 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 21:21 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 21:28 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 21:31 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 21:08 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 21:20 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 21:30 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 21:06 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 21:20 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 21:10 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 21:14 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 21:36 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 21:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 21:39 - [炽夏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 21:41 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 21:22 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 21:41 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 21:20 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 21:38 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 21:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 21:35 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 21:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:20 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/09638272.shtml)
-- 2026-06-29 21:14 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/744250963025.shtml)
-- 2026-06-29 21:24 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/937315325327.shtml)
-- 2026-06-29 21:07 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/9094459934.shtml)
-- 2026-06-29 21:31 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/91618.shtml)
-- 2026-06-29 21:27 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/8658923760.shtml)
-- 2026-06-29 21:07 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/418172.shtml)
-- 2026-06-29 21:18 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/18198.shtml)
-- 2026-06-29 21:07 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/96222.shtml)
-- 2026-06-29 21:13 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/5093810.shtml)
-- 2026-06-29 21:33 - [教育部高校学生资助热线7月1日开通](http://www.share.kurohicncr.top/Article/details/044606.shtml)
-- 2026-06-29 21:21 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/300227850.shtml)
-- 2026-06-29 21:21 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/108091930197.shtml)
-- 2026-06-29 21:26 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/002674947.shtml)
-- 2026-06-29 21:08 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/5055791317.shtml)
+- 2026-06-29 21:39 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/7463587.shtml)
+- 2026-06-29 21:19 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/33302728833.shtml)
+- 2026-06-29 21:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/14701852347.shtml)
+- 2026-06-29 21:26 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/016114309.shtml)
+- 2026-06-29 21:25 - [网红小徐直播时突遇地震](https://www.blog.minike.top/Article/details/34775932.shtml)
+- 2026-06-29 21:38 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/02910088.shtml)
+- 2026-06-29 21:27 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/995265200715.shtml)
+- 2026-06-29 21:39 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/255014289.shtml)
+- 2026-06-29 21:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/34209.shtml)
+- 2026-06-29 21:19 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/00386043932.shtml)
+- 2026-06-29 21:37 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/92272776544.shtml)
+- 2026-06-29 21:15 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/877266266.shtml)
+- 2026-06-29 21:34 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/0330463176.shtml)
+- 2026-06-29 21:32 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/620167.shtml)
+- 2026-06-29 21:32 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/095986.shtml)

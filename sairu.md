@@ -1,59 +1,56 @@
-# 苹果暗示可能正在酝酿一笔大型AI收购
+# 周三WTI油价重挫，交易员关注美伊谈判进展
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-苹果（AAPL）的下一任CEO约翰·特努斯尚未透露他的战略——但在他正式上任之前，公司刚刚做了一个值得注意的改变。 随着这家iPhone制造商准备在今年晚些时候推出其期待已久的人工智能功能，其财务策略的突然转变表明，该公司可能很快就会进行一笔大规模收购。 苹果并不以率先拥抱新技术或为了轰动性收购而慷慨解囊著称。当其他大型科技公司竞相在资本支出上投入数千亿美元时，苹果一直处于旁观
+周三，美国WTI原油价格下跌逾6%，交易员正在权衡美伊和平谈判的进展与双方重新爆发的敌对行动。 截至发稿，WTI原油日内跌6%，现报88.17美元/桶。 PVM分析师塔马斯·瓦尔加在评论周三的下跌时表示：“在结束危机方面取得了明显的进展，越来越多的船只正在通过这一关键咽喉要道。这就是下行压力重新出现的原因。” 此前一个交易日，7月布伦特原油期货上涨3.6%，因美国在伊朗实施了新
 
 ## 正文
 
-苹果（AAPL）的下一任CEO约翰·特努斯尚未透露他的战略——但在他正式上任之前，公司刚刚做了一个值得注意的改变。
+周三，美国WTI原油价格下跌逾6%，交易员正在权衡美伊和平谈判的进展与双方重新爆发的敌对行动。
 
-随着这家iPhone制造商准备在今年晚些时候推出其期待已久的人工智能功能，其财务策略的突然转变表明，该公司可能很快就会进行一笔大规模收购。
+截至发稿，WTI原油日内跌6%，现报88.17美元/桶。
 
-苹果并不以率先拥抱新技术或为了轰动性收购而慷慨解囊著称。
+PVM分析师塔马斯·瓦尔加在评论周三的下跌时表示：“在结束危机方面取得了明显的进展，越来越多的船只正在通过这一关键咽喉要道。
 
-当其他大型科技公司竞相在资本支出上投入数千亿美元时，苹果一直处于旁观状态——通过股票回购和分红将资金返还给股东。
+这就是下行压力重新出现的原因。
 
-不过，苹果可能很快就会加入这场游戏。
+” 此前一个交易日，7月布伦特原油期货上涨3.6%，因美国在伊朗实施了新的打击行动，令市场对华盛顿与德黑兰本周末达成和平协议的希望受挫。
 
-在周四的第二季度财报电话会议上，苹果表示将放弃其长期持有的净现金中性目标。
+德国商业银行分析师周三表示：“美国最近对伊朗导弹设施及涉嫌在霍尔木兹海峡布设水雷的船只发动打击，在一定程度上削弱了美伊达成结束冲突框架协议的希望。
 
-早在2018年，苹果就开始缩减其庞大的现金储备，目标是保持现金和债务水平相当，但苹果表示，未来将分别评估这两个指标。
+尽管如此，市场参与者中信心仍然很高。
 
-首席财务官凯文·帕雷克表示，这一决定将帮助公司“在如何最优地利用我们的债务和现金组合来支持业务方面，做出更优的经济决策”。
+” 伊朗周二表示，美国通过在争议的霍尔木兹海峡附近打击目标违反了停火协议，而华盛顿则表示其打击属于防御性质。
 
 ## 相关推荐
 
-- 2026-06-29 21:27 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 21:21 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 21:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 21:19 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 21:08 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 21:17 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 21:22 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 21:26 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 21:32 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 21:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 21:18 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 21:21 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 21:14 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 21:29 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 21:17 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 21:28 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 21:28 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 21:27 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 21:20 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 21:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 21:42 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 21:18 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 21:34 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:33 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/2866603.shtml)
-- 2026-06-29 21:20 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/660189.shtml)
-- 2026-06-29 21:19 - [斛珠夫人](https://www.blog.minike.top/Article/details/594692.shtml)
-- 2026-06-29 21:19 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/4347315.shtml)
-- 2026-06-29 21:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/72031730225.shtml)
-- 2026-06-29 21:13 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/33029153878.shtml)
-- 2026-06-29 21:29 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/42917770.shtml)
-- 2026-06-29 21:29 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/97797.shtml)
-- 2026-06-29 21:21 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/6452699.shtml)
-- 2026-06-29 21:35 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/9103783.shtml)
-- 2026-06-29 21:15 - [2026全国田径冠军赛江苏队4金收官](https://www.share.kurohicncr.top/Article/details/4298500149.shtml)
-- 2026-06-29 21:06 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/337025154.shtml)
-- 2026-06-29 21:35 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/57393004501.shtml)
-- 2026-06-29 21:21 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/62339703.shtml)
-- 2026-06-29 21:19 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/5202381.shtml)
+- 2026-06-29 21:28 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/13123357384.shtml)
+- 2026-06-29 21:27 - [佛得角队长门德斯被控强奸](https://www.blog.kurohicncr.top/Article/details/213617772.shtml)
+- 2026-06-29 21:14 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/76662667.shtml)
+- 2026-06-29 21:36 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/197510.shtml)
+- 2026-06-29 21:26 - [北京发布地质灾害气象风险蓝色预警](https://www.share.kurohicncr.top/Article/details/7838368017.shtml)
+- 2026-06-29 21:15 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/63260230288.shtml)
+- 2026-06-29 21:30 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/31833498027.shtml)
+- 2026-06-29 21:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/821789488623.shtml)
+- 2026-06-29 21:19 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/954836.shtml)
+- 2026-06-29 21:25 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/512736415923.shtml)
+- 2026-06-29 21:38 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/79314419.shtml)
+- 2026-06-29 21:26 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/629009.shtml)
+- 2026-06-29 21:34 - [《新闻联播》正在直播](https://www.share.kurohicncr.top/Article/details/992724180221.shtml)
+- 2026-06-29 21:15 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/276527.shtml)
+- 2026-06-29 21:17 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/7777104280.shtml)

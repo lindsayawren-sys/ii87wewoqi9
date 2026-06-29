@@ -1,53 +1,52 @@
-# 一名中国公民遇害身亡 中国驻巴塞罗那总领馆发布情况通报
+# 云知声午后涨超12% 据报将于6月正式发布新一代通用基座大模型U2
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新网5月5日电 据中国驻巴塞罗那总领馆微信公众号消息，当地时间5月2日，一名中国公民在巴塞罗那不幸遇害身亡。中国驻巴塞罗那总领馆收到警方通报后，高度重视，第一时间启动领事保护应急响应机制，要求警方全力彻查此案，依法、公正处理，切实维护中国公民合法权益。总领馆及时与遇害者家属取得联系，通报情况，会同有关方面为家属善后提供便利。 中国驻巴塞罗那总领馆对同胞遇害深感悲痛，对其家属表
+云知声（09678）盘中涨超17%，截至发稿，股价上涨12.49%，现报293.60港元，成交额2.18亿港元。 近日，据36氪报道，云知声将于6月正式发布新一代通用基座大模型U2。报道称，U2被内部视为公司跻身国产通用大模型第一梯队的关键支撑，其能力建设重点覆盖知识推理、指令遵循、长上下文、长程任务、编码和办公等智能体方向。 据了解，U2在知识推理、长文本理解、复杂指令遵循、
 
 ## 正文
 
-中新网5月5日电 据中国驻巴塞罗那总领馆微信公众号消息，当地时间5月2日，一名中国公民在巴塞罗那不幸遇害身亡。
+云知声（09678）盘中涨超17%，截至发稿，股价上涨12.49%，现报293.60港元，成交额2.18亿港元。
 
-中国驻巴塞罗那总领馆收到警方通报后，高度重视，第一时间启动领事保护应急响应机制，要求警方全力彻查此案，依法、公正处理，切实维护中国公民合法权益。
+近日，据36氪报道，云知声将于6月正式发布新一代通用基座大模型U2。
 
-总领馆及时与遇害者家属取得联系，通报情况，会同有关方面为家属善后提供便利。
+报道称，U2被内部视为公司跻身国产通用大模型第一梯队的关键支撑，其能力建设重点覆盖知识推理、指令遵循、长上下文、长程任务、编码和办公等智能体方向。
 
-中国驻巴塞罗那总领馆对同胞遇害深感悲痛，对其家属表示诚挚慰问，将继续同当地有关部门保持沟通，积极协助家属妥善处理有关善后事宜。
+据了解，U2在知识推理、长文本理解、复杂指令遵循、软件工程和Agent工具调用等关键评测方向上，已经具备对标全球一流大模型的综合表现。
+
+在IFBench等指令遵循评测中，U2表现处于前列；在Claw相关评测中，其Agent与工具调用能力体现出较强优势；在GPQA等硬核知识推理和长上下文任务上，U2也展现出挑战行业顶尖模型的能力。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:34 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 21:16 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 21:25 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 21:22 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 21:28 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 21:26 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 21:30 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 21:17 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 21:22 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 21:33 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 21:15 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 21:29 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 21:20 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 21:22 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 21:10 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 21:31 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 21:12 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 21:41 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 21:12 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 21:14 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 21:30 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 21:38 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 21:27 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 21:39 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 21:38 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:32 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/92098557006.shtml)
-- 2026-06-29 21:13 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/5548973.shtml)
-- 2026-06-29 21:10 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/757219803921.shtml)
-- 2026-06-29 21:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/4733582.shtml)
-- 2026-06-29 21:18 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/37675612.shtml)
-- 2026-06-29 21:10 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/74871354.shtml)
-- 2026-06-29 21:33 - [任泽平：AI浪潮刚刚开始](https://www.share.kurohicncr.top/Article/details/1286416058.shtml)
-- 2026-06-29 21:07 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/66936.shtml)
-- 2026-06-29 21:08 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/367497004.shtml)
-- 2026-06-29 21:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/33492502148.shtml)
-- 2026-06-29 21:33 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/663473.shtml)
-- 2026-06-29 21:33 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/5267068471.shtml)
-- 2026-06-29 21:26 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/7983599210.shtml)
-- 2026-06-29 21:12 - [我和我的家乡](http://www.blog.minike.top/Article/details/02249472.shtml)
-- 2026-06-29 21:18 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/09288.shtml)
+- 2026-06-29 21:29 - [时光音乐会](http://www.blog.minike.top/Article/details/56127140249.shtml)
+- 2026-06-29 21:40 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/26115378.shtml)
+- 2026-06-29 21:30 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/3748779485.shtml)
+- 2026-06-29 21:24 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/732169992.shtml)
+- 2026-06-29 21:17 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/67872600.shtml)
+- 2026-06-29 21:27 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/993051.shtml)
+- 2026-06-29 21:37 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/580448441.shtml)
+- 2026-06-29 21:35 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/6445784599.shtml)
+- 2026-06-29 21:22 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/813222665481.shtml)
+- 2026-06-29 21:34 - [英法德葡存在什么隐患](https://www.blog.minike.top/Article/details/6342551252.shtml)
+- 2026-06-29 21:33 - [炽夏](http://www.share.kurohicncr.top/Article/details/71887.shtml)
+- 2026-06-29 21:39 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/95094.shtml)
+- 2026-06-29 21:27 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/5132012006.shtml)
+- 2026-06-29 21:32 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/23442044304.shtml)
+- 2026-06-29 21:18 - [王楚钦称抽签结果出来心情不好](https://www.share.minike.top/Article/details/55507708.shtml)

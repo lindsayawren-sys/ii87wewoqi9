@@ -1,55 +1,61 @@
-# 花旗：中国海外发展给予“买入”评级 目标价14.2港元
+# 罕见病患儿重疾险理赔遭“卡条款”！法院：判了
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-花旗发布研报称，对中国海外发展（00688）开启30日正面催化因素观察，因公司去年的土地收购金额为行业最高，在15个城市投入924亿元人民币。该行现予目标价14.2港元及“买入”评级。 公司今年首季销售强劲，达511亿元人民币，同比增长11%。该行预期在3月强劲销售后，次季销售将持续强劲。另外，公司资产负债表强劲，使其有能力在核心城市承接大型综合项目。同时，公司成本管理有效，销
+来源：金融时报 重疾险理赔标准到底是什么？机械的审核规则能否变通？近日，一起罕见病幼儿重疾险理赔纠纷案在北京金融法院二审审理，回应了上述关切。 男童小浩确诊杜氏肌营养不良症后，依据少儿重疾险申请理赔被保险公司以未按合同约定完成肌电图、肌肉活检及未达生活能力丧失标准为由拒赔。北京市通州区人民法院一审、北京金融法院二审均认定，小浩所患疾病属于合同约定的重大疾病与少儿罕见病范畴，保险
 
 ## 正文
 
-花旗发布研报称，对中国海外发展（00688）开启30日正面催化因素观察，因公司去年的土地收购金额为行业最高，在15个城市投入924亿元人民币。
+来源：金融时报 重疾险理赔标准到底是什么？
 
-该行现予目标价14.2港元及“买入”评级。
+机械的审核规则能否变通？
 
-公司今年首季销售强劲，达511亿元人民币，同比增长11%。
+近日，一起罕见病幼儿重疾险理赔纠纷案在北京金融法院二审审理，回应了上述关切。
 
-该行预期在3月强劲销售后，次季销售将持续强劲。
+男童小浩确诊杜氏肌营养不良症后，依据少儿重疾险申请理赔被保险公司以未按合同约定完成肌电图、肌肉活检及未达生活能力丧失标准为由拒赔。
 
-另外，公司资产负债表强劲，使其有能力在核心城市承接大型综合项目。
+北京市通州区人民法院一审、北京金融法院二审均认定，小浩所患疾病属于合同约定的重大疾病与少儿罕见病范畴，保险公司应承担赔付责任，终审判决维持原判——保险公司向小浩支付保险金100万元，并豁免后续保险费。
 
-同时，公司成本管理有效，销售及管理费用比率和融资成本均为行业最低水平，加上全产业链扩张，租金收入不断提升，并已发行商业房地产投资信托基金。
+该案直指长期重疾险条款滞后于医学实践、理赔审核机械适用格式条款等行业痛点，为同类罕见病理赔纠纷提供了明确裁判指引。
 
-责任编辑：卢昱君
+幼童确诊罕见病 百万理赔遭“卡条款” 小浩父母在北京工作生活，孩子出生数月后，便为其投保一份少儿重大疾病保险，涵盖重大疾病、少儿罕见病等保障责任，约定严重肌营养不良症在赔付范围内。
+
+然而，3岁的小浩出现明显异常：走路呈外八字，上下楼梯需大人搀扶，上厕所、穿衣、洗澡等日常活动均需辅助，平衡与协调能力显著弱于同龄儿童。
 
 ## 相关推荐
 
-- 2026-06-29 21:26 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 21:15 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 21:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 21:10 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 21:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 21:29 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 21:06 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 21:24 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 21:08 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 21:23 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 21:31 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 21:29 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 21:33 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 21:23 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 21:19 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 21:39 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 21:12 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 21:16 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 21:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 21:27 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 21:35 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 21:24 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 21:32 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 21:31 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 21:32 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 21:36 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/335747219.shtml)
-- 2026-06-29 21:33 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/52010.shtml)
-- 2026-06-29 21:18 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/599905407.shtml)
-- 2026-06-29 21:33 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/86385.shtml)
-- 2026-06-29 21:30 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/986477.shtml)
-- 2026-06-29 21:29 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.minike.top/Article/details/125255751255.shtml)
-- 2026-06-29 21:09 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/1818855.shtml)
-- 2026-06-29 21:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/923851.shtml)
-- 2026-06-29 21:30 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/3451540228.shtml)
-- 2026-06-29 21:35 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/51234.shtml)
-- 2026-06-29 21:27 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/278473.shtml)
-- 2026-06-29 21:21 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/484847701436.shtml)
-- 2026-06-29 21:27 - [千与千寻](http://www.share.kurohicncr.top/Article/details/996577392.shtml)
-- 2026-06-29 21:21 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/02675942800.shtml)
-- 2026-06-29 21:11 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/85335478486.shtml)
+- 2026-06-29 21:31 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/376250559039.shtml)
+- 2026-06-29 21:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/7025497195.shtml)
+- 2026-06-29 21:20 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/8909367.shtml)
+- 2026-06-29 21:12 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/965157327276.shtml)
+- 2026-06-29 21:17 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/5020207.shtml)
+- 2026-06-29 21:24 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/8494365.shtml)
+- 2026-06-29 21:38 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/72130217.shtml)
+- 2026-06-29 21:26 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/08023.shtml)
+- 2026-06-29 21:19 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/993004253.shtml)
+- 2026-06-29 21:15 - [毒液2](http://www.blog.minike.top/Article/details/401553.shtml)
+- 2026-06-29 21:17 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/41222782561.shtml)
+- 2026-06-29 21:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/240719.shtml)
+- 2026-06-29 21:29 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/07539137903.shtml)
+- 2026-06-29 21:31 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/15414516.shtml)
+- 2026-06-29 21:25 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/35300356701.shtml)

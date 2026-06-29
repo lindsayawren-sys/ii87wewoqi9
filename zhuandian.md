@@ -1,56 +1,61 @@
-# 突发！美舰通航霍尔木兹，水雷危机解除油价为何不跌
+# 迪克体育用品一季度盈利不及预期，盘前股价跌逾3%
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-来源：汇通网 汇通财经APP讯——周二（5月5日）亚欧时段，市场又突发利好，美国三大股指期货集体拉升，国际油价小幅回落后探底回升依然保持强势多头形态，目前布伦特原油交投于112.80附近。 两艘美国驱逐舰在遭遇伊朗密集火力拦截后，成功穿越霍尔木兹海峡，标志着的美伊局势出现了重大边际变化，出现了起码两条可供大型油轮通行的航道，没有水雷的威胁。 美国中央司令部司令布拉德·库珀证实，
+迪克体育用品公司周三盘前公布2026财年第一季度财报，调整后每股收益略低于市场预期，尽管营收表现超出分析师预测。受此影响，该公司股价在盘前交易中下跌超过3%。 财报显示，迪克体育用品第一季度的调整后每股收益为2.90美元，低于伦敦证券交易所集团调查所显示的分析师普遍预期的2.92美元。二者之间的微小差距足以引发市场谨慎情绪。不过，公司季度营收为51.7亿美元，好于市场预期的50
 
 ## 正文
 
-来源：汇通网 汇通财经APP讯——周二（5月5日）亚欧时段，市场又突发利好，美国三大股指期货集体拉升，国际油价小幅回落后探底回升依然保持强势多头形态，目前布伦特原油交投于112.80附近。
+迪克体育用品公司周三盘前公布2026财年第一季度财报，调整后每股收益略低于市场预期，尽管营收表现超出分析师预测。
 
-两艘美国驱逐舰在遭遇伊朗密集火力拦截后，成功穿越霍尔木兹海峡，标志着的美伊局势出现了重大边际变化，出现了起码两条可供大型油轮通行的航道，没有水雷的威胁。
+受此影响，该公司股价在盘前交易中下跌超过3%。
 
-美国中央司令部司令布拉德·库珀证实，美军已在海峡设立“强化安全区”，彻底清除伊朗水雷威胁，首批两艘悬挂美国国旗的商船已顺利通航。
+财报显示，迪克体育用品第一季度的调整后每股收益为2.90美元，低于伦敦证券交易所集团调查所显示的分析师普遍预期的2.92美元。
 
-面对伊朗发起的导弹、无人机及小型船只协同袭击，美国总统特朗普采取“双重表态”策略：既在福克斯新闻频道强硬威胁“若伊朗向美舰开火将被从地球表面抹去”，又在接受美国广播公司采访时有意淡化冲突后果，称“并非猛烈交火”“仅一枚弹药漏网且损失轻微”。
+二者之间的微小差距足以引发市场谨慎情绪。
 
-这种软硬兼施的表态为双方预留了缓冲空间，使美伊均可各自宣称达成战术目标，避免停火协议彻底破裂。
+不过，公司季度营收为51.7亿美元，好于市场预期的50.9亿美元。
 
-伊朗亮明底牌：未尽全力，保留谈判核心筹码 伊朗方面虽未直接阻止美舰通行，但明确释放出“仍握关键底牌”的信号，为后续谈判保留筹码。
+在全年展望方面，迪克体育用品重申了其全财年调整后每股收益的指引，但具体数字未在报道中披露。
 
-伊朗议会议长卡利巴夫公开表态“霍尔木兹海峡新局势正在稳定，我们甚至还没有真正开始”，暗示伊朗尚未动用全部战略力量。
+分析人士指出，在通胀压力持续、消费者支出趋于谨慎的背景下，公司能够维持全年预期而非下调，本身释放了一定的积极信号。
 
-据伊朗议会国家安全委员会相关披露，曼德海峡这一同样关键的航运通道可能成为伊朗的“备用牵制手段”，也门相关武装或配合采取行动，形成新的地缘压力点。
+迪克体育用品是美国领先的全渠道体育用品零售商，近年来通过聚焦高端运动装备和自有品牌建设，成功提升了单店效益。
 
 ## 相关推荐
 
-- 2026-06-29 21:06 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 21:34 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 21:19 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 21:35 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 21:10 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 21:13 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 21:16 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 21:26 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 21:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-29 21:13 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 21:29 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 21:41 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 21:13 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 21:35 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 21:30 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 21:14 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 21:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 21:18 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 21:29 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 21:14 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 21:18 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 21:20 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 21:14 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 21:28 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 21:31 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:33 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/751396715012.shtml)
-- 2026-06-29 21:10 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/96927420595.shtml)
-- 2026-06-29 21:24 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/403579271130.shtml)
-- 2026-06-29 21:31 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/841374961.shtml)
-- 2026-06-29 21:06 - [沙丘](https://www.blog.minike.top/Article/details/872200013905.shtml)
-- 2026-06-29 21:23 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/482280088762.shtml)
-- 2026-06-29 21:22 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/32478823191.shtml)
-- 2026-06-29 21:22 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/4634457.shtml)
-- 2026-06-29 21:34 - [一见倾心](https://www.blog.minike.top/Article/details/593498764338.shtml)
-- 2026-06-29 21:35 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/93140352839.shtml)
-- 2026-06-29 21:18 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/671972720627.shtml)
-- 2026-06-29 21:30 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/0333329517.shtml)
-- 2026-06-29 21:35 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/657782.shtml)
-- 2026-06-29 21:24 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/9420829.shtml)
-- 2026-06-29 21:07 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/017312322.shtml)
+- 2026-06-29 21:32 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.minike.top/Article/details/263991.shtml)
+- 2026-06-29 21:39 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/6259746934.shtml)
+- 2026-06-29 21:31 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/32868.shtml)
+- 2026-06-29 21:35 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/566228.shtml)
+- 2026-06-29 21:32 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.kurohicncr.top/Article/details/93598822111.shtml)
+- 2026-06-29 21:16 - [王楚钦称抽签结果出来心情不好](https://www.blog.kurohicncr.top/Article/details/0490020503.shtml)
+- 2026-06-29 21:29 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/32971.shtml)
+- 2026-06-29 21:25 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/16382740979.shtml)
+- 2026-06-29 21:12 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/571867219040.shtml)
+- 2026-06-29 21:19 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/449495113947.shtml)
+- 2026-06-29 21:15 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/6617780051.shtml)
+- 2026-06-29 21:24 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/00610.shtml)
+- 2026-06-29 21:38 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/84328151.shtml)
+- 2026-06-29 21:24 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/891180.shtml)
+- 2026-06-29 21:39 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/39913045.shtml)

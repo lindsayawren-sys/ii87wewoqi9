@@ -1,56 +1,61 @@
-# Blue Owl减持约半数SpaceX持股，交易估值1.25万亿美元
+# 买水果遇到问题怎么投诉维权
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-另类资产管理公司Blue Owl Capital联合首席执行官Marc Lipschultz周四透露，公司已出售其所持SpaceX股份的约一半，交易估值约为1.25万亿美元。此次减持锁定了可观收益，同时保留了余下仓位以博取未来潜在上涨空间。 Lipschultz在分析师电话会上表示：“具体到SpaceX……我们在这项投资上赚了大约10倍。我们已在一级市场上卖掉了其中大约一半的持
+夏天到了，又到了西瓜大量上市的季节。最近有消费者拍到摊贩往西瓜上涂抹不明液体的视频，引发广泛关注。有人担心是催熟剂，有人怀疑是增甜剂，还有人直接质疑食品安全问题。这件事之所以能迅速登上热搜，正是因为它戳中了每个人日常消费中最敏感的那根神经——我们每天吃进肚子里的东西到底安不安全？ 其实不光是西瓜，日常消费中类似的情况并不少见：买到的水果缺斤少两、蔬菜农药残留超标、熟食店卫生条件
 
 ## 正文
 
-另类资产管理公司Blue Owl Capital联合首席执行官Marc Lipschultz周四透露，公司已出售其所持SpaceX股份的约一半，交易估值约为1.25万亿美元。
+夏天到了，又到了西瓜大量上市的季节。
 
-此次减持锁定了可观收益，同时保留了余下仓位以博取未来潜在上涨空间。
+最近有消费者拍到摊贩往西瓜上涂抹不明液体的视频，引发广泛关注。
 
-Lipschultz在分析师电话会上表示：“具体到SpaceX……我们在这项投资上赚了大约10倍。
+有人担心是催熟剂，有人怀疑是增甜剂，还有人直接质疑食品安全问题。
 
-我们已在一级市场上卖掉了其中大约一半的持仓，对应的估值是1.25万亿美元，我们仍然持有剩余的一半。
+这件事之所以能迅速登上热搜，正是因为它戳中了每个人日常消费中最敏感的那根神经——我们每天吃进肚子里的东西到底安不安全？
 
-” Blue Owl Technology Finance Corp基金于2021年向SpaceX股票投资了2700万美元，此后多次上调该持仓估值。
+其实不光是西瓜，日常消费中类似的情况并不少见：买到的水果缺斤少两、蔬菜农药残留超标、熟食店卫生条件堪忧、网购生鲜收到时已经变质……这些问题看似不大，但真要较真起来，普通消费者往往不知道该找谁、怎么找。
 
-截至2025年底，这笔投资已被标记为1.95亿美元，年度增幅达1.05亿美元。
+很多人选择忍气吞声，觉得“为几块钱的东西折腾不值得”，但正是这种心态，让一些不良商家有了可乘之机。
 
-SpaceX是该基金最大的未实现收益来源。
+遇到食品消费问题，首先可以拨打12315消费者投诉 【下载黑猫投诉客户端】举报热线，这是市场监管部门设立的官方渠道，对于食品安全类投诉会转交属地市场监管所处理。
 
-市场普遍预期SpaceX最早将于今年6月启动IPO，估值可能高达1.75万亿美元，募资规模约750亿美元，届时有望成为史上最大IPO。
+如果涉及金额较大或者商家态度恶劣，还可以通过全国12315平台网站或小程序在线提交投诉，上传购物凭证和问题证据，一般会在7个工作日内得到反馈。
 
 ## 相关推荐
 
-- 2026-06-29 21:08 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 21:28 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 21:34 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 21:25 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 21:14 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 21:29 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 21:17 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 21:26 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 21:06 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 21:22 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 21:15 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 21:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 21:26 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 21:34 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 21:37 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 21:32 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 21:17 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 21:30 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 21:36 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 21:15 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 21:26 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 21:12 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 21:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 21:38 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 21:18 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:19 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/7695344266.shtml)
-- 2026-06-29 21:10 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/552674.shtml)
-- 2026-06-29 21:11 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/802083498297.shtml)
-- 2026-06-29 21:29 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/95051.shtml)
-- 2026-06-29 21:13 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/24962.shtml)
-- 2026-06-29 21:14 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/4678612076.shtml)
-- 2026-06-29 21:31 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/571850802.shtml)
-- 2026-06-29 21:27 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/50656.shtml)
-- 2026-06-29 21:12 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/703178374407.shtml)
-- 2026-06-29 21:28 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/65513198984.shtml)
-- 2026-06-29 21:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/6764665.shtml)
-- 2026-06-29 21:33 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/26392.shtml)
-- 2026-06-29 21:13 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/659328919.shtml)
-- 2026-06-29 21:12 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/99477.shtml)
-- 2026-06-29 21:30 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/890849.shtml)
+- 2026-06-29 21:32 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/61350.shtml)
+- 2026-06-29 21:22 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/557264591.shtml)
+- 2026-06-29 21:28 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/0573220676.shtml)
+- 2026-06-29 21:21 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/939067815828.shtml)
+- 2026-06-29 21:39 - [金鹰奖第二阶段投票明日开启](http://www.share.kurohicncr.top/Article/details/4395608.shtml)
+- 2026-06-29 21:27 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/856915.shtml)
+- 2026-06-29 21:15 - [青春环游记第三季](https://www.blog.minike.top/Article/details/1698684267.shtml)
+- 2026-06-29 21:36 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/3185137824.shtml)
+- 2026-06-29 21:14 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/8937815537.shtml)
+- 2026-06-29 21:26 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/639912209.shtml)
+- 2026-06-29 21:24 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/33852025649.shtml)
+- 2026-06-29 21:29 - [王楚钦称抽签结果出来心情不好](http://www.share.kurohicncr.top/Article/details/26578004785.shtml)
+- 2026-06-29 21:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/77906.shtml)
+- 2026-06-29 21:25 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/1562037.shtml)
+- 2026-06-29 21:30 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/9814102302.shtml)

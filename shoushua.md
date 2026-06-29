@@ -1,53 +1,60 @@
-# 美财长称美国的经济和金融压力正在令伊朗“窒息”
+# 自然资源部：海洋生物物种丰度远超陆地，是巨大的药源宝库
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-美国财长贝森特表示，美国施加的经济和金融压力正在令伊朗“窒息”，并暗示德黑兰当局将被迫让步。 “过去12个月，我们一直在跑马拉松，现在正冲向终点，”贝森特当地时间周日接受采访时表示，伊朗“无法向士兵发薪。这是真正的经济封锁。” 贝森特的这番表态显示，特朗普政府正试图通过包括海上封锁在内的措施加大对伊朗施压，切断其石油出口，剥夺德黑兰这一主要财政来源。 贝森特称，随着储油设施被迅
+中新网5月28日电 自然资源部28日召开5月份例行新闻发布会，发布并解读《关于加快海洋药物和功能制品高质量发展的指导意见》(以下简称“《指导意见》”)。自然资源部海洋战略规划与经济司司长沈君在会上表示，海洋生物量占地球总生物量87%，物种丰度远超陆地，是巨大的药源宝库。沈君介绍，海洋药物和功能制品产业又称海洋生物医药产业、海洋药物和生物制品产业，是以海洋生物(包括其代谢产物)和
 
 ## 正文
 
-美国财长贝森特表示，美国施加的经济和金融压力正在令伊朗“窒息”，并暗示德黑兰当局将被迫让步。
+中新网5月28日电 自然资源部28日召开5月份例行新闻发布会，发布并解读《关于加快海洋药物和功能制品高质量发展的指导意见》(以下简称“《指导意见》”)。
 
-“过去12个月，我们一直在跑马拉松，现在正冲向终点，”贝森特当地时间周日接受采访时表示，伊朗“无法向士兵发薪。
+自然资源部海洋战略规划与经济司司长沈君在会上表示，海洋生物量占地球总生物量87%，物种丰度远超陆地，是巨大的药源宝库。
 
-这是真正的经济封锁。
+沈君介绍，海洋药物和功能制品产业又称海洋生物医药产业、海洋药物和生物制品产业，是以海洋生物(包括其代谢产物)和矿物等物质为原料，生产药物、功能制品的活动总称。
 
-” 贝森特的这番表态显示，特朗普政府正试图通过包括海上封锁在内的措施加大对伊朗施压，切断其石油出口，剥夺德黑兰这一主要财政来源。
+海洋生物量占地球总生物量87%，物种丰度远超陆地，是巨大的药源宝库。
 
-贝森特称，随着储油设施被迅速填满，伊朗可能在未来一周开始关闭油井。
+沈君透露，党的十八大以来，我国海洋生物医药产业得到长足发展，2025年产业增加值已达996亿元，“十四五”以来增长了近四成，产业链涵盖海洋创新药物、海洋保健食品、海洋生物材料、海洋生物制品等领域，其中壳聚糖、海藻酸钠等原料级产品产量占全球份额超80%，自主研发海洋药物品类约占全球上市总品类28%。
 
-责任编辑：于健 SF069
+但与此同时，海洋生物医药领域高水平创新和高质量转化体系尚不健全，缺少“一揽子”政策，亟须高位统筹，整体引导，加快突破。
+
+为此，自然资源部会同有关部门积极推动《指导意见》编制工作。
+
+在起草过程中，多轮次开展专题调研座谈，梳理形成产业发展问题清单，厘清了指导意见的主要方向。
 
 ## 相关推荐
 
-- 2026-06-29 21:24 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 21:33 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 21:11 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 21:28 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 21:16 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 21:31 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 21:18 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 21:09 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 21:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 21:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 21:07 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 21:19 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 21:12 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 21:20 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 21:39 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 21:38 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 21:13 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 21:41 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 21:39 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 21:31 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 21:36 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 21:29 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 21:30 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 21:19 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 21:23 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:29 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/18900.shtml)
-- 2026-06-29 21:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/90954771.shtml)
-- 2026-06-29 21:22 - [追觅称质量不行终身包修也没意义](http://www.share.minike.top/Article/details/1106031.shtml)
-- 2026-06-29 21:08 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/85601.shtml)
-- 2026-06-29 21:20 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/062602.shtml)
-- 2026-06-29 21:16 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/29559.shtml)
-- 2026-06-29 21:06 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/05891637.shtml)
-- 2026-06-29 21:20 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/825176465441.shtml)
-- 2026-06-29 21:26 - [恋与深空各大应用商店评分](http://www.share.kurohicncr.top/Article/details/042713.shtml)
-- 2026-06-29 21:19 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/9028305.shtml)
-- 2026-06-29 21:26 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/6970894588.shtml)
-- 2026-06-29 21:26 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.kurohicncr.top/Article/details/93326.shtml)
-- 2026-06-29 21:07 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/4395961618.shtml)
-- 2026-06-29 21:35 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/9595740034.shtml)
-- 2026-06-29 21:33 - [恋与深空 巧合](https://www.share.minike.top/Article/details/62475413144.shtml)
+- 2026-06-29 21:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/153901107968.shtml)
+- 2026-06-29 21:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/101239715.shtml)
+- 2026-06-29 21:40 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/0960313094.shtml)
+- 2026-06-29 21:15 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/79947849971.shtml)
+- 2026-06-29 21:34 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/517721.shtml)
+- 2026-06-29 21:16 - [女心理师](https://www.blog.kurohicncr.top/Article/details/32561493.shtml)
+- 2026-06-29 21:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/74627.shtml)
+- 2026-06-29 21:31 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/50953661363.shtml)
+- 2026-06-29 21:33 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/3724453.shtml)
+- 2026-06-29 21:26 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.minike.top/Article/details/58668.shtml)
+- 2026-06-29 21:24 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/047686931.shtml)
+- 2026-06-29 21:24 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/9453261665.shtml)
+- 2026-06-29 21:34 - [女心理师](http://www.share.minike.top/Article/details/43695180.shtml)
+- 2026-06-29 21:16 - [教育部高校学生资助热线7月1日开通](http://www.share.minike.top/Article/details/98170136930.shtml)
+- 2026-06-29 21:18 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/227758339897.shtml)

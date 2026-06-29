@@ -1,53 +1,58 @@
-# 花旗：华润置地给予“买入”评级 目标价35.8港元
+# 证监会副主席刘浩凌：新一轮科技革命和产业变革加速推进，中国经济韧性充足、动能向新
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-花旗发布研报称，华润置地（01109）拟分拆旗下两个购物中心，并转化为REIT，预计集资约54亿元人民币，华润置地将认购REIT约20%至30%权益。该行表示，华润置地分拆两座商场，此举有望提振盈利及股息，相信华润置地有能力透过REIT，实现回收5至6座购物中心的计划，料涉及价值100亿至150亿元人民币。该行列华润置地为首选股，评级“买入”，目标价35.8港元。责任编辑：卢昱
+专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 5月28日，深交所2026全球投资者大会在深圳开幕。大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，中国证监会副主席刘浩凌出席并致辞。 刘浩凌称，当前，世界百年变局加速演进，国际形势变乱交织，新一轮科技革命和产业变革一日千里，国家间竞争合作关系面临重塑调整，各国如何协手共同应
 
 ## 正文
 
-花旗发布研报称，华润置地（01109）拟分拆旗下两个购物中心，并转化为REIT，预计集资约54亿元人民币，华润置地将认购REIT约20%至30%权益。
+专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 5月28日，深交所2026全球投资者大会在深圳开幕。
 
-该行表示，华润置地分拆两座商场，此举有望提振盈利及股息，相信华润置地有能力透过REIT，实现回收5至6座购物中心的计划，料涉及价值100亿至150亿元人民币。
+大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，中国证监会副主席刘浩凌出席并致辞。
 
-该行列华润置地为首选股，评级“买入”，目标价35.8港元。
+刘浩凌称，当前，世界百年变局加速演进，国际形势变乱交织，新一轮科技革命和产业变革一日千里，国家间竞争合作关系面临重塑调整，各国如何协手共同应对变局，成为国际社会思考和实践的新课题。
 
-责任编辑：卢昱君
+面对当前复杂多变的国内外形势，党中央坚强领导、科学谋划，中国经济稳的因素不断积聚，市场信心与预期日趋巩固。
+
+一是党中央科学提出“十五五”规划，对中国经济稳定发展作出战略布局。
+
+“十五五”规划提出，要加快高水平科技自立自强，引领发展新质生产力，坚持扩大内需，大力提振消费，扩大有效投资等，向市场持续传递清晰稳定的信号，大幅提振外资投资中国的信心。
+
+二是元首外交引领运筹大国关系，为经贸合作提供更多确定性和稳定性。
+
+今年以来，中国多双边外交成果丰硕，特别是前不久美国总统访华期间，习近平主席和特朗普总统同意将构建“中美建设性战略稳定关系”作为新定位，为中美关系提供战略指引，受到两国人民和国际社会的普遍欢迎。
 
 ## 相关推荐
 
-- 2026-06-29 21:31 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 21:35 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 21:14 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 21:32 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 21:21 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 21:27 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 21:27 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 21:25 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 21:12 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 21:27 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 21:25 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 21:27 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 21:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 21:20 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 21:25 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 21:34 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 21:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 21:21 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 21:26 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 21:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 21:30 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 21:27 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 21:33 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 21:28 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 21:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 21:23 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 21:23 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:35 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/246894392993.shtml)
-- 2026-06-29 21:22 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/5776322.shtml)
-- 2026-06-29 21:11 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/4925423924.shtml)
-- 2026-06-29 21:35 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/92261938.shtml)
-- 2026-06-29 21:16 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/1300199.shtml)
-- 2026-06-29 21:22 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/548964572.shtml)
-- 2026-06-29 21:19 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/5626737.shtml)
-- 2026-06-29 21:26 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/8197235.shtml)
-- 2026-06-29 21:26 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/5125813878.shtml)
-- 2026-06-29 21:22 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/147406.shtml)
-- 2026-06-29 21:16 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/40646081.shtml)
-- 2026-06-29 21:09 - [日防卫省正考虑引进美企人工智能系统](https://www.share.minike.top/Article/details/51540412637.shtml)
-- 2026-06-29 21:19 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/216927272298.shtml)
-- 2026-06-29 21:14 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/68293.shtml)
-- 2026-06-29 21:15 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/093720310483.shtml)
+- 2026-06-29 21:32 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/59503290036.shtml)
+- 2026-06-29 21:16 - [逃狱兄弟](https://www.blog.minike.top/Article/details/94016.shtml)
+- 2026-06-29 21:22 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/30092094802.shtml)
+- 2026-06-29 21:31 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.kurohicncr.top/Article/details/448005.shtml)
+- 2026-06-29 21:40 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/419453975305.shtml)
+- 2026-06-29 21:39 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/553916418419.shtml)
+- 2026-06-29 21:25 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/49864727.shtml)
+- 2026-06-29 21:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/23709986230.shtml)
+- 2026-06-29 21:12 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/29298588561.shtml)
+- 2026-06-29 21:18 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/3925498.shtml)
+- 2026-06-29 21:23 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/24667988080.shtml)
+- 2026-06-29 21:32 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/4398912099.shtml)
+- 2026-06-29 21:13 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/749555242749.shtml)
+- 2026-06-29 21:23 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/1301341.shtml)
+- 2026-06-29 21:20 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/54529526834.shtml)

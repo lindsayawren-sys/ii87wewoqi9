@@ -1,61 +1,57 @@
-# “立夏首日”最高温23℃ 黑龙江赏花正当时
+# 【讲习所·中国与世界】“携手走出一条命运与共、共同繁荣的光明大道”
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月5日电(记者 姜辉)5日迎来夏季的第一个节气立夏节气。“立夏”后，日照增加，逐渐升温，雷雨增多，标示万物进入旺季生长季节。位于中国北疆的黑龙江省春意渐浓，兴安杜鹃、杏花、梨花、丁香花次第绽放，迎来最美赏花时节。 黑龙江省气象台发布的天气预报信息显示，“立夏首日”(5日)白天到夜间，大兴安岭、黑河北部、伊春北部、大庆南部、哈尔滨、七台河、鸡西、牡丹江阴有小雨，其中
+【本期导读】 5月25日下午，中国国家主席习近平在北京同来华进行国事访问的塞尔维亚总统武契奇举行会谈。习近平指出，中塞两个民族都经历过苦难辉煌，都具有坚韧不拔、百折不挠的精神品质，都坚定追求独立自主、捍卫民族尊严，都对坚持和平发展、坚守公理正义有着深刻理解。双方要加强交往、巩固互信、深化合作、相互支持，携手走出一条命运与共、共同繁荣的光明大道，推动中塞全面战略伙伴关系迈向新高度
 
 ## 正文
 
-中新网哈尔滨5月5日电(记者 姜辉)5日迎来夏季的第一个节气立夏节气。
+【本期导读】 5月25日下午，中国国家主席习近平在北京同来华进行国事访问的塞尔维亚总统武契奇举行会谈。
 
-“立夏”后，日照增加，逐渐升温，雷雨增多，标示万物进入旺季生长季节。
+习近平指出，中塞两个民族都经历过苦难辉煌，都具有坚韧不拔、百折不挠的精神品质，都坚定追求独立自主、捍卫民族尊严，都对坚持和平发展、坚守公理正义有着深刻理解。
 
-位于中国北疆的黑龙江省春意渐浓，兴安杜鹃、杏花、梨花、丁香花次第绽放，迎来最美赏花时节。
+双方要加强交往、巩固互信、深化合作、相互支持，携手走出一条命运与共、共同繁荣的光明大道，推动中塞全面战略伙伴关系迈向新高度。
 
-黑龙江省气象台发布的天气预报信息显示，“立夏首日”(5日)白天到夜间，大兴安岭、黑河北部、伊春北部、大庆南部、哈尔滨、七台河、鸡西、牡丹江阴有小雨，其中哈尔滨东南部、牡丹江北部局地有中到大雨，其他地区晴有时多云。
+当晚，习近平主席为武契奇总统举行“友谊勋章”颁授仪式，这枚中国国家对外最高荣誉勋章不仅彰显中塞两国“铁杆友谊”底色，也寄托着两国人民对新时代中塞命运共同体建设的殷切期望。
 
-5日白天最高气温，大兴安岭14℃至16℃，齐齐哈尔、大庆、绥化、哈尔滨西部21℃至23℃，其他地区17℃至19℃。
+塞方人士一致认为，中国是塞尔维亚的真挚朋友，也是最重要、可信赖的经贸合作伙伴。
 
-5日夜间最低气温，大兴安岭-2℃至0℃，黑河、伊春北部、佳木斯东部2℃至4℃，伊春南部、齐齐哈尔北部、绥化北部5℃至7℃，其他地区8℃至10℃。
+塞中两国友谊深厚，各领域合作成果丰硕，此次元首会晤将为双方带来新的发展与合作机遇。
 
-春意渐浓，花开龙江。
-
-“立夏”时节，作为黑龙江省“春日名片”的丁香花迎来最佳赏花期，在齐齐哈尔、大庆、哈尔滨、绥化、牡丹江、鸡西及双鸭山地区可抢先品味第一缕幽香，5月6日至10日，黑龙江省南部和东部大部地区的丁香将陆续进入盛花期，届时全城飘香，来黑龙江游玩不要错过哦。
+监制：魏静、戴爽、金近 策划：张倩楠 文案：任丽君 编辑：位树理 视觉：曹懿心
 
 ## 相关推荐
 
-- 2026-06-29 21:25 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 21:20 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 21:06 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 21:34 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 21:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 21:10 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 21:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 21:32 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 21:33 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 21:23 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 21:32 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 21:10 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 21:33 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 21:07 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 21:33 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 21:16 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 21:31 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 21:39 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 21:22 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 21:21 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 21:16 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 21:20 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 21:41 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 21:40 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 21:23 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 21:24 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 21:25 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 21:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:16 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/909719.shtml)
-- 2026-06-29 21:10 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/84156.shtml)
-- 2026-06-29 21:13 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/37127036.shtml)
-- 2026-06-29 21:11 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/942233139.shtml)
-- 2026-06-29 21:13 - [回顾世界杯争议事件](http://www.share.minike.top/Article/details/906915729.shtml)
-- 2026-06-29 21:21 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/917193.shtml)
-- 2026-06-29 21:14 - [英法德葡存在什么隐患](https://www.blog.kurohicncr.top/Article/details/94794.shtml)
-- 2026-06-29 21:23 - [金牌调解](https://www.share.minike.top/Article/details/4355240087.shtml)
-- 2026-06-29 21:29 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/55215340941.shtml)
-- 2026-06-29 21:07 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.kurohicncr.top/Article/details/9125916.shtml)
-- 2026-06-29 21:35 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/7231689.shtml)
-- 2026-06-29 21:34 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/6265067.shtml)
-- 2026-06-29 21:07 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/65867.shtml)
-- 2026-06-29 21:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/8382603.shtml)
-- 2026-06-29 21:27 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/720193.shtml)
+- 2026-06-29 21:21 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/07629203893.shtml)
+- 2026-06-29 21:13 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/87689489.shtml)
+- 2026-06-29 21:12 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/0021920725.shtml)
+- 2026-06-29 21:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/1251351.shtml)
+- 2026-06-29 21:22 - [国际清算银行警告AI投资热潮](https://www.share.minike.top/Article/details/895824122.shtml)
+- 2026-06-29 21:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/5278031254.shtml)
+- 2026-06-29 21:20 - [金鹰奖第二阶段投票明日开启](http://www.share.minike.top/Article/details/973471863.shtml)
+- 2026-06-29 21:25 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/02311360070.shtml)
+- 2026-06-29 21:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/2512858118.shtml)
+- 2026-06-29 21:14 - [女心理师](https://www.blog.kurohicncr.top/Article/details/184232692906.shtml)
+- 2026-06-29 21:40 - [任泽平：AI浪潮刚刚开始](http://www.share.kurohicncr.top/Article/details/14482889955.shtml)
+- 2026-06-29 21:21 - [我们的少年时代2](https://www.share.minike.top/Article/details/54939643162.shtml)
+- 2026-06-29 21:13 - [乌克兰发广告全球征兵](https://www.blog.kurohicncr.top/Article/details/6674526311.shtml)
+- 2026-06-29 21:21 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/08041333666.shtml)
+- 2026-06-29 21:41 - [起风了](http://www.share.minike.top/Article/details/412787585852.shtml)

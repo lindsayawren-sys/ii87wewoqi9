@@ -1,51 +1,50 @@
-# 伯克希尔哈撒韦公布一季报
+# 武汉第13座长江大桥南北主塔同步封顶 创湖北跨径纪录
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-伯克希尔哈撒韦第一季度营业利润113.5亿美元，同比增长18%；第一季度净利润101.1亿美元，上年同期为46亿美元；一季度现金储备创下3973.8亿美元历史新高；第一季度投资业务净亏损12.4亿美元，上年同期净亏损为50.38亿美元。 伯克希尔哈撒韦表示，截至3月31日，伯克希尔哈撒韦股权投资总公允价值中，61%集中持仓美国运通、苹果、美国银行、雪佛龙与可口可乐。 微信编辑
+发布时间：2026年05月26日 20:42 来源：中国新闻网 5月26日，武汉第13座长江大桥——汉南长江大桥南北两岸主塔同步完成封顶，标志着这座湖北省最大跨径双主缆八车道悬索桥建设取得关键性节点突破，为武汉都市圈环线高速加速成环奠定坚实基础。 汉南长江大桥由武汉城发集团所属交投集团汉南桥公司投资，中交路建、中铁大桥局承建。大桥为主跨1600米双塔单跨钢箱梁悬索桥，双向八车道
 
 ## 正文
 
-伯克希尔哈撒韦第一季度营业利润113.5亿美元，同比增长18%；第一季度净利润101.1亿美元，上年同期为46亿美元；一季度现金储备创下3973.8亿美元历史新高；第一季度投资业务净亏损12.4亿美元，上年同期净亏损为50.38亿美元。
+发布时间：2026年05月26日 20:42 来源：中国新闻网 5月26日，武汉第13座长江大桥——汉南长江大桥南北两岸主塔同步完成封顶，标志着这座湖北省最大跨径双主缆八车道悬索桥建设取得关键性节点突破，为武汉都市圈环线高速加速成环奠定坚实基础。
 
-伯克希尔哈撒韦表示，截至3月31日，伯克希尔哈撒韦股权投资总公允价值中，61%集中持仓美国运通、苹果、美国银行、雪佛龙与可口可乐。
+汉南长江大桥由武汉城发集团所属交投集团汉南桥公司投资，中交路建、中铁大桥局承建。
 
-微信编辑 | 格蕾丝责任编辑：王珂
+大桥为主跨1600米双塔单跨钢箱梁悬索桥，双向八车道、设计时速120公里，北岸位于武汉经开(汉南)区，南岸对接咸宁市嘉鱼县，全长72.523公里。
+
+主塔封顶后，大桥将全面转入上部结构施工，重点推进猫道架设、主缆索股牵引、钢箱梁吊装等关键工序，向着2028年建成通车目标稳步迈进。
+
+(黄珊 李元龙 王梦媛湖北武汉报道) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 21:07 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 21:18 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 21:11 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 21:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 21:19 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 21:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 21:32 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 21:10 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 21:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 21:29 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 21:28 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 21:28 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 21:31 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 21:30 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 21:19 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 21:34 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 21:27 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 21:30 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 21:16 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 21:41 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 21:26 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 21:23 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 21:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 21:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 21:22 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:33 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/900298.shtml)
-- 2026-06-29 21:33 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/196647016201.shtml)
-- 2026-06-29 21:09 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/0236251.shtml)
-- 2026-06-29 21:13 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/31164706173.shtml)
-- 2026-06-29 21:34 - [一诺变着花样秀新驾照](http://www.share.minike.top/Article/details/21430554.shtml)
-- 2026-06-29 21:20 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/938186.shtml)
-- 2026-06-29 21:18 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/701981563.shtml)
-- 2026-06-29 21:09 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/906968012.shtml)
-- 2026-06-29 21:17 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/84319189.shtml)
-- 2026-06-29 21:13 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/64016562266.shtml)
-- 2026-06-29 21:30 - [沉睡花园](http://www.blog.minike.top/Article/details/5046002113.shtml)
-- 2026-06-29 21:06 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/3035756.shtml)
-- 2026-06-29 21:16 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/770613562888.shtml)
-- 2026-06-29 21:24 - [女生学医适合选什么专业](http://www.blog.kurohicncr.top/Article/details/137548582.shtml)
-- 2026-06-29 21:34 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/7522873340.shtml)
+- 2026-06-29 21:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/12416199849.shtml)
+- 2026-06-29 21:24 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/01540253.shtml)
+- 2026-06-29 21:37 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/2516114823.shtml)
+- 2026-06-29 21:17 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/018632960802.shtml)
+- 2026-06-29 21:15 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/9302168.shtml)
+- 2026-06-29 21:14 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/7560690864.shtml)
+- 2026-06-29 21:38 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/63421.shtml)
+- 2026-06-29 21:16 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/376995236.shtml)
+- 2026-06-29 21:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/71132708.shtml)
+- 2026-06-29 21:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/2596708765.shtml)
+- 2026-06-29 21:14 - [小娘惹](http://www.blog.minike.top/Article/details/1675751.shtml)
+- 2026-06-29 21:18 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/8509811570.shtml)
+- 2026-06-29 21:25 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/60532905038.shtml)
+- 2026-06-29 21:36 - [东方风云榜直播](https://www.blog.minike.top/Article/details/68913556190.shtml)
+- 2026-06-29 21:22 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/0789556236.shtml)

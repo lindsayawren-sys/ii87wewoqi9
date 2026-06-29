@@ -1,59 +1,58 @@
-# 东京审判80年：正义的判决，永不遗忘！
+# “光伏豪门”内斗闹上法庭，母女“开撕”互提罢免
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-1946年5月3日 远东国际军事法庭正式开庭 一场对日本军国主义的“法理清算” 就此拉开序幕 从1946年5月3日 到1948年11月12日 这场被称为东京审判的国际大审判 历时近两年七个月 818次开庭 419名证人出庭 4336件证据 4.8万余页庭审记录 …… 数字背后 是一场关于侵略与反抗、罪行与正义的 终极较量 最终—— 25名日本甲级战犯被判有罪 其中，7名甲级战犯
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 父母与女儿互相“撕破脸”，甚至不惜“对簿公堂”，女儿则想“罢免”母亲和弟弟的董事职务……这般极具戏剧性的剧情，竟在A股光伏老牌企业拓日新能身上上演。 在年度股东会即将召开前夕，由陈五奎、李粉莉夫妇持
 
 ## 正文
 
-1946年5月3日 远东国际军事法庭正式开庭 一场对日本军国主义的“法理清算” 就此拉开序幕 从1946年5月3日 到1948年11月12日 这场被称为东京审判的国际大审判 历时近两年七个月 818次开庭 419名证人出庭 4336件证据 4.8万余页庭审记录 …… 数字背后 是一场关于侵略与反抗、罪行与正义的 终极较量 最终—— 25名日本甲级战犯被判有罪 其中，7名甲级战犯被判绞刑 16人被判无期徒刑 2人被判有期徒刑 整份判决书全文60余万字 仅记录日本侵华罪行的内容 就长达250多页 宣判之日 旁听的日本人走出法庭 碰到中国检察人员 “不敢抬起头来看我们一眼” 那一刻 正义终于站到了历史台前！
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-一纸投降书 一寸山河一寸血 1945年8月15日 日本宣布无条件投降！
+来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 父母与女儿互相“撕破脸”，甚至不惜“对簿公堂”，女儿则想“罢免”母亲和弟弟的董事职务……这般极具戏剧性的剧情，竟在A股光伏老牌企业拓日新能身上上演。
 
-从“九一八”事变到卢沟桥事变 从南京大屠杀到细菌战 …… 亿万中国人都不曾忘记 那段烽火连天的岁月 东京审判 正是对这些滔天罪行的法律回应 它将日本军国主义者 一个个钉在了历史的耻辱柱上 昭示世人： 正义必将得到伸张 侵略者终将付出代价 80年前的今天 值得每个中国人铭记！
+在年度股东会即将召开前夕，由陈五奎、李粉莉夫妇持股的拓日新能第二大股东东方和鑫于5月22日突然“发难”，要求“罢免”女儿陈琛的董事职务。
 
-从1946年到2026年 整整80年 一代人老去，一代人成长 法庭上的青砖已斑驳 但历史从未合上卷宗 今天，我们纪念东京审判 不仅是为了告慰那些 在抗战中牺牲的英烈和无辜同胞 更是为了警示现实—— 当军国主义余烬尚未完全熄灭 当某些政治势力 试图篡改历史、参拜战犯、否认侵略 我们必须拿出那份60余万字的判决书 让事实说话，让法律作证 以史为鉴，警钟长鸣！
+陈琛随即发起“反击”，以公司第一大股东奥欣投资执行董事、法定代表人名义，提议“罢免”母亲和胞弟的董事职务，但董事会决定不予将前述两项临时提案提交公司股东会审议。
 
-正义必胜！
+随后，这起“家族内斗”风波进一步升级，陈五奎、李粉莉将女儿告上法庭，试图夺回陈琛所持有的奥欣投资53.6%的股权。
 
-和平必胜！
+雷达财经梳理发现，早在4月末举行的第七届董事会第八次会议上，陈琛就曾对四项议案连续投出两票弃权与两票反对。
 
-人民必胜！
+值得一提的是，这四项议案的其中一项为《关于聘任公司副总经理的议案》，但常年担任副总经理同时也是陈琛丈夫的陈昊并未出现在聘任名单中。
 
-铭记历史，吾辈自强！
+而在这场家族纷争之外，拓日新能的经营业绩也面临着一定的考验。
 
 ## 相关推荐
 
-- 2026-06-29 21:15 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 21:24 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 21:18 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 21:31 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 21:23 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 21:17 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 21:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 21:25 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 21:25 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 21:35 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 21:24 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 21:08 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 21:17 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 21:28 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 21:21 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 21:38 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 21:36 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 21:31 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 21:20 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 21:35 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 21:28 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 21:33 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 21:32 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 21:16 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 21:30 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:25 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.minike.top/Article/details/69375.shtml)
-- 2026-06-29 21:16 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/462448477433.shtml)
-- 2026-06-29 21:23 - [女生学医适合选什么专业](http://www.blog.minike.top/Article/details/8381108583.shtml)
-- 2026-06-29 21:11 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/9225585053.shtml)
-- 2026-06-29 21:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/353796537771.shtml)
-- 2026-06-29 21:32 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/997038.shtml)
-- 2026-06-29 21:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/5948493.shtml)
-- 2026-06-29 21:26 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/7878155.shtml)
-- 2026-06-29 21:16 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/926461.shtml)
-- 2026-06-29 21:18 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/533978011.shtml)
-- 2026-06-29 21:28 - [男子40度高温下骑行严重晒伤](https://www.share.minike.top/Article/details/742840558.shtml)
-- 2026-06-29 21:27 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/81106.shtml)
-- 2026-06-29 21:19 - [欧洲缘何成为变暖最快的大洲](http://www.blog.kurohicncr.top/Article/details/82812876.shtml)
-- 2026-06-29 21:10 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/962902968.shtml)
-- 2026-06-29 21:11 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/23733.shtml)
+- 2026-06-29 21:40 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/04067220.shtml)
+- 2026-06-29 21:26 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/43909392.shtml)
+- 2026-06-29 21:25 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/54316153839.shtml)
+- 2026-06-29 21:25 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/155476194342.shtml)
+- 2026-06-29 21:27 - [扫黑风暴](http://www.share.minike.top/Article/details/602982363065.shtml)
+- 2026-06-29 21:40 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/64301622.shtml)
+- 2026-06-29 21:22 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/3305641.shtml)
+- 2026-06-29 21:13 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/709995366.shtml)
+- 2026-06-29 21:25 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/826681.shtml)
+- 2026-06-29 21:17 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/7405659.shtml)
+- 2026-06-29 21:15 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/65450.shtml)
+- 2026-06-29 21:25 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/76383.shtml)
+- 2026-06-29 21:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/3343061.shtml)
+- 2026-06-29 21:14 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/2101535.shtml)
+- 2026-06-29 21:32 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/80481603454.shtml)

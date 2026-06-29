@@ -1,57 +1,56 @@
-# 五一假期 游客沉浸式感受新疆那达慕草原盛会
+# 广东将推动服务与制造“同船出海” 携手港澳共建一流湾区
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！孩子吃饭少、长不高、脾气暴？专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲
+发布时间：2026年05月27日 08:26 来源：中国新闻网 5月26日，“开局起步‘十五五’”广东专场新闻发布会在广州举行，广东省委副书记、省长孟凡利介绍了《广东省国民经济和社会发展第十五个五年规划纲要》有关情况。 过去的五年，广东GDP从11.37万亿元跃升至14.58万亿元，连续37年位居全国第一。孟凡利表示，“十五五”时期是广东增创新优势、实现新突破的紧要时期。广东省
 
 ## 正文
 
-日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
+发布时间：2026年05月27日 08:26 来源：中国新闻网 5月26日，“开局起步‘十五五’”广东专场新闻发布会在广州举行，广东省委副书记、省长孟凡利介绍了《广东省国民经济和社会发展第十五个五年规划纲要》有关情况。
 
-这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？
+过去的五年，广东GDP从11.37万亿元跃升至14.58万亿元，连续37年位居全国第一。
 
-上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！
+孟凡利表示，“十五五”时期是广东增创新优势、实现新突破的紧要时期。
 
-孩子吃饭少、长不高、脾气暴？
+广东省“十五五”规划《纲要》细化提出8个方面发展目标，包括高质量发展取得显著成效、科技创新水平大幅提高、人民生活品质不断提高等......其中核心指标是全省生产总值年均增长5%左右。
 
-专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲53国“敞开怀抱”绍兴黄酒“春藏”热 中外家庭“封藏”人生喜事百年冰泉豆浆香飘海内外：烟火乡愁 味引八方多家景区宣布免门票，这个五一，跟着电影去旅游！
+近年来，广东全力稳外贸，去年全省货物贸易进出口9.49万亿元(人民币，下同)、同比增长4.4%；今年一季度，全省货物贸易进出口2.54万亿元、同比增长19.4%。
 
-中国文学何以打动世界读者？
+今年一季度，广东对传统伙伴和新兴市场出口均保持较好增长。
 
-凤何以成为中华民族文化标识？
+孟凡利表示，广东将抓好服务贸易，推动广东服务与广东制造“同船出海”。
 
-“王的盛宴”：从“No Kings”到“TWO KINGS”“王的演讲”：满堂笑声之后，查尔斯说了大家爱听的，唯独漏了英美必须听的记者手记：亚沙会，让世界从三亚看见开放中国AI末日论：真实风险还是叙事陷阱？
+广东省发展和改革委员会主任龚桢梽在会上表示，“十五五”时期，广东将以应用为核心，进一步强化算力、数据、模型等基础支撑，抢抓具身智能发展先机，打造中国领先的人工智能应用先行省份和产业创新高地。
 
 ## 相关推荐
 
-- 2026-06-29 21:08 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 21:07 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 21:09 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 21:11 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 21:26 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 21:35 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 21:29 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 21:26 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 21:12 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 21:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 21:15 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 21:40 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 21:29 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 21:20 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 21:25 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 21:31 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 21:29 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 21:41 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 21:24 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 21:32 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 21:16 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:30 - [周杰伦千禧年就有小卡了](http://www.blog.kurohicncr.top/Article/details/801342.shtml)
-- 2026-06-29 21:22 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/91318.shtml)
-- 2026-06-29 21:09 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/2610564.shtml)
-- 2026-06-29 21:15 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/1481599357.shtml)
-- 2026-06-29 21:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/55996114394.shtml)
-- 2026-06-29 21:09 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/000207716.shtml)
-- 2026-06-29 21:10 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/739462.shtml)
-- 2026-06-29 21:17 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/0786969954.shtml)
-- 2026-06-29 21:20 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/319505222999.shtml)
-- 2026-06-29 21:32 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/639415.shtml)
-- 2026-06-29 21:10 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.minike.top/Article/details/755761.shtml)
-- 2026-06-29 21:24 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/439796.shtml)
-- 2026-06-29 21:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/603512134.shtml)
-- 2026-06-29 21:27 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/49079.shtml)
-- 2026-06-29 21:10 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/5464210888.shtml)
+- 2026-06-29 21:23 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/21784711195.shtml)
+- 2026-06-29 21:21 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.minike.top/Article/details/0288109020.shtml)
+- 2026-06-29 21:17 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/9564851974.shtml)
+- 2026-06-29 21:31 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/16657.shtml)
+- 2026-06-29 21:30 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/4548771135.shtml)
+- 2026-06-29 21:16 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/902696647.shtml)
+- 2026-06-29 21:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/06706643211.shtml)
+- 2026-06-29 21:21 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/401335555021.shtml)
+- 2026-06-29 21:24 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/76233937640.shtml)
+- 2026-06-29 21:26 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/27984.shtml)
+- 2026-06-29 21:26 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/1726424.shtml)
+- 2026-06-29 21:19 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/40757.shtml)
+- 2026-06-29 21:20 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/7024647.shtml)
+- 2026-06-29 21:13 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/24934.shtml)
+- 2026-06-29 21:41 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/24611142.shtml)

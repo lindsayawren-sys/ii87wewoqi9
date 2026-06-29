@@ -1,51 +1,49 @@
-# 持续更新中|2026巴菲特股东大会全程实录
+# 生物系统工程拟发行本金总额为5000万港元的可换股债券
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-专题：巴菲特2026年股东大会重磅来袭 北京时间5月2日晚21：30，一年一度的伯克希尔股东大会在美国小镇奥马哈重磅开幕。出席今年伯克希尔股东大会的嘉宾包括巴菲特和新任CEO格雷格·阿贝尔。此外，在今年的伯克希尔股东大会上，苹果CEO蒂姆·库克等商界大佬也现身大会现场。 持续更新中……责任编辑：陈钰嘉
+生物系统工程（01355）发布公告，于2026年5月26日，本公司与认购人订立认购及清贘协议，据此，本公司有条件同意发行及认购人有条件同意按其面值认购本金总额为5000万港元的可换股债券并于完成时透过抵销股东贷款支付认购价。可换股债券可根据初始转换价每股转换股份0.155港元悉数转换为3.23亿股转换股份。假设已发行股份并无变动及按初始转换价，转换股份相当于现有已发行股份约27
 
 ## 正文
 
-专题：巴菲特2026年股东大会重磅来袭 北京时间5月2日晚21：30，一年一度的伯克希尔股东大会在美国小镇奥马哈重磅开幕。
+生物系统工程（01355）发布公告，于2026年5月26日，本公司与认购人订立认购及清贘协议，据此，本公司有条件同意发行及认购人有条件同意按其面值认购本金总额为5000万港元的可换股债券并于完成时透过抵销股东贷款支付认购价。
 
-出席今年伯克希尔股东大会的嘉宾包括巴菲特和新任CEO格雷格·阿贝尔。
+可换股债券可根据初始转换价每股转换股份0.155港元悉数转换为3.23亿股转换股份。
 
-此外，在今年的伯克希尔股东大会上，苹果CEO蒂姆·库克等商界大佬也现身大会现场。
+假设已发行股份并无变动及按初始转换价，转换股份相当于现有已发行股份约27.04%，及相当于于可换股债券获悉数转换后，本公司经配发及发行转换股份而扩大的已发行股份约21.28%。
 
-持续更新中……责任编辑：陈钰嘉
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 21:27 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 21:27 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 21:06 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 21:17 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 21:11 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 21:11 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 21:25 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 21:25 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 21:25 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 21:10 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 21:09 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 21:07 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 21:27 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 21:34 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 21:19 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 21:15 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 21:19 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 21:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 21:27 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 21:32 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 21:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 21:26 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 21:37 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:27 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/43014.shtml)
-- 2026-06-29 21:34 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/9999456419.shtml)
-- 2026-06-29 21:12 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/84037964073.shtml)
-- 2026-06-29 21:10 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/3074392.shtml)
-- 2026-06-29 21:08 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/398559450818.shtml)
-- 2026-06-29 21:18 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/9616616389.shtml)
-- 2026-06-29 21:35 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/72377.shtml)
-- 2026-06-29 21:23 - [世界杯高票价为何没劝退球迷](http://www.share.kurohicncr.top/Article/details/117561.shtml)
-- 2026-06-29 21:24 - [急先锋](https://www.share.kurohicncr.top/Article/details/778425.shtml)
-- 2026-06-29 21:21 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/528188347.shtml)
-- 2026-06-29 21:24 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/0483526.shtml)
-- 2026-06-29 21:27 - [斛珠夫人](http://www.blog.minike.top/Article/details/208468.shtml)
-- 2026-06-29 21:17 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/11394469777.shtml)
-- 2026-06-29 21:16 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/06021.shtml)
-- 2026-06-29 21:27 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/3019524.shtml)
+- 2026-06-29 21:34 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/3337573546.shtml)
+- 2026-06-29 21:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/8159410661.shtml)
+- 2026-06-29 21:35 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/803086192.shtml)
+- 2026-06-29 21:33 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/87862661300.shtml)
+- 2026-06-29 21:21 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/609803439618.shtml)
+- 2026-06-29 21:21 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/92773.shtml)
+- 2026-06-29 21:37 - [沙丘](http://www.share.kurohicncr.top/Article/details/382783341.shtml)
+- 2026-06-29 21:21 - [韩国队主帅遭极端网友死亡威胁](http://www.share.minike.top/Article/details/09724.shtml)
+- 2026-06-29 21:36 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/81285.shtml)
+- 2026-06-29 21:31 - [王楚钦开门红](http://www.blog.minike.top/Article/details/401990.shtml)
+- 2026-06-29 21:25 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/031069667.shtml)
+- 2026-06-29 21:38 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/3643094.shtml)
+- 2026-06-29 21:39 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/47605140823.shtml)
+- 2026-06-29 21:25 - [速度与激情9](https://www.blog.minike.top/Article/details/977569.shtml)
+- 2026-06-29 21:35 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/025264057.shtml)

@@ -1,58 +1,61 @@
-# 阿贝尔：巴菲特卸任CEO并不意味着伯克希尔将全力押注AI
+# 千倍PE股冰火两重天：“科技牛”催生高估值，绩差股被动飙升
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-专题：巴菲特2026年股东大会重磅来袭 今年初接替传奇投资者成为伯克希尔·哈撒韦公司 CEO 的格雷格·阿贝尔，在周六于奥马哈举行的公司股东大会上表示，他对盲目跟风同样持谨慎态度。 与会者在巴菲特家乡的 CHI 健康中心记者席上目睹了这一幕：阿贝尔向在场观众表示，伯克希尔不会全面押注 人工智能 。 他与特斯拉的埃隆·马斯克、OpenAI 的山姆·奥特曼以及 Meta 的马克·扎
+电子行业以15家居首位，成为千倍以上估值最集中的板块。 本轮科技主线行情中，AI等赛道获资金高度聚焦，多只科技股估值抬升，动态市盈率突破千倍。 截至5月26日收盘，A股市场有63家公司市盈率PE（TTM，下同）超过1000倍。这些公司中，电子行业以15家居首位，成为高估值个股最集中的板块。部分AI、半导体等硬科技公司受益于行业景气度上行与资金抱团，股价大幅上涨、估值主动抬升。
 
 ## 正文
 
-专题：巴菲特2026年股东大会重磅来袭 今年初接替传奇投资者成为伯克希尔·哈撒韦公司 CEO 的格雷格·阿贝尔，在周六于奥马哈举行的公司股东大会上表示，他对盲目跟风同样持谨慎态度。
+电子行业以15家居首位，成为千倍以上估值最集中的板块。
 
-与会者在巴菲特家乡的 CHI 健康中心记者席上目睹了这一幕：阿贝尔向在场观众表示，伯克希尔不会全面押注 人工智能 。
+本轮科技主线行情中，AI等赛道获资金高度聚焦，多只科技股估值抬升，动态市盈率突破千倍。
 
-他与特斯拉的埃隆·马斯克、OpenAI 的山姆·奥特曼以及 Meta 的马克·扎克伯格等科技高管形成了鲜明对比，这些高管已承诺投入 数千亿美元以赢得人工智能竞赛。
+截至5月26日收盘，A股市场有63家公司市盈率PE（TTM，下同）超过1000倍。
 
-“我们不会为了 AI 而 AI，”阿贝尔表示，并补充说这项技术必须“对我们的业务有增益作用。
+这些公司中，电子行业以15家居首位，成为高估值个股最集中的板块。
 
-” 伯克希尔的新掌门人表示，这家集团旗下的子公司将在能创造真正价值的领域谨慎运用 AI。
+部分AI、半导体等硬科技公司受益于行业景气度上行与资金抱团，股价大幅上涨、估值主动抬升。
 
-媒体周五采访了喜诗糖果、冰雪皇后、布鲁克斯跑步和 Jazwares 的首席执行官。
+另有一批公司年内股价持续下行，却因净利润大幅萎缩、主业疲软，在“分母效应”下PE被动推高至千倍。
 
-他们表示，各自公司正以不同程度拥抱 AI，但普遍对 AI 节省时间、提升员工效率的作用持积极态度。
+这类高估值并非市场认可，而是基本面恶化的失真结果。
 
-投资界对 AI 引发的巨大热潮存在分歧。
+其中，市盈率高达1568倍的*ST沪科（维权）（600608.SH）即将退市，已收到拟终止股票上市事先告知书。
 
 ## 相关推荐
 
-- 2026-06-29 21:23 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 21:25 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 21:21 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 21:18 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 21:31 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 21:30 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 21:25 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 21:09 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 21:22 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 21:14 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 21:28 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 21:06 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 21:26 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 21:19 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 21:39 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 21:31 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 21:41 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 21:13 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 21:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 21:23 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 21:14 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 21:15 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 21:32 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 21:16 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 21:30 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 21:14 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 21:20 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:07 - [速度与激情9](https://www.share.minike.top/Article/details/698348285.shtml)
-- 2026-06-29 21:13 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/81126.shtml)
-- 2026-06-29 21:25 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/4757189593.shtml)
-- 2026-06-29 21:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/26828387476.shtml)
-- 2026-06-29 21:33 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/1335978.shtml)
-- 2026-06-29 21:06 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/70215188967.shtml)
-- 2026-06-29 21:09 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/07898625.shtml)
-- 2026-06-29 21:23 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/75884172.shtml)
-- 2026-06-29 21:19 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/04763920.shtml)
-- 2026-06-29 21:26 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/7617550334.shtml)
-- 2026-06-29 21:18 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/2288349.shtml)
-- 2026-06-29 21:23 - [记者乘坐无人驾驶汽车去采访](https://www.blog.kurohicncr.top/Article/details/12298389.shtml)
-- 2026-06-29 21:31 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/207596686.shtml)
-- 2026-06-29 21:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/6187388825.shtml)
-- 2026-06-29 21:33 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/986873134.shtml)
+- 2026-06-29 21:23 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/38727458.shtml)
+- 2026-06-29 21:38 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/490256471005.shtml)
+- 2026-06-29 21:27 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/66112.shtml)
+- 2026-06-29 21:39 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/175120641966.shtml)
+- 2026-06-29 21:39 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/31675.shtml)
+- 2026-06-29 21:28 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/569606700337.shtml)
+- 2026-06-29 21:28 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/460039295.shtml)
+- 2026-06-29 21:13 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/798256196480.shtml)
+- 2026-06-29 21:30 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/20938118.shtml)
+- 2026-06-29 21:15 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/84978.shtml)
+- 2026-06-29 21:13 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.minike.top/Article/details/912520091795.shtml)
+- 2026-06-29 21:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/9973936.shtml)
+- 2026-06-29 21:19 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.minike.top/Article/details/608234043.shtml)
+- 2026-06-29 21:18 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/239407052.shtml)
+- 2026-06-29 21:37 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/0143987431.shtml)

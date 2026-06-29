@@ -1,57 +1,61 @@
-# 湾区三分钟丨跨越山海 联通世界 广交会现场搭起云端“贸易之桥”
+# 瑞穗CEO称日本央行若果断加息会更有利于债市
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-在广交会现场，一个“打满全场”的参会者格外引人注目。他既不是买家，也不是卖家，却几乎成了现场“生意”最火爆的人。 他就是中国对外贸易中心外联部高级经理林思群，工作是帮无法到场的海外采购商对接广交会订单，在人群中穿梭、充电宝不离手，全天候待命是他的常态。今年受中东局势和航班限制影响，当地客商难以亲临现场，但采购需求十分迫切，林思群的工作就得更忙了。 线下奔赴不了 那就云端见 为了
+瑞穗金融集团首席执行官表示，日本央行若采取幅度更大的加息举措，可能更有利于该国债券市场。 Masahiro Kihara周三接受媒体采访时表示，预计日本央行将在6月或7月上调利率以应对通胀。他指出，除非加息幅度较大，否则是否加息本身对市场的影响可能有限。 “如果他们采取更为大胆的行动，比如一次加息50个基点，或许对债券市场更有利，”他说。当被问及央行是否“滞后于形势”时，Kih
 
 ## 正文
 
-在广交会现场，一个“打满全场”的参会者格外引人注目。
+瑞穗金融集团首席执行官表示，日本央行若采取幅度更大的加息举措，可能更有利于该国债券市场。
 
-他既不是买家，也不是卖家，却几乎成了现场“生意”最火爆的人。
+Masahiro Kihara周三接受媒体采访时表示，预计日本央行将在6月或7月上调利率以应对通胀。
 
-他就是中国对外贸易中心外联部高级经理林思群，工作是帮无法到场的海外采购商对接广交会订单，在人群中穿梭、充电宝不离手，全天候待命是他的常态。
+他指出，除非加息幅度较大，否则是否加息本身对市场的影响可能有限。
 
-今年受中东局势和航班限制影响，当地客商难以亲临现场，但采购需求十分迫切，林思群的工作就得更忙了。
+“如果他们采取更为大胆的行动，比如一次加息50个基点，或许对债券市场更有利，”他说。
 
-线下奔赴不了 那就云端见 为了让远在中东的客商顺利对接货源，广交会开启了云端专场模式。
+当被问及央行是否“滞后于形势”时，Kihara回应称这是一个“棘手的问题，我认为多少有一点。
 
-直播定在北京时间下午3点开播，精准适配中东时差；邀请的都是深耕本地市场的中东籍主播，懂行情、更懂客商需求；就连探展路线，都按照展位规划得明明白白。
+” 尽管中东冲突可能拖累日本经济复苏，投资者仍预计日本央行最早将在6月加息。
 
-相隔千万公里，怎么能帮海外客商在15天会期里精准找货？
+受伊朗战争引发的通胀上行担忧以及对财政政策的疑虑影响，日本国债收益率近几周显著上行。
 
-他们自有打法：先锁定中东采购商的刚需品类，由各地贸易团定向推荐展商，再将优选产品交给主播，通过探展直播深挖产品细节，让来不了广交会的采购商实现“沉浸式”看货，全程参与感拉满。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 21:12 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 21:15 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 21:11 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 21:20 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 21:31 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 21:34 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 21:14 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 21:29 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 21:21 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 21:30 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 21:34 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 21:16 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 21:12 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 21:41 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 21:26 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 21:12 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 21:19 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 21:33 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 21:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 21:17 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 21:26 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 21:19 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 21:31 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 21:15 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 21:25 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 21:27 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:34 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/2458833042.shtml)
-- 2026-06-29 21:20 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/905215807.shtml)
-- 2026-06-29 21:12 - [我和我的家乡](https://www.blog.minike.top/Article/details/73841158.shtml)
-- 2026-06-29 21:28 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/18335568.shtml)
-- 2026-06-29 21:28 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/500283.shtml)
-- 2026-06-29 21:10 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/695565.shtml)
-- 2026-06-29 21:31 - [欧洲缘何成为变暖最快的大洲](http://www.share.minike.top/Article/details/395085880019.shtml)
-- 2026-06-29 21:29 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/3073344.shtml)
-- 2026-06-29 21:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/93097.shtml)
-- 2026-06-29 21:15 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/210155934.shtml)
-- 2026-06-29 21:09 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/797346101.shtml)
-- 2026-06-29 21:19 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/0918611593.shtml)
-- 2026-06-29 21:14 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/46550933.shtml)
-- 2026-06-29 21:23 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/803092308.shtml)
-- 2026-06-29 21:20 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/37942712.shtml)
+- 2026-06-29 21:39 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/158687.shtml)
+- 2026-06-29 21:17 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/094688127.shtml)
+- 2026-06-29 21:26 - [任泽平：AI浪潮刚刚开始](https://www.blog.kurohicncr.top/Article/details/15736.shtml)
+- 2026-06-29 21:19 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/5675627650.shtml)
+- 2026-06-29 21:38 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/99317601.shtml)
+- 2026-06-29 21:23 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/34702872.shtml)
+- 2026-06-29 21:15 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/45558423305.shtml)
+- 2026-06-29 21:32 - [记者暗访养老机构消防安全](https://www.blog.minike.top/Article/details/100774189.shtml)
+- 2026-06-29 21:17 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/787644583412.shtml)
+- 2026-06-29 21:14 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/137718.shtml)
+- 2026-06-29 21:20 - [巴黎区长紧急采购50台中国空调](https://www.share.kurohicncr.top/Article/details/26687376.shtml)
+- 2026-06-29 21:41 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/834732794.shtml)
+- 2026-06-29 21:32 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/9815413.shtml)
+- 2026-06-29 21:16 - [济南航空航天全面起势](http://www.blog.minike.top/Article/details/07713636.shtml)
+- 2026-06-29 21:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/6148485703.shtml)

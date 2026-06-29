@@ -1,57 +1,57 @@
-# 巴西电机及电气设备制造商Weg高管：长周期设备订单现改善迹象
+# 借科创、文创双优势 上海徐汇区打造“AI+微短剧”产业集聚区
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-巴西电机及电气设备制造商Weg周四在一季度财报会议上表示，尽管巴西本土市场需求疲软拖累了整体业绩，但长周期设备订单已出现改善迹象，尤其是在德国和美国市场。 财报显示，第一季度净运营收入为94.7亿雷亚尔，同比下降6.1%；净利润为14.6亿雷亚尔，同比下降5.7%，略低于市场预期。巴西本土收入下降19.5%，主要受大型集中式太阳能发电项目交付减少、电网输电瓶颈及高利率环境影响。
+中新网上海5月27日电 (记者 郑莹莹)上海徐汇区“AI+微短剧”产业集聚区建设推进会26日在沪举办，系统公布了徐汇区围绕企业集聚、基地建设等维度的8条“AI+微短剧”扶持措施。 上海集模型、算力、IP等方面优势，正蓄力以人工智能技术赋能微短剧发展。 《上海市加快推进人工智能赋能微短剧高质量发展的若干措施》日前正式印发。 徐汇区作为上海人工智能产业核心承载区之一，目前已集聚17
 
 ## 正文
 
-巴西电机及电气设备制造商Weg周四在一季度财报会议上表示，尽管巴西本土市场需求疲软拖累了整体业绩，但长周期设备订单已出现改善迹象，尤其是在德国和美国市场。
+中新网上海5月27日电 (记者 郑莹莹)上海徐汇区“AI+微短剧”产业集聚区建设推进会26日在沪举办，系统公布了徐汇区围绕企业集聚、基地建设等维度的8条“AI+微短剧”扶持措施。
 
-财报显示，第一季度净运营收入为94.7亿雷亚尔，同比下降6.1%；净利润为14.6亿雷亚尔，同比下降5.7%，略低于市场预期。
+上海集模型、算力、IP等方面优势，正蓄力以人工智能技术赋能微短剧发展。
 
-巴西本土收入下降19.5%，主要受大型集中式太阳能发电项目交付减少、电网输电瓶颈及高利率环境影响。
+《上海市加快推进人工智能赋能微短剧高质量发展的若干措施》日前正式印发。
 
-然而，海外市场表现稳健。
+徐汇区作为上海人工智能产业核心承载区之一，目前已集聚1700余家人工智能企业。
 
-境外收入按雷亚尔计算增长4.5%至59亿雷亚尔，按美元计算则增长16.1%至11.2亿美元。
+另外，2025年，徐汇区的文创产业规模已超1500亿元。
 
-Weg财务总监表示，长周期工业设备订单在德国和美国市场出现改善，发电、输配电业务表现尤其突出。
+徐汇区希望发挥科创、文创双重优势，打造“AI+微短剧”产业集聚区，力争三年内引育超40家“AI+微短剧”领域优质企业及成长型企业，孵化超200个优质初创团队。
 
-在短期市场展望方面，Weg财务行政副总裁表示，巴西市场对短周期设备的需求因高利率和选举年不确定性而疲软，但订单在3月份已有所改善，预计未来几个月将出现增长。
+一批相关企业已蓄势发力。
 
-Weg计划继续推进今年36亿雷亚尔的全球投资计划，其中约一半将投向巴西，公司还在圣卡塔琳娜州新建了一座电池储能系统工厂。
+作为徐汇区AI微短剧创制基地之一，Seko产业基地日前启用。
 
 ## 相关推荐
 
-- 2026-06-29 21:11 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 21:33 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 21:11 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 21:08 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 21:08 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 21:27 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 21:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 21:25 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 21:30 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 21:11 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 21:14 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 21:33 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 21:26 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 21:25 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 21:26 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 21:38 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 21:22 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 21:34 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 21:17 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 21:13 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 21:26 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 21:35 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:30 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/3397263.shtml)
-- 2026-06-29 21:24 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.kurohicncr.top/Article/details/320520.shtml)
-- 2026-06-29 21:30 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/414034.shtml)
-- 2026-06-29 21:33 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/080445049153.shtml)
-- 2026-06-29 21:14 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/049928813941.shtml)
-- 2026-06-29 21:22 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/112688.shtml)
-- 2026-06-29 21:16 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/8934991189.shtml)
-- 2026-06-29 21:08 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/50965257283.shtml)
-- 2026-06-29 21:10 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/6158865.shtml)
-- 2026-06-29 21:24 - [啊啊啊](https://www.blog.minike.top/Article/details/01280519.shtml)
-- 2026-06-29 21:19 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/12029658327.shtml)
-- 2026-06-29 21:31 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/0146605336.shtml)
-- 2026-06-29 21:14 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/26157937655.shtml)
-- 2026-06-29 21:23 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/13445759.shtml)
-- 2026-06-29 21:30 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/26090.shtml)
+- 2026-06-29 21:15 - [速度与激情9](http://www.blog.minike.top/Article/details/310919967.shtml)
+- 2026-06-29 21:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/63457327704.shtml)
+- 2026-06-29 21:23 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/8141565.shtml)
+- 2026-06-29 21:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/7396261367.shtml)
+- 2026-06-29 21:26 - [急先锋](http://www.blog.minike.top/Article/details/590850323527.shtml)
+- 2026-06-29 21:25 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/604665.shtml)
+- 2026-06-29 21:15 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/831171712.shtml)
+- 2026-06-29 21:13 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/3694511511.shtml)
+- 2026-06-29 21:29 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/05380.shtml)
+- 2026-06-29 21:41 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/690899.shtml)
+- 2026-06-29 21:12 - [济南航空航天全面起势](http://www.share.minike.top/Article/details/6746162.shtml)
+- 2026-06-29 21:26 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/646177.shtml)
+- 2026-06-29 21:31 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/838500444.shtml)
+- 2026-06-29 21:22 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/936806.shtml)
+- 2026-06-29 21:20 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/51031271651.shtml)

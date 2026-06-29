@@ -1,57 +1,60 @@
-# 美国军舰在霍尔木兹海峡被伊朗击中？美军否认
+# 香港爱国爱港社团及工商界代表到访广州从化开展交流活动
 
-> 更新时间：2026-06-29 21:36:02 UTC+8
+> 更新时间：2026-06-29 21:42:02 UTC+8
 
 ## 摘要
 
-美国中央司令部周一驳斥了伊朗官方媒体的报道——后者称一艘穿越霍尔木兹海峡的美国军舰被两枚导弹击中并被迫撤退。 “没有任何美国海军舰艇被击中，”负责中东战区的美军中央司令部在其官方X账号发文称。 “美军正为‘自由计划’提供支持，并执行对伊朗港口的海上封锁，”中央司令部表示。 “自由计划”是美国最新行动，旨在“解救”因伊朗事实上封锁霍尔木兹海峡而滞留的船只。霍尔木兹海峡是全球能源运
+中新网广州5月26日电 (记者 张璐)5月24日至25日，香港深水埗居民联会、九龙社团深水埗地区委员会、深水埗妇女联合会代表团、深青社等爱国爱港社团以及香港工商界代表逾300人走进广州从化开展“穗港同心·共庆双亲——深化交流合作·共谋发展新篇”主题交流活动(简称“活动”)，一起共叙亲情、共话发展。 据了解，本次活动围绕母亲节、父亲节两大感恩节日主题，将弘扬孝亲文化、深化穗港交流
 
 ## 正文
 
-美国中央司令部周一驳斥了伊朗官方媒体的报道——后者称一艘穿越霍尔木兹海峡的美国军舰被两枚导弹击中并被迫撤退。
+中新网广州5月26日电 (记者 张璐)5月24日至25日，香港深水埗居民联会、九龙社团深水埗地区委员会、深水埗妇女联合会代表团、深青社等爱国爱港社团以及香港工商界代表逾300人走进广州从化开展“穗港同心·共庆双亲——深化交流合作·共谋发展新篇”主题交流活动(简称“活动”)，一起共叙亲情、共话发展。
 
-“没有任何美国海军舰艇被击中，”负责中东战区的美军中央司令部在其官方X账号发文称。
+据了解，本次活动围绕母亲节、父亲节两大感恩节日主题，将弘扬孝亲文化、深化穗港交流与服务粤港澳大湾区建设有机结合，既是一场共庆佳节、感恩双亲的温情联谊，也是深化两地基层交流、推动产业文化合作、凝聚家国认同的生动实践。
 
-“美军正为‘自由计划’提供支持，并执行对伊朗港口的海上封锁，”中央司令部表示。
+在为期两天的行程中，香港同胞沉浸式感受从化生态人文魅力与产业发展活力，在亲情交融中共叙湾区情谊，在实地参访中共谋发展新篇。
 
-“自由计划”是美国最新行动，旨在“解救”因伊朗事实上封锁霍尔木兹海峡而滞留的船只。
+活动期间，交流团先后走进中国国家版本馆(广州分馆)、流溪温泉广场驿站、南平静修小镇等地，实地考察乡村风貌提升、生态旅游发展成效，直观了解从化以“百千万工程”为牵引，推动镇村提质、农文旅融合的生动实践。
 
-霍尔木兹海峡是全球能源运输的关键咽喉要道，冲突爆发前，全球约20%的石油经此运输。
+在基层治理交流座谈会上，穗港双方围绕社区服务、民生保障、乡村治理等深入交流、互学互鉴。
 
-特朗普总统周日晚间在社交媒体平台发文宣布该行动，称将于周一上午正式启动。
+交流团还走进相关企业，考察新能源商用车、绿色工业、现代农业的发展态势，共同见证从化以产业振兴夯实“百千万工程”根基、深入推动环南昆山—罗浮山县镇村高质量发展引领区建设的坚实步伐。
 
-中央司令部周一早间再次在X平台发文：美国海军导弹驱逐舰“已在穿越霍尔木兹海峡后进入阿拉伯海，为‘自由计划’提供支持”。
+据介绍，本次活动搭建起穗港基层常态化交流的温情桥梁，以传统文化为纽带拉近两地民众距离，香港同胞深度领略了从化得天独厚的生态人文魅力。
 
-“美军正积极协助恢复商业航运通行。
+下一步，从化将以此次活动为契机，持续放大“百千万工程”效应，不断拓宽穗港合作渠道，深化文化、产业、民生等领域合作交流，为推动穗港两地合作迈向更广领域、更深层次注入新动能。
 
 ## 相关推荐
 
-- 2026-06-29 21:14 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 21:23 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 21:15 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 21:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 21:13 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 21:12 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 21:18 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 21:13 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 21:14 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 21:06 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 21:25 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 21:37 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 21:26 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 21:37 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 21:25 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 21:15 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 21:32 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 21:25 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 21:31 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 21:23 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 21:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 21:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 21:13 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 21:35 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 21:17 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:08 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/09708.shtml)
-- 2026-06-29 21:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/433784212.shtml)
-- 2026-06-29 21:15 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/899038670803.shtml)
-- 2026-06-29 21:07 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.minike.top/Article/details/19956.shtml)
-- 2026-06-29 21:14 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/380081346.shtml)
-- 2026-06-29 21:07 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/6773638265.shtml)
-- 2026-06-29 21:32 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/78117.shtml)
-- 2026-06-29 21:30 - [佛得角队长门德斯被控强奸](https://www.blog.minike.top/Article/details/24650763503.shtml)
-- 2026-06-29 21:27 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/6033218.shtml)
-- 2026-06-29 21:21 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/527997.shtml)
-- 2026-06-29 21:06 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/932675.shtml)
-- 2026-06-29 21:19 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/717230247.shtml)
-- 2026-06-29 21:11 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/46065.shtml)
-- 2026-06-29 21:13 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/623912444.shtml)
-- 2026-06-29 21:17 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/057471398.shtml)
+- 2026-06-29 21:31 - [店员光脚踩入盆中清洗土豆](https://www.share.minike.top/Article/details/373020.shtml)
+- 2026-06-29 21:12 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/1565551.shtml)
+- 2026-06-29 21:30 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/528119881593.shtml)
+- 2026-06-29 21:28 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/65479311530.shtml)
+- 2026-06-29 21:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/670648560.shtml)
+- 2026-06-29 21:34 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/42557616.shtml)
+- 2026-06-29 21:21 - [郑钦文谈再战西尼亚科娃](https://www.share.minike.top/Article/details/20634584.shtml)
+- 2026-06-29 21:18 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/659299757625.shtml)
+- 2026-06-29 21:39 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/92944404551.shtml)
+- 2026-06-29 21:18 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/7994154355.shtml)
+- 2026-06-29 21:21 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/94264.shtml)
+- 2026-06-29 21:27 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/5812580490.shtml)
+- 2026-06-29 21:41 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/6238860.shtml)
+- 2026-06-29 21:21 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/92183996349.shtml)
+- 2026-06-29 21:12 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/87180502723.shtml)
