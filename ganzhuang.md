@@ -1,45 +1,55 @@
-# 视频|洋河产品韩国上市推荐会
+# 全球首艘10800车汽车运输船命名交付
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-专题：中韩企业可持续发展交流会 可持续全球领导者大会海外专场 ✨ 洋河产品韩国上市推荐会 以绵柔匠心对话世界，以可持续理念链接中韩，让中国好酒香飘全球~ 新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。 责任编辑：李思阳
+中船广船国际联合中船贸易为韩国HMM航运建造的全球首艘10800车汽车运输船(PCTC)“格罗唯视 领航”轮28日在广州南沙命名交付。 该船单船最大装车量达10800辆，刷新全球同类船舶运力纪录，标志着我国高端船舶制造能力实现新突破，为全球航运业绿色低碳转型提供了“中国方案”。 “格罗唯视 领航”轮由中船集团上海船舶研究设计院设计，总长230米，型宽40米，设计吃水10.5米，
 
 ## 正文
 
-专题：中韩企业可持续发展交流会 可持续全球领导者大会海外专场 ✨ 洋河产品韩国上市推荐会 以绵柔匠心对话世界，以可持续理念链接中韩，让中国好酒香飘全球~ 新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+中船广船国际联合中船贸易为韩国HMM航运建造的全球首艘10800车汽车运输船(PCTC)“格罗唯视 领航”轮28日在广州南沙命名交付。
 
-责任编辑：李思阳
+该船单船最大装车量达10800辆，刷新全球同类船舶运力纪录，标志着我国高端船舶制造能力实现新突破，为全球航运业绿色低碳转型提供了“中国方案”。
+
+“格罗唯视 领航”轮由中船集团上海船舶研究设计院设计，总长230米，型宽40米，设计吃水10.5米，设计航速19节，采用LNG/燃油双燃料推进系统，满足国际海事组织TierⅢ排放标准，具有绿色环保、节能高效、安全可靠等特点。
+
+该船设计14层车库甲板，可灵活装载电动汽车、氢能源汽车及重型卡车等多元车型，单船最大装车量达10800辆。
+
+按5米一台标准车计算，所装载的车辆首尾相连，超过50公里长，是名副其实的“海上巨无霸”。
+
+该船交付后，将由韩国现代物流有限公司运营。
+
+记者：胡林果、田建川 海报制作：贾稀荃 新华社国内部 新华社广东分社联合出品
 
 ## 相关推荐
 
-- 2026-06-29 17:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 17:56 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 17:59 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 18:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 18:10 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 17:48 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 18:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 18:07 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 18:14 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 17:53 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 18:02 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 18:17 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 18:10 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 18:01 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 18:22 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 18:03 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 18:08 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 18:06 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 18:04 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 18:09 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 18:01 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 18:07 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:53 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/38329.shtml)
-- 2026-06-29 18:00 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/5998489.shtml)
-- 2026-06-29 18:16 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/894252143.shtml)
-- 2026-06-29 18:14 - [T1 KC](http://www.share.minike.top/Article/details/216054488.shtml)
-- 2026-06-29 17:51 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/64218324338.shtml)
-- 2026-06-29 17:51 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/105954047260.shtml)
-- 2026-06-29 17:55 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/9506171.shtml)
-- 2026-06-29 17:59 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/01377835474.shtml)
-- 2026-06-29 17:55 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/7381448065.shtml)
-- 2026-06-29 18:04 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/581234013.shtml)
-- 2026-06-29 18:05 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/321713529.shtml)
-- 2026-06-29 17:48 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/839918949480.shtml)
-- 2026-06-29 18:07 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/794301661166.shtml)
-- 2026-06-29 18:12 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/844547696161.shtml)
-- 2026-06-29 17:49 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/19899492.shtml)
+- 2026-06-29 18:16 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/406925.shtml)
+- 2026-06-29 18:18 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/39605.shtml)
+- 2026-06-29 18:15 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/7692994.shtml)
+- 2026-06-29 18:17 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/393585139.shtml)
+- 2026-06-29 18:08 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.minike.top/Article/details/60008.shtml)
+- 2026-06-29 17:54 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/590843231.shtml)
+- 2026-06-29 18:12 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/465394244054.shtml)
+- 2026-06-29 17:58 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/8780473381.shtml)
+- 2026-06-29 18:16 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/42798106087.shtml)
+- 2026-06-29 18:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/4178020.shtml)
+- 2026-06-29 17:55 - [博主：AI泡沫必须破灭](http://www.share.kurohicncr.top/Article/details/91584317579.shtml)
+- 2026-06-29 18:22 - [一生一世](http://www.share.minike.top/Article/details/593241187.shtml)
+- 2026-06-29 17:55 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.minike.top/Article/details/219917504292.shtml)
+- 2026-06-29 18:11 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/27744016.shtml)
+- 2026-06-29 17:54 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/9209708.shtml)

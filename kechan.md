@@ -1,59 +1,59 @@
-# 特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区
+# 无惧特朗普关税战的企业
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-特斯拉周四宣布，将其无安全员自动驾驶出租车服务扩展至得克萨斯州奥斯汀都会区全境。这是该公司在全自动驾驶商业化道路上迈出的重要一步。 特斯拉官方Robotaxi账号在社交媒体X上发文称：“无监督Robotaxi现已覆盖整个奥斯汀都会区。”这意味着用户可以在包括Pflugerville、Manor等郊区、连接Gigafactory Texas的I-35高速公路以及奥斯汀-伯格斯特罗
+从账面上看，埃克哈德・施密特的公司是去年特朗普关税战中受冲击最严重的企业之一。但实际上，关税几乎没有影响其销售额。 2025 年 4 月，美国总统推出 “解放日” 关税政策时，这家向美国出口工业螺栓与螺钉的德国东部企业，其产品被征收 20% 的关税。 施密特表示：“当时只有一张关税清单，所有人都不清楚会发生什么。” 他的公司Schraubenwerk Zerbst年营收近 1
 
 ## 正文
 
-特斯拉周四宣布，将其无安全员自动驾驶出租车服务扩展至得克萨斯州奥斯汀都会区全境。
+从账面上看，埃克哈德・施密特的公司是去年特朗普关税战中受冲击最严重的企业之一。
 
-这是该公司在全自动驾驶商业化道路上迈出的重要一步。
+但实际上，关税几乎没有影响其销售额。
 
-特斯拉官方Robotaxi账号在社交媒体X上发文称：“无监督Robotaxi现已覆盖整个奥斯汀都会区。
+2025 年 4 月，美国总统推出 “解放日” 关税政策时，这家向美国出口工业螺栓与螺钉的德国东部企业，其产品被征收 20% 的关税。
 
-”这意味着用户可以在包括Pflugerville、Manor等郊区、连接Gigafactory Texas的I-35高速公路以及奥斯汀-伯格斯特罗姆国际机场在内的整个大奥斯汀区域呼叫无人驾驶出租车。
+施密特表示：“当时只有一张关税清单，所有人都不清楚会发生什么。
 
-这项服务自去年夏天起已在奥斯汀试运行近一年。
+” 他的公司Schraubenwerk Zerbst年营收近 1 亿欧元，其中 8% 来自美国市场。
 
-特斯拉在声明中表示，为确保运行安全，公司在扩张过程中采取了审慎策略，在地理围栏划定、车队规模等方面经历了多个阶段的渐进式推进。
+然而一年过去，该公司对美出口保持稳定。
 
-此次覆盖全都会区的扩张是第五次，也是幅度最大的一次。
+数据分析显示，2025 年，该公司生产的螺纹螺钉与螺栓类产品，是出口美国的所有单品中关税同比涨幅最大的品类之一。
 
-然而，对于此次扩张的市场意义，外界看法存在明显分歧。
+这家企业对美贸易展现出惊人韧性，这一现象在 2025 年的全球供应链中普遍存在。
 
 ## 相关推荐
 
-- 2026-06-29 17:48 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 18:05 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 18:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 18:17 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 18:18 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 18:12 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 17:49 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 17:56 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 18:13 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 17:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 18:08 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 18:05 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 18:17 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 18:20 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 18:01 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 18:14 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 18:06 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 18:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 18:13 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 18:05 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 18:09 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 18:18 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 18:05 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 18:20 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 18:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 18:06 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:54 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/619892154884.shtml)
-- 2026-06-29 18:01 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/279940.shtml)
-- 2026-06-29 18:15 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/35662835684.shtml)
-- 2026-06-29 17:48 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/81319.shtml)
-- 2026-06-29 17:55 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/23250376949.shtml)
-- 2026-06-29 18:14 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/89948.shtml)
-- 2026-06-29 17:58 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/16816061269.shtml)
-- 2026-06-29 17:48 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/765717.shtml)
-- 2026-06-29 18:05 - [媒体：中国田径压力与期待并存](https://www.blog.minike.top/Article/details/41843645309.shtml)
-- 2026-06-29 18:16 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/94912.shtml)
-- 2026-06-29 17:53 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/045290232.shtml)
-- 2026-06-29 17:56 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/776850.shtml)
-- 2026-06-29 17:55 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/094404611.shtml)
-- 2026-06-29 18:02 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/419646908869.shtml)
-- 2026-06-29 18:12 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/76136.shtml)
+- 2026-06-29 18:19 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/19846749620.shtml)
+- 2026-06-29 18:12 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/085572688.shtml)
+- 2026-06-29 18:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/6892548.shtml)
+- 2026-06-29 18:22 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/224435681056.shtml)
+- 2026-06-29 18:22 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/1048406019.shtml)
+- 2026-06-29 18:00 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/826183.shtml)
+- 2026-06-29 17:58 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/97662408851.shtml)
+- 2026-06-29 18:21 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/9937248.shtml)
+- 2026-06-29 18:12 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/1608086.shtml)
+- 2026-06-29 18:08 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/906063.shtml)
+- 2026-06-29 18:01 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/99531981177.shtml)
+- 2026-06-29 18:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/54878539.shtml)
+- 2026-06-29 18:05 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.kurohicncr.top/Article/details/34291216829.shtml)
+- 2026-06-29 18:21 - [唐艺昕告别浪姐千字长文](https://www.share.kurohicncr.top/Article/details/8121181.shtml)
+- 2026-06-29 18:08 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/407106.shtml)

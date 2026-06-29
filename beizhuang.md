@@ -1,57 +1,60 @@
-# 印尼羽毛球公开赛：“凤凰”组合险胜过关 李诗沣无缘八强
+# 投保人未在合同约定医院就诊，保险公司拒赔该费用获支持
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-中新社雅加达6月4日电 2026年印度尼西亚羽毛球公开赛4日在雅加达继续进行。中国混双组合、头号种子冯彦哲/黄东萍以2:1险胜印尼组合阿德南/贾米尔，晋级八强。中国男单名将李诗沣遭泰国小将帕尼查蓬逆转，无缘八强。在5月26日举行的新加坡羽毛球公开赛中，“凤凰”组合冯彦哲/黄东萍遭遇“一轮游”。来到印尼公开赛，两人首轮以2:0“复仇”马来西亚组合黄显维/钟舒韵。 4日进行的1/8
+新京报讯（记者张静姝）近日，北京市昌平区人民法院通报了一起案例。张先生女儿为其投保的健康险明确约定承保范围为“公立医院”，但张先生术后转至私立康复医院产生的3万余元费用，因违反合同约定被法院认定不属于保险责任。法院依据《中华人民共和国保险法》司法解释相关规定，支持保险公司对该部分拒赔，仅判决赔付公立医院费用14万余元。 张先生女儿为张先生投保了包含一般医疗保险责任的健康保险，保
 
 ## 正文
 
-中新社雅加达6月4日电 2026年印度尼西亚羽毛球公开赛4日在雅加达继续进行。
+新京报讯（记者张静姝）近日，北京市昌平区人民法院通报了一起案例。
 
-中国混双组合、头号种子冯彦哲/黄东萍以2:1险胜印尼组合阿德南/贾米尔，晋级八强。
+张先生女儿为其投保的健康险明确约定承保范围为“公立医院”，但张先生术后转至私立康复医院产生的3万余元费用，因违反合同约定被法院认定不属于保险责任。
 
-中国男单名将李诗沣遭泰国小将帕尼查蓬逆转，无缘八强。
+法院依据《中华人民共和国保险法》司法解释相关规定，支持保险公司对该部分拒赔，仅判决赔付公立医院费用14万余元。
 
-在5月26日举行的新加坡羽毛球公开赛中，“凤凰”组合冯彦哲/黄东萍遭遇“一轮游”。
+张先生女儿为张先生投保了包含一般医疗保险责任的健康保险，保险条款以加黑字体载明，被保险人因疾病在保险公司认可的“公立医院”接受治疗的，保险公司承担保险责任。
 
-来到印尼公开赛，两人首轮以2:0“复仇”马来西亚组合黄显维/钟舒韵。
+张先生同年在北京某三甲公立医院进行双髋人工全髋关节置换术，支出医疗费15 万余元；后转至北京某私立康复医院进行康复治疗，支出医疗费 3 万余元。
 
-4日进行的1/8决赛中，“凤凰”组合凭借稳定防守以21:14先下一城。
+张先生向保险公司申请理赔，保险公司称，投保时已明确说明需在保险合同约定范围内医院就诊，私立康复医院不属于合同约定的公立医院，因此拒绝赔付该笔费用。
 
-次局冯彦哲/黄东萍局中阶段连续丢分，阿德南/贾米尔以21:17扳回一城。
+张先生故诉至法院，要求保险公司支付全部医疗费。
 
-决胜局冯彦哲/黄东萍在关键分上的把握更胜一筹，最终以21:18拿下比赛。
+法院经审理认为，案涉保险合同明确约定医疗机构范围为“公立医院”，私立康复医院不符合该约定。
 
 ## 相关推荐
 
-- 2026-06-29 17:54 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 18:11 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 17:56 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 18:10 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 18:01 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 17:54 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 17:58 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 17:48 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 18:09 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 18:07 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 18:03 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 18:14 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 18:03 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 17:57 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 18:14 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 18:20 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 18:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 18:20 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 18:13 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 18:20 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 17:57 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 18:00 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 18:23 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 18:09 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 18:10 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/083087.shtml)
-- 2026-06-29 18:01 - [王曼昱被突如其来的话筒逗笑了](http://www.share.kurohicncr.top/Article/details/087948934.shtml)
-- 2026-06-29 18:05 - [送你一朵小红花](https://www.share.minike.top/Article/details/4068094.shtml)
-- 2026-06-29 18:13 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/32688979182.shtml)
-- 2026-06-29 18:12 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/259642504777.shtml)
-- 2026-06-29 17:54 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/493805257.shtml)
-- 2026-06-29 17:55 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/5642629437.shtml)
-- 2026-06-29 17:58 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/8493222.shtml)
-- 2026-06-29 17:52 - [极限挑战第一季](http://www.share.minike.top/Article/details/15304.shtml)
-- 2026-06-29 17:57 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/317096938059.shtml)
-- 2026-06-29 18:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/12827737.shtml)
-- 2026-06-29 18:01 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/52265980.shtml)
-- 2026-06-29 18:10 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/321625.shtml)
-- 2026-06-29 18:06 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/3905710694.shtml)
-- 2026-06-29 18:14 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/79703565266.shtml)
+- 2026-06-29 18:20 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/941033652903.shtml)
+- 2026-06-29 18:03 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/42484459.shtml)
+- 2026-06-29 18:14 - [四川地震前夕 街头电线上站满燕子](http://www.blog.minike.top/Article/details/93882974.shtml)
+- 2026-06-29 18:02 - [官方通报一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/52762318.shtml)
+- 2026-06-29 18:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/81474279.shtml)
+- 2026-06-29 18:05 - [起风了](https://www.blog.minike.top/Article/details/477209.shtml)
+- 2026-06-29 18:10 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/14393095377.shtml)
+- 2026-06-29 17:54 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/237160017754.shtml)
+- 2026-06-29 18:17 - [流金岁月](http://www.share.kurohicncr.top/Article/details/1559003284.shtml)
+- 2026-06-29 17:57 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/13730.shtml)
+- 2026-06-29 18:09 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/719979220903.shtml)
+- 2026-06-29 17:56 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/5010078.shtml)
+- 2026-06-29 18:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/86807889.shtml)
+- 2026-06-29 18:06 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/66514093.shtml)
+- 2026-06-29 18:16 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/19984659.shtml)

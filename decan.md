@@ -1,58 +1,60 @@
-# 芬兰总统提议欧盟扩容至40个成员国，加拿大纳入候选
+# 知情人士披露白宫记协晚宴枪击事件嫌疑人身份信息
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-核心要点 芬兰总统亚历山大・斯图布勾勒出欧盟大规模扩容的构想，称目前拥有 27 个成员国的欧盟应当立足长远布局、抓住机遇，在全球地缘格局中强化自身实力。 本周三，斯图布在芬兰首都一场能源行业峰会上发言称，欧盟应推动成员国数量扩容至 40 国，英国、加拿大、土耳其、挪威、冰岛均被他列为潜在入盟候选国。 当下，特朗普政府的政策举措叠加俄乌战事，促使多个国家重新审视加入欧盟能带来的收
+当地时间4月26日，有知情人士透露，涉嫌在白宫记者协会晚宴现场开枪的男子为来自美国南加州的一名教师兼游戏开发者。 多名知情人士称，现年31岁的科尔·托马斯·艾伦已被执法部门确认为嫌疑人，其居住在洛杉矶托伦斯市。当晚他在总统特朗普及多名政要出席的晚宴现场附近被控制。 一份与其姓名和照片相符的领英资料显示，艾伦为C2教育公司的一名兼职教师，该公司主要从事考试培训与辅导业务。 资料还
 
 ## 正文
 
-核心要点 芬兰总统亚历山大・斯图布勾勒出欧盟大规模扩容的构想，称目前拥有 27 个成员国的欧盟应当立足长远布局、抓住机遇，在全球地缘格局中强化自身实力。
+当地时间4月26日，有知情人士透露，涉嫌在白宫记者协会晚宴现场开枪的男子为来自美国南加州的一名教师兼游戏开发者。
 
-本周三，斯图布在芬兰首都一场能源行业峰会上发言称，欧盟应推动成员国数量扩容至 40 国，英国、加拿大、土耳其、挪威、冰岛均被他列为潜在入盟候选国。
+多名知情人士称，现年31岁的科尔·托马斯·艾伦已被执法部门确认为嫌疑人，其居住在洛杉矶托伦斯市。
 
-当下，特朗普政府的政策举措叠加俄乌战事，促使多个国家重新审视加入欧盟能带来的收益，斯图布在这一节点抛出扩容观点。
+当晚他在总统特朗普及多名政要出席的晚宴现场附近被控制。
 
-在欧洲电力联盟能源峰会上，斯图布指出：“欧盟扩容的窗口期十分有限。
+一份与其姓名和照片相符的领英资料显示，艾伦为C2教育公司的一名兼职教师，该公司主要从事考试培训与辅导业务。
 
-一旦乌克兰战事落幕，或是美国政府换届，各国大概率就会放缓入盟相关进程，转而在无关紧要的琐事上争执扯皮。
+资料还显示，艾伦于2017年毕业于加州理工学院，获机械工程学士学位，并于去年在加州州立大学多明格斯山分校获得计算机科学硕士学位。
 
-” 他补充道：“欧洲想要实现战略自主、拥有地缘政治话语权，体量与规模是重要依托；在我看来，欧盟史上最明智的政策便是持续东扩扩容。
+此外，根据美国联邦选举委员会记录，艾伦曾于2024年10月向卡玛拉·哈里斯捐款25美元支持其总统竞选。
 
-” “眼下我们要有大格局，从地理层面谋划扩张，至少推出灵活的准入机制，最终吸纳总计 40 个欧洲国家，甚至部分非欧洲国家成为欧盟成员。
+相关新闻 当地时间25日晚，因美国白宫记者协会晚宴突发安全事件，参加晚宴的美国总统特朗普及其夫人梅拉尼娅以及一众与会美国高级官员从该活动现场紧急疏散。
 
-” 欧盟执行机构欧盟委员会暂未回应 CNBC 的置评请求。
+事件发生后不久，美国总统特朗普在白宫新闻简报室举行新闻发布会。
 
 ## 相关推荐
 
-- 2026-06-29 17:54 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 18:01 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 17:59 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 18:03 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 17:59 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 17:50 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 17:52 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 18:00 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 18:11 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 18:11 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 17:53 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 17:49 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 18:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 17:55 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 18:00 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 18:15 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 18:21 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 18:16 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 18:03 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 18:09 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 18:03 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 18:03 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 17:59 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 18:04 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 18:01 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 18:16 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:54 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/790862.shtml)
-- 2026-06-29 18:06 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/322598216.shtml)
-- 2026-06-29 18:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/4853335.shtml)
-- 2026-06-29 18:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/613015.shtml)
-- 2026-06-29 18:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/95720957.shtml)
-- 2026-06-29 18:03 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/709436188219.shtml)
-- 2026-06-29 18:07 - [倪春青跨市履新苏州市委组织部部长](http://www.blog.kurohicncr.top/Article/details/0684738.shtml)
-- 2026-06-29 17:49 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/801069519596.shtml)
-- 2026-06-29 17:57 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/48154.shtml)
-- 2026-06-29 18:07 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/422732369.shtml)
-- 2026-06-29 17:59 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/461145.shtml)
-- 2026-06-29 18:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/36489415.shtml)
-- 2026-06-29 17:51 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/086552184.shtml)
-- 2026-06-29 18:02 - [范志毅看好日本淘汰巴西](https://www.share.minike.top/Article/details/08242360.shtml)
-- 2026-06-29 18:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/952924537089.shtml)
+- 2026-06-29 18:08 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/97820034.shtml)
+- 2026-06-29 18:21 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/47235.shtml)
+- 2026-06-29 17:58 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/43736.shtml)
+- 2026-06-29 18:15 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/2589067.shtml)
+- 2026-06-29 17:54 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/0595857295.shtml)
+- 2026-06-29 18:10 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/5774238543.shtml)
+- 2026-06-29 18:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/2951063.shtml)
+- 2026-06-29 17:54 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/93241.shtml)
+- 2026-06-29 18:12 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/67158061.shtml)
+- 2026-06-29 18:12 - [机器人学校开学了](http://www.share.minike.top/Article/details/379557.shtml)
+- 2026-06-29 17:56 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/023456502.shtml)
+- 2026-06-29 18:22 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/9865727.shtml)
+- 2026-06-29 17:55 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/7517475.shtml)
+- 2026-06-29 18:22 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/533988.shtml)
+- 2026-06-29 18:12 - [两老人多次到一洗车店泼粪](https://www.share.minike.top/Article/details/639437120123.shtml)

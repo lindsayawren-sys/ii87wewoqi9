@@ -1,51 +1,59 @@
-# 农业银行：6月5日收盘清算时起 Au（T+D）、Ag（T+D）合约保证金比例上调至120%
+# 罗杰斯通信向半数员工提供买断计划，电信行业增长放缓助推成本调整
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-6月4日金融一线消息，农业银行发布公告称，近期国际贵金属市场价格波动加剧，个人客户交易类贵金属业务市场风险上升。为切实保护投资者利益，该行定于自2026年6月5日（星期五）收盘清算时起，Au（T+D）、Ag（T+D）合约的保证金比例从100%调整为120%。 相关合约交易保证金比例的后续调整，将另行通知。 农业银行提醒投资者：请客户注意交易保证金比例变化及持仓风险，合理控制持仓
+加拿大电信运营商罗杰斯通信公司周一宣布，将向约半数员工提供自愿离职买断计划。这是近年来加拿大电信行业规模最大的买断计划之一，正值行业增长放缓和竞争加剧之际。 买断计划覆盖约1.25万名员工 据《环球邮报》报道，罗杰斯通信约2.5万名员工中，约有50%将获得自愿离职或提前退休方案。该公司尚未透露具体的裁员目标人数。罗杰斯发言人在一份声明中表示：“我们正在采取措施调整成本结构，以适
 
 ## 正文
 
-6月4日金融一线消息，农业银行发布公告称，近期国际贵金属市场价格波动加剧，个人客户交易类贵金属业务市场风险上升。
+加拿大电信运营商罗杰斯通信公司周一宣布，将向约半数员工提供自愿离职买断计划。
 
-为切实保护投资者利益，该行定于自2026年6月5日（星期五）收盘清算时起，Au（T+D）、Ag（T+D）合约的保证金比例从100%调整为120%。
+这是近年来加拿大电信行业规模最大的买断计划之一，正值行业增长放缓和竞争加剧之际。
 
-相关合约交易保证金比例的后续调整，将另行通知。
+买断计划覆盖约1.25万名员工 据《环球邮报》报道，罗杰斯通信约2.5万名员工中，约有50%将获得自愿离职或提前退休方案。
 
-农业银行提醒投资者：请客户注意交易保证金比例变化及持仓风险，合理控制持仓规模，理性交易。
+该公司尚未透露具体的裁员目标人数。
 
-责任编辑：曹睿潼
+罗杰斯发言人在一份声明中表示：“我们正在采取措施调整成本结构，以适应当前环境的业务现实。
+
+作为其中的一部分，一些团队选择提供自愿离职和退休计划，让员工可以选择是继续留在公司还是开启新的篇章。
+
+” 据报道，包括在播人才、Sportsnet员工及工会雇员在内的部分团队不在此次买断计划的适用范围内。
+
+行业增长放缓驱动成本调整 此次买断计划正值加拿大电信行业增长放缓之际。
 
 ## 相关推荐
 
-- 2026-06-29 18:11 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 18:16 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 18:09 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 18:08 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 18:06 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 18:02 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 18:03 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 17:52 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 18:10 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 18:14 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 18:10 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 18:08 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 18:05 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 17:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 18:00 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 18:14 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 18:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 17:59 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 17:56 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 17:58 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 17:57 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 17:57 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 18:21 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 18:06 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/744594290338.shtml)
-- 2026-06-29 17:58 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/21690463067.shtml)
-- 2026-06-29 17:50 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/40804453.shtml)
-- 2026-06-29 18:04 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/196685103457.shtml)
-- 2026-06-29 18:08 - [当地回应林区违规放羊遭豹啃食](http://www.share.kurohicncr.top/Article/details/4421900144.shtml)
-- 2026-06-29 18:12 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/13672.shtml)
-- 2026-06-29 17:54 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/12734.shtml)
-- 2026-06-29 18:04 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/427102588764.shtml)
-- 2026-06-29 18:15 - [美人鱼](https://www.share.kurohicncr.top/Article/details/75324305396.shtml)
-- 2026-06-29 17:50 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/7045002038.shtml)
-- 2026-06-29 18:03 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/203961334.shtml)
-- 2026-06-29 18:12 - [滚石就音乐人屠颖去世事件发声明](http://www.share.kurohicncr.top/Article/details/570717731.shtml)
-- 2026-06-29 18:09 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/2670517807.shtml)
-- 2026-06-29 18:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/41688289119.shtml)
-- 2026-06-29 18:03 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/652399.shtml)
+- 2026-06-29 18:18 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/39817354.shtml)
+- 2026-06-29 18:12 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.kurohicncr.top/Article/details/89198304140.shtml)
+- 2026-06-29 18:23 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/4214759.shtml)
+- 2026-06-29 18:16 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/155936540657.shtml)
+- 2026-06-29 18:01 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/59462.shtml)
+- 2026-06-29 18:19 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/910300612571.shtml)
+- 2026-06-29 18:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/00545026645.shtml)
+- 2026-06-29 18:01 - [黄金也扛不住了](http://www.share.minike.top/Article/details/0624313.shtml)
+- 2026-06-29 18:18 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/548372.shtml)
+- 2026-06-29 18:04 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/9570717296.shtml)
+- 2026-06-29 18:18 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/920792406.shtml)
+- 2026-06-29 18:21 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/52222977.shtml)
+- 2026-06-29 18:14 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/48048.shtml)
+- 2026-06-29 17:55 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/7143491.shtml)
+- 2026-06-29 17:57 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/80041377.shtml)

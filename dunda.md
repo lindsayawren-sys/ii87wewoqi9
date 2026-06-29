@@ -1,57 +1,51 @@
-# 中国成品油价年内第二次下调
+# 【理响中国】理论传播要把“国家大事”翻译成“自家日子”
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-中新社北京6月4日电 中国成品油价年内第二次下调。 中国国家发改委4日消息，5月21日国内成品油价格调整以来，国际市场原油价格震荡下行后近日有所回升，本次调价的前10个工作日平均价格低于上次调价前10个工作日平均价格。根据国际市场油价变化情况，自6月4日24时起，国内汽、柴油价格每吨分别下调525元(人民币，下同)、505元。 折合升价，92号汽油、95号汽油、0号柴油每升分别
+编者按：4月27日，2026“理响中国”党的创新理论网络传播精品分享会在江苏南京举办。十余位优秀作品主创代表，结合工作实践和创作历程，分享了推动党的创新理论网络传播的经验做法。光明网总裁、总编辑杨谷和中国社会科学院经济研究所研究员张小溪以《脚下有泥土，理论才能有温度》为题，介绍了“理响中国·春江水暖鸭先知”的实践经验。策划：吴丛丛 统筹：蒋正翔 张晞 编辑：刘梦甜 制作：路天悦
 
 ## 正文
 
-中新社北京6月4日电 中国成品油价年内第二次下调。
+编者按：4月27日，2026“理响中国”党的创新理论网络传播精品分享会在江苏南京举办。
 
-中国国家发改委4日消息，5月21日国内成品油价格调整以来，国际市场原油价格震荡下行后近日有所回升，本次调价的前10个工作日平均价格低于上次调价前10个工作日平均价格。
+十余位优秀作品主创代表，结合工作实践和创作历程，分享了推动党的创新理论网络传播的经验做法。
 
-根据国际市场油价变化情况，自6月4日24时起，国内汽、柴油价格每吨分别下调525元(人民币，下同)、505元。
+光明网总裁、总编辑杨谷和中国社会科学院经济研究所研究员张小溪以《脚下有泥土，理论才能有温度》为题，介绍了“理响中国·春江水暖鸭先知”的实践经验。
 
-折合升价，92号汽油、95号汽油、0号柴油每升分别下调0.41元、0.44元、0.43元。
-
-这是中国成品油价年内第二次下调。
-
-调价落地后，消费者用油成本将有所降低。
-
-卓创资讯成品油分析师曹莹莹表示，油箱容量50升的小型私家车加满一箱92号汽油，将比之前少花20.5元。
-
-以月跑2000公里，百公里油耗8升的小型私家车为例，到下次调价窗口开启(6月18日24时)前，消费者用油成本将减少31元。
+策划：吴丛丛 统筹：蒋正翔 张晞 编辑：刘梦甜 制作：路天悦
 
 ## 相关推荐
 
-- 2026-06-29 17:48 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 17:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 18:08 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 17:54 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 17:54 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 18:13 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 18:05 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 17:53 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 18:10 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 17:59 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 18:05 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 18:20 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 18:00 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 18:08 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 17:57 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 18:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 17:54 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 18:15 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 18:20 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 18:20 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 18:02 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 17:58 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 18:10 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 18:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:11 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/0038010837.shtml)
-- 2026-06-29 17:49 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/0232888340.shtml)
-- 2026-06-29 17:56 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/535918502551.shtml)
-- 2026-06-29 17:52 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/55578976611.shtml)
-- 2026-06-29 17:54 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/70809.shtml)
-- 2026-06-29 17:48 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/41949047354.shtml)
-- 2026-06-29 17:57 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/317534.shtml)
-- 2026-06-29 17:59 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/867960.shtml)
-- 2026-06-29 17:48 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/04870722316.shtml)
-- 2026-06-29 18:13 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/254349736017.shtml)
-- 2026-06-29 18:02 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/11205235231.shtml)
-- 2026-06-29 18:10 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/110719475.shtml)
-- 2026-06-29 18:00 - [金牌调解](https://www.share.kurohicncr.top/Article/details/314944392.shtml)
-- 2026-06-29 18:06 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/057860.shtml)
-- 2026-06-29 18:16 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/9347816.shtml)
+- 2026-06-29 18:14 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/2089251218.shtml)
+- 2026-06-29 18:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/36932317460.shtml)
+- 2026-06-29 18:03 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/7667189351.shtml)
+- 2026-06-29 18:07 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/3008940574.shtml)
+- 2026-06-29 18:14 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/50843.shtml)
+- 2026-06-29 18:23 - [时光音乐会](https://www.blog.minike.top/Article/details/375804478661.shtml)
+- 2026-06-29 18:22 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/2991766360.shtml)
+- 2026-06-29 18:04 - [起风了](https://www.share.minike.top/Article/details/17500390618.shtml)
+- 2026-06-29 18:04 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/608083530940.shtml)
+- 2026-06-29 18:01 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/74235248.shtml)
+- 2026-06-29 18:20 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/419756294.shtml)
+- 2026-06-29 18:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/7881804152.shtml)
+- 2026-06-29 18:19 - [机器人学校开学了](http://www.blog.kurohicncr.top/Article/details/0274823.shtml)
+- 2026-06-29 17:59 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/33841.shtml)
+- 2026-06-29 17:56 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/4405771273.shtml)

@@ -1,57 +1,51 @@
-# 大幅溢价！全天仅交易1小时
+# “华住会”App崩了？客服回应
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-01 今天，科创板块走强，半导体、消费电子、TMT等主题ETF涨幅明显。而工业有色、黄金、养殖等主题ETF表现疲软。 02 今天，纳指科技ETF景顺、中韩半导体ETF华泰柏瑞、纳指ETF嘉实等多只ETF有较高溢价。其中，纳指科技ETF景顺溢价率近20%。基金管理人于盘后发布公告称，该基金将于6月5日开市起停牌，自10：30起复牌。 03 财通多策略福鑫定开混合LOF今日开市停牌
+新京报记者 赵亚楠 制作 葛佳丹 4月27日，有多位网民反映酒店预订平台“华住会”App无法运行，无法从App查询酒店信息，在酒店前台也无法办理入住。 华住会客服工作人员表示，酒店前台系统与App系统同步升级，导致部分住客受到影响。该工作人员称，可向受影响消费者申请优惠券补偿，目前系统已恢复正常。 责任编辑：刘万里 SF014
 
 ## 正文
 
-01 今天，科创板块走强，半导体、消费电子、TMT等主题ETF涨幅明显。
+新京报记者 赵亚楠 制作 葛佳丹 4月27日，有多位网民反映酒店预订平台“华住会”App无法运行，无法从App查询酒店信息，在酒店前台也无法办理入住。
 
-而工业有色、黄金、养殖等主题ETF表现疲软。
+华住会客服工作人员表示，酒店前台系统与App系统同步升级，导致部分住客受到影响。
 
-02 今天，纳指科技ETF景顺、中韩半导体ETF华泰柏瑞、纳指ETF嘉实等多只ETF有较高溢价。
+该工作人员称，可向受影响消费者申请优惠券补偿，目前系统已恢复正常。
 
-其中，纳指科技ETF景顺溢价率近20%。
-
-基金管理人于盘后发布公告称，该基金将于6月5日开市起停牌，自10：30起复牌。
-
-03 财通多策略福鑫定开混合LOF今日开市停牌一小时，复牌后场内价格冲高，上涨超8%。
-
-财通基金午盘休市时紧急公告，于4日下午继续停牌。
-
-该产品今天的交易时间仅有1小时。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 17:51 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 17:50 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 18:08 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 18:13 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 18:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 18:12 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 18:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 18:13 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 18:05 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 18:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 18:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 18:00 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 18:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 18:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 18:11 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 18:05 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 18:23 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 18:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 18:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 18:00 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 18:16 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 18:07 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 18:19 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 18:04 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:15 - [TTG KSG](https://www.blog.minike.top/Article/details/56148249.shtml)
-- 2026-06-29 17:51 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/7827994801.shtml)
-- 2026-06-29 18:06 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/2794587087.shtml)
-- 2026-06-29 17:56 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.minike.top/Article/details/4068834030.shtml)
-- 2026-06-29 18:08 - [普京承认俄出现燃料危机](https://www.share.minike.top/Article/details/00370896342.shtml)
-- 2026-06-29 18:17 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/279129865267.shtml)
-- 2026-06-29 17:58 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.kurohicncr.top/Article/details/03804655038.shtml)
-- 2026-06-29 17:50 - [沙丘](http://www.blog.minike.top/Article/details/43115.shtml)
-- 2026-06-29 17:50 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/911600.shtml)
-- 2026-06-29 18:02 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.minike.top/Article/details/37698.shtml)
-- 2026-06-29 18:09 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/469446755.shtml)
-- 2026-06-29 17:54 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.minike.top/Article/details/00661914.shtml)
-- 2026-06-29 18:09 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/3426075218.shtml)
-- 2026-06-29 17:54 - [绘画区你赢了](http://www.share.minike.top/Article/details/228408.shtml)
-- 2026-06-29 18:04 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/448303140100.shtml)
+- 2026-06-29 18:01 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/43452674.shtml)
+- 2026-06-29 18:04 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/521692760026.shtml)
+- 2026-06-29 18:19 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/01648137.shtml)
+- 2026-06-29 18:17 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/778902377839.shtml)
+- 2026-06-29 17:56 - [女生每天戴耳机18小时突发耳聋](https://www.blog.minike.top/Article/details/597390307976.shtml)
+- 2026-06-29 18:05 - [T1 KC](https://www.share.kurohicncr.top/Article/details/7475300636.shtml)
+- 2026-06-29 18:16 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/62511008.shtml)
+- 2026-06-29 18:21 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/851113202.shtml)
+- 2026-06-29 18:01 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/2318718.shtml)
+- 2026-06-29 18:22 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/0371221.shtml)
+- 2026-06-29 18:16 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.kurohicncr.top/Article/details/914132.shtml)
+- 2026-06-29 18:15 - [逃狱兄弟](http://www.blog.minike.top/Article/details/57958082026.shtml)
+- 2026-06-29 18:23 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/632101690.shtml)
+- 2026-06-29 18:06 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/657548.shtml)
+- 2026-06-29 18:08 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/982414.shtml)

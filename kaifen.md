@@ -1,60 +1,58 @@
-# 特朗普拟提名其前律师Todd Blanche出任美国司法部长
+# AI热潮盖过中东紧张局势影响，油价上涨而亚洲市场走势分化
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-唐纳德·特朗普表示，计划提名Todd Blanche出任美国司法部长，这位曾为特朗普做刑事辩护的律师将一跃执掌美国司法部。 相关提名公告定于周四发布，彼时Todd Blanche出任代理司法部长已满两个月；此前Pam Bondi遭解职，Todd Blanche接任代理一职。 白宫助理在社交媒体发布的视频显示，周三晚间特朗普在白宫晚宴上表态：“我们将提名他转正，出任正式司法部长。
+油价上涨，亚洲股市走势分化。目前投资者正在权衡人工智能（AI）热潮带来的乐观情绪，以及霍尔木兹海峡相关紧张局势升温的影响。全球五分之一的石油通常经由这条关键水道运输。 洲际交易所（ICE）数据显示，周一亚洲交易时段，近月西得克萨斯州中质油期货上涨2.0%，至每桶96.30美元；近月布伦特原油期货上涨2.1%，至每桶107.58美元。 与此同时，在电子和芯片股的推动下，日本、韩国
 
 ## 正文
 
-唐纳德·特朗普表示，计划提名Todd Blanche出任美国司法部长，这位曾为特朗普做刑事辩护的律师将一跃执掌美国司法部。
+油价上涨，亚洲股市走势分化。
 
-相关提名公告定于周四发布，彼时Todd Blanche出任代理司法部长已满两个月；此前Pam Bondi遭解职，Todd Blanche接任代理一职。
+目前投资者正在权衡人工智能（AI）热潮带来的乐观情绪，以及霍尔木兹海峡相关紧张局势升温的影响。
 
-白宫助理在社交媒体发布的视频显示，周三晚间特朗普在白宫晚宴上表态：“我们将提名他转正，出任正式司法部长。
+全球五分之一的石油通常经由这条关键水道运输。
 
-” 履职代理部长以来，Todd Blanche不断以行动向特朗普表忠心。
+洲际交易所（ICE）数据显示，周一亚洲交易时段，近月西得克萨斯州中质油期货上涨2.0%，至每桶96.30美元；近月布伦特原油期货上涨2.1%，至每桶107.58美元。
 
-在其临时掌舵期间，美国司法部接连对特朗普的政敌与私人对手提起重磅公诉，起诉对象包括古巴前国务委员会主席、美国联邦调查局前局长，以及民权组织“南方贫困法律中心”。
+与此同时，在电子和芯片股的推动下，日本、韩国市场创下历史新高。
 
-不过Todd Blanche在司法部的任职之路并非一帆风顺。
+盛宝（Saxo）首席投资策略师查鲁·查纳纳（Charu Chanana）表示：“亚洲市场走势并非铁板一块。
 
-司法部此前宣布设立总额约18亿美元的“反司法武器化专项基金”，用于补偿拜登执政期间遭司法调查的特朗普阵营盟友；但因遭到共和党内部强烈反对，Todd Blanche本周向美国国会议员明确表态，该基金项目彻底作废。
+” 查纳纳说：“日本、韩国正因其在AI和硬件方面的优势而受到青睐，这推动了盈利势头和强劲的全球投资者资金流入。
 
-他在周二对议员称：“这个项目不再推进，就此终止。
+“她补充说，与此同时，中国内地和香港仍面临着围绕国内需求、信心和后续政策落实的老问题。
 
 ## 相关推荐
 
-- 2026-06-29 18:14 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 18:04 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 18:05 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 17:59 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 17:49 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 18:14 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 17:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 17:59 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 18:12 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 17:59 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 17:58 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 18:15 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 17:56 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 18:14 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 17:57 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 17:54 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 17:56 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 18:03 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 18:22 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 18:16 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 17:56 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 18:23 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 18:06 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 18:20 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 17:59 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 18:11 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:54 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/394997660.shtml)
-- 2026-06-29 18:07 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/0426647155.shtml)
-- 2026-06-29 18:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/60037828834.shtml)
-- 2026-06-29 17:58 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.kurohicncr.top/Article/details/2023749.shtml)
-- 2026-06-29 18:02 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/011059642.shtml)
-- 2026-06-29 18:17 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/91553.shtml)
-- 2026-06-29 17:50 - [官媒首曝六代机？大V解读](https://www.share.minike.top/Article/details/7706565634.shtml)
-- 2026-06-29 17:56 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/71400884.shtml)
-- 2026-06-29 18:10 - [12所大学更正招生目录](https://www.blog.kurohicncr.top/Article/details/318857415.shtml)
-- 2026-06-29 18:00 - [小娘惹](https://www.blog.minike.top/Article/details/449370974515.shtml)
-- 2026-06-29 17:58 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/557452666.shtml)
-- 2026-06-29 17:53 - [速度与激情9](https://www.blog.minike.top/Article/details/7017761997.shtml)
-- 2026-06-29 18:12 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/43313181.shtml)
-- 2026-06-29 17:54 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/148828.shtml)
-- 2026-06-29 17:53 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.minike.top/Article/details/163802311.shtml)
+- 2026-06-29 18:17 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.kurohicncr.top/Article/details/57084369325.shtml)
+- 2026-06-29 17:59 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/8285980360.shtml)
+- 2026-06-29 17:57 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/65445830.shtml)
+- 2026-06-29 18:18 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/4242936296.shtml)
+- 2026-06-29 17:59 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/383776.shtml)
+- 2026-06-29 18:09 - [当我回母校教书](http://www.share.minike.top/Article/details/67425.shtml)
+- 2026-06-29 18:23 - [日本偶像龟梨和也宣布结婚](http://www.blog.kurohicncr.top/Article/details/48674.shtml)
+- 2026-06-29 18:13 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/53831763782.shtml)
+- 2026-06-29 18:16 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/74086454.shtml)
+- 2026-06-29 18:17 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/182266627.shtml)
+- 2026-06-29 17:59 - [黄金也扛不住了](http://www.share.minike.top/Article/details/9820889081.shtml)
+- 2026-06-29 17:57 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/454692920.shtml)
+- 2026-06-29 18:20 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/23968.shtml)
+- 2026-06-29 18:09 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/76266.shtml)
+- 2026-06-29 18:12 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/01350.shtml)

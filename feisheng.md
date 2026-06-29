@@ -1,60 +1,56 @@
-# 物流业稳步回暖 经济活力持续释放
+# 职业伤害保障试点再扩围，纳入小象超市、盒马鲜生等
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-5月25日，一列满载榴莲、山竹等东南亚热带水果的“澜湄快线”冷链班列，缓缓驶出老挝磨丁站，穿越中老边境友谊隧道，驶入中国磨憨站。 如今，中老泰全铁冷链专列已实现常态化运行。数据显示，今年以来，经中老铁路运输的跨境进口水果累计达10.79万吨，同比增长超30%。这条钢铁大动脉上奔涌的果香，正是中国与东盟经贸合作蓬勃活力的生动注脚，也是中国物流业复苏回暖的一个缩影。 近日，中国物流
+今年将出行、即时配送和同城货运三个试点行业的平台企业总体纳入试点范围。 新就业形态人员职业伤害保障试点继续扩围。今年7月1日起，T3出行等9家出行平台企业，以及小象超市、盒马鲜生等5家即时配送平台企业均将纳入试点范围。4月28日，人社部举行的例行新闻发布会透露这一动向。 近年来，以外卖骑手等为代表的新就业形态劳动者的权益保障话题备受社会关注。当前部分灵活就业人员、新就业形态就业
 
 ## 正文
 
-5月25日，一列满载榴莲、山竹等东南亚热带水果的“澜湄快线”冷链班列，缓缓驶出老挝磨丁站，穿越中老边境友谊隧道，驶入中国磨憨站。
+今年将出行、即时配送和同城货运三个试点行业的平台企业总体纳入试点范围。
 
-如今，中老泰全铁冷链专列已实现常态化运行。
+新就业形态人员职业伤害保障试点继续扩围。
 
-数据显示，今年以来，经中老铁路运输的跨境进口水果累计达10.79万吨，同比增长超30%。
+今年7月1日起，T3出行等9家出行平台企业，以及小象超市、盒马鲜生等5家即时配送平台企业均将纳入试点范围。
 
-这条钢铁大动脉上奔涌的果香，正是中国与东盟经贸合作蓬勃活力的生动注脚，也是中国物流业复苏回暖的一个缩影。
+4月28日，人社部举行的例行新闻发布会透露这一动向。
 
-近日，中国物流与采购联合会发布数据显示，2026年5月份中国物流业景气指数为50.3%，较上月回升0.6个百分点，连续三个月保持扩张态势。
+近年来，以外卖骑手等为代表的新就业形态劳动者的权益保障话题备受社会关注。
 
-作为国民经济的“晴雨表”和“大动脉”，物流业的稳步回暖，折射出中国经济运行的韧性与活力。
+当前部分灵活就业人员、新就业形态就业人员等未被纳入社保体系，存在“漏保”“脱保”“断保”情况。
 
-入夏以来，全国物流网络加速运转，产业链供应链上下游衔接更趋协调。
+为补上这块“短板”，国家近年来推进职业伤害保障试点，在工伤保险制度框架下，结合新就业形态特点，提出按单计费、每单必保的职业伤害保障模式，于2022年启动试点工作。
 
-中国物流信息中心主任刘宇航指出，5月份产业物流需求加快增长，民生领域物流需求增势平稳，东中西部呈现均衡回升态势，产业链供应链上下游有序衔接、加速协同。
+2025年7月，人社部等九部门联合印发的《关于扩大新就业形态人员职业伤害保障试点的通知》施行，明确用三年时间，从扩容省份、新增企业、拓宽行业三个维度分步骤、渐进式推进职业伤害保障试点扩围工作。
 
 ## 相关推荐
 
-- 2026-06-29 18:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 17:57 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 17:49 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 17:55 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 17:50 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 17:56 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 18:14 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 18:14 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 18:16 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 18:14 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 17:50 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 18:10 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 17:50 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 18:14 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 17:57 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 18:00 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 18:06 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 18:12 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 18:15 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 18:04 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 18:01 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 17:57 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 18:01 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 17:54 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:50 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/4660180.shtml)
-- 2026-06-29 18:09 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.minike.top/Article/details/2110235849.shtml)
-- 2026-06-29 17:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/772586.shtml)
-- 2026-06-29 18:05 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/36908.shtml)
-- 2026-06-29 18:10 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.minike.top/Article/details/209984286891.shtml)
-- 2026-06-29 17:55 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/96052367074.shtml)
-- 2026-06-29 18:12 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/14210300.shtml)
-- 2026-06-29 18:17 - [天道](https://www.share.kurohicncr.top/Article/details/17960912.shtml)
-- 2026-06-29 18:06 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/62878068.shtml)
-- 2026-06-29 17:56 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/57396.shtml)
-- 2026-06-29 18:08 - [和周杰伦在演唱会合唱了](http://www.blog.kurohicncr.top/Article/details/132392.shtml)
-- 2026-06-29 18:05 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/751157060.shtml)
-- 2026-06-29 18:16 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/965836142.shtml)
-- 2026-06-29 18:04 - [起风了](http://www.blog.minike.top/Article/details/011392935.shtml)
-- 2026-06-29 18:04 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/4398801423.shtml)
+- 2026-06-29 17:58 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/95202624616.shtml)
+- 2026-06-29 18:22 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/7789550.shtml)
+- 2026-06-29 18:18 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/6679210.shtml)
+- 2026-06-29 18:19 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/42934640135.shtml)
+- 2026-06-29 18:02 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/9800295.shtml)
+- 2026-06-29 18:19 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/68241.shtml)
+- 2026-06-29 18:04 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/49303394.shtml)
+- 2026-06-29 18:15 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/02584987.shtml)
+- 2026-06-29 18:14 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/96379548398.shtml)
+- 2026-06-29 18:06 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/39107346.shtml)
+- 2026-06-29 18:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/206101872232.shtml)
+- 2026-06-29 18:02 - [葛军谈AI时代理科生出路](https://www.blog.kurohicncr.top/Article/details/917879065.shtml)
+- 2026-06-29 18:03 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/98205.shtml)
+- 2026-06-29 17:57 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/390535934.shtml)
+- 2026-06-29 18:11 - [世界杯在中国观看最多的比赛](https://www.blog.minike.top/Article/details/3607329.shtml)

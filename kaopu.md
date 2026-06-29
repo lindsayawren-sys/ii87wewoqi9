@@ -1,61 +1,58 @@
-# 京津冀等地有强对流 黑龙江吉林及江南华南等地有较强降水
+# 杨德龙：2026巴菲特股东大会前瞻
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-中新网6月4日电 据中央气象台网站消息，昨日，贵州、江西、安徽、湖南等地出现暴雨或大暴雨，河北、山东等地出现明显风雹。预计4日至5日，西南地区南部、江南、华南及东北、华北等地有较强降雨并伴有局地强对流天气，关注局地强降雨可能引发的山洪、地质灾害，以及降雨和强对流天气对城市运行、农业生产、交通运输等的影响；6日夜间起，南方将有新一轮大范围降雨过程，关注降雨叠加影响及暴雨灾害风险。
+自2006年从北京大学毕业后进入证券行业，我便开始关注巴菲特股东大会。2016年五一，我第一次飞往美国奥马哈现场参会，此后十年间七次亲历这一投资界的年度盛会，2026年4月30日我将第八次飞往这座美国中部小镇。在我看来，巴菲特的人格魅力与其投资业绩一样空前绝后。每年有近4万名全球投资者不远万里汇聚奥马哈，其中不乏各国知名投资人。这充分说明，价值投资并非仅受中国人推崇，而是全世界
 
 ## 正文
 
-中新网6月4日电 据中央气象台网站消息，昨日，贵州、江西、安徽、湖南等地出现暴雨或大暴雨，河北、山东等地出现明显风雹。
+自2006年从北京大学毕业后进入证券行业，我便开始关注巴菲特股东大会。
 
-预计4日至5日，西南地区南部、江南、华南及东北、华北等地有较强降雨并伴有局地强对流天气，关注局地强降雨可能引发的山洪、地质灾害，以及降雨和强对流天气对城市运行、农业生产、交通运输等的影响；6日夜间起，南方将有新一轮大范围降雨过程，关注降雨叠加影响及暴雨灾害风险。
+2016年五一，我第一次飞往美国奥马哈现场参会，此后十年间七次亲历这一投资界的年度盛会，2026年4月30日我将第八次飞往这座美国中部小镇。
 
-京津冀等地有强对流 未来三天，京津冀等地部分地区有小到中雨或雷阵雨，部分地区伴有雷暴大风或冰雹等强对流天气。
+在我看来，巴菲特的人格魅力与其投资业绩一样空前绝后。
 
-中央气象台6月4日6时继续发布强对流天气黄色预警：6月4日8时至5日8时，华北等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，河北中部、北京西南部等地的部分地区将有10级以上雷暴大风，最大风力可达11级以上；江南东部和南部、西南地区南部、华南西部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中，浙江中北部、广西中南部等地的部分地区小时雨量大于50毫米，最大可达60毫米以上。
+每年有近4万名全球投资者不远万里汇聚奥马哈，其中不乏各国知名投资人。
 
-黑龙江吉林及江南华南等地有较强降水 6月4日至5日，东北地区东部、云贵高原、江南、华南等地的部分地区将有大到暴雨，局地有大暴雨，并伴有短时强降水等强对流天气。
+这充分说明，价值投资并非仅受中国人推崇，而是全世界投资者共同认可的投资理念。
 
-中央气象台6月4日6时继续发布暴雨蓝色预警：预计，6月4日8时至5日8时，黑龙江东部、吉林东部以及内蒙古东南部、河北东部、浙江西部和东北部、江西中部和东北部、湖南南部、广西东北部和西南部、云南北部和南部、四川西部和南部、西藏东南部、台湾岛南部等地部分地区有大到暴雨，其中，黑龙江东北部、湖南南部、云南东南部、广西东北部和西南部等地局地有大暴雨(100～150毫米)。
+巴菲特用61年时间创造了投资史上的奇迹，伯克希尔·哈撒韦净资产增长6万倍，年化收益率达19.9%。
 
-上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过60毫米)，局地有雷暴大风等强对流天气。
+虽然年化收益仅跑赢标普500指数约10个百分点，但复利增长的威力在长达61年的维度上产生了惊人的效果：伯克希尔净资产涨幅约为标普500的200倍。
 
-国内未来三天具体预报 6月4日8时至5日8时，东北地区东部、江南东北部和南部、川西高原南部、西南地区南部、华南北部和西部、台湾岛等地部分地区有中到大雨，其中，黑龙江东部、吉林东部、湖南南部、广西西南部和东北部、云南南部、西藏东南部、台湾岛南部等地部分地区有暴雨或大暴雨(100～150毫米)。
+巴菲特也投资过中国公司，其中两大经典案例包括：中石油港股获利约10倍，比亚迪港股获利约38倍，且资金投入量巨大。
 
 ## 相关推荐
 
-- 2026-06-29 18:11 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 17:51 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 18:01 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 18:12 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 18:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 17:55 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 17:56 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 18:17 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 18:09 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 17:51 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 17:57 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 17:49 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 18:13 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 18:14 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 17:51 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 18:10 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 18:01 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 18:18 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 18:11 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 18:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 18:08 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 18:02 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 18:18 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 18:22 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 18:15 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 18:12 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 18:15 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:57 - [周生如故](https://www.blog.kurohicncr.top/Article/details/89063600359.shtml)
-- 2026-06-29 18:05 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.kurohicncr.top/Article/details/6080932.shtml)
-- 2026-06-29 18:00 - [人类对空调和其他家电有多双标](http://www.share.kurohicncr.top/Article/details/66802.shtml)
-- 2026-06-29 18:02 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/770604.shtml)
-- 2026-06-29 18:04 - [青春环游记第三季](http://www.share.minike.top/Article/details/15521.shtml)
-- 2026-06-29 18:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/40797892.shtml)
-- 2026-06-29 17:48 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/69525215.shtml)
-- 2026-06-29 18:13 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/830395018751.shtml)
-- 2026-06-29 18:11 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/9104686.shtml)
-- 2026-06-29 17:59 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/612940697.shtml)
-- 2026-06-29 17:58 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/50266770246.shtml)
-- 2026-06-29 17:54 - [滚石点名酒店员工说有急救培训](https://www.blog.minike.top/Article/details/7843030.shtml)
-- 2026-06-29 18:06 - [金牌调解](http://www.share.kurohicncr.top/Article/details/96715661.shtml)
-- 2026-06-29 17:58 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/50968.shtml)
-- 2026-06-29 17:54 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/52171508991.shtml)
+- 2026-06-29 18:05 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/33535374.shtml)
+- 2026-06-29 18:20 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/2415735.shtml)
+- 2026-06-29 18:01 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/007491917605.shtml)
+- 2026-06-29 18:04 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/54460571.shtml)
+- 2026-06-29 17:58 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/673459602023.shtml)
+- 2026-06-29 18:05 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/51796303400.shtml)
+- 2026-06-29 18:01 - [娜扎搂着我的腰和我合照](https://www.blog.minike.top/Article/details/1957746938.shtml)
+- 2026-06-29 18:22 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/42633414215.shtml)
+- 2026-06-29 18:17 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/28639174248.shtml)
+- 2026-06-29 17:58 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/0255697652.shtml)
+- 2026-06-29 18:11 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/4551590911.shtml)
+- 2026-06-29 17:56 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/785844.shtml)
+- 2026-06-29 18:05 - [斗破苍穹](http://www.share.minike.top/Article/details/59921618237.shtml)
+- 2026-06-29 18:10 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.minike.top/Article/details/145637539419.shtml)
+- 2026-06-29 18:12 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/604536510.shtml)

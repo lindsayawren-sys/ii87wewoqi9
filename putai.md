@@ -1,59 +1,56 @@
-# 拟减持超1亿股！这家银行刚解禁，大股东就抛出套现计划
+# 欧洲央行表示3月消费者通胀预期上升
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！刚刚解除限售后，青岛银行大股东宣布其减持计划。 近日，青岛银行公告，持股9.15%的股东青岛海尔产业发展有限公司（下称“海尔产业发展”）计划以大宗交易方式减持公司股份1.07亿股，占公司总股本的1.84%。这也是今年以来A股上市银行首例5%以上主要股东披露的减持计划。 而就在数日前的5月28日，青岛银行公告
+欧元区3月消费者的通胀预期全面上升，这对正在评估伊朗战争连锁反应的欧洲央行而言是一个令人担忧的信号。 根据欧洲央行周二发布的月度消费者调查显示，未来12个月物价预计将上升4%，高于2月的2.5%。对未来三年的通胀预期从2.5%升至3.0%，略低于2022年10月上次物价飙升时达到的3.1%峰值。 五年的通胀预期从2.3%小幅升至2.4%，进一步偏离欧洲央行2%的中期通胀目标。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+欧元区3月消费者的通胀预期全面上升，这对正在评估伊朗战争连锁反应的欧洲央行而言是一个令人担忧的信号。
 
-刚刚解除限售后，青岛银行大股东宣布其减持计划。
+根据欧洲央行周二发布的月度消费者调查显示，未来12个月物价预计将上升4%，高于2月的2.5%。
 
-近日，青岛银行公告，持股9.15%的股东青岛海尔产业发展有限公司（下称“海尔产业发展”）计划以大宗交易方式减持公司股份1.07亿股，占公司总股本的1.84%。
+对未来三年的通胀预期从2.5%升至3.0%，略低于2022年10月上次物价飙升时达到的3.1%峰值。
 
-这也是今年以来A股上市银行首例5%以上主要股东披露的减持计划。
+五年的通胀预期从2.3%小幅升至2.4%，进一步偏离欧洲央行2%的中期通胀目标。
 
-而就在数日前的5月28日，青岛银行公告上述股东所持4.1亿股首发前限售股于6月1日解除限售。
+欧洲央行正密切关注能源成本高企是否会促使工人要求加薪，并导致企业上调售价。
 
-限售股解禁与减持计划接踵而至，引发市场关注。
+除汽油等商品之外的第二轮通胀效应可能会引发加息，尽管周四政策会议料将维持利率不变。
 
-不过，从全市场来看，一边是年内首例大股东减持，另一边是险资、地方国资及银行董监高密集增持，A股银行板块股东行为分化显著。
+彭博调查的市场参与者和经济学家预测，6月会议将加息25个基点。
 
-在基本面筑底与资金面扰动的交织下，券商分析师对银行板块后续走势仍持积极态度。
+交易员预计年底前还将有一次加息。
 
 ## 相关推荐
 
-- 2026-06-29 17:56 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 17:55 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 17:50 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 18:10 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 18:08 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 18:12 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 18:07 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 17:56 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 18:03 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 17:52 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 17:57 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 17:58 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 18:09 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 18:23 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 18:08 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 18:07 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-29 18:18 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 18:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 17:59 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 18:09 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 18:17 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 18:10 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 18:09 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:02 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/0860813841.shtml)
-- 2026-06-29 17:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/122373841427.shtml)
-- 2026-06-29 17:54 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/6973544.shtml)
-- 2026-06-29 18:01 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/85174467.shtml)
-- 2026-06-29 17:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/43539155.shtml)
-- 2026-06-29 18:05 - [第一炉香](https://www.share.minike.top/Article/details/36058830.shtml)
-- 2026-06-29 17:51 - [女心理师](http://www.blog.kurohicncr.top/Article/details/3609882958.shtml)
-- 2026-06-29 18:02 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/68865697.shtml)
-- 2026-06-29 17:56 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/28125.shtml)
-- 2026-06-29 18:16 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.kurohicncr.top/Article/details/560908.shtml)
-- 2026-06-29 17:51 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/35009164.shtml)
-- 2026-06-29 17:53 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/37978.shtml)
-- 2026-06-29 18:03 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/18119171.shtml)
-- 2026-06-29 17:56 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/752801.shtml)
-- 2026-06-29 17:55 - [两老人多次到一洗车店泼粪](http://www.share.minike.top/Article/details/28187.shtml)
+- 2026-06-29 18:15 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/5428617.shtml)
+- 2026-06-29 18:16 - [赵今麦时隔五年再演李诗情](http://www.share.kurohicncr.top/Article/details/873281.shtml)
+- 2026-06-29 18:10 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/415538.shtml)
+- 2026-06-29 17:55 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/94260972245.shtml)
+- 2026-06-29 18:06 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/149923830673.shtml)
+- 2026-06-29 17:59 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/42689347.shtml)
+- 2026-06-29 18:14 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.minike.top/Article/details/0045595.shtml)
+- 2026-06-29 17:55 - [王楚钦开门红](http://www.blog.minike.top/Article/details/49119362.shtml)
+- 2026-06-29 18:20 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/204064446.shtml)
+- 2026-06-29 18:18 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/959610820172.shtml)
+- 2026-06-29 18:02 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/433018.shtml)
+- 2026-06-29 18:11 - [王楚钦开门红](https://www.blog.minike.top/Article/details/10888.shtml)
+- 2026-06-29 17:56 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/33828.shtml)
+- 2026-06-29 18:02 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/62677060.shtml)
+- 2026-06-29 18:13 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/511584767844.shtml)

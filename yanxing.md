@@ -1,61 +1,56 @@
-# 厦钨新能与法国Orano合资Neomat CAM电池材料工厂正式奠基
+# 上海银行副行长俞敏华谈投行业务：以“撮合”为引擎，现阶段主要围绕并购撮合
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-中新网巴黎6月5日电 厦钨新能(XTC New Energy)联合法国欧安诺集团(Orano)共建的法国Neomat CAM动力电池正极材料工厂当地时间5月29日在法国敦刻尔克举行奠基仪式。 作为法国首个专用于电动汽车电池正极材料的工业化生产基地，本次奠基标志着项目正式进入全面建设阶段。Neomat作为中法绿色产业合作的标杆项目，本次奠基仪式得到中法双方关注。法国经济和财政部长
+4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，上海银行副行长俞敏华坦言，现阶段确实有信贷投放增量的现实需要，但展望未来，上海银行一定要从轻资本、轻资产业务来提升转型的能效。因此，围绕企业的全生命周期，我们也将聚焦投行业务，以“撮合”为引擎，聚焦三类撮合：股权撮合、债权撮合、并购撮合，现阶段主要围绕并购撮合。 他表示，在股权撮合方面，从几大硬
 
 ## 正文
 
-中新网巴黎6月5日电 厦钨新能(XTC New Energy)联合法国欧安诺集团(Orano)共建的法国Neomat CAM动力电池正极材料工厂当地时间5月29日在法国敦刻尔克举行奠基仪式。
+4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，上海银行副行长俞敏华坦言，现阶段确实有信贷投放增量的现实需要，但展望未来，上海银行一定要从轻资本、轻资产业务来提升转型的能效。
 
-作为法国首个专用于电动汽车电池正极材料的工业化生产基地，本次奠基标志着项目正式进入全面建设阶段。
+因此，围绕企业的全生命周期，我们也将聚焦投行业务，以“撮合”为引擎，聚焦三类撮合：股权撮合、债权撮合、并购撮合，现阶段主要围绕并购撮合。
 
-Neomat作为中法绿色产业合作的标杆项目，本次奠基仪式得到中法双方关注。
+他表示，在股权撮合方面，从几大硬核赛道中筛选出2400户有意向引入战略投资者且符合财务投资者要求的企业。
 
-法国经济和财政部长莱斯屈尔、上法兰西大区议会主席贝特朗等莅临现场。
+同时，我们也在帮这些客户积极对接天使投资人、VC、PE和上市基石投资人。
 
-福建省工控集团董事长杨方、福建省冶控集团董事长林亨祥、厦钨新能总经理姜龙等出席仪式。
+在债权撮合方面，帮助多家国资股东以及各地各级的国资国企和产业链重要客户，对接险资、融资租赁和信托等融资渠道。
 
-近500名欧洲地方、国家及行业各界代表共同见证了这一战略时刻。
+在并购撮合方面，聚焦两大类主体：并购主体主要包括产业龙头、国资国企等，标的主体主要是具有新质生产力特征的科技企业、具有稳定现金流的资产项目，以及上市公司的控制权。
 
-莱斯屈尔表示，该项目是法中合作的优秀标杆，印证了法国促投政策的成效，将补齐欧洲电动车产业链关键一环，助力欧洲摆脱传统能源依赖、构建自主可控的电池价值链，充分体现了双方共同的产业追求。
+围绕这三类撮合，我们积极打造生态圈和朋友圈，形成了30家GP、70家LP的股权融资渠道，以及50家以上的债券融资渠道。
 
-杨方在致辞中表示，本项目是深化中法产业合作的务实举措。
+今年一季度，上海银行撮合交易落地规模超过90亿元。
 
 ## 相关推荐
 
-- 2026-06-29 17:56 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 17:58 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 18:06 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 17:57 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 18:16 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 18:01 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 18:10 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 18:05 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 17:52 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 18:05 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 18:12 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 18:11 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 18:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 18:14 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 18:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 18:01 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 17:59 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 17:54 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 18:06 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 18:18 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 17:58 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 18:05 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 18:11 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 18:13 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 18:00 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:01 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/562364667.shtml)
-- 2026-06-29 17:55 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/441432.shtml)
-- 2026-06-29 18:04 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/84050578857.shtml)
-- 2026-06-29 18:11 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/910964.shtml)
-- 2026-06-29 17:57 - [T1零封KC MSI](https://www.share.minike.top/Article/details/716427.shtml)
-- 2026-06-29 18:14 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/819013829117.shtml)
-- 2026-06-29 17:54 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/51896.shtml)
-- 2026-06-29 17:56 - [小娘惹](http://www.share.minike.top/Article/details/222905909867.shtml)
-- 2026-06-29 17:53 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/84286208267.shtml)
-- 2026-06-29 17:52 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/363399865394.shtml)
-- 2026-06-29 18:15 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/39906.shtml)
-- 2026-06-29 18:12 - [断骨增高灰产拉一人提成1.5万元](https://www.share.minike.top/Article/details/1959778398.shtml)
-- 2026-06-29 17:49 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/868767719048.shtml)
-- 2026-06-29 18:09 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/1979991380.shtml)
-- 2026-06-29 18:14 - [和周杰伦在演唱会合唱了](http://www.share.minike.top/Article/details/06006617.shtml)
+- 2026-06-29 18:04 - [章若楠包场白敬亭特立独行](https://www.blog.minike.top/Article/details/634559922639.shtml)
+- 2026-06-29 18:16 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/881204.shtml)
+- 2026-06-29 18:20 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/0888452387.shtml)
+- 2026-06-29 18:03 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/498689.shtml)
+- 2026-06-29 18:07 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/96915815756.shtml)
+- 2026-06-29 18:12 - [7款高价创新药有望降价](https://www.blog.minike.top/Article/details/295791.shtml)
+- 2026-06-29 18:18 - [重度抑郁女孩没钱去做心理咨询](http://www.share.minike.top/Article/details/8491093.shtml)
+- 2026-06-29 18:08 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/9786880.shtml)
+- 2026-06-29 18:05 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/095894322.shtml)
+- 2026-06-29 18:21 - [一生一世](https://www.share.kurohicncr.top/Article/details/389008.shtml)
+- 2026-06-29 18:05 - [AG 宫斗](http://www.blog.minike.top/Article/details/9955935765.shtml)
+- 2026-06-29 17:59 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/5847157.shtml)
+- 2026-06-29 18:13 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/351735726464.shtml)
+- 2026-06-29 18:20 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/172287605039.shtml)
+- 2026-06-29 18:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/7854860969.shtml)

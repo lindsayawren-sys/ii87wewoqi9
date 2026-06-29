@@ -1,59 +1,59 @@
-# 宁夏出台青年就业见习新规 非宁户籍青年同等享受政策
+# 文化和旅游部：对整改不力的5A级旅游景区进行降级或取消等级
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-中新网银川6月3日电 (记者 于晶)6月3日，记者从宁夏回族自治区人力资源和社会保障厅获悉，《宁夏回族自治区青年就业见习管理办法》已于2026年6月1日起正式施行，办法有效期至2031年5月31日。这一系统性规范文件在覆盖范围、准入门槛、监管机制及补贴标准等方面实现多项突破，旨在帮助高校毕业生等青年群体积累工作经验、增强实践能力，促进更好就业。青年就业见习，是指组织高校毕业生等
+近年来游客反映部分景区存在管理服务等问题，影响旅游体验。文化和旅游部资源开发司满宏卫司长表示，加强景区管理是旅游行业乱象集中整治的主要举措： 我们把旅游景区服务质量问题作为这次集中整治的重点，梳理近年来5A级旅游景区负面舆情、游客投诉和网络评价，以负面舆情多发、负面评价集中为依据，将重点整治一批问题多发景区和一批景区摆渡车问题。 根据游客反映集中的景区价格纠纷、拥堵滞留、服务态
 
 ## 正文
 
-中新网银川6月3日电 (记者 于晶)6月3日，记者从宁夏回族自治区人力资源和社会保障厅获悉，《宁夏回族自治区青年就业见习管理办法》已于2026年6月1日起正式施行，办法有效期至2031年5月31日。
+近年来游客反映部分景区存在管理服务等问题，影响旅游体验。
 
-这一系统性规范文件在覆盖范围、准入门槛、监管机制及补贴标准等方面实现多项突破，旨在帮助高校毕业生等青年群体积累工作经验、增强实践能力，促进更好就业。
+文化和旅游部资源开发司满宏卫司长表示，加强景区管理是旅游行业乱象集中整治的主要举措： 我们把旅游景区服务质量问题作为这次集中整治的重点，梳理近年来5A级旅游景区负面舆情、游客投诉和网络评价，以负面舆情多发、负面评价集中为依据，将重点整治一批问题多发景区和一批景区摆渡车问题。
 
-青年就业见习，是指组织高校毕业生等青年进行岗位实践锻炼的就业准备活动。
+根据游客反映集中的景区价格纠纷、拥堵滞留、服务态度、安全应急、环境卫生等问题，找出了近年来综合问题多发的一些景区，比如湖南张家界天门山和武陵源、云南丽江古城和玉龙雪山、黄河壶口瀑布、广西桂林漓江、河南嵩山少林寺、贵州黄果树瀑布、湖北武当山等等。
 
-此次新出台的管理办法，将见习对象明确为离校2年内未就业高校毕业生(含技工院校高级工班、预备技师班、技师班和特殊教育院校职业教育类毕业生)以及16岁至24岁登记失业青年。
+对这些景区我们将督促属地进行严肃批评和集中整治。
 
-与以往试行办法相比，此次修订最重要的变化之一是打破户籍限制。
+游客反映问题比较多的景区摆渡车也是这次整治重点。
 
-原先仅限宁夏户籍青年参加的政策被调整，非宁夏户籍青年现可同等参与，政策普惠性显著提升。
+景区设置摆渡车的初心，是组织游览线路、提供便利服务、丰富旅游体验、加强生态保护，但部分景区丢掉了服务游客的初心，对摆渡车管理不到位，被游客所诟病，摆渡车成为游客投诉集中、负面舆情多发领域。
 
-与此同时，见习单位的准入门槛同步降低，申报条件调整为“正常经营2年以上、在职职工8人以上”，为初创型企业和专精特新企业参与青年就业见习创造了有利条件。
+我们梳理了近年来景区摆渡车的网络舆情、游客投诉和负面评价，找出了摆渡车线路不科学、价格不合理、排队时间长、服务态度差等问题比较多的景区，比如江西龙虎山、吉林长白山、安徽天柱山、四川稻城亚丁、山东崂山，等等，对这些5A级旅游景区摆渡车存在的问题，我们也将督促属地进行集中整治。
 
-在管理机制上，新办法建立了年度动态评估制度。
+针对上述问题，将采取以下治理措施， 一是提级督促整改，要求属地和景区对照问题清单，坚持游客为本，逐一制定整改方案，限期开展整改工作。
 
 ## 相关推荐
 
-- 2026-06-29 18:01 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 17:49 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 18:05 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 18:03 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 17:55 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 18:02 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 18:12 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 18:11 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 17:59 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 17:58 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 18:08 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 18:10 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 18:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 17:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 18:05 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 18:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 17:54 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 17:59 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 18:14 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 18:00 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 18:09 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 18:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 17:59 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 18:13 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 17:58 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 18:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:06 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/60681525617.shtml)
-- 2026-06-29 18:01 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/35768279265.shtml)
-- 2026-06-29 18:14 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/63844316.shtml)
-- 2026-06-29 18:04 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/191213690692.shtml)
-- 2026-06-29 18:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/84036388805.shtml)
-- 2026-06-29 17:58 - [V8](http://www.blog.minike.top/Article/details/481678329.shtml)
-- 2026-06-29 18:06 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/5599094833.shtml)
-- 2026-06-29 17:51 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/5859908094.shtml)
-- 2026-06-29 17:49 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/412292967.shtml)
-- 2026-06-29 18:13 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/114081188717.shtml)
-- 2026-06-29 18:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/84744.shtml)
-- 2026-06-29 18:14 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/5830225789.shtml)
-- 2026-06-29 18:03 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/40421719.shtml)
-- 2026-06-29 18:17 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/657113171.shtml)
-- 2026-06-29 18:12 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/92949.shtml)
+- 2026-06-29 17:57 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/960084431727.shtml)
+- 2026-06-29 18:19 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/46818002.shtml)
+- 2026-06-29 18:07 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/2823314744.shtml)
+- 2026-06-29 18:01 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/71710.shtml)
+- 2026-06-29 18:10 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/793667.shtml)
+- 2026-06-29 18:04 - [逃狱兄弟](https://www.blog.minike.top/Article/details/8029799471.shtml)
+- 2026-06-29 18:05 - [税务总局披露5起合规申报个税案例](https://www.blog.kurohicncr.top/Article/details/48053.shtml)
+- 2026-06-29 18:16 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/053374063317.shtml)
+- 2026-06-29 18:20 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/26160897752.shtml)
+- 2026-06-29 18:12 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.kurohicncr.top/Article/details/702640418.shtml)
+- 2026-06-29 18:00 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/77541393.shtml)
+- 2026-06-29 18:03 - [重度抑郁女孩没钱去做心理咨询](http://www.share.kurohicncr.top/Article/details/191829719.shtml)
+- 2026-06-29 18:21 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/85274509253.shtml)
+- 2026-06-29 18:06 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/192574.shtml)
+- 2026-06-29 18:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/858519505.shtml)

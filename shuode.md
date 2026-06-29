@@ -1,58 +1,61 @@
-# 英特尔携手富士康扩大AI基础设施布局
+# 日产预计年度净亏损收窄，成本削减成效显现
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-在Computex 2026上，英特尔与全球最大电子制造商富士康宣布达成战略合作，共同开发下一代AI基础设施及智能计算平台。此次合作旨在应对AI工作负载从训练向推理迁移带来的结构性变革，解决现代数据中心面临的关键瓶颈问题。 该合作将整合英特尔在处理器架构、硅技术和软件生态方面的优势，以及富士康的全球制造规模和系统集成专长，共同打造从芯片到机架的完整AI系统。双方将重点开发搭载英
+专题：聚焦美股2026年第一季度财报 这家日本车企预计上一财年净亏损达 34.5 亿美元 内容摘要 受美国排放法规调整及成本压缩措施推动，日产汽车预计截至 3 月的完整财年净亏损收窄至 5500 亿日元。 日产汽车表示，尽管全球销量持续下滑，但得益于美国排放新规调整带来的一次性收益与降本举措落地，全年净亏损将有所收窄。 这家日本车企正推进一系列重组计划：出售总部大楼、裁员、缩减
 
 ## 正文
 
-在Computex 2026上，英特尔与全球最大电子制造商富士康宣布达成战略合作，共同开发下一代AI基础设施及智能计算平台。
+专题：聚焦美股2026年第一季度财报 这家日本车企预计上一财年净亏损达 34.5 亿美元 内容摘要 受美国排放法规调整及成本压缩措施推动，日产汽车预计截至 3 月的完整财年净亏损收窄至 5500 亿日元。
 
-此次合作旨在应对AI工作负载从训练向推理迁移带来的结构性变革，解决现代数据中心面临的关键瓶颈问题。
+日产汽车表示，尽管全球销量持续下滑，但得益于美国排放新规调整带来的一次性收益与降本举措落地，全年净亏损将有所收窄。
 
-该合作将整合英特尔在处理器架构、硅技术和软件生态方面的优势，以及富士康的全球制造规模和系统集成专长，共同打造从芯片到机架的完整AI系统。
+这家日本车企正推进一系列重组计划：出售总部大楼、裁员、缩减生产基地与全球产能，以此削减成本、应对销量下滑。
 
-双方将重点开发搭载英特尔至强处理器和先进AI性能提升架构的服务器机架，并推进高速互连技术、系统遥测和液冷设计等领域的创新。
+本次业绩上调，是其近期迎来的又一利好信号。
 
-此次合作瞄准了AI工作负载结构的根本性转变。
+日产周一表示，美国排放监管政策放宽后，公司冲回了一笔相关减值拨备；同时，深度降本成果、有利的外汇汇率也进一步改善盈利预期。
 
-市场分析指出，随着AI应用从模型训练向智能体推理扩展，长期以来每颗CPU配比四颗GPU的格局正在向接近1：1的方向演变，CPU在数据中心中的地位正在回归。
+日元贬值有助于提升出口车型海外竞争力，并将海外营收换算为日元后增厚利润。
 
-英特尔首席执行官陈立武在主题演讲中表示：“五十多年来，英特尔携手生态伙伴推动PC、互联网及AI时代关键基础技术的发展。
+公司目前预估，截至 3 月的完整财年净亏损 5500 亿日元（约合 34.5 亿美元），较此前预测的 6500 亿日元亏损大幅收窄。
 
-当前推理、智能体和物理AI加速演进，英特尔正推进从芯片到系统级的创新突破。
+今年 2 月，日产首席执行官伊万・埃斯皮诺萨曾预警，重组带来的非现金减值支出将严重拖累利润。
 
 ## 相关推荐
 
-- 2026-06-29 18:17 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 18:04 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 18:08 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 18:14 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 18:04 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 18:10 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 18:00 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 17:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 18:14 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 17:56 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 17:57 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 17:55 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 18:01 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 17:57 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 17:56 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 18:19 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 18:16 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 18:15 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 18:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 18:13 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 17:54 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 18:09 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 18:11 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 18:07 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 18:04 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 17:55 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 18:01 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:10 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/782313972527.shtml)
-- 2026-06-29 17:52 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/71530274881.shtml)
-- 2026-06-29 17:58 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/52309381.shtml)
-- 2026-06-29 18:14 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/15987.shtml)
-- 2026-06-29 17:54 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/887305979.shtml)
-- 2026-06-29 18:05 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/40058187719.shtml)
-- 2026-06-29 17:53 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/482430175950.shtml)
-- 2026-06-29 17:48 - [滚石点名酒店员工说有急救培训](https://www.share.kurohicncr.top/Article/details/8676981867.shtml)
-- 2026-06-29 18:14 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/20555620898.shtml)
-- 2026-06-29 18:15 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/38488081060.shtml)
-- 2026-06-29 18:06 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.minike.top/Article/details/7217960349.shtml)
-- 2026-06-29 18:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/070772628505.shtml)
-- 2026-06-29 18:03 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/754850014608.shtml)
-- 2026-06-29 17:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/27674926613.shtml)
-- 2026-06-29 18:12 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/69095750.shtml)
+- 2026-06-29 18:01 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/4176844.shtml)
+- 2026-06-29 18:04 - [李在镕：计划将光州作为芯片生产基地](http://www.share.kurohicncr.top/Article/details/02338044.shtml)
+- 2026-06-29 17:57 - [人类对空调和其他家电有多双标](http://www.blog.kurohicncr.top/Article/details/34468.shtml)
+- 2026-06-29 18:04 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/50993713.shtml)
+- 2026-06-29 18:20 - [《贺子珍》](http://www.blog.minike.top/Article/details/67141726442.shtml)
+- 2026-06-29 18:02 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/952265912.shtml)
+- 2026-06-29 18:02 - [起风了](https://www.blog.kurohicncr.top/Article/details/565247.shtml)
+- 2026-06-29 18:12 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/32278695522.shtml)
+- 2026-06-29 18:04 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/6244051.shtml)
+- 2026-06-29 18:21 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/8040883.shtml)
+- 2026-06-29 17:56 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.kurohicncr.top/Article/details/7560151715.shtml)
+- 2026-06-29 18:18 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/859224.shtml)
+- 2026-06-29 18:03 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/99615.shtml)
+- 2026-06-29 18:05 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/5725818.shtml)
+- 2026-06-29 18:09 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/9257240.shtml)

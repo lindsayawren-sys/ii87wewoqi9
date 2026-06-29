@@ -1,61 +1,61 @@
-# 太空探索技术公司IPO引发多米诺效应
+# 受中东冲突影响，泰国财政部将今年经济增长预期下调至1.6%
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-太空探索技术公司（SpaceX）规模 750 亿美元的上市募资，影响范围远不止等着通过持股变现的公司员工与投资方。本次 IPO 还将成为衡量市场对科技企业上市热情的风向标，为安索帕（Anthropic）、开放人工智能（OpenAI）等一众巨头企业的重磅上市铺路。 芬威克律师事务所资本市场与上市公司业务联席主管兰・本 - 楚尔表示：倘若 SpaceX 上市遇冷，“原本计划在今年下
+受中东冲突影响，泰国财政部周二将今年经济增长预期从2.0%下调至1.6%，不过该部表示，政府采取的措施将对经济活动提供一定支撑。 泰国财政部财政政策办公室主任Vinit Visessuvanapoom在新闻发布会上表示，作为泰国经济增长关键动力的出口，今年预计将增长6.2%，而1月份的预测为增长1.0%。 他表示，战争推高了能源成本，但无需担心滞胀，因为通胀仍处于目标范围内，且
 
 ## 正文
 
-太空探索技术公司（SpaceX）规模 750 亿美元的上市募资，影响范围远不止等着通过持股变现的公司员工与投资方。
+受中东冲突影响，泰国财政部周二将今年经济增长预期从2.0%下调至1.6%，不过该部表示，政府采取的措施将对经济活动提供一定支撑。
 
-本次 IPO 还将成为衡量市场对科技企业上市热情的风向标，为安索帕（Anthropic）、开放人工智能（OpenAI）等一众巨头企业的重磅上市铺路。
+泰国财政部财政政策办公室主任Vinit Visessuvanapoom在新闻发布会上表示，作为泰国经济增长关键动力的出口，今年预计将增长6.2%，而1月份的预测为增长1.0%。
 
-芬威克律师事务所资本市场与上市公司业务联席主管兰・本 - 楚尔表示：倘若 SpaceX 上市遇冷，“原本计划在今年下半年登陆资本市场的其他企业，所能获得的机构投资资金将出现收缩。
+他表示，战争推高了能源成本，但无需担心滞胀，因为通胀仍处于目标范围内，且投资持续扩张，并补充说财政部和央行正在密切监测局势。
 
-” 他透露，律所多位筹备上市的客户正密切观望 SpaceX 的上市进程，以此敲定自身赴美上市计划。
+泰国财政部表示，预计今年整体通胀率将达到3.0%，而此前预测为0.3%。
 
-而连锁影响远不止于此。
+泰国央行的通胀目标区间为1%至3%。
 
-纳斯达克综合指数等主流股指大概率会加速将 SpaceX 个股纳入成分股，几乎会波及所有民众的 401 （k） 养老账户，同时牵动全球大盘走势。
+该部称，预计今年民间投资将增长3.2%，政府投资将增长1.7%，并补充称，预计今年民间消费将增长2.3%。
 
-如若 SpaceX 上市后股价表现低迷，其持股方或抛售英伟达、谷歌母公司字母表等科技巨头股票弥补亏损，进而拖累这类巨头股价。
+Vinit表示，增长预测已将政府支持措施纳入考量，其中包括一项消费补贴计划。
 
-此次上市还将检验资本市场对航天赛道与人工智能行业的投资意愿。
+政府还计划在10月前借贷最高5000亿泰铢（154.2亿美元）以支持经济。
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 17:56 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 17:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 17:48 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 18:00 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 17:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 18:12 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 17:48 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 17:54 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 18:09 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 18:14 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 17:48 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 17:49 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 18:03 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 18:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 18:01 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 18:12 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 18:16 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 18:23 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 18:20 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 18:11 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 18:23 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 18:14 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 17:57 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 18:05 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 18:04 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 18:06 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 17:59 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 18:05 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 18:18 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:07 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/958147347.shtml)
-- 2026-06-29 17:54 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/15427588906.shtml)
-- 2026-06-29 18:10 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/105248908.shtml)
-- 2026-06-29 18:03 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/513880324.shtml)
-- 2026-06-29 18:03 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/342867471.shtml)
-- 2026-06-29 18:10 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/7881067481.shtml)
-- 2026-06-29 18:14 - [明星大侦探第一季](https://www.share.minike.top/Article/details/36029761.shtml)
-- 2026-06-29 18:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/6302320.shtml)
-- 2026-06-29 18:01 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.minike.top/Article/details/9586788712.shtml)
-- 2026-06-29 17:52 - [和周杰伦在演唱会合唱了](http://www.blog.kurohicncr.top/Article/details/810422390.shtml)
-- 2026-06-29 18:11 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/599054.shtml)
-- 2026-06-29 18:00 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/29080.shtml)
-- 2026-06-29 18:16 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/35579173.shtml)
-- 2026-06-29 18:00 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/33845287.shtml)
-- 2026-06-29 17:51 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/368787.shtml)
+- 2026-06-29 18:18 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/30684.shtml)
+- 2026-06-29 18:23 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/781208462393.shtml)
+- 2026-06-29 18:08 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/61029976407.shtml)
+- 2026-06-29 18:20 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.minike.top/Article/details/80612964034.shtml)
+- 2026-06-29 18:23 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/9138046412.shtml)
+- 2026-06-29 18:04 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/3456782.shtml)
+- 2026-06-29 18:19 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/82340.shtml)
+- 2026-06-29 18:07 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/3765428531.shtml)
+- 2026-06-29 18:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/9935100.shtml)
+- 2026-06-29 17:55 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/955853.shtml)
+- 2026-06-29 18:10 - [扬名立万](http://www.share.minike.top/Article/details/446443038.shtml)
+- 2026-06-29 17:54 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/93735064.shtml)
+- 2026-06-29 17:54 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/0656553688.shtml)
+- 2026-06-29 18:18 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/8675815982.shtml)
+- 2026-06-29 18:03 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/2072940.shtml)

@@ -1,61 +1,56 @@
-# 山西高平深耕文旅营销 打造文旅康养魅力小城
+# 原油与股市重启交易，市场反应平淡
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-中新网晋城6月5日电 (杨佩佩 裴囡囡)记者5日从山西晋城高平市获悉，当地聚焦“城市形象、特色产品、传播矩阵、目标群体、产业链条、游客口碑”六个关键，坚持大抓文旅、大兴康养，推动文旅康养营销工作更有声势、更有效益。 挖掘炎帝文化，树立城市形象。高平市以“炎帝文化”为统领，依托神农炎帝故里、长平之战发生地、中国古建博物馆、上党梆子之乡“四张文化脸谱”，连续举办神农炎帝系列活动、炎
+油价走高 全球原油基准布伦特原油近月合约涨幅超 2%。6 月交割原油合约价格升至每桶约 107 美元，7 月远期合约价格涨至每桶约 101 美元。受战事影响，原油供应获取难度加大，市场愿意为短期可交付的现货原油支付溢价。 美国原油基准WTI 6 月合约上涨约 2%，报每桶 96 美元左右。 投资者与分析师持续密切关注霍尔木兹海峡航运受阻问题。这条位于伊朗与阿曼之间的狭窄水道，是
 
 ## 正文
 
-中新网晋城6月5日电 (杨佩佩 裴囡囡)记者5日从山西晋城高平市获悉，当地聚焦“城市形象、特色产品、传播矩阵、目标群体、产业链条、游客口碑”六个关键，坚持大抓文旅、大兴康养，推动文旅康养营销工作更有声势、更有效益。
+油价走高 全球原油基准布伦特原油近月合约涨幅超 2%。
 
-挖掘炎帝文化，树立城市形象。
+6 月交割原油合约价格升至每桶约 107 美元，7 月远期合约价格涨至每桶约 101 美元。
 
-高平市以“炎帝文化”为统领，依托神农炎帝故里、长平之战发生地、中国古建博物馆、上党梆子之乡“四张文化脸谱”，连续举办神农炎帝系列活动、炎帝灯会、炎帝庙会、马拉松赛等活动，持续擦亮“问祖炎帝 寻根高平”品牌，提升城市辨识度。
+受战事影响，原油供应获取难度加大，市场愿意为短期可交付的现货原油支付溢价。
 
-借助专业力量，打造特色产品。
+美国原油基准WTI 6 月合约上涨约 2%，报每桶 96 美元左右。
 
-高平市整合景区、酒店、餐饮、演艺等资源，特别是依托22处国保、22处省保、61个中国传统村落、5个中国历史文化名村，以及潞绸、珐华、上党梆子等非遗代表性项目，创新植入“有喜、有福、有乐、有礼、有戏”等文化元素，开发更多“高平好礼”。
+投资者与分析师持续密切关注霍尔木兹海峡航运受阻问题。
 
-同时引进专业团队，建成美术馆、音乐艺术馆等，策划音乐赛事、体育赛事，将专业优势转化为产品优势。
+这条位于伊朗与阿曼之间的狭窄水道，是全球油气运输的关键要道，日常承载全球五分之一的原油供给。
 
-整合宣传资源，构建传播矩阵。
+股市小幅走低 标普 500 指数期货显示，美国股市周一开盘后将小幅下跌 0.3%。
 
-高平市坚持线上线下联动，构建全方位、立体化的传播矩阵。
+该指数上周累计上涨约 0.5%，创下自 2024 年 10 月大选前夕以来首次连续四周收涨。
 
 ## 相关推荐
 
-- 2026-06-29 18:06 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 18:07 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 18:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 18:11 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 18:08 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 17:50 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 17:56 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 18:11 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 17:55 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 18:16 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 17:53 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 17:52 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 17:48 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 18:11 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 18:12 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 17:59 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 18:11 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 17:59 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 18:22 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 18:08 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 18:00 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 17:58 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 17:57 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 18:16 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 18:04 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:00 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/88026.shtml)
-- 2026-06-29 18:14 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/23324.shtml)
-- 2026-06-29 17:57 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/577937849275.shtml)
-- 2026-06-29 18:15 - [一生一世](http://www.blog.kurohicncr.top/Article/details/980060923940.shtml)
-- 2026-06-29 18:17 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/1047991.shtml)
-- 2026-06-29 18:00 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/61367140.shtml)
-- 2026-06-29 18:08 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/83183724.shtml)
-- 2026-06-29 18:03 - [世界杯在中国观看最多的比赛](https://www.blog.kurohicncr.top/Article/details/1842999514.shtml)
-- 2026-06-29 18:12 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/506098977013.shtml)
-- 2026-06-29 18:17 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/85409367463.shtml)
-- 2026-06-29 18:17 - [送你一朵小红花](http://www.blog.minike.top/Article/details/37066034685.shtml)
-- 2026-06-29 18:05 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/77512976.shtml)
-- 2026-06-29 18:12 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/087934.shtml)
-- 2026-06-29 18:06 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/18003978292.shtml)
-- 2026-06-29 18:12 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/4096933472.shtml)
+- 2026-06-29 17:59 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.minike.top/Article/details/863842687437.shtml)
+- 2026-06-29 18:17 - [千与千寻](https://www.share.kurohicncr.top/Article/details/9279742293.shtml)
+- 2026-06-29 18:02 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/0479599020.shtml)
+- 2026-06-29 18:23 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/50349.shtml)
+- 2026-06-29 18:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/0374333.shtml)
+- 2026-06-29 18:23 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/998851498365.shtml)
+- 2026-06-29 17:57 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/146039917554.shtml)
+- 2026-06-29 18:05 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/51999.shtml)
+- 2026-06-29 18:18 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/4692108.shtml)
+- 2026-06-29 17:59 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.kurohicncr.top/Article/details/3396858489.shtml)
+- 2026-06-29 18:13 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/099265647447.shtml)
+- 2026-06-29 18:15 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/389448312677.shtml)
+- 2026-06-29 18:09 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/4676363.shtml)
+- 2026-06-29 18:01 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/84466620.shtml)
+- 2026-06-29 18:06 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/70033240.shtml)

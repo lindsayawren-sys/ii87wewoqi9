@@ -1,61 +1,57 @@
-# 日本政府敲定超3万亿日元补充预算案
+# 特朗普在白宫迎接英国国王查尔斯进行国事访问
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-中新网东京6月3日电 (记者 朱晨曦)日本政府3日在临时内阁会议上批准了总额约为3.11万亿日元的2026财年补充预算案。该预算案已于当天提交众议院全体会议审议，政府计划推动该预算案5日在国会通过。 根据该预算案，此次补充预算将用于电力和燃气补贴、延续汽油价格补贴以及通过地方政府向液化石油气用户提供补贴等。其中，2.5万亿日元为“应对中东局势预备费”，主要用于继续实施汽油价格补
+美国总统唐纳德·特朗普在白宫欢迎来访的英国国王查尔斯三世。此次访问笼罩在对英美所谓“特殊关系”未来走向的疑虑之中，同时白宫记者协会晚宴枪击案也导致安全担忧重燃。 查尔斯及妻子卡米拉周一开启为期四天的访问，特朗普和第一夫人梅拉尼娅·特朗普迎接了他们。这是查尔斯自2022年登基以来首次对美国进行国事访问。两对夫妇在白宫南门廊握手并合影，然后进入白宫。 这项筹划已久的活动旨在纪念美国
 
 ## 正文
 
-中新网东京6月3日电 (记者 朱晨曦)日本政府3日在临时内阁会议上批准了总额约为3.11万亿日元的2026财年补充预算案。
+美国总统唐纳德·特朗普在白宫欢迎来访的英国国王查尔斯三世。
 
-该预算案已于当天提交众议院全体会议审议，政府计划推动该预算案5日在国会通过。
+此次访问笼罩在对英美所谓“特殊关系”未来走向的疑虑之中，同时白宫记者协会晚宴枪击案也导致安全担忧重燃。
 
-根据该预算案，此次补充预算将用于电力和燃气补贴、延续汽油价格补贴以及通过地方政府向液化石油气用户提供补贴等。
+查尔斯及妻子卡米拉周一开启为期四天的访问，特朗普和第一夫人梅拉尼娅·特朗普迎接了他们。
 
-其中，2.5万亿日元为“应对中东局势预备费”，主要用于继续实施汽油价格补贴政策。
+这是查尔斯自2022年登基以来首次对美国进行国事访问。
 
-日本政府将通过发行赤字国债来筹措资金。
+两对夫妇在白宫南门廊握手并合影，然后进入白宫。
 
-日本对中东能源高度依赖，由于中东紧张局势推高油价，日本政府3月启动油价补贴措施。
+这项筹划已久的活动旨在纪念美国脱离英国独立250周年，但鉴于特朗普最近与英国首相基尔·斯塔默围绕伊朗冲突发生的争执，此行背负着更加紧迫的外交使命。
 
-尽管日本政府已从2025财年预算预备费中拨出资金作为补贴来源，但国际油价维持高位，资金最快将于6月耗尽，政府预计届时还须进一步追加财政支出。
+尽管周六白宫记者协会在华盛顿举行的晚宴现场附近发生枪击事件，英方仍决定按计划进行访问。
 
-(完)
+特朗普周日表示，查尔斯将“非常安全”。
 
 ## 相关推荐
 
-- 2026-06-29 18:13 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 18:16 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 18:09 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 17:59 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 17:52 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 18:02 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 17:55 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 18:00 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 18:03 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 17:55 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 18:00 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 17:56 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 18:15 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 17:50 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 18:02 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 17:55 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 17:55 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 17:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 18:19 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 18:18 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 18:04 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 18:22 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 18:15 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 18:09 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 18:10 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 18:01 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:09 - [倪春青跨市履新苏州市委组织部部长](http://www.share.kurohicncr.top/Article/details/317547289.shtml)
-- 2026-06-29 17:59 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/52535378.shtml)
-- 2026-06-29 18:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/99102166.shtml)
-- 2026-06-29 18:05 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/239426527182.shtml)
-- 2026-06-29 17:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/27235874015.shtml)
-- 2026-06-29 18:03 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/4353037.shtml)
-- 2026-06-29 18:00 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/108856.shtml)
-- 2026-06-29 17:49 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/8310674043.shtml)
-- 2026-06-29 18:04 - [专家预计全球央行加息节奏将出现反复](http://www.blog.kurohicncr.top/Article/details/80165145.shtml)
-- 2026-06-29 18:15 - [一生一世](https://www.share.minike.top/Article/details/339085172414.shtml)
-- 2026-06-29 18:01 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/165646.shtml)
-- 2026-06-29 18:17 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.minike.top/Article/details/35803.shtml)
-- 2026-06-29 18:09 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.minike.top/Article/details/8110670.shtml)
-- 2026-06-29 17:58 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/606346.shtml)
-- 2026-06-29 17:55 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/640675060622.shtml)
+- 2026-06-29 18:23 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/561550593.shtml)
+- 2026-06-29 18:18 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/054066828269.shtml)
+- 2026-06-29 18:04 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/27503241459.shtml)
+- 2026-06-29 18:17 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/9620863618.shtml)
+- 2026-06-29 18:20 - [官媒首曝六代机？大V解读](https://www.blog.kurohicncr.top/Article/details/57296.shtml)
+- 2026-06-29 18:01 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/278353545.shtml)
+- 2026-06-29 18:01 - [评论员：日菲勾连各有盘算](http://www.blog.kurohicncr.top/Article/details/434146458.shtml)
+- 2026-06-29 17:58 - [官媒首曝六代机？大V解读](http://www.blog.kurohicncr.top/Article/details/52060.shtml)
+- 2026-06-29 18:24 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/643041.shtml)
+- 2026-06-29 18:06 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/77824.shtml)
+- 2026-06-29 18:20 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/1736202.shtml)
+- 2026-06-29 17:54 - [四川地震前夕 街头电线上站满燕子](https://www.blog.minike.top/Article/details/9041876339.shtml)
+- 2026-06-29 17:54 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/79893275992.shtml)
+- 2026-06-29 18:11 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/05257602106.shtml)
+- 2026-06-29 18:16 - [南昌市委书记调整](http://www.share.kurohicncr.top/Article/details/54115.shtml)

@@ -1,60 +1,56 @@
-# 澳门大学生福建宁德参访：愿做两地交流合作的“探索者”
+# 海口海关303会议室扩声系统更新项目比选公告
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-中新网宁德6月4日电 (记者 叶茂)来自澳门城市大学大健康学院社会工作学系的林燕琳，4日傍晚从福建省宁德市离开时说，下次再来时，希望自己不是作为一个“参观者”，而是作为一个“探索者”，未来可以转向“项目式”或“实习式”的深度互动。 6月3日至4日，“闽澳大学生阳光交流营”活动走进宁德市，近30名来自澳门多所高校，覆盖金融、文旅、大健康、智慧科技等多个专业的大学生实地探访产业园区
+一、采购条件 海口海关303会议室扩声系统更新项目已获批准实施，项目业主为中华人民共和国海口海关，项目资金来自财政资金，项目出资比例为100%，采购人为海口海关。项目已具备采购条件，现对该项目进行比选采购。 二、项目概况与采购范围 (一)项目名称：海口海关303会议室扩声系统更新项目；(二)为确保关区日常会议需求，拟采购海口海关303会议室扩声系统更新项目。项目具体内容及需求请
 
 ## 正文
 
-中新网宁德6月4日电 (记者 叶茂)来自澳门城市大学大健康学院社会工作学系的林燕琳，4日傍晚从福建省宁德市离开时说，下次再来时，希望自己不是作为一个“参观者”，而是作为一个“探索者”，未来可以转向“项目式”或“实习式”的深度互动。
+一、采购条件 海口海关303会议室扩声系统更新项目已获批准实施，项目业主为中华人民共和国海口海关，项目资金来自财政资金，项目出资比例为100%，采购人为海口海关。
 
-6月3日至4日，“闽澳大学生阳光交流营”活动走进宁德市，近30名来自澳门多所高校，覆盖金融、文旅、大健康、智慧科技等多个专业的大学生实地探访产业园区、海洋牧场、红色旧址与历史人文，近距离触摸宁德产业腾飞脉络、品读山海人文底蕴，探寻宁澳多元合作新机遇。
+项目已具备采购条件，现对该项目进行比选采购。
 
-澳门城市大学校董、澳门福建同乡总会副会长兼专业事务委员会主任陈倩雯表示，此行的目的，就是希望为澳门的年轻一代创造一个机会，让他们走出课堂，实地看看这里的发展，增进对家乡、对国家的认识，把所见所闻、所思所感带回澳门。
+二、项目概况与采购范围 (一)项目名称：海口海关303会议室扩声系统更新项目；(二)为确保关区日常会议需求，拟采购海口海关303会议室扩声系统更新项目。
 
-探产业、品人文，解码闽东魅力 其间，参访团一行先后走进企业生产一线、海上养殖基地，实地观摩锂电新能源、不锈钢领域、电机装备等特色产业发展实况，现代渔业转型升级图景让澳门学子耳目一新。
+项目具体内容及需求请参考《海口海关303会议室扩声系统更新项目采购需求书》； (三)交货期：合同签订之日起25日内交货并安装完毕可投入使用； (四)质保期：产品安装调试经用户验收合格当天起计算，质保期3年； (五)质量要求：达到国家及相关行业的合格标准； (六)最高限价：人民币95188.00元； (七)交货地点：海口市滨海大道61号。
 
-参访团还走进宁德市博物馆品读畲族民俗与闽东历史；参观宁德市“摆脱贫困”主题展览，回望宁德从东南沿海“黄金断裂带”迈向“福建省高质量发展新增长极”的蜕变历程；前往福安闽东苏区纪念馆寻访红色足迹，沉浸式感悟闽东红色文脉。
+三、比选申请人资格要求 (一)在中华人民共和国注册、具有独立承担民事责任的能力(企业需提供三证合一营业执照复印件、事业单位需提供事业单位法人证书复印件)； (二)具备能承办本项目的有效合法证照(证照中营业范围、业务范围与本项目相关)； (三)截至报名截止之日未被列入失信被执行人、重大税收违法失信主体、政府采购严重违法失信行为记录名单(需提供书面承诺函并加盖供应商公章，并且单位负责人签字或盖章)； (四)具有履行合同所必需的设备和专业技术能力(需提供书面承诺函并加盖供应商公章，并且单位负责人签字或盖章)； (五)参加本项目比选活动前三年内，在经营活动中没有重大违法记录(需提供书面声明函并加盖供应商公章，并且单位负责人签字或盖章)； (六)本次比选不接受联合体参加。
 
-澳门理工大学中葡翻译专业的黄希怡坦言，新能源工业参访震撼人心，红色场馆研学让人热血沸腾，宁德坚持科技实业与人文传承双线并行的发展路径令她印象深刻，“短短两天便让我生出如同‘第二故乡’的归属感”。
+四、报名及比选文件获取 (一)报名时间：2026年4月27日至2026年4月30日，上午8:30至12:00，下午14:30至17:00(北京时间，下同)； (二)报名地点：海口海关办公楼九楼904房(地址：海口市滨海大道61号海口海关)； (三)报名时须递交以下报名材料(材料均须加盖单位公章)： 1.介绍报名人前来报名的单位介绍信(含报名人手机号码及电子邮箱等)； 2.单位营业执照复印件或事业单位法人证书复印件； 3.报名人身份证复印件； (四)采购人根据报名情况，另行通知报名单位领取比选文件。
 
-话乡情、共追梦，激荡青年共鸣 在福安市举行的青年联谊交流会上，一场关于“留下”与“离开”的话题研讨成为交流焦点。
+五、响应文件递交 (一)响应文件递交的截止时间为2026年5月13日17:00，地点为海口海关办公楼九楼904房(海口市滨海大道61号海口海关)； (二)逾期送达的或者未送达指定地点的响应文件，采购人一律拒收。
 
-本土青年分享了从大城市返乡创业扎根乡土的亲身经历，有人深耕乡村文旅、有人投身本土实业，用实践印证“在家乡同样能实现人生理想”，这份扎根故土建设家乡的笃定与热忱，深深打动在场澳门学子。
+六、发布公告媒介 海口海关门户网。
 
 ## 相关推荐
 
-- 2026-06-29 17:52 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 18:15 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 18:07 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 17:49 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 18:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 18:00 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 18:09 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 17:55 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 18:02 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 17:52 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 17:50 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 18:04 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 18:12 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 18:08 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 18:16 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 18:00 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 18:00 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 18:20 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 18:23 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 18:16 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 18:06 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 18:20 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 18:22 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 18:21 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [四川地震前夕 街头电线上站满燕子](https://www.share.minike.top/Article/details/82035794314.shtml)
-- 2026-06-29 18:06 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/5312002307.shtml)
-- 2026-06-29 18:08 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/60638485.shtml)
-- 2026-06-29 17:56 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/57046.shtml)
-- 2026-06-29 18:10 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/148467922585.shtml)
-- 2026-06-29 18:07 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/38956165.shtml)
-- 2026-06-29 18:12 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/3291142.shtml)
-- 2026-06-29 17:57 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/62697491.shtml)
-- 2026-06-29 18:13 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/706378791.shtml)
-- 2026-06-29 18:00 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/8684398313.shtml)
-- 2026-06-29 18:14 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/815229460518.shtml)
-- 2026-06-29 17:59 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/95740431.shtml)
-- 2026-06-29 18:17 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/60680.shtml)
-- 2026-06-29 17:53 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.minike.top/Article/details/20539239.shtml)
-- 2026-06-29 18:16 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/86839845.shtml)
+- 2026-06-29 17:56 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/298337.shtml)
+- 2026-06-29 18:10 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/4014388597.shtml)
+- 2026-06-29 18:07 - [许建琼任湖南省检察院副检察长](http://www.share.minike.top/Article/details/56110422.shtml)
+- 2026-06-29 18:16 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/869599979.shtml)
+- 2026-06-29 17:54 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/01245726.shtml)
+- 2026-06-29 18:00 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.kurohicncr.top/Article/details/162278919.shtml)
+- 2026-06-29 18:15 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/2931066920.shtml)
+- 2026-06-29 18:15 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/2464844.shtml)
+- 2026-06-29 18:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/659138.shtml)
+- 2026-06-29 18:12 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/685710942425.shtml)
+- 2026-06-29 18:14 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/580277.shtml)
+- 2026-06-29 18:18 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/3719961539.shtml)
+- 2026-06-29 17:56 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/962907719.shtml)
+- 2026-06-29 18:12 - [沙丘](https://www.blog.kurohicncr.top/Article/details/2935445140.shtml)
+- 2026-06-29 18:16 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.minike.top/Article/details/397014721.shtml)

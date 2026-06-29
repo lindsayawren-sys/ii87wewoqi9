@@ -1,57 +1,54 @@
-# 银行股东会不再“走过场”，分红与薪酬争议升温
+# 中俄最大界湖兴凯湖进入明水捕捞期
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-随着上市银行2025年度股东大会陆续召开，过去鲜少出现异议的银行股东会正在发生变化。 第一财经记者注意到，近期，苏农银行、杭州银行、无锡银行、西安银行等多家上市银行股东大会上，部分议案遭遇较高比例反对票或弃权票，涉及利润分配、高管薪酬及公司治理等多个领域。 其中，苏农银行三项议案反对率超过10%，西安银行利润分配方案则收到约8亿股弃权票，杭州银行和无锡银行的高管薪酬议案也遭到中
+中新网鸡西4月26日电(郑成金 李敬宇 王世兴)26日零时起，中俄最大界湖兴凯湖进入明水捕捞期。 兴凯湖位于黑龙江省东南部，是中俄最大界湖。湖内鱼类资源丰富，共有鱼类6目12科65种，其中最为著名的是兴凯湖“大白鱼”和白虾。兴凯湖冬捕历史悠久，肃慎人6000多年前就在这里以捕鱼为生。 “兴凯湖已全面进入明水期，我们前期对渔船渔民进行审核，发放生产作业许可证件，下一步我们将持续加
 
 ## 正文
 
-随着上市银行2025年度股东大会陆续召开，过去鲜少出现异议的银行股东会正在发生变化。
+中新网鸡西4月26日电(郑成金 李敬宇 王世兴)26日零时起，中俄最大界湖兴凯湖进入明水捕捞期。
 
-第一财经记者注意到，近期，苏农银行、杭州银行、无锡银行、西安银行等多家上市银行股东大会上，部分议案遭遇较高比例反对票或弃权票，涉及利润分配、高管薪酬及公司治理等多个领域。
+兴凯湖位于黑龙江省东南部，是中俄最大界湖。
 
-其中，苏农银行三项议案反对率超过10%，西安银行利润分配方案则收到约8亿股弃权票，杭州银行和无锡银行的高管薪酬议案也遭到中小股东集中反对。
+湖内鱼类资源丰富，共有鱼类6目12科65种，其中最为著名的是兴凯湖“大白鱼”和白虾。
 
-多位受访业内人士认为，在净息差持续收窄、盈利增速放缓的背景下，投资者对银行的关注重点正从规模扩张转向股东回报与公司治理。
+兴凯湖冬捕历史悠久，肃慎人6000多年前就在这里以捕鱼为生。
 
-分红是否充分、薪酬是否合理、资本使用是否高效，正成为衡量银行价值的重要维度。
+“兴凯湖已全面进入明水期，我们前期对渔船渔民进行审核，发放生产作业许可证件，下一步我们将持续加大边境管控力度，严查越界捕捞和非法作业等违法犯罪行为，确保边境地区持续安全稳定。
 
-分红议案频遭挑战 在近期召开的年度股东大会中，苏农银行出现较为少见的集中反对现象。
+”鸡西边境管理支队兴凯湖边境派出所民警刘雨洋表示，明水捕捞期间，白鱼湾边境派出所、兴凯湖边境派出所民警将采取步巡、车巡、视频巡等方式，加强兴凯湖边境管理。
 
-根据公告，股东大会审议的12项议案中，有三项议案反对率超过10%。
-
-其中，《2026—2028年股东回报规划》议案反对票占比10.34%，持股5%以下中小股东反对比例达到14.8%；董事薪酬方案及董事、高级管理人员薪酬管理办法两项议案反对率也均超过10%。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:02 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 17:51 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 18:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 17:55 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 17:49 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 18:04 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 17:58 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 17:55 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 18:05 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 18:14 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 18:01 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 18:09 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 17:55 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 18:12 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 18:14 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 18:03 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 18:06 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 18:11 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 17:56 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 18:03 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 18:10 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:07 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/74509321.shtml)
-- 2026-06-29 18:13 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/1358699.shtml)
-- 2026-06-29 18:13 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/746098.shtml)
-- 2026-06-29 17:56 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/843306884425.shtml)
-- 2026-06-29 17:57 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/61251387.shtml)
-- 2026-06-29 17:53 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/097700671.shtml)
-- 2026-06-29 18:03 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/92924297681.shtml)
-- 2026-06-29 18:01 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/3171758.shtml)
-- 2026-06-29 17:53 - [爱很美味](https://www.share.kurohicncr.top/Article/details/413019.shtml)
-- 2026-06-29 17:53 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/449153281467.shtml)
-- 2026-06-29 17:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/216130767.shtml)
-- 2026-06-29 18:01 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/9028434.shtml)
-- 2026-06-29 18:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/387972.shtml)
-- 2026-06-29 18:08 - [刘扬任湖南省副省长](http://www.share.kurohicncr.top/Article/details/87009990.shtml)
-- 2026-06-29 17:48 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/6519663.shtml)
+- 2026-06-29 18:02 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/674361057.shtml)
+- 2026-06-29 18:15 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/2218573373.shtml)
+- 2026-06-29 18:21 - [官媒首曝六代机？大V解读](https://www.share.minike.top/Article/details/11975709264.shtml)
+- 2026-06-29 18:12 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/67923362095.shtml)
+- 2026-06-29 17:57 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/2389265648.shtml)
+- 2026-06-29 18:02 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/11269.shtml)
+- 2026-06-29 17:59 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/0197361.shtml)
+- 2026-06-29 17:58 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/693510616.shtml)
+- 2026-06-29 18:04 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/2200593013.shtml)
+- 2026-06-29 18:17 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/32383838.shtml)
+- 2026-06-29 18:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/772350127241.shtml)
+- 2026-06-29 18:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/360694.shtml)
+- 2026-06-29 18:10 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/02486.shtml)
+- 2026-06-29 18:16 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/340087.shtml)
+- 2026-06-29 18:00 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/7348065246.shtml)

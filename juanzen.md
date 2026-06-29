@@ -1,56 +1,54 @@
-# 宁夏“十五五”期间首个750千伏电网枢纽工程正式投运
+# 国际综艺《亚洲特快》打卡成都 展现“熊猫家园”魅力
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-中新网石嘴山6月5日电 (记者 于晶)6月5日，宁夏“十五五”期间首个750千伏电网枢纽工程——宁夏烽燧750千伏输变电工程正式投运。该工程的建成投运，标志着石嘴山电网从传统供电末端蝶变为区域核心电网枢纽，彻底补齐了宁夏北部主网架短板，全面优化了区域供电格局。 作为宁夏北部电网的核心枢纽，该工程总投资约14.39亿元，于2024年11月开工建设。工程涵盖新建烽燧750千伏变电站
+发布时间：2026年04月27日 20:23 来源：中国新闻网 4月27日，比利时Eccoline制片公司打造的《亚洲特快》罗马尼亚版第九季在成都进行拍摄。据悉，该节目在成都开启为期4天的实景拍摄，也是首次大规模聚焦中国城市，以“寻找熊猫”为核心主线，14名外籍选手将通过多元任务，向欧洲近20个国家的观众，立体呈现“熊猫家园”的独特魅力。 节目主持人Marius Damian接
 
 ## 正文
 
-中新网石嘴山6月5日电 (记者 于晶)6月5日，宁夏“十五五”期间首个750千伏电网枢纽工程——宁夏烽燧750千伏输变电工程正式投运。
+发布时间：2026年04月27日 20:23 来源：中国新闻网 4月27日，比利时Eccoline制片公司打造的《亚洲特快》罗马尼亚版第九季在成都进行拍摄。
 
-该工程的建成投运，标志着石嘴山电网从传统供电末端蝶变为区域核心电网枢纽，彻底补齐了宁夏北部主网架短板，全面优化了区域供电格局。
+据悉，该节目在成都开启为期4天的实景拍摄，也是首次大规模聚焦中国城市，以“寻找熊猫”为核心主线，14名外籍选手将通过多元任务，向欧洲近20个国家的观众，立体呈现“熊猫家园”的独特魅力。
 
-作为宁夏北部电网的核心枢纽，该工程总投资约14.39亿元，于2024年11月开工建设。
+节目主持人Marius Damian接受记者采访时表示，作为首次到访成都的游客，此前仅知晓成都“熊猫之都”的盛名，实地探访后发现城市随处可见大熊猫元素。
 
-工程涵盖新建烽燧750千伏变电站、沙湖750千伏间隔扩建、平罗电厂至沙湖Ⅰ回π入烽燧750千伏线路、烽燧至沙湖750千伏线路四大单项工程，全线新建铁塔162基，线路总长150公里。
+令他印象深刻的是，成都的现代建筑与自然环境融合极佳，整座城市如同大熊猫一般平和、有自身节奏，这种与自然相融的状态让他十分青睐，而大熊猫所象征的温柔特质，更让他对成都和大熊猫都充满喜爱。
 
-“全线布设大量灌注桩，最深桩基达55米，单基最大混凝土方量超1700方。
-
-”烽燧750千伏变电站新建工程总监理工程师王栋说，工程多处塔位地处黄河滩涂区域，土质松散、地下水位偏高，基础施工极易出现渗水、沉降等问题。
-
-面对重重难关，团队创新采用“支撑+定位+整体模板”一体化施工工艺，运用BIM技术前置策划，建成了宁夏首个750千伏HGIS无轨式防尘车间；依托自主专利攻克大跨管道施工难题，创新团队作业与现场管控模式，实现了二次配线正确率100%。
-
-在工程验收阶段，国网电力通过编制标准化验收大纲，实施“无人机+地面协同”的空地一体化验收，确保缺陷无处遁形。
+(记者何浠） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 17:52 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 17:57 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 17:59 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 18:06 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 18:01 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 18:05 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 18:13 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 18:12 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 18:04 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 17:51 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 17:56 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 18:11 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 18:04 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 18:04 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 17:58 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 18:13 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 18:16 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 17:59 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 18:22 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 18:03 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 18:17 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 18:00 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 18:01 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 18:07 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/791209861.shtml)
-- 2026-06-29 18:12 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/753426237085.shtml)
-- 2026-06-29 17:55 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/582914690125.shtml)
-- 2026-06-29 18:01 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/459826459.shtml)
-- 2026-06-29 17:52 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/040942835722.shtml)
-- 2026-06-29 17:55 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/890964316.shtml)
-- 2026-06-29 17:57 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/6900413641.shtml)
-- 2026-06-29 18:06 - [博主：黄金和原油回落不等于风险消失](http://www.blog.kurohicncr.top/Article/details/060390611.shtml)
-- 2026-06-29 18:13 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/3869805216.shtml)
-- 2026-06-29 17:55 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/6782718.shtml)
-- 2026-06-29 18:02 - [花万元相亲对象是50元雇的演员](https://www.share.kurohicncr.top/Article/details/22811.shtml)
-- 2026-06-29 18:05 - [官媒首曝六代机？大V解读](http://www.blog.kurohicncr.top/Article/details/66060272.shtml)
-- 2026-06-29 17:59 - [5万块的威力](https://www.share.minike.top/Article/details/90746.shtml)
-- 2026-06-29 18:08 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/7768576774.shtml)
-- 2026-06-29 17:59 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/97373508342.shtml)
+- 2026-06-29 18:17 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/135307.shtml)
+- 2026-06-29 18:23 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/98494366660.shtml)
+- 2026-06-29 18:04 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/165147824191.shtml)
+- 2026-06-29 18:03 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/72103472269.shtml)
+- 2026-06-29 18:23 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/967833462.shtml)
+- 2026-06-29 18:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/4616499.shtml)
+- 2026-06-29 17:58 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/8682337773.shtml)
+- 2026-06-29 18:15 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.minike.top/Article/details/936080420561.shtml)
+- 2026-06-29 18:14 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/9783397511.shtml)
+- 2026-06-29 18:12 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/098522.shtml)
+- 2026-06-29 18:07 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/41088463.shtml)
+- 2026-06-29 18:14 - [货车司机雨中帮交警挪树获表扬](http://www.share.kurohicncr.top/Article/details/002236.shtml)
+- 2026-06-29 18:13 - [请回答王牌2019](https://www.blog.minike.top/Article/details/63809779.shtml)
+- 2026-06-29 17:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/986678.shtml)
+- 2026-06-29 18:22 - [7款高价创新药有望降价](http://www.blog.minike.top/Article/details/60744315066.shtml)

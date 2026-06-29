@@ -1,59 +1,59 @@
-# 中信建投期货：6月5日农产品早报
+# 会计师事务所富睿玛泽进行重组，裁减3%美国员工
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-玉米：中性 1．市场关注：6月2日，最低收购价稻谷拍卖（不限定向）计划销售601155吨，实际成交仅43995吨，成交率7.32%，成交均价2706元/吨，糙米对于饲用玉米的替代优势非常有限。当前东北产区高成本贸易商已陷入亏损惜售、华北产区因麦收腾库而加速抛售，六月玉米预计继续承压运行。 2．观点总结：利空全面兑现，近千万吨芽麦仍需消化，观望为主 豆粕：中性偏空 1．北美良好天
+据知情人士透露，会计师事务所富睿玛泽（Forvis Mazars）裁减了约3%的美国员工。由于员工主动离职率低于预期，该公司正启动重组，此次裁员即是其中一环。 知情人士称，该公司上周通知员工，将裁员约250人，占其超过7700名美国员工总数的3%。审计、税务和咨询部门的人员均受到影响。 富睿玛泽在一份声明中表示：“我们定期评估当前的业务需求，以确保我们有能力为客户提供卓越服务，
 
 ## 正文
 
-玉米：中性 1．市场关注：6月2日，最低收购价稻谷拍卖（不限定向）计划销售601155吨，实际成交仅43995吨，成交率7.32%，成交均价2706元/吨，糙米对于饲用玉米的替代优势非常有限。
+据知情人士透露，会计师事务所富睿玛泽（Forvis Mazars）裁减了约3%的美国员工。
 
-当前东北产区高成本贸易商已陷入亏损惜售、华北产区因麦收腾库而加速抛售，六月玉米预计继续承压运行。
+由于员工主动离职率低于预期，该公司正启动重组，此次裁员即是其中一环。
 
-2．观点总结：利空全面兑现，近千万吨芽麦仍需消化，观望为主 豆粕：中性偏空 1．北美良好天气前景打压、中国采购信号缺乏，隔夜CBOT大豆延续下跌趋势。
+知情人士称，该公司上周通知员工，将裁员约250人，占其超过7700名美国员工总数的3%。
 
-同时，黎以停火进展推动地缘风险溢价降温，隔夜WTI原油一度下跌超4%，亦对农产品板块形成拖累。
+审计、税务和咨询部门的人员均受到影响。
 
-从美豆平衡表来看，月底种植面积调整以及中国采购能否兑现仍是两大关键变量。
+富睿玛泽在一份声明中表示：“我们定期评估当前的业务需求，以确保我们有能力为客户提供卓越服务，同时保持强大的人才梯队。
 
-就后者而言，国内任何大规模采购都有望使得期末库存重新回落至3亿蒲以内，进而对美盘形成支撑。
+我们有时会进行针对性的人员调整，以使人员配置水平与业务需求保持一致。
 
-2．截至6月2日，美豆产区干旱覆盖比例28%，周度环比增加1个百分点，较上周新增区域主要集中在伊利诺伊州北部。
+” 此次裁员发生的两年前，Forvis收购了玛泽的美国业务部门，作为一项新国际合作的一部分。
 
-Weather预报显示，未来一周核心玉米带及南部地区累计降雨量预计达到35-65毫米，平原地区降雨相对偏少，周度累计预计不足15毫米；产区最高气温普遍在27℃-32℃，天气条件整体有利于大豆早期生长。
+那次收购创造了一个年收入约50亿美元的全球审计和咨询网络。
 
 ## 相关推荐
 
-- 2026-06-29 18:12 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 17:48 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 18:07 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 18:00 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 17:59 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 18:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 18:11 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 17:51 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 17:55 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 17:48 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 17:55 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-29 18:12 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 18:06 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 18:22 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 18:22 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 18:02 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 18:00 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 18:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 18:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 18:16 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 18:00 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 18:15 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 18:20 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 18:00 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 18:04 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 18:02 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:48 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/57560.shtml)
-- 2026-06-29 17:58 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/7888009898.shtml)
-- 2026-06-29 17:53 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.minike.top/Article/details/1044160557.shtml)
-- 2026-06-29 18:11 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/4943351824.shtml)
-- 2026-06-29 17:51 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/14121358.shtml)
-- 2026-06-29 17:52 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/41044985.shtml)
-- 2026-06-29 17:48 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/580818717.shtml)
-- 2026-06-29 18:05 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/6705892521.shtml)
-- 2026-06-29 18:17 - [逆天祖国人](https://www.share.minike.top/Article/details/02515692883.shtml)
-- 2026-06-29 18:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/126129214402.shtml)
-- 2026-06-29 17:52 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/030739114.shtml)
-- 2026-06-29 18:03 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/26371587387.shtml)
-- 2026-06-29 17:53 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/751208589.shtml)
-- 2026-06-29 18:11 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/78115649841.shtml)
-- 2026-06-29 17:55 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/5197319366.shtml)
+- 2026-06-29 17:55 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/7693806.shtml)
+- 2026-06-29 18:23 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/9639904.shtml)
+- 2026-06-29 18:00 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/59820630565.shtml)
+- 2026-06-29 18:15 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/512563355.shtml)
+- 2026-06-29 18:04 - [两老人多次到一洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/13191581738.shtml)
+- 2026-06-29 17:56 - [毒液2](https://www.share.kurohicncr.top/Article/details/80248.shtml)
+- 2026-06-29 18:00 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.minike.top/Article/details/23388810333.shtml)
+- 2026-06-29 18:07 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/137116.shtml)
+- 2026-06-29 18:12 - [人形机器人](http://www.share.kurohicncr.top/Article/details/20057210.shtml)
+- 2026-06-29 18:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/69251.shtml)
+- 2026-06-29 17:54 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/3410340.shtml)
+- 2026-06-29 18:18 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/43237348723.shtml)
+- 2026-06-29 18:12 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/3794082387.shtml)
+- 2026-06-29 17:54 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/40692668936.shtml)
+- 2026-06-29 18:03 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.kurohicncr.top/Article/details/06897845732.shtml)

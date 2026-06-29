@@ -1,60 +1,60 @@
-# OEXN:油价回吐后仍看库存变化
+# 出现代办业务 “老字号”“非遗”遭山寨认证沦为造假生意
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-6月5日，OEXN表示，国际油价在连续上行后出现回吐，说明市场对扰动的反应开始从情绪驱动转向供需核算。即便短线紧张情绪略有缓和，交易员仍在重新评估美国库存收紧与运输风险之间的叠加影响。 就盘面表现而言，OEXN认为这轮回落更像是技术性整理，而不是对原油基本面进行彻底改写。美国库存此前释放出偏紧信号，使得市场难以迅速放下对供应端余量的担忧；同时，一旦航运与保险成本继续波动，原油价
+交钱就办、7天拿证、包邮到家—— “老字号”“非遗”遭山寨认证沦为造假生意 法学教授：社交平台应清理山寨认证账号，电商平台须严把入驻审查关 本报讯(记者时斓娜 实习生马凯)“拿块金字招牌”“在消费者心中打下百年传承的烙印”“拉开与杂牌的差距”……记者近日发现在一些社交平台上，隐秘地出现了“中华老字号”代办业务。在记者采访过程中，有代办机构表示，办理不看经营时间长短，只需要提供营
 
 ## 正文
 
-6月5日，OEXN表示，国际油价在连续上行后出现回吐，说明市场对扰动的反应开始从情绪驱动转向供需核算。
+交钱就办、7天拿证、包邮到家—— “老字号”“非遗”遭山寨认证沦为造假生意 法学教授：社交平台应清理山寨认证账号，电商平台须严把入驻审查关 本报讯(记者时斓娜 实习生马凯)“拿块金字招牌”“在消费者心中打下百年传承的烙印”“拉开与杂牌的差距”……记者近日发现在一些社交平台上，隐秘地出现了“中华老字号”代办业务。
 
-即便短线紧张情绪略有缓和，交易员仍在重新评估美国库存收紧与运输风险之间的叠加影响。
+在记者采访过程中，有代办机构表示，办理不看经营时间长短，只需要提供营业执照、法人身份信息，支付费用，7个工作日左右“中华老字号”证书和牌匾就能“包邮到家”。
 
-就盘面表现而言，OEXN认为这轮回落更像是技术性整理，而不是对原油基本面进行彻底改写。
+记者从某代办机构获取的一份委托服务合同显示，合同乙方为河北某公司，服务事项为办理中华老字号荣誉资质业务，服务费2500元，签约后一次性支付。
 
-美国库存此前释放出偏紧信号，使得市场难以迅速放下对供应端余量的担忧；同时，一旦航运与保险成本继续波动，原油价格弹性仍可能被重新放大。
+证书左上角是被认证公司名称，正中央赫然写着“中华老字号”……记者注意到，“花钱就能办”的“中华老字号”似乎以假乱真，但实际上却与载明“中华老字号”中英文字样和发证机关为“中华人民共和国商务部”的正规证书和牌匾差别很大。
 
-从节奏上看，原油短线或许会在风险溢价回落与库存收缩之间来回拉锯。
+在“自证真实”的过程中，商家基本都会提供可供查询、验证证书真伪的网址。
 
-若后续数据继续证实供应偏紧，价格中枢未必会明显下移，更多可能表现为震荡中的偏强修复。
+记者进入发证机构为某企业研究会的“中华老字号”证书上提供的“官网”，输入证书编号查询，确实能查到相关证书。
 
-后市方面，OEXN提到，判断油价是否重新转强，关键还是看库存变化、运力恢复效率以及市场对供应安全边际的重新定价；只要这几项指标没有显著改善，原油仍具备反复走强的条件。
+然而，当记者联系到其上级主管部门，得到的答复却是“经核实，该研究会从未设立官方网站”。
 
-参考链接： https：//www.investing.com/news/commodities-news/oil-dips-after-3day-surge-as-traders-watch-gulf-hostilities-us-stock-draw-4725511责任编辑：陈平
+“‘中华老字号’只能由商务部认定，其他任何机构的所谓‘中华老字号’认证，都不具有法律效力。
 
 ## 相关推荐
 
-- 2026-06-29 17:50 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 18:17 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 18:06 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 17:59 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 17:49 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 18:03 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 18:11 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 17:53 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 18:10 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 18:03 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 18:04 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 17:51 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 18:05 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 17:51 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 17:58 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 18:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 18:13 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 18:17 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 18:10 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 17:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 18:06 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 18:14 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 18:05 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 18:11 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 18:01 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 17:59 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 18:01 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 18:05 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/747495173.shtml)
-- 2026-06-29 18:09 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/01279.shtml)
-- 2026-06-29 18:15 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/14328379795.shtml)
-- 2026-06-29 17:57 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/833206241611.shtml)
-- 2026-06-29 18:17 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/6988918961.shtml)
-- 2026-06-29 17:53 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/4225442327.shtml)
-- 2026-06-29 18:13 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/99029264.shtml)
-- 2026-06-29 18:00 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/246393.shtml)
-- 2026-06-29 18:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/2361858.shtml)
-- 2026-06-29 17:58 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/90383364174.shtml)
-- 2026-06-29 18:01 - [人形机器人](https://www.share.minike.top/Article/details/3941085952.shtml)
-- 2026-06-29 17:56 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/7038587841.shtml)
-- 2026-06-29 17:56 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.kurohicncr.top/Article/details/925630.shtml)
-- 2026-06-29 17:53 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/857816048.shtml)
-- 2026-06-29 18:01 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.minike.top/Article/details/67327664.shtml)
+- 2026-06-29 18:02 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/8275119543.shtml)
+- 2026-06-29 18:18 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/418845.shtml)
+- 2026-06-29 17:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/77178090.shtml)
+- 2026-06-29 17:57 - [四川达州发生一起交通事故致2死](http://www.share.minike.top/Article/details/465211572389.shtml)
+- 2026-06-29 18:16 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/20811.shtml)
+- 2026-06-29 18:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/170226.shtml)
+- 2026-06-29 17:56 - [娜扎搂着我的腰和我合照](http://www.share.minike.top/Article/details/796031737.shtml)
+- 2026-06-29 18:09 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/959028713.shtml)
+- 2026-06-29 18:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/1153017.shtml)
+- 2026-06-29 18:05 - [T1零封KC MSI](http://www.share.minike.top/Article/details/335436645.shtml)
+- 2026-06-29 17:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/49638287951.shtml)
+- 2026-06-29 18:03 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/446382307.shtml)
+- 2026-06-29 18:08 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/114704768739.shtml)
+- 2026-06-29 18:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/68094.shtml)
+- 2026-06-29 17:56 - [沙丘](https://www.blog.minike.top/Article/details/342830.shtml)

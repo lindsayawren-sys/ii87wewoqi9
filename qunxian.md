@@ -1,60 +1,59 @@
-# 创投月报 | 高瓴创投：投资活跃度高位回落 AI、医疗双线并行
+# 华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-国内一级市场展现出显著的“K型”分化特征。基于公开数据不完全统计，2026年5月新增登记私募股权、创业投资基金管理人3家，同比增长50.0%、环比“腰斩”；新增备案私募股权基金123只、创业投资基金469只，合计新增592只，环比虽下降11.0%，但较2025年同期增长74.6%。 投资端呈“量跌价增”趋势，资金加速向头部项目集中。5月国内共发生股权投资事件568起，同比增长3
+发布时间：2026年04月27日 11:12 来源：中国新闻网 打卡中国美景、学做中国美食、解锁中式养生……华裔青年的留学生活有多充实？陈凯昇是一位马来西亚华裔，三年前他选择来到中国留学。这三年，他走遍20多个城市，在旅途中感受着中国人的好客、热情与大方。作为北京体育大学康复专业的学生，他也由此开启了中式养生的全新体验。从练习八段锦到学习针灸，他逐渐懂得了中国文化的博大精深。谈
 
 ## 正文
 
-国内一级市场展现出显著的“K型”分化特征。
+发布时间：2026年04月27日 11:12 来源：中国新闻网 打卡中国美景、学做中国美食、解锁中式养生……华裔青年的留学生活有多充实？
 
-基于公开数据不完全统计，2026年5月新增登记私募股权、创业投资基金管理人3家，同比增长50.0%、环比“腰斩”；新增备案私募股权基金123只、创业投资基金469只，合计新增592只，环比虽下降11.0%，但较2025年同期增长74.6%。
+陈凯昇是一位马来西亚华裔，三年前他选择来到中国留学。
 
-投资端呈“量跌价增”趋势，资金加速向头部项目集中。
+这三年，他走遍20多个城市，在旅途中感受着中国人的好客、热情与大方。
 
-5月国内共发生股权投资事件568起，同比增长33.6%，环比下降16.5%；披露投资总额达768.63亿元，再次刷新近一年内纪录，与4月相比提高2.7%，约为2025年5月的4.22倍。
+作为北京体育大学康复专业的学生，他也由此开启了中式养生的全新体验。
 
-创投Plus本月聚焦市场活跃度较高的3家机构，围绕其投资节奏、阶段、行业偏好以及被投项目等方面展开解读。
+从练习八段锦到学习针灸，他逐渐懂得了中国文化的博大精深。
 
-B轮获投项目占三分之一 超四成投资位于北京 中国证券投资基金业协会和天眼查公开披露的信息显示，高瓴创投是高瓴资本旗下专注投资早期创业公司的机构，聚焦生物医药及医疗器械、软件服务和原发科技创新、消费互联网及科技、新兴消费品牌及服务四大领域。
+谈及未来，他表示：“我想把中国大众注重体育的文化带回马来西亚，让更多人知道体育重要性。
 
-目前管理资本规模超过100亿元，以美元和人民币双币种模式运营。
-
-截至2026年5月，高瓴创投仅登记备案了珠海桐恒股权投资合伙企业（有限合伙）1只新基金，注册出资额为2150万元。
+” 责任编辑：【杜晓姣】
 
 ## 相关推荐
 
-- 2026-06-29 17:52 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 18:17 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 18:16 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 18:14 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 17:51 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 18:10 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 17:51 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 18:10 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 18:17 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 17:54 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 18:12 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 17:58 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 18:01 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 17:56 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 18:15 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 17:56 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 18:20 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 17:56 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 18:21 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 18:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 17:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 18:09 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 18:14 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 18:04 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 18:13 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 18:12 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 18:22 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 18:02 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 18:04 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [博主：黄金和原油回落不等于风险消失](https://www.blog.minike.top/Article/details/858722740.shtml)
-- 2026-06-29 18:15 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/72499934.shtml)
-- 2026-06-29 18:05 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/9316600551.shtml)
-- 2026-06-29 17:49 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/231243.shtml)
-- 2026-06-29 18:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/96284616182.shtml)
-- 2026-06-29 17:53 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/1768623.shtml)
-- 2026-06-29 18:15 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/9692868.shtml)
-- 2026-06-29 18:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/11180095.shtml)
-- 2026-06-29 17:56 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/9403600872.shtml)
-- 2026-06-29 17:48 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/5814501.shtml)
-- 2026-06-29 18:09 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/594876307650.shtml)
-- 2026-06-29 17:50 - [起风了](http://www.share.kurohicncr.top/Article/details/852650188.shtml)
-- 2026-06-29 18:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/373136888898.shtml)
-- 2026-06-29 17:55 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/89177.shtml)
-- 2026-06-29 18:15 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/86168.shtml)
+- 2026-06-29 18:05 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/963352068264.shtml)
+- 2026-06-29 18:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/985348.shtml)
+- 2026-06-29 18:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/7612756.shtml)
+- 2026-06-29 18:19 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/75656160306.shtml)
+- 2026-06-29 17:57 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/79761102925.shtml)
+- 2026-06-29 18:22 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/74240614443.shtml)
+- 2026-06-29 18:12 - [葛军谈AI时代理科生出路](https://www.blog.minike.top/Article/details/40202.shtml)
+- 2026-06-29 18:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/89514094.shtml)
+- 2026-06-29 18:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/333701166332.shtml)
+- 2026-06-29 18:12 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/700776488580.shtml)
+- 2026-06-29 18:06 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/2788103290.shtml)
+- 2026-06-29 18:04 - [业内：全球市场迎来结构性投资窗口](https://www.blog.kurohicncr.top/Article/details/77341945705.shtml)
+- 2026-06-29 17:59 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/9494071031.shtml)
+- 2026-06-29 18:19 - [绘画区你赢了](https://www.share.minike.top/Article/details/71561619007.shtml)
+- 2026-06-29 18:17 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/6038735251.shtml)

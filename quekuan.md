@@ -1,61 +1,54 @@
-# 担忧对美技术依赖加深，欧盟推出技术主权一揽子法案
+# 能源高价推升通胀风险，英债收益率走高
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-核心要点 欧盟高度依赖中美两国的技术产品与服务，为谋求技术主权，欧盟委员会周三推出多项新规，扶持本土芯片、人工智能以及云计算产业发展。 整套法案须经过欧盟 27 个成员国全部审议通过，配套举措涵盖扶持先进芯片制造、培育本土云计算产业。 CNBC 援引知情人士消息，欧盟正研究出台管控措施，限制成员国政府使用美国云平台处理涉密政务数据。 伴随全球地缘紧张局势升级，越来越多声音呼吁欧
+受高油价与能源供应中断持续发酵影响，通胀风险上行，英国国债收益率走高。美伊冲突背景下，重要航运要道霍尔木兹海峡持续关停，引发全球能源供给冲击。伦敦证券交易所集团数据显示，投资者已完全计价消化英国央行 2026 年加息两次以抑制通胀的预期。市场预计，英国央行将在本周四利率决议中维持基准利率不变。Tradeweb 数据显示，英国 10 年期国债收益率上行 3.6 个基点，最新报 4
 
 ## 正文
 
-核心要点 欧盟高度依赖中美两国的技术产品与服务，为谋求技术主权，欧盟委员会周三推出多项新规，扶持本土芯片、人工智能以及云计算产业发展。
+受高油价与能源供应中断持续发酵影响，通胀风险上行，英国国债收益率走高。
 
-整套法案须经过欧盟 27 个成员国全部审议通过，配套举措涵盖扶持先进芯片制造、培育本土云计算产业。
+美伊冲突背景下，重要航运要道霍尔木兹海峡持续关停，引发全球能源供给冲击。
 
-CNBC 援引知情人士消息，欧盟正研究出台管控措施，限制成员国政府使用美国云平台处理涉密政务数据。
+伦敦证券交易所集团数据显示，投资者已完全计价消化英国央行 2026 年加息两次以抑制通胀的预期。
 
-伴随全球地缘紧张局势升级，越来越多声音呼吁欧盟摆脱非欧盟主体的关键技术供应商，其中包含垄断欧洲市场的美国科技企业。
+市场预计，英国央行将在本周四利率决议中维持基准利率不变。
 
-欧盟委员会主席乌尔苏拉・冯德莱恩在声明中称：“支撑医疗机构运转、保障电网平稳运行、维系公共服务安全的关键技术，我们不能仰仗他国。
+Tradeweb 数据显示，英国 10 年期国债收益率上行 3.6 个基点，最新报 4.964%。
 
-” 欧盟官方公告显示，本次提案新增《云计算与人工智能发展法案（CADA）》。
-
-法案将在全欧盟落地分级管控框架，针对公共机构涉密业务划定不同等级的云服务主权标准，以此降低欧盟云计算依赖境外带来的各类风险。
-
-欧盟委员会执行副主席亨娜・维尔库宁向记者表示，欧盟旨在杜绝承接关键业务的云服务商手握一键关停业务的‘终止开关’。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 18:17 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 17:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 17:52 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 18:05 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 17:48 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 18:02 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 18:17 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 18:05 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 17:50 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 18:10 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 17:57 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 18:16 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 18:13 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 18:01 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 18:14 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 18:06 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 18:18 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 17:58 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 17:56 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 18:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 18:07 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 18:19 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 18:14 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 17:56 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 18:15 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 18:18 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 18:00 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:13 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/909009359531.shtml)
-- 2026-06-29 18:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/763679571.shtml)
-- 2026-06-29 17:54 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/16902.shtml)
-- 2026-06-29 18:00 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/968120511.shtml)
-- 2026-06-29 18:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/764596.shtml)
-- 2026-06-29 18:05 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/030191403981.shtml)
-- 2026-06-29 18:00 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/66260071115.shtml)
-- 2026-06-29 18:15 - [毒液2](http://www.share.minike.top/Article/details/71864891071.shtml)
-- 2026-06-29 18:01 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/77105135.shtml)
-- 2026-06-29 17:53 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/79424.shtml)
-- 2026-06-29 18:14 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/02484220.shtml)
-- 2026-06-29 18:05 - [中国空间站为什么要升级扩容](http://www.share.minike.top/Article/details/729376667008.shtml)
-- 2026-06-29 17:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/2642770.shtml)
-- 2026-06-29 17:56 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/65562345.shtml)
-- 2026-06-29 18:03 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/6456722.shtml)
+- 2026-06-29 18:05 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/94689116.shtml)
+- 2026-06-29 18:16 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/06406.shtml)
+- 2026-06-29 18:01 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/719990.shtml)
+- 2026-06-29 18:22 - [韩国小学生都来吐槽了](https://www.blog.kurohicncr.top/Article/details/25687.shtml)
+- 2026-06-29 18:13 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/99934.shtml)
+- 2026-06-29 18:15 - [扬名立万](https://www.share.kurohicncr.top/Article/details/138351754263.shtml)
+- 2026-06-29 18:15 - [葛军谈AI时代理科生出路](http://www.blog.minike.top/Article/details/26645715.shtml)
+- 2026-06-29 17:54 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/58795.shtml)
+- 2026-06-29 18:12 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/3377742.shtml)
+- 2026-06-29 17:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/869232.shtml)
+- 2026-06-29 18:16 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/1318601672.shtml)
+- 2026-06-29 17:56 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/51974060.shtml)
+- 2026-06-29 18:11 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/8923450900.shtml)
+- 2026-06-29 18:12 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/82183368543.shtml)
+- 2026-06-29 18:23 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/275963488534.shtml)

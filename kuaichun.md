@@ -1,47 +1,59 @@
-# 福建省住房和城乡建设厅党组成员、副厅长蒋金明被查
+# 比利时副首相兼外交大臣普雷沃将访华 中方介绍此访期待
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-中新网6月4日电 据福建省纪委监委消息：福建省住房和城乡建设厅党组成员、副厅长蒋金明涉嫌严重违纪违法，目前正接受福建省纪委监委纪律审查和监察调查。
+中新网北京4月27日电 (记者 张素 曾玥)中国外交部发言人27日宣布：应中共中央政治局委员、外交部长王毅邀请，比利时副首相兼外交大臣普雷沃于4月27日至5月1日访华。 当日外交部例行记者会上，有记者就此提问，中方如何评价当前中比关系？中方对此访有何期待？ 外交部发言人林剑表示，中比是全方位友好合作伙伴。近年来，双方高层交往频繁，在贸易投资、航运物流、生物医药等领域合作稳步推进
 
 ## 正文
 
-中新网6月4日电 据福建省纪委监委消息：福建省住房和城乡建设厅党组成员、副厅长蒋金明涉嫌严重违纪违法，目前正接受福建省纪委监委纪律审查和监察调查。
+中新网北京4月27日电 (记者 张素 曾玥)中国外交部发言人27日宣布：应中共中央政治局委员、外交部长王毅邀请，比利时副首相兼外交大臣普雷沃于4月27日至5月1日访华。
+
+当日外交部例行记者会上，有记者就此提问，中方如何评价当前中比关系？
+
+中方对此访有何期待？
+
+外交部发言人林剑表示，中比是全方位友好合作伙伴。
+
+近年来，双方高层交往频繁，在贸易投资、航运物流、生物医药等领域合作稳步推进，成效显著，切实造福两国人民。
+
+林剑说，今年是中比建交55周年，此次访问是普雷沃副首相兼外交大臣就任后首次访华。
+
+中方期待通过此访，同比方就双边关系和共同关心的国际地区问题深入交流，扩大共识、深化合作，推动中比关系持续健康稳定发展，为中欧关系发展作出新贡献。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:12 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 18:15 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 18:14 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 17:56 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 17:59 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 18:12 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 17:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 17:52 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 18:17 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 18:02 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 18:08 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 17:49 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 17:48 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 17:50 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 17:51 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 18:13 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 18:11 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 18:05 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 17:55 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 18:11 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 18:08 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 18:22 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 18:05 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 18:04 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 17:54 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 18:22 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 18:23 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 18:03 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:08 - [四川达州发生一起交通事故致2死](https://www.blog.minike.top/Article/details/955629.shtml)
-- 2026-06-29 17:53 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/5433152844.shtml)
-- 2026-06-29 18:04 - [周生如故](https://www.share.kurohicncr.top/Article/details/7230618784.shtml)
-- 2026-06-29 18:16 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/39224.shtml)
-- 2026-06-29 18:04 - [沉睡花园](https://www.share.minike.top/Article/details/6543651.shtml)
-- 2026-06-29 18:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/29614.shtml)
-- 2026-06-29 18:03 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/81766010.shtml)
-- 2026-06-29 18:03 - [葛军谈AI时代理科生出路](https://www.blog.kurohicncr.top/Article/details/4301623739.shtml)
-- 2026-06-29 18:02 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/56475431631.shtml)
-- 2026-06-29 17:56 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/789711662802.shtml)
-- 2026-06-29 18:02 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/9374107992.shtml)
-- 2026-06-29 18:14 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/49162781185.shtml)
-- 2026-06-29 18:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/5639514392.shtml)
-- 2026-06-29 18:09 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/700628438333.shtml)
-- 2026-06-29 18:15 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/916764.shtml)
+- 2026-06-29 18:15 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/62074.shtml)
+- 2026-06-29 18:14 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/67635499.shtml)
+- 2026-06-29 17:54 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/366395.shtml)
+- 2026-06-29 17:56 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/4630369.shtml)
+- 2026-06-29 18:06 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/62401.shtml)
+- 2026-06-29 18:05 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/884446061018.shtml)
+- 2026-06-29 18:13 - [极限挑战第一季](https://www.blog.minike.top/Article/details/30489038.shtml)
+- 2026-06-29 18:13 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/59420872158.shtml)
+- 2026-06-29 18:20 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/1045102.shtml)
+- 2026-06-29 17:58 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/127545195280.shtml)
+- 2026-06-29 17:56 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/2666904.shtml)
+- 2026-06-29 18:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/725592990.shtml)
+- 2026-06-29 18:22 - [天道](http://www.blog.minike.top/Article/details/5763306.shtml)
+- 2026-06-29 18:22 - [未成年少女长期吸毒导致卧床不起](https://www.share.kurohicncr.top/Article/details/461550749854.shtml)
+- 2026-06-29 17:57 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/15510422651.shtml)

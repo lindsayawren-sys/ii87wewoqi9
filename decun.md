@@ -1,60 +1,58 @@
-# Aeva将携AI交通智能平台亮相ITS America 2026
+# 三七互娱押中智谱：营收降了，但投资收益暴增9倍
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-下一代传感与感知系统领军企业Aeva Technologies宣布，将在2026年6月9日至12日于底特律举行的ITS美国大会暨博览会上，现场展示其人工智能驱动的CityOS实时交通智能平台。 CityOS是Aeva专为交通管理机构打造的综合解决方案。该平台融合了Aeva Atlas Orion 4D激光雷达传感器、边缘AI处理技术以及市场领先的感知与分析软件，能将普通路口和路
+游戏大厂集体“投AI”。 4月28日开盘，A股游戏厂商三七互娱（维权）（002555.SZ）一度涨近4%，截至10：30分报每股21.65元，涨2.36%，总市值478.9亿元。 4月27日晚，三七互娱发布2026年第一季度财报，一季度营收37.2亿元，同比下降12.3%；归母净利润为8.7亿元，同比增长59%；扣非后净利润6.1亿元，同比增长13.7%。 营收下降利润却上涨不
 
 ## 正文
 
-下一代传感与感知系统领军企业Aeva Technologies宣布，将在2026年6月9日至12日于底特律举行的ITS美国大会暨博览会上，现场展示其人工智能驱动的CityOS实时交通智能平台。
+游戏大厂集体“投AI”。
 
-CityOS是Aeva专为交通管理机构打造的综合解决方案。
+4月28日开盘，A股游戏厂商三七互娱（维权）（002555.SZ）一度涨近4%，截至10：30分报每股21.65元，涨2.36%，总市值478.9亿元。
 
-该平台融合了Aeva Atlas Orion 4D激光雷达传感器、边缘AI处理技术以及市场领先的感知与分析软件，能将普通路口和路段转化为具备实时交通态势感知能力的智能基础设施。
+4月27日晚，三七互娱发布2026年第一季度财报，一季度营收37.2亿元，同比下降12.3%；归母净利润为8.7亿元，同比增长59%；扣非后净利润6.1亿元，同比增长13.7%。
 
-与传统摄像头或感应线圈系统不同，CityOS采用调频连续波技术，可在各种光照和天气条件下持续运行。
+营收下降利润却上涨不少。
 
-它能够以厘米级精度同时测量道路上车辆、行人、骑行者等所有目标的位置与速度，有效弥补了传统系统在恶劣天气或光线不足时易失效、无法直接测速等短板。
+财报提及，业绩增长主要源于主营游戏业务增长及投资收益贡献。
 
-在ITS展会上，Aeva将重点演示CityOS的六大核心能力：全时全天候持续检测、基于4D激光雷达的实时路口监控、弱势道路使用者保护与碰撞风险预警、交通信号自适应优化、面向运管中心的综合分析仪表盘，以及高分辨率数据驱动的交通规划支持。
+不过相较主营业务，更被业界所关注的是三七互娱的投资收益：一季度同比增长达981%，增加3.26亿元。
 
-此次亮相建立在Aeva CityOS的实战成果之上。
+财报提及，报告期内三七互娱通过联营企业投资的智谱AI（北京智谱华章科技股份有限公司）挂牌上市，智谱股价变动导致联营企业公允价值变动收益有所上升，公司按持股比例相应确认了投资收益。
 
-今年3月，佐治亚州交通部已选定该平台，在亚特兰大都会区30个新增路口进行大规模部署。
+智谱在今年1月顶着“大模型第一股”的光环登陆港股，发行价116.2港元，此后三个月股价一路飙升，就在上周盘中触及1078港元的高点，涨幅超过9倍。
 
 ## 相关推荐
 
-- 2026-06-29 18:09 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 18:08 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 18:04 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 18:08 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 18:00 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 18:17 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 17:56 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 18:11 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 18:06 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 18:04 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 17:51 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 18:14 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 17:50 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 18:05 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 18:08 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 17:56 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 18:06 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 18:14 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 18:11 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 18:01 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 18:22 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 18:07 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 18:14 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 18:00 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 18:18 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 18:02 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:03 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/2378307611.shtml)
-- 2026-06-29 18:13 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/95648372229.shtml)
-- 2026-06-29 17:56 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/51700404191.shtml)
-- 2026-06-29 18:07 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/399333.shtml)
-- 2026-06-29 18:05 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/806551649.shtml)
-- 2026-06-29 18:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/2698919.shtml)
-- 2026-06-29 17:49 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/6927939713.shtml)
-- 2026-06-29 17:48 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/4994900.shtml)
-- 2026-06-29 17:54 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/13738925.shtml)
-- 2026-06-29 17:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/028394700.shtml)
-- 2026-06-29 17:57 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/7914885.shtml)
-- 2026-06-29 18:12 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/24341.shtml)
-- 2026-06-29 17:51 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/695304218341.shtml)
-- 2026-06-29 17:59 - [葛军谈AI时代理科生出路](http://www.share.kurohicncr.top/Article/details/7503090.shtml)
-- 2026-06-29 18:02 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/730145642789.shtml)
+- 2026-06-29 18:02 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/4338620370.shtml)
+- 2026-06-29 18:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/862973.shtml)
+- 2026-06-29 18:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/3731551.shtml)
+- 2026-06-29 18:15 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/659323.shtml)
+- 2026-06-29 18:16 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/22994770.shtml)
+- 2026-06-29 18:15 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.kurohicncr.top/Article/details/887443881766.shtml)
+- 2026-06-29 18:17 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/382516.shtml)
+- 2026-06-29 18:01 - [首个靠AI躺赢的国家](http://www.share.minike.top/Article/details/5551372.shtml)
+- 2026-06-29 18:12 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/539840199.shtml)
+- 2026-06-29 17:54 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/9113161.shtml)
+- 2026-06-29 18:05 - [官媒首曝六代机？大V解读](https://www.blog.minike.top/Article/details/652841108813.shtml)
+- 2026-06-29 18:16 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/443544326.shtml)
+- 2026-06-29 18:23 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/475383150682.shtml)
+- 2026-06-29 18:06 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/911556.shtml)
+- 2026-06-29 18:23 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/44451.shtml)

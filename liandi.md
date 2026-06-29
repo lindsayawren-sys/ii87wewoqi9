@@ -1,43 +1,58 @@
-# 国务院食安办成立工作组督导查处“望奎双汇猪肉抗生素超标问题”
+# 跟着亚沙会游海南：走进崖州千年古村 品味六百年传承古调
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-中新网6月5日电 据“市说新语”微信公众号消息，针对近日媒体反映的“望奎双汇猪肉抗生素超标问题”，国务院食安办高度重视，会同公安部、农业农村部、市场监管总局成立工作组，赴实地督促指导核查处置工作，严肃查处违法违规行为，切实守牢食用农产品质量安全底线。
+中新网三亚4月27日电 题：跟着亚沙会游海南：走进崖州千年古村 品味六百年传承古调 作者 张月和 第六届亚洲沙滩运动会(简称“三亚亚沙会”)正在三亚如火如荼地进行，不同于赛场内运动健儿们劈波逐浪，在三亚市崖州区，一座千年古村静静伫立，等待着世界各地人们前来探访。 近日，参与三亚亚沙会报道的中外媒体记者走进保平村采风，感受千年崖州文化的独特魅力。这座曾因古代海上丝绸之路兴盛的“天
 
 ## 正文
 
-中新网6月5日电 据“市说新语”微信公众号消息，针对近日媒体反映的“望奎双汇猪肉抗生素超标问题”，国务院食安办高度重视，会同公安部、农业农村部、市场监管总局成立工作组，赴实地督促指导核查处置工作，严肃查处违法违规行为，切实守牢食用农产品质量安全底线。
+中新网三亚4月27日电 题：跟着亚沙会游海南：走进崖州千年古村 品味六百年传承古调 作者 张月和 第六届亚洲沙滩运动会(简称“三亚亚沙会”)正在三亚如火如荼地进行，不同于赛场内运动健儿们劈波逐浪，在三亚市崖州区，一座千年古村静静伫立，等待着世界各地人们前来探访。
+
+近日，参与三亚亚沙会报道的中外媒体记者走进保平村采风，感受千年崖州文化的独特魅力。
+
+这座曾因古代海上丝绸之路兴盛的“天涯驿站”，正以岁月沉淀的悠然气质，向四海宾朋讲述海南独特的文化故事。
+
+留住时光的古建筑群 保平村古称毕兰村，是古崖州的边关重镇，也是古代海上丝绸之路必经的歇脚之地。
+
+唐宋时期，宁远河水灾冲毁旧村，村民移居现址，取“保世代平安”之意更名为保平村。
+
+因港而兴的保平村在港口外移后逐渐归于沉静，却为三亚留下了宝贵的历史文化馈赠。
+
+走入村中，青石板路两侧的明清古宅林立。
+
+这40余座古宅是海南最有代表性、保存最集中的明清建筑群。
 
 ## 相关推荐
 
-- 2026-06-29 18:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 17:50 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 17:52 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 17:52 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 17:53 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 18:04 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 18:12 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 18:10 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 17:59 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 18:02 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 17:48 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 18:15 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 18:22 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 18:11 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 18:16 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 17:56 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 17:54 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 18:01 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 18:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 18:11 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 18:09 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 18:23 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 18:16 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:09 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/943444701.shtml)
-- 2026-06-29 18:12 - [中国战机大片上新](https://www.blog.minike.top/Article/details/7228360.shtml)
-- 2026-06-29 18:11 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/372385661.shtml)
-- 2026-06-29 18:01 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/603584926.shtml)
-- 2026-06-29 18:02 - [流金岁月](https://www.blog.minike.top/Article/details/616291.shtml)
-- 2026-06-29 18:10 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/307856068381.shtml)
-- 2026-06-29 17:56 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/992773.shtml)
-- 2026-06-29 17:52 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/594758.shtml)
-- 2026-06-29 18:08 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/901113447535.shtml)
-- 2026-06-29 18:16 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/876295421.shtml)
-- 2026-06-29 18:12 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/9206486890.shtml)
-- 2026-06-29 18:18 - [互助版模拟高考志愿填报](https://www.blog.kurohicncr.top/Article/details/603404523.shtml)
-- 2026-06-29 18:14 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/9357436300.shtml)
-- 2026-06-29 17:52 - [税务总局披露5起合规申报个税案例](https://www.blog.minike.top/Article/details/006265.shtml)
-- 2026-06-29 18:05 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/228048.shtml)
+- 2026-06-29 18:09 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/6343524944.shtml)
+- 2026-06-29 18:06 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/9003007.shtml)
+- 2026-06-29 17:55 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/24185562.shtml)
+- 2026-06-29 18:20 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/15737.shtml)
+- 2026-06-29 18:18 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/592476825.shtml)
+- 2026-06-29 17:55 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/1101530170.shtml)
+- 2026-06-29 18:10 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/45720967.shtml)
+- 2026-06-29 18:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/517125041.shtml)
+- 2026-06-29 18:05 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/880286186682.shtml)
+- 2026-06-29 18:17 - [毛朝晖任湖南省农业农村厅厅长](http://www.blog.kurohicncr.top/Article/details/759022.shtml)
+- 2026-06-29 18:08 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/94943408.shtml)
+- 2026-06-29 18:00 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/83796032.shtml)
+- 2026-06-29 17:57 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/68777519913.shtml)
+- 2026-06-29 17:57 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/604674.shtml)
+- 2026-06-29 18:09 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/3946285457.shtml)

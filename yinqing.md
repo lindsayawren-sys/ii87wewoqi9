@@ -1,58 +1,61 @@
-# 央行7天期逆回购连续两日零操作 资金面仍显宽松
+# “五一”假期北京多区将推出系列活动 丰富假日文旅供给
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-每经记者|张寿林 今天，人民银行公开市场业务操作室披露，根据公开市场业务一级交易商的需求，当日7天期逆回购操作量为零。值得注意的是，这已是公开市场业务7天期逆回购连续第二日零操作。 回溯5月，央行通过各类货币政策工具合计净回笼流动性3809亿元，结合货币市场多项监测指标来看，近期市场流动性整体处于偏充裕状态。 东方金诚首席宏观分析师王青指出，近期公开市场逆回购持续调减至0元，释
+中新网北京4月27日电 (记者 陈杭)北京超级草莓音乐节、北京极限运动汇、光影实景大秀“长城塔秀”……今年“五一”假期，北京延庆、石景山、密云等区将推出一系列形式多样、内容丰富的特色活动，丰富假日文旅供给。 延庆推介五一假日文旅产品 延庆区五一假日推介活动暨百里山水画廊“春启山水”主题活动近日在北京市延庆区千家店镇硅化木国家地质公园启动，发布6条“跟着赛事游延庆”“跟着音乐游延
 
 ## 正文
 
-每经记者|张寿林 今天，人民银行公开市场业务操作室披露，根据公开市场业务一级交易商的需求，当日7天期逆回购操作量为零。
+中新网北京4月27日电 (记者 陈杭)北京超级草莓音乐节、北京极限运动汇、光影实景大秀“长城塔秀”……今年“五一”假期，北京延庆、石景山、密云等区将推出一系列形式多样、内容丰富的特色活动，丰富假日文旅供给。
 
-值得注意的是，这已是公开市场业务7天期逆回购连续第二日零操作。
+延庆推介五一假日文旅产品 延庆区五一假日推介活动暨百里山水画廊“春启山水”主题活动近日在北京市延庆区千家店镇硅化木国家地质公园启动，发布6条“跟着赛事游延庆”“跟着音乐游延庆”主题路线。
 
-回溯5月，央行通过各类货币政策工具合计净回笼流动性3809亿元，结合货币市场多项监测指标来看，近期市场流动性整体处于偏充裕状态。
+其中，“跟着赛事游延庆”包含3条路线，“勇士逐梦行”聚焦斯巴达勇士儿童赛、古生物研学、梦华长城情境剧及航天嘉年华；“重装越长城”以八达岭水关长城重装徒步为起点，结合百里山水画廊与滴水壶游览；“激战神机营”将世园WarGame运动邀请赛、花园节赏花、后备箱市集与八达岭夜长城有机串联。
 
-东方金诚首席宏观分析师王青指出，近期公开市场逆回购持续调减至0元，释放了稳定资金面、避免主要市场利率过度向下偏离政策利率、防范资金空转的信号，有助于稳定市场预期。
+延庆区千家店镇立足不同年龄、不同爱好的游客特点，推出涧畔放松游等7条特色旅游产品路线：全家出游可打卡干沟网红景致、寻觅恐龙足迹，历史爱好者可走进朝阳古寺、邂逅古树、品尝铁锅鱼宴等。
 
-从资金面看，截至6月4日发稿前，DR001加权平均值为1.3247%，DR007加权平均值为1.3478%；6月3日，DR001加权平均值为1.3229%，DR007加权平均值为1.3428%。
+北京超级草莓音乐节将火热开唱 北京世园国际旅游度假区策划音乐演艺、体育赛事、文旅市集、节庆活动、亲子研学、航天科普六大类别，于4月25日至5月5日推出三十余项近百场特色文旅体验活动，打造京郊休闲度假新体验。
 
-货币市场DR007运行于政策利率锚下方较低水平，提示即便流动性连续0元投放，资金面依然宽松。
+其中，2026北京超级草莓音乐节将于5月2日至4日火热开唱。
 
-当前公开市场操作7天期逆回购利率为政策利率锚，利率水平为1.4%。
+本次音乐节集结国内外五十余组实力艺人，带来多风格、高品质的现场演出，用潮流音乐点燃假日氛围。
 
-《每日经济新闻》记者注意到，就在上周四（5月28日），同业存单发行加权平均利率低至1.36%。
+音乐节期间，每晚北京世园国际营地交流中心将举办歌友会，为乐迷搭建交流沟通平台。
 
 ## 相关推荐
 
-- 2026-06-29 17:49 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 18:01 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 18:12 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 17:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 18:12 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 18:07 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 18:17 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 17:55 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 18:00 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 18:12 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 18:11 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 18:13 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 18:05 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 17:57 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 18:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 18:00 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 18:09 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 18:19 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 18:20 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 18:16 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 18:17 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 18:19 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 18:14 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 18:08 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 17:58 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 18:22 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 18:17 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:01 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/23278.shtml)
-- 2026-06-29 18:10 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/8078999599.shtml)
-- 2026-06-29 18:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/697684870712.shtml)
-- 2026-06-29 18:11 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/34591529.shtml)
-- 2026-06-29 18:13 - [千与千寻](https://www.share.minike.top/Article/details/414004158509.shtml)
-- 2026-06-29 18:13 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/9183498.shtml)
-- 2026-06-29 17:59 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/62566056.shtml)
-- 2026-06-29 17:59 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.kurohicncr.top/Article/details/92582.shtml)
-- 2026-06-29 18:06 - [世界杯在中国观看最多的比赛](http://www.blog.minike.top/Article/details/86512322985.shtml)
-- 2026-06-29 17:52 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/25400.shtml)
-- 2026-06-29 17:52 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/74222865059.shtml)
-- 2026-06-29 18:03 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/35511147150.shtml)
-- 2026-06-29 17:55 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/109077827.shtml)
-- 2026-06-29 17:53 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.minike.top/Article/details/32285.shtml)
-- 2026-06-29 17:54 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/791389461784.shtml)
+- 2026-06-29 17:54 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/800016865.shtml)
+- 2026-06-29 18:13 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/502420807903.shtml)
+- 2026-06-29 18:09 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/039534.shtml)
+- 2026-06-29 18:09 - [人形机器人](https://www.share.kurohicncr.top/Article/details/5890771589.shtml)
+- 2026-06-29 17:56 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/19627.shtml)
+- 2026-06-29 18:11 - [女心理师](https://www.share.kurohicncr.top/Article/details/37725053.shtml)
+- 2026-06-29 17:56 - [两老人多次到一洗车店泼粪](http://www.share.minike.top/Article/details/989161159334.shtml)
+- 2026-06-29 17:54 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/361297.shtml)
+- 2026-06-29 18:09 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/3590961265.shtml)
+- 2026-06-29 18:09 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/7947773.shtml)
+- 2026-06-29 18:05 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/5164094360.shtml)
+- 2026-06-29 18:04 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/8714895.shtml)
+- 2026-06-29 17:58 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/09576.shtml)
+- 2026-06-29 18:21 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/72281.shtml)
+- 2026-06-29 18:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/61566055.shtml)

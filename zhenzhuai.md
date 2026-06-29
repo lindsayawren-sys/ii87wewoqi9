@@ -1,59 +1,50 @@
-# 粉笔CEO去年薪酬为272万 因人大演讲时辱骂学生，粉笔股价单日市值蒸发1.32亿港元
+# 泰王国驻昆总领事帕薇婉：昆明泰国节是与市民的一场双向奔赴
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：新黄河 6月4日上午，粉笔科技（02469.HK）CEO张小龙通过个人微博账号就人大讲座风波发布致歉信。 因受张小龙不当言论一事影响，粉笔股价全天单边下挫，截至6月4日收盘，该股股价报0.61港元，总市值约13.5亿港元。受当日8.96%的跌幅影响，单日市值蒸发约1.32亿港元。 在官方致歉的同时，网络流传出多张讲座现场的
+发布时间：2026年04月26日 20:52 来源：中国新闻网 近日，2026昆明·泰国节在昆明举行，热度持续不减。自2008年泰王国驻昆明总领事馆创办首届以来，这个集传统演艺、特色市集与手工体验于一体的中泰文化交流活动，已与昆明市民结下跨越16届的“泰式约定”，并被列为泰国全球97个驻外机构中仅有的12个“旗舰泰国节”之一。 “如果昆明市民离不开我们的泰国节，我们的泰国节更离
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：新黄河 6月4日上午，粉笔科技（02469.HK）CEO张小龙通过个人微博账号就人大讲座风波发布致歉信。
+发布时间：2026年04月26日 20:52 来源：中国新闻网 近日，2026昆明·泰国节在昆明举行，热度持续不减。
 
-因受张小龙不当言论一事影响，粉笔股价全天单边下挫，截至6月4日收盘，该股股价报0.61港元，总市值约13.5亿港元。
+自2008年泰王国驻昆明总领事馆创办首届以来，这个集传统演艺、特色市集与手工体验于一体的中泰文化交流活动，已与昆明市民结下跨越16届的“泰式约定”，并被列为泰国全球97个驻外机构中仅有的12个“旗舰泰国节”之一。
 
-受当日8.96%的跌幅影响，单日市值蒸发约1.32亿港元。
+“如果昆明市民离不开我们的泰国节，我们的泰国节更离不开你们。
 
-在官方致歉的同时，网络流传出多张讲座现场的文字实录截图。
+”泰王国驻昆明总领事馆总领事帕薇婉接受专访时说道。
 
-其中，一段关于其个人资金规模及炒股收益的表述在社交平台引发讨论。
-
-根据流传的讲座现场记录，张小龙在演讲中称，整个5月份都在使用多种AI模型学习和分析AI产业链相关股票。
-
-他对比称，过去投资一只股票需要研究行业基本面、查阅年报、咨询券商和分析师，现在沟通方式已发生改变。
-
-在该段记录中，张小龙提及了自己的资金状况：“我自己没有很多钱，我总共手里的这个现金，那肯定比你们很大部分同学是多一点的。
+(白玲 袁鸿凯 王玉菲） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 17:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 18:11 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 18:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 18:03 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 17:57 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 18:08 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 18:17 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 18:11 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 17:50 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 18:02 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 17:57 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 18:04 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 18:09 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 17:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 18:14 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 17:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 18:08 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 18:21 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 18:12 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 18:07 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 18:01 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 17:55 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 18:01 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:06 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/8149465893.shtml)
-- 2026-06-29 18:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/2918671.shtml)
-- 2026-06-29 18:16 - [章若楠包场白敬亭特立独行](http://www.blog.kurohicncr.top/Article/details/8102592446.shtml)
-- 2026-06-29 17:50 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/1318919.shtml)
-- 2026-06-29 18:03 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/4298746811.shtml)
-- 2026-06-29 18:08 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/57915849.shtml)
-- 2026-06-29 17:57 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/928240530.shtml)
-- 2026-06-29 18:17 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/87176615.shtml)
-- 2026-06-29 18:12 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/7772416019.shtml)
-- 2026-06-29 18:15 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/900104.shtml)
-- 2026-06-29 18:10 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/65088821770.shtml)
-- 2026-06-29 17:48 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/87241.shtml)
-- 2026-06-29 17:53 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/16736348772.shtml)
-- 2026-06-29 18:08 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/46425507790.shtml)
-- 2026-06-29 18:09 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/485241200.shtml)
+- 2026-06-29 18:08 - [急先锋](https://www.blog.kurohicncr.top/Article/details/7885421681.shtml)
+- 2026-06-29 18:06 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/500997.shtml)
+- 2026-06-29 18:03 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/2925616516.shtml)
+- 2026-06-29 18:10 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/353941.shtml)
+- 2026-06-29 18:14 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/6779063.shtml)
+- 2026-06-29 18:16 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/98037987.shtml)
+- 2026-06-29 18:15 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/88328.shtml)
+- 2026-06-29 18:19 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/434493902.shtml)
+- 2026-06-29 17:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/36398046.shtml)
+- 2026-06-29 18:18 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/7035488.shtml)
+- 2026-06-29 18:13 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/6292308.shtml)
+- 2026-06-29 17:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/336870767.shtml)
+- 2026-06-29 18:08 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/82074197141.shtml)
+- 2026-06-29 18:00 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/337076.shtml)
+- 2026-06-29 17:54 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/144205560.shtml)

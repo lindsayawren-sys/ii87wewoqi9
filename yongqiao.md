@@ -1,48 +1,59 @@
-# 来看海警用“镜头签”为高考学子送祝福
+# “全球AI光算力第一股”诞生 上海“芯片先锋队”再添新
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 08:58 来源：中国新闻网 相信奇迹的人，本身和奇迹一样了不起。祝愿高考学子金榜题名，前程似锦，高考加油！(来源：中国海警局直属第六局 作者：王艺璇 王振球 吴治邦) 责任编辑：【魏聪聪】
+中新网上海4月28日电 (记者 郑莹莹)上海曦智科技股份有限公司(简称“曦智科技”)28日在香港交易所上市，跻身“全球AI光算力第一股”。 招股书显示，据弗若斯特沙利文的资料，2025年，曦智科技的光计算芯片累计出货量排名世界第一。 记者从上海市经济和信息化委员会方面获悉，上海累计已有35家集成电路企业在科创板上市，位居中国内地第一，整体则有近50家集成电路企业在各类资本市场上
 
 ## 正文
 
-发布时间：2026年06月05日 08:58 来源：中国新闻网 相信奇迹的人，本身和奇迹一样了不起。
+中新网上海4月28日电 (记者 郑莹莹)上海曦智科技股份有限公司(简称“曦智科技”)28日在香港交易所上市，跻身“全球AI光算力第一股”。
 
-祝愿高考学子金榜题名，前程似锦，高考加油！
+招股书显示，据弗若斯特沙利文的资料，2025年，曦智科技的光计算芯片累计出货量排名世界第一。
 
-(来源：中国海警局直属第六局 作者：王艺璇 王振球 吴治邦) 责任编辑：【魏聪聪】
+记者从上海市经济和信息化委员会方面获悉，上海累计已有35家集成电路企业在科创板上市，位居中国内地第一，整体则有近50家集成电路企业在各类资本市场上市。
+
+数据还显示，2025年，上海市集成电路产业规模约为5800亿元，同比增长15.5%。
+
+目前上海已集聚超1200家集成电路企业，汇聚中国内地约40%的相关产业人才，这两年迎来多家GPU芯片企业相继上市，在光计算、近存计算等创新路线上不断涌现“芯”势力。
+
+曦智科技创始人、CEO沈亦晨毕业于麻省理工学院，2017年以第一作者和通讯作者的身份在国际学术期刊《自然-光子学》(Nature Photonics)发表论文。
+
+该论文首次验证利用光进行计算的可行性，为他后续创业打下基础。
+
+在沈亦晨看来，电子计算像燃油车，光计算好比电动车，二者将共存；中国在传统电子计算领域与国际先进水平存在代际差距，光计算是一个机会，有望让国产算力走出一条具备全球创新特点的差异化道路。
 
 ## 相关推荐
 
-- 2026-06-29 18:13 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 18:08 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 18:12 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 18:08 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 18:01 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 17:48 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 17:48 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 18:03 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 18:01 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 18:03 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 17:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 18:08 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 18:22 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 18:06 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 18:16 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 18:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 18:17 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 18:20 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 18:15 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 18:04 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 18:07 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 18:21 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 17:57 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 18:23 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 18:16 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:00 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/257991398192.shtml)
-- 2026-06-29 17:59 - [急先锋](http://www.share.minike.top/Article/details/990140038.shtml)
-- 2026-06-29 17:57 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/26689707.shtml)
-- 2026-06-29 18:13 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/301685398081.shtml)
-- 2026-06-29 18:10 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/549412652362.shtml)
-- 2026-06-29 18:15 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/01795.shtml)
-- 2026-06-29 17:57 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/18154.shtml)
-- 2026-06-29 18:10 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/57483.shtml)
-- 2026-06-29 18:04 - [V8](https://www.blog.kurohicncr.top/Article/details/9151471808.shtml)
-- 2026-06-29 18:11 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/749019782104.shtml)
-- 2026-06-29 18:07 - [两老人多次到一洗车店泼粪](https://www.share.kurohicncr.top/Article/details/1836522322.shtml)
-- 2026-06-29 17:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/724804.shtml)
-- 2026-06-29 17:55 - [范志毅看好日本淘汰巴西](https://www.share.minike.top/Article/details/99655112199.shtml)
-- 2026-06-29 18:02 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/250486680.shtml)
-- 2026-06-29 17:50 - [金刚川](http://www.blog.kurohicncr.top/Article/details/79401142.shtml)
+- 2026-06-29 18:19 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/130919236.shtml)
+- 2026-06-29 17:56 - [NBA交易](https://www.blog.minike.top/Article/details/85513.shtml)
+- 2026-06-29 18:22 - [永远有话聊的原因](https://www.share.kurohicncr.top/Article/details/5576896.shtml)
+- 2026-06-29 18:02 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/72221519161.shtml)
+- 2026-06-29 18:04 - [扫黑风暴](http://www.share.minike.top/Article/details/2279172.shtml)
+- 2026-06-29 18:03 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/606159415.shtml)
+- 2026-06-29 18:19 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/5804815623.shtml)
+- 2026-06-29 18:10 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/13373853964.shtml)
+- 2026-06-29 18:03 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.minike.top/Article/details/197119188.shtml)
+- 2026-06-29 17:58 - [时光音乐会](http://www.share.minike.top/Article/details/032008253.shtml)
+- 2026-06-29 18:05 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/6466631.shtml)
+- 2026-06-29 18:22 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/14624.shtml)
+- 2026-06-29 18:21 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/6379686.shtml)
+- 2026-06-29 18:19 - [看大国重器“云端穿针引线”](https://www.share.minike.top/Article/details/295459592753.shtml)
+- 2026-06-29 18:02 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/36099251.shtml)

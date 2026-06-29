@@ -1,58 +1,60 @@
-# 邦达亚洲:避险买需降温 美元指数回落收跌
+# 跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼”
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-6月5日，旧金山联邦储备银行主席玛丽·戴利周四表示，当前美国货币政策处于“良好位置”，但由于经济前景仍存在较大不确定性，美联储暂时不会对未来利率路径作出明确指引，并将根据经济数据变化灵活调整政策。戴利表示，美联储已做好应对各种经济情景的准备，无论未来经济走势如何，都将采取相应措施。“我们准备根据经济形势的发展作出回应，”戴利表示，“现在就对未来利率走势给出更多前瞻性指引，最终可
+中新网三亚4月28日电 题：跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼” 作者 张月和 “第六届亚洲沙滩运动会(简称‘三亚亚沙会’)举行期间，来到马岭天涯小镇的外国游客变多了。”受访前，三亚马岭天涯小镇麦芽海景咖啡西餐吧的店长高飞，刚刚送走一桌外国游客。 凭借着人们对咫尺天涯的美好想象，临近三亚天涯海角游览区的三亚马岭天涯小镇近年来在网络上走红，被誉为中国的“圣托里尼”。 在
 
 ## 正文
 
-6月5日，旧金山联邦储备银行主席玛丽·戴利周四表示，当前美国货币政策处于“良好位置”，但由于经济前景仍存在较大不确定性，美联储暂时不会对未来利率路径作出明确指引，并将根据经济数据变化灵活调整政策。
+中新网三亚4月28日电 题：跟着亚沙会游海南：在三亚邂逅中国版“圣托里尼” 作者 张月和 “第六届亚洲沙滩运动会(简称‘三亚亚沙会’)举行期间，来到马岭天涯小镇的外国游客变多了。
 
-戴利表示，美联储已做好应对各种经济情景的准备，无论未来经济走势如何，都将采取相应措施。
+”受访前，三亚马岭天涯小镇麦芽海景咖啡西餐吧的店长高飞，刚刚送走一桌外国游客。
 
-“我们准备根据经济形势的发展作出回应，”戴利表示，“现在就对未来利率走势给出更多前瞻性指引，最终可能会产生误导，因为我们必须等待经济数据进一步演变。
+凭借着人们对咫尺天涯的美好想象，临近三亚天涯海角游览区的三亚马岭天涯小镇近年来在网络上走红，被誉为中国的“圣托里尼”。
 
-”市场普遍预计，美联储将在6月16日至17日举行的议息会议上维持利率不变。
+在马岭天涯小镇，转过几道椰林掩映的弯路，眼前便会豁然展开一幅独属于此的“蓝白色童话”：白色的墙面、蓝色的窗棂、蜿蜒通向大海的小巷，以及巷尾飘来的“仙人掌饭”的清香。
 
-另外，根据美国全国独立企业联合会（NFIB）公布的数据，5月份，美国小企业中计划招聘新员工或表示难以填补职位空缺的企业占比降至六年来最低水平。
+这座位于三亚市中西部的小镇，曾是古时的“天涯驿站”，距今已有四百多年的滨海渔村历史。
 
-NFIB周四发布声明称，经季节性调整后，计划在未来三个月创造新就业岗位的小企业主占比为9%，较4月份下降4个百分点；与此同时，表示存在难以填补职位空缺的小企业占比下降5个百分点至29%。
+踏入其中，简洁的蓝白配色定义了视觉坐标，更刻写着鲜明的渔家印记。
 
-这两项指标均创下自2020年5月以来的最低水平。
+李静自小在马岭天涯小镇长大，她说，为了祈求风调雨顺，当地人以“青龙”“白龙”“红龙”“黑龙”“黄龙”命名阡陌纵横的街巷，不论身在何处，每条街的尽头都能直通大海。
 
-NFIB周四公布的数据表明，在中东战争持续背景下，能源成本上升以及经济前景不确定性可能正在抑制小企业的扩张计划。
+从二十世纪末的小渔村，到借助乡村振兴改造成游客纷至沓来的“网红”旅游目的地， 马岭天涯小镇近些年经历了翻天覆地的变化。
 
 ## 相关推荐
 
-- 2026-06-29 17:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 17:57 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 18:06 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 17:58 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 17:57 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 18:06 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 18:15 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 17:55 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 18:05 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 17:56 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 17:54 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 17:52 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 18:10 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 18:12 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 18:07 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 18:10 - [TFING全员黑西装](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 18:21 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 17:57 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 18:05 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 18:23 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 18:09 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 18:07 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 18:00 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 18:11 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 18:14 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 17:57 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:14 - [金刚川](http://www.share.kurohicncr.top/Article/details/50827.shtml)
-- 2026-06-29 17:51 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/58287082671.shtml)
-- 2026-06-29 18:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/84743.shtml)
-- 2026-06-29 18:04 - [白玉兰答谢宴合影](https://www.blog.kurohicncr.top/Article/details/44389244686.shtml)
-- 2026-06-29 18:11 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/753611880185.shtml)
-- 2026-06-29 17:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/4557254754.shtml)
-- 2026-06-29 18:17 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/65920048.shtml)
-- 2026-06-29 18:17 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/385078798654.shtml)
-- 2026-06-29 18:10 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/75127694.shtml)
-- 2026-06-29 18:02 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/883238721403.shtml)
-- 2026-06-29 18:09 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/52037480018.shtml)
-- 2026-06-29 17:48 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/731447.shtml)
-- 2026-06-29 17:58 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/561660442.shtml)
-- 2026-06-29 17:51 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/978114792194.shtml)
-- 2026-06-29 17:58 - [媒体：中国田径压力与期待并存](https://www.blog.minike.top/Article/details/764868215.shtml)
+- 2026-06-29 18:00 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/7532551.shtml)
+- 2026-06-29 18:16 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/1191230.shtml)
+- 2026-06-29 18:06 - [V8](http://www.share.minike.top/Article/details/699817984514.shtml)
+- 2026-06-29 18:18 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/81935.shtml)
+- 2026-06-29 18:23 - [乔家的儿女](https://www.blog.minike.top/Article/details/87657.shtml)
+- 2026-06-29 18:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/3823672981.shtml)
+- 2026-06-29 18:13 - [章若楠包场白敬亭特立独行](http://www.share.minike.top/Article/details/22065452693.shtml)
+- 2026-06-29 17:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/6381580738.shtml)
+- 2026-06-29 18:02 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/125747.shtml)
+- 2026-06-29 18:04 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/798923366420.shtml)
+- 2026-06-29 18:21 - [第一炉香](https://www.share.kurohicncr.top/Article/details/22858915116.shtml)
+- 2026-06-29 18:06 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/20639167.shtml)
+- 2026-06-29 18:17 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.minike.top/Article/details/949180611.shtml)
+- 2026-06-29 18:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/774429.shtml)
+- 2026-06-29 18:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/766113019217.shtml)

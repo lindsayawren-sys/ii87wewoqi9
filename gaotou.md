@@ -1,60 +1,48 @@
-# 超28万人爆仓！加密货币全线杀跌，比特币跌破62000美元
+# 我国拟修订农业法加快建设农业强国
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-文章来源：中国基金报 【导读】加密货币市场全线大跌，超28万人被爆仓 中国基金报记者 李智 加密货币抛售潮仍在持续。 6月4日，加密货币市场集体暴跌，比特币一度跌破62000美元，日内跌超6%。 以太坊、SOL、BNB等均跌超6%。 Coinglass数据显示，过去24小时加密货币市场共有超28万人被爆仓，爆仓总金额为17.98亿美元，其中，多单爆仓15.1亿美元，空单爆仓2.
+新华社权威快报｜我国拟修订农业法加快建设农业强国 农业法修订草案4月27日提请十四届全国人大常委会第二十二次会议首次审议。此次修订旨在进一步巩固和加强农业在国民经济中的基础地位，坚持大农业观、大食物观，推动农业高质量发展，推进乡村全面振兴，加快建设农业强国，为实现农业农村现代化提供有力法治保障。 农业法是农业和农村经济领域的基础性法律，于1993年制定，2002年进行了全面修改
 
 ## 正文
 
-文章来源：中国基金报 【导读】加密货币市场全线大跌，超28万人被爆仓 中国基金报记者 李智 加密货币抛售潮仍在持续。
+新华社权威快报｜我国拟修订农业法加快建设农业强国 农业法修订草案4月27日提请十四届全国人大常委会第二十二次会议首次审议。
 
-6月4日，加密货币市场集体暴跌，比特币一度跌破62000美元，日内跌超6%。
+此次修订旨在进一步巩固和加强农业在国民经济中的基础地位，坚持大农业观、大食物观，推动农业高质量发展，推进乡村全面振兴，加快建设农业强国，为实现农业农村现代化提供有力法治保障。
 
-以太坊、SOL、BNB等均跌超6%。
+农业法是农业和农村经济领域的基础性法律，于1993年制定，2002年进行了全面修改，2009年和2012年分别对个别条款作了修改。
 
-Coinglass数据显示，过去24小时加密货币市场共有超28万人被爆仓，爆仓总金额为17.98亿美元，其中，多单爆仓15.1亿美元，空单爆仓2.8亿美元。
-
-加密货币恐惧与贪婪指数显示市场弥漫“极度恐惧”情绪。
-
-消息面上，全球最大上市公司比特币持有者Strategy于6月1日披露的一则消息进一步放大了投资者的担忧。
-
-该公司表示，在5月26日至31日期间出售了32枚比特币，获得约250万美元的资金。
-
-文件脚注显示，此次出售所得将专门用于支付公司优先股分红，为Strategy迄今首次正式披露的比特币处置操作。
+记者：胡璐、韩佳诺 海报制作：韩佳诺 新华社国内部出品
 
 ## 相关推荐
 
-- 2026-06-29 18:12 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 18:09 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 18:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 18:10 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 18:09 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 18:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 18:11 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 18:13 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 17:49 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 18:06 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 18:01 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 18:11 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 18:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 18:04 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 17:56 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 18:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 17:59 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 17:56 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 17:56 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 18:16 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 18:00 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 18:19 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 18:22 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 18:07 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:55 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/0506598544.shtml)
-- 2026-06-29 18:02 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/58230883.shtml)
-- 2026-06-29 18:02 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/948547845669.shtml)
-- 2026-06-29 17:55 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/20662049130.shtml)
-- 2026-06-29 18:15 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/0395194824.shtml)
-- 2026-06-29 18:13 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.kurohicncr.top/Article/details/784542.shtml)
-- 2026-06-29 18:02 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/1382307749.shtml)
-- 2026-06-29 17:48 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/868158751870.shtml)
-- 2026-06-29 18:10 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/182827759472.shtml)
-- 2026-06-29 17:55 - [王楚钦开门红](http://www.blog.minike.top/Article/details/4217384362.shtml)
-- 2026-06-29 18:09 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/14550670825.shtml)
-- 2026-06-29 18:07 - [一生一世](http://www.share.minike.top/Article/details/616914192.shtml)
-- 2026-06-29 17:52 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/21763111852.shtml)
-- 2026-06-29 17:57 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/430102441.shtml)
-- 2026-06-29 18:08 - [普京承认俄出现燃料危机](http://www.share.minike.top/Article/details/2466582.shtml)
+- 2026-06-29 18:16 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/260877701.shtml)
+- 2026-06-29 17:55 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/7138195978.shtml)
+- 2026-06-29 18:22 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/72082500996.shtml)
+- 2026-06-29 18:10 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/43170886420.shtml)
+- 2026-06-29 18:13 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/74729365831.shtml)
+- 2026-06-29 17:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/01036996238.shtml)
+- 2026-06-29 17:57 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/30610948.shtml)
+- 2026-06-29 18:02 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.kurohicncr.top/Article/details/669909322.shtml)
+- 2026-06-29 18:23 - [V8](https://www.share.kurohicncr.top/Article/details/35116056884.shtml)
+- 2026-06-29 17:55 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/46408.shtml)
+- 2026-06-29 18:02 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/0295831.shtml)
+- 2026-06-29 18:19 - [T1 KC](http://www.share.kurohicncr.top/Article/details/758288.shtml)
+- 2026-06-29 18:19 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/46105.shtml)
+- 2026-06-29 17:59 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/69686076054.shtml)
+- 2026-06-29 18:12 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/906154628183.shtml)

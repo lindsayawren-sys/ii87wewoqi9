@@ -1,56 +1,49 @@
-# 孙正义重返亚洲首富，软银股价1年暴涨超300%
+# 台积电商业秘密案 前工程师因泄密被判入狱10年
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-记者丨赵云帆 编辑丨包芳鸣 孙正义重登“亚洲首富”宝座，十年前靠的是阿里巴巴，如今靠的是AI和算力。 6月3日，根据福布斯富豪榜实时数据，软银集团创始人兼CEO孙正义身家攀升至1004亿美元，时隔12年重登亚洲首富宝座。 孙正义财富增长源自软银股价受热捧，公司因重仓AI获资本市场青睐，其股价6月1日单日大涨21.27%，市值一度触及50万亿日元关口。 截至3日收盘，日股软银近一
+一名台积电前工程师因泄露2纳米相关技术诀窍被判处10年有期徒刑，一家供应商的当地子公司也被处以罚款。责任编辑：张俊 SF065
 
 ## 正文
 
-记者丨赵云帆 编辑丨包芳鸣 孙正义重登“亚洲首富”宝座，十年前靠的是阿里巴巴，如今靠的是AI和算力。
+一名台积电前工程师因泄露2纳米相关技术诀窍被判处10年有期徒刑，一家供应商的当地子公司也被处以罚款。
 
-6月3日，根据福布斯富豪榜实时数据，软银集团创始人兼CEO孙正义身家攀升至1004亿美元，时隔12年重登亚洲首富宝座。
-
-孙正义财富增长源自软银股价受热捧，公司因重仓AI获资本市场青睐，其股价6月1日单日大涨21.27%，市值一度触及50万亿日元关口。
-
-截至3日收盘，日股软银近一年来股价涨超300% 此前，孙正义财富增长主要集中于两个时期。
-
-2000年前后，软银重仓押注互联网入口与电商基础设施，其中对阿里巴巴800万美元的投资成为了软银的“第一桶金”，其持有的阿里巴巴股票一度占到软银净资产的60%。
-
-2017年软银愿景基金落地后，孙正义重仓的部分项目，因盈利不及预期，导致其投资出现亏损。
-
-而这次，孙正义转变投资方向，加码布局欧洲市场。
-
-软银转向：深耕欧洲算力基建 5月31日，软银集团宣布将在法国投资最高750亿欧元，建设总容量达5GW的AI计算集群网络。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 18:13 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 18:02 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 17:49 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 18:06 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 17:49 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 17:57 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 18:16 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 17:53 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 18:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 18:07 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 18:05 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 18:05 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 18:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 18:10 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 18:06 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 18:23 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 18:04 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 18:10 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 18:00 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 17:59 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 18:10 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 17:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 18:05 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 18:20 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 18:11 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/00371.shtml)
-- 2026-06-29 18:01 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/25931414285.shtml)
-- 2026-06-29 17:49 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/24054.shtml)
-- 2026-06-29 18:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/621194732.shtml)
-- 2026-06-29 17:48 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/043565.shtml)
-- 2026-06-29 18:14 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/711538.shtml)
-- 2026-06-29 18:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/323124950287.shtml)
-- 2026-06-29 18:09 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/542704.shtml)
-- 2026-06-29 18:15 - [一生一世](https://www.share.kurohicncr.top/Article/details/270248919201.shtml)
-- 2026-06-29 17:49 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/68110.shtml)
-- 2026-06-29 18:07 - [沙丘](http://www.blog.kurohicncr.top/Article/details/98163902.shtml)
-- 2026-06-29 17:54 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/450854.shtml)
-- 2026-06-29 17:53 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/6794344743.shtml)
-- 2026-06-29 17:58 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.kurohicncr.top/Article/details/3219332.shtml)
-- 2026-06-29 18:08 - [东方风云榜](https://www.blog.minike.top/Article/details/696980727.shtml)
+- 2026-06-29 18:14 - [T1 KC](http://www.share.kurohicncr.top/Article/details/8134061581.shtml)
+- 2026-06-29 18:12 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/41776395761.shtml)
+- 2026-06-29 18:17 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/54395580.shtml)
+- 2026-06-29 17:56 - [学者：建设性战略稳定重塑中美关系](http://www.share.kurohicncr.top/Article/details/777823062861.shtml)
+- 2026-06-29 18:02 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/037237411.shtml)
+- 2026-06-29 18:08 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/050059609018.shtml)
+- 2026-06-29 18:20 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/1675888.shtml)
+- 2026-06-29 17:59 - [博主：AI泡沫必须破灭](http://www.share.kurohicncr.top/Article/details/88209.shtml)
+- 2026-06-29 17:54 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/6255582.shtml)
+- 2026-06-29 18:08 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/4165634476.shtml)
+- 2026-06-29 18:14 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/5634262611.shtml)
+- 2026-06-29 18:03 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/52846451636.shtml)
+- 2026-06-29 18:00 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/802618.shtml)
+- 2026-06-29 18:21 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/5740899691.shtml)
+- 2026-06-29 18:09 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/20796.shtml)

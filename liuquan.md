@@ -1,61 +1,56 @@
-# 韩国5月外汇储备因汇市维稳操作出现回落
+# 周一，A股，两大好消息！
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-韩国央行周四公布的数据显示，受当局出手管控汇率波动影响，韩国上月外汇储备小幅回落。 截至5月底，韩国外汇储备规模为4269.9亿美元，较4月底减少8.8亿美元。 韩国央行将外汇储备上月的下滑归因于监管部门实施的市场维稳举措，例如与韩国国民年金公团开展外汇掉期操作。 受中东局势持续紧张、外资净抛售韩国本土股票影响，韩元兑美元汇率自 5 月 15 日起跌破1500关键心理关口。 韩
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|赵云 每经编辑|彭水萍 4月27日，三大指数涨跌不一，创业板指走势较弱，科创50指数高开高走涨超3.5%。截至收盘，沪指涨0.16%，深成指涨0.37%，创业板指跌0.52%。 板块来看，芯片产业链爆发，CPO概念震荡拉升，PCB概念反复活跃，锂电产业链表现活跃。下跌方面，算力租赁概念表现较弱。
 
 ## 正文
 
-韩国央行周四公布的数据显示，受当局出手管控汇率波动影响，韩国上月外汇储备小幅回落。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-截至5月底，韩国外汇储备规模为4269.9亿美元，较4月底减少8.8亿美元。
+每经记者|赵云 每经编辑|彭水萍 4月27日，三大指数涨跌不一，创业板指走势较弱，科创50指数高开高走涨超3.5%。
 
-韩国央行将外汇储备上月的下滑归因于监管部门实施的市场维稳举措，例如与韩国国民年金公团开展外汇掉期操作。
+截至收盘，沪指涨0.16%，深成指涨0.37%，创业板指跌0.52%。
 
-受中东局势持续紧张、外资净抛售韩国本土股票影响，韩元兑美元汇率自 5 月 15 日起跌破1500关键心理关口。
+板块来看，芯片产业链爆发，CPO概念震荡拉升，PCB概念反复活跃，锂电产业链表现活跃。
 
-韩国央行持有的外国证券（包括美国国债）较上月减少了 33.9 亿美元，至 5 月底时降至 3806.8 亿美元，占外汇储备总额的近90%。
+下跌方面，算力租赁概念表现较弱。
 
-外汇存款增加了 25.9 亿美元，达到 213.5 亿美元；特别提款权（SDR）则增加了 3000 万美元，达到 157.8 亿美元。
+全市场超3200只个股上涨，中小盘股走势较强。
 
-黄金实物持有量保持在 47.9 亿美元不变。
+沪深两市成交额2.59万亿元，较上一个交易日缩量524亿元。
 
-责任编辑：于健 SF069
+如标题所说，今天A股有两个好消息。
 
 ## 相关推荐
 
-- 2026-06-29 18:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 18:00 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 18:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 17:48 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 18:04 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 17:53 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 18:09 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 17:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 18:02 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 17:50 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 18:13 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 17:56 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 18:15 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 18:15 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 18:12 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 17:54 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 18:08 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 18:03 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 18:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 18:22 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 18:16 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 17:57 - [AG 宫斗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 18:02 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 17:55 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 17:56 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:16 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/739703151800.shtml)
-- 2026-06-29 17:56 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/86387.shtml)
-- 2026-06-29 18:15 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/173685136.shtml)
-- 2026-06-29 17:53 - [互助版模拟高考志愿填报](https://www.share.minike.top/Article/details/8561964291.shtml)
-- 2026-06-29 17:59 - [世界杯1/16决赛对阵出炉](http://www.blog.kurohicncr.top/Article/details/497411105.shtml)
-- 2026-06-29 17:57 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/42740.shtml)
-- 2026-06-29 18:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/16354.shtml)
-- 2026-06-29 17:55 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/609190.shtml)
-- 2026-06-29 18:13 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/169854.shtml)
-- 2026-06-29 17:53 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.minike.top/Article/details/97662.shtml)
-- 2026-06-29 17:55 - [周生如故](http://www.share.minike.top/Article/details/4638850491.shtml)
-- 2026-06-29 18:02 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/742466290982.shtml)
-- 2026-06-29 17:51 - [明星大侦探第一季](http://www.share.minike.top/Article/details/6499801110.shtml)
-- 2026-06-29 18:05 - [挪威王储妃长子2次强奸被判4年](https://www.share.kurohicncr.top/Article/details/17174.shtml)
-- 2026-06-29 17:57 - [存储三巨头被告了](http://www.share.minike.top/Article/details/817386593743.shtml)
+- 2026-06-29 18:03 - [第一炉香](http://www.share.minike.top/Article/details/265592136.shtml)
+- 2026-06-29 18:03 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/27786.shtml)
+- 2026-06-29 18:02 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/48471628773.shtml)
+- 2026-06-29 18:14 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/43947.shtml)
+- 2026-06-29 18:08 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/355652695485.shtml)
+- 2026-06-29 18:17 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/2395544.shtml)
+- 2026-06-29 18:06 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/4976804.shtml)
+- 2026-06-29 17:56 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/003251.shtml)
+- 2026-06-29 18:14 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/96222637909.shtml)
+- 2026-06-29 17:56 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/264066737.shtml)
+- 2026-06-29 18:15 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/3889677481.shtml)
+- 2026-06-29 17:58 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/398158921.shtml)
+- 2026-06-29 17:58 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/265107886.shtml)
+- 2026-06-29 18:02 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/8034552566.shtml)
+- 2026-06-29 18:07 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/754736592.shtml)

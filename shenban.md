@@ -1,60 +1,59 @@
-# 创投月报 | 深创投：近三成投向人工智能赛道 半年内两轮押注AI芯片「墨芯」
+# 瑞安房地产附属拟向亚洲及欧洲的机构投资者进行票据国际发售
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-国内一级市场展现出显著的“K型”分化特征。基于公开数据不完全统计，2026年5月新增登记私募股权、创业投资基金管理人3家，同比增长50.0%、环比“腰斩”；新增备案私募股权基金123只、创业投资基金469只，合计新增592只，环比虽下降11.0%，但较2025年同期增长74.6%。 投资端呈“量跌价增”趋势，资金加速向头部项目集中。5月国内共发生股权投资事件568起，同比增长3
+瑞安房地产（00272）发布公告，公司全资附属公司Shui On Development拟向亚洲及欧洲的机构投资者进行票据国际发售。票据预计将由Shui On Development发行以及由公司担保。票据一经发行，将与原有票据合并组成单一类别。建议票据发行的完成须视乎市场状况及投资者兴趣而定。瑞银（作为初步买家、独家全球协调人兼独家账簿管理人）负责管理建议票据发行。 集团为中
 
 ## 正文
 
-国内一级市场展现出显著的“K型”分化特征。
+瑞安房地产（00272）发布公告，公司全资附属公司Shui On Development拟向亚洲及欧洲的机构投资者进行票据国际发售。
 
-基于公开数据不完全统计，2026年5月新增登记私募股权、创业投资基金管理人3家，同比增长50.0%、环比“腰斩”；新增备案私募股权基金123只、创业投资基金469只，合计新增592只，环比虽下降11.0%，但较2025年同期增长74.6%。
+票据预计将由Shui On Development发行以及由公司担保。
 
-投资端呈“量跌价增”趋势，资金加速向头部项目集中。
+票据一经发行，将与原有票据合并组成单一类别。
 
-5月国内共发生股权投资事件568起，同比增长33.6%，环比下降16.5%；披露投资总额达768.63亿元，再次刷新近一年内纪录，与4月相比提高2.7%，约为2025年5月的4.22倍。
+建议票据发行的完成须视乎市场状况及投资者兴趣而定。
 
-创投Plus本月聚焦市场活跃度较高的3家机构，围绕其投资节奏、阶段、行业偏好以及被投项目等方面展开解读。
+瑞银（作为初步买家、独家全球协调人兼独家账簿管理人）负责管理建议票据发行。
 
-5月投资节奏回落 深耕大本营辐射长三角 中国证券投资基金业协会和天眼查披露的公开信息显示，深圳市创新投资集团有限公司（下文简称：深创投）是由深圳市政府出资并引导社会资本设立的政府引导基金，目前累计管理各类资产总规模超5200亿元，参投企业超1700家。
+集团为中国主要房地产发展商之一。
 
-截至2026年5月，深创投只登记备案了一只新基金——粤港澳大湾区创业投资引导基金合伙企业（有限合伙），注册出资总额高达504.50亿元，基金出资方LP包括顺络电子、建信投资、华润资本、工银投资、东莞科创、中兴创投、珠海科创投、粤财基金、深润国创等产业资本及国有出资平台。
+集团主要于中国从事开发及再开发、销售、租赁、管理及持有优质住宅及多用途物业。
 
-公开报道显示，该基金是国家创投引导基金下设的区域基金，由国家发展改革委和财政部组建，存续期最长可达20年。
+特别是，集团侧重于大型多用途城市核心综合物业项目的总体规划及开发，通常与相关地方政府部门合作进行。
 
 ## 相关推荐
 
-- 2026-06-29 18:12 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 17:57 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 17:54 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 17:54 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 17:54 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 17:52 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 18:17 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 18:07 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 17:53 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 18:10 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 18:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 18:04 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 17:56 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 18:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 18:04 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 18:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 18:00 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 17:56 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 18:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 18:06 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 18:21 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 18:07 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 17:59 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 18:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 17:55 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 18:15 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 18:04 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:03 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/077422061584.shtml)
-- 2026-06-29 17:58 - [第一炉香](https://www.share.kurohicncr.top/Article/details/56330.shtml)
-- 2026-06-29 17:50 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/75457.shtml)
-- 2026-06-29 17:57 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/7831309096.shtml)
-- 2026-06-29 17:56 - [存储三巨头被告了](http://www.share.minike.top/Article/details/12270.shtml)
-- 2026-06-29 18:14 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/56562360.shtml)
-- 2026-06-29 18:14 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/39051.shtml)
-- 2026-06-29 17:50 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/3460255.shtml)
-- 2026-06-29 18:12 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/7281679321.shtml)
-- 2026-06-29 18:13 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/38781.shtml)
-- 2026-06-29 18:15 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/915297.shtml)
-- 2026-06-29 18:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/71147.shtml)
-- 2026-06-29 18:02 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/02376.shtml)
-- 2026-06-29 17:59 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/3506710255.shtml)
-- 2026-06-29 17:48 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/723832525063.shtml)
+- 2026-06-29 17:57 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/82748762991.shtml)
+- 2026-06-29 18:03 - [一见倾心](https://www.share.minike.top/Article/details/4788450448.shtml)
+- 2026-06-29 18:08 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/676245699.shtml)
+- 2026-06-29 17:58 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/810504282.shtml)
+- 2026-06-29 18:05 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/573931.shtml)
+- 2026-06-29 18:23 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/3356709.shtml)
+- 2026-06-29 18:21 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/051057.shtml)
+- 2026-06-29 18:14 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/017594.shtml)
+- 2026-06-29 17:58 - [中方向委方追加1亿元援助](https://www.blog.minike.top/Article/details/900806.shtml)
+- 2026-06-29 18:21 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/0542515.shtml)
+- 2026-06-29 18:03 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/04603927805.shtml)
+- 2026-06-29 17:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/83772773.shtml)
+- 2026-06-29 17:59 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/55946868.shtml)
+- 2026-06-29 18:01 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.minike.top/Article/details/050208515.shtml)
+- 2026-06-29 18:17 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/114336467.shtml)

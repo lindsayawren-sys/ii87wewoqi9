@@ -1,56 +1,57 @@
-# 中国职工匹克球系列赛西安分站赛将启 四百余名选手争夺总决赛门票
+# Akastor子公司DDW Offshore将以2300万美元出售AHTS船舶
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-中新网西安6月4日电 (记者 张一辰)记者4日从赛事组委会获悉，第二届全民健身大赛(西北区西安站)职工匹克球赛暨2026年中国职工匹克球系列赛西安分站赛将于6日开赛，400余名选手将集结西安，进行为期两日的比拼。匹克球作为融合网球、羽毛球与乒乓球特点的新兴运动，其入门简便、适配人群广泛，现已成为全民健身热门项目。本届赛事落地西安，将进一步拓宽西北地区职工体育赛事发展空间，助推地
+Akastor旗下子公司DDW Offshore已签署一份具有约束力的协议，将以2300万美元的价格出售“Skandi Emerald”号三用工作船（AHTS）。 该船建于2011年，设计用于在各种水深和环境条件下作业。 该交易的完成需满足惯例条件，预计将于2026年第二季度完成。 此次出售后，DDW Offshore的循环信贷额度将从1600万美元减少至800万美元。 两家公
 
 ## 正文
 
-中新网西安6月4日电 (记者 张一辰)记者4日从赛事组委会获悉，第二届全民健身大赛(西北区西安站)职工匹克球赛暨2026年中国职工匹克球系列赛西安分站赛将于6日开赛，400余名选手将集结西安，进行为期两日的比拼。
+Akastor旗下子公司DDW Offshore已签署一份具有约束力的协议，将以2300万美元的价格出售“Skandi Emerald”号三用工作船（AHTS）。
 
-匹克球作为融合网球、羽毛球与乒乓球特点的新兴运动，其入门简便、适配人群广泛，现已成为全民健身热门项目。
+该船建于2011年，设计用于在各种水深和环境条件下作业。
 
-本届赛事落地西安，将进一步拓宽西北地区职工体育赛事发展空间，助推地方全民健身纵深落地。
+该交易的完成需满足惯例条件，预计将于2026年第二季度完成。
 
-本次赛事分设公开组、长青组两大竞赛组别，竞赛项目覆盖混合团体与男单、女单、男双、女双等单项赛事。
+此次出售后，DDW Offshore的循环信贷额度将从1600万美元减少至800万美元。
 
-赛程采用小组赛循环比拼搭配淘汰赛决胜的赛制，全部赛事共计267场。
+两家公司未透露买家的名称或任何其他细节。
 
-据了解，参赛选手依托赛事比拼球技、交流经验，各组别优胜选手可获得中国企业体育协会官方认证赛事积分与职工运动员等级认定，同时拿到全国总决赛直通名额，晋级年度全国大赛，与全国顶尖职工选手同台较量。
-
-赛事组委会相关负责人表示，本次赛事立足职工体育发展需求，打破地域、行业参赛壁垒，为体育爱好者搭建常态化交流平台。
-
-赛事落地古城西安，是全民健身战略在职工群体落地的具体实践，将持续助推匹克球运动在西北地区各企事业单位普及。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 17:51 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 18:03 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 18:08 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 18:17 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 18:05 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 18:00 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 18:13 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 18:06 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 17:53 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 18:14 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 18:22 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 18:08 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 18:08 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 17:59 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 18:16 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 18:19 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 18:11 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 18:23 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 18:15 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 18:20 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 18:10 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 18:01 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 18:10 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 18:01 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 17:54 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:59 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/9540933.shtml)
-- 2026-06-29 17:58 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/1018469.shtml)
-- 2026-06-29 18:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/4164626.shtml)
-- 2026-06-29 17:59 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/14822.shtml)
-- 2026-06-29 18:16 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.minike.top/Article/details/5373463.shtml)
-- 2026-06-29 17:59 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/10222.shtml)
-- 2026-06-29 18:10 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/976401724.shtml)
-- 2026-06-29 18:02 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/84478215.shtml)
-- 2026-06-29 18:11 - [斗破苍穹](https://www.blog.minike.top/Article/details/17443.shtml)
-- 2026-06-29 17:48 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/37190.shtml)
-- 2026-06-29 17:50 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/65185.shtml)
-- 2026-06-29 18:01 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/3422221632.shtml)
-- 2026-06-29 18:06 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/258784672479.shtml)
-- 2026-06-29 18:15 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/79181145555.shtml)
-- 2026-06-29 18:04 - [每天通勤往返3h的感觉](http://www.share.minike.top/Article/details/5698398138.shtml)
+- 2026-06-29 18:02 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/38532.shtml)
+- 2026-06-29 18:04 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/32029.shtml)
+- 2026-06-29 18:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/576463273.shtml)
+- 2026-06-29 18:00 - [普京承认俄出现燃料危机](https://www.share.kurohicncr.top/Article/details/073000455.shtml)
+- 2026-06-29 18:23 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/53406089437.shtml)
+- 2026-06-29 18:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/19535687609.shtml)
+- 2026-06-29 18:10 - [12所大学更正招生目录](https://www.share.minike.top/Article/details/62988276753.shtml)
+- 2026-06-29 18:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/845533225343.shtml)
+- 2026-06-29 18:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/1295304.shtml)
+- 2026-06-29 17:56 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/49991.shtml)
+- 2026-06-29 18:06 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/2578085760.shtml)
+- 2026-06-29 18:03 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/259804.shtml)
+- 2026-06-29 18:21 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/62965.shtml)
+- 2026-06-29 18:13 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/59436.shtml)
+- 2026-06-29 18:19 - [人形机器人](http://www.share.minike.top/Article/details/882978.shtml)

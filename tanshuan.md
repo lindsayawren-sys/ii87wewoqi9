@@ -1,56 +1,61 @@
-# 悦心健康拟以0元收购斯米克健康科技36%股权 需担1800万认缴出资义务
+# 尾盘：标普500指数与纳指再创历史新高
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-6月4日，悦心健康（002162）发布公告，拟与关联方共同收购斯米克健康科技（上海）有限公司75%股权。公司将受让36%股权，上海斯米克有限公司受让39%股权。交易对价合计为0元，因标的公司尚未实缴注册资本，也未开展实际生产经营活动。本次交易完成后，上海斯米克有限公司叠加其原持有的25%标的公司股权，合计持有标的公司64%股权，为标的公司控股股东；公司持有标的公司36%股权，需
+北京时间4月28日凌晨，美股周一尾盘涨跌不一，标普指数与纳指均创盘中新高。市场继续关注陷入停滞的伊朗和谈以及霍尔木兹海峡局势。美联储将在本周召开货币政策会议。多家科技巨头将在本周公布财报。 道指跌43.28点，跌幅为0.09%，报49187.43点；纳指涨22.79点，涨幅为0.09%，报24859.39点；标普500指数涨8.07点，涨幅为0.11%，报7173.15点。 周
 
 ## 正文
 
-6月4日，悦心健康（002162）发布公告，拟与关联方共同收购斯米克健康科技（上海）有限公司75%股权。
+北京时间4月28日凌晨，美股周一尾盘涨跌不一，标普指数与纳指均创盘中新高。
 
-公司将受让36%股权，上海斯米克有限公司受让39%股权。
+市场继续关注陷入停滞的伊朗和谈以及霍尔木兹海峡局势。
 
-交易对价合计为0元，因标的公司尚未实缴注册资本，也未开展实际生产经营活动。
+美联储将在本周召开货币政策会议。
 
-本次交易完成后，上海斯米克有限公司叠加其原持有的25%标的公司股权，合计持有标的公司64%股权，为标的公司控股股东；公司持有标的公司36%股权，需承担1800万元的认缴出资义务，具体出资进度将根据标的公司实际经营需求逐步到位。
+多家科技巨头将在本周公布财报。
 
-本次交易构成关联交易，因上海斯米克有限公司与悦心科技发展均为公司实际控制人李慈雄控制的企业。
+道指跌43.28点，跌幅为0.09%，报49187.43点；纳指涨22.79点，涨幅为0.09%，报24859.39点；标普500指数涨8.07点，涨幅为0.11%，报7173.15点。
 
-2026年一季度，悦心健康实现收入2.11亿元，归母净利润-337万元。
+周一午后，标普500指数最高上涨至7176.12点，纳指最高上涨至24888.91点，均创盘中历史新高。
+
+地缘政治关系仍是市场焦点。
+
+美国总统特朗普周六取消了派遣美国特使和库什纳前往巴基斯坦参加关于伊朗停火会谈的计划，并表示谈判可以通过电话进行。
 
 ## 相关推荐
 
-- 2026-06-29 17:59 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 18:00 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 18:09 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 18:12 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 18:10 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 18:15 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 18:05 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 18:11 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 17:49 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 18:13 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 17:49 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 18:14 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 18:12 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 18:00 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 18:10 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 18:08 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 17:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 18:05 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 17:58 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 18:21 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 18:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 17:59 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 18:21 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 18:18 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 18:00 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 18:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 18:21 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 18:12 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 18:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:08 - [当家电外通风口出现鸟窝](http://www.share.minike.top/Article/details/737057795.shtml)
-- 2026-06-29 18:11 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/053518200333.shtml)
-- 2026-06-29 18:15 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/21208872027.shtml)
-- 2026-06-29 18:15 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/19628425.shtml)
-- 2026-06-29 18:07 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/7918088.shtml)
-- 2026-06-29 17:48 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/318009.shtml)
-- 2026-06-29 17:48 - [赵今麦时隔五年再演李诗情](http://www.share.minike.top/Article/details/88033261.shtml)
-- 2026-06-29 18:09 - [沙特外交大臣将访华](http://www.blog.minike.top/Article/details/39511400601.shtml)
-- 2026-06-29 18:13 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/109401245.shtml)
-- 2026-06-29 17:59 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.minike.top/Article/details/78409.shtml)
-- 2026-06-29 17:54 - [NBA交易](http://www.share.minike.top/Article/details/159765796.shtml)
-- 2026-06-29 18:17 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/72778230.shtml)
-- 2026-06-29 17:49 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/71932.shtml)
-- 2026-06-29 18:15 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/80874744862.shtml)
-- 2026-06-29 17:53 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/98457429.shtml)
+- 2026-06-29 18:10 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/181268.shtml)
+- 2026-06-29 17:56 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/819722243248.shtml)
+- 2026-06-29 18:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/195605.shtml)
+- 2026-06-29 17:59 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/621824374.shtml)
+- 2026-06-29 18:05 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/75690109413.shtml)
+- 2026-06-29 18:11 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/66275770.shtml)
+- 2026-06-29 18:12 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/66026386196.shtml)
+- 2026-06-29 18:00 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/1964175.shtml)
+- 2026-06-29 18:13 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/326373652.shtml)
+- 2026-06-29 18:00 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/9731586364.shtml)
+- 2026-06-29 18:21 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/223102398.shtml)
+- 2026-06-29 17:58 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/853498046127.shtml)
+- 2026-06-29 18:05 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/209950.shtml)
+- 2026-06-29 18:17 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/8025619.shtml)
+- 2026-06-29 18:06 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/534232784.shtml)

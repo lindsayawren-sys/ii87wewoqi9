@@ -1,51 +1,46 @@
-# 视频|易方达何崇恺：信心比黄金更重要，经济转型+国运昌盛，会带来很大超额回报
+# 姚高员辞去杭州市人民政府市长职务
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近期，易方达基金权益投资管理部总经理助理、基金经理何崇恺表示，信心比黄金更重要，经济转型+国运昌盛，会带来很大超额回报。 责任编辑：常福强
+中新网杭州4月27日电 (钱晨菲)4月27日，杭州市十四届人大常委会举行第三十四次会议。 经审议表决，会议决定接受姚高员辞去杭州市人民政府市长职务，报杭州市人民代表大会备案。(完)
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网杭州4月27日电 (钱晨菲)4月27日，杭州市十四届人大常委会举行第三十四次会议。
 
-近期，易方达基金权益投资管理部总经理助理、基金经理何崇恺表示，信心比黄金更重要，经济转型+国运昌盛，会带来很大超额回报。
+经审议表决，会议决定接受姚高员辞去杭州市人民政府市长职务，报杭州市人民代表大会备案。
 
-责任编辑：常福强
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 18:08 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 18:01 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 17:50 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 18:09 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 18:10 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 17:52 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 18:15 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 17:58 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 17:55 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 18:11 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 17:52 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 18:05 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 18:04 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 18:00 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 17:57 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 17:55 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 18:07 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 18:13 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 18:08 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 18:20 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 18:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 18:14 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 18:14 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 17:57 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:53 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/801013553.shtml)
-- 2026-06-29 18:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/17998229606.shtml)
-- 2026-06-29 17:50 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.kurohicncr.top/Article/details/9695607.shtml)
-- 2026-06-29 18:15 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/022837186.shtml)
-- 2026-06-29 17:54 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/20740392.shtml)
-- 2026-06-29 18:00 - [存储三巨头被告了](http://www.share.minike.top/Article/details/231946607871.shtml)
-- 2026-06-29 18:14 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/408794992232.shtml)
-- 2026-06-29 17:59 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/732055842.shtml)
-- 2026-06-29 17:52 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/54806.shtml)
-- 2026-06-29 18:14 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/6101694.shtml)
-- 2026-06-29 17:52 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/72508000788.shtml)
-- 2026-06-29 17:58 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/195187.shtml)
-- 2026-06-29 18:03 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/963378326813.shtml)
-- 2026-06-29 18:15 - [扬名立万](http://www.share.minike.top/Article/details/56238064677.shtml)
-- 2026-06-29 17:57 - [四川达州发生一起交通事故致2死](http://www.blog.kurohicncr.top/Article/details/4582779.shtml)
+- 2026-06-29 18:05 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/415116898.shtml)
+- 2026-06-29 18:12 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/183679.shtml)
+- 2026-06-29 18:01 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.minike.top/Article/details/04850.shtml)
+- 2026-06-29 18:03 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/00076574473.shtml)
+- 2026-06-29 18:18 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/80781809.shtml)
+- 2026-06-29 17:55 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/171963144428.shtml)
+- 2026-06-29 18:19 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/542708783822.shtml)
+- 2026-06-29 17:57 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/21391314.shtml)
+- 2026-06-29 18:17 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/62358.shtml)
+- 2026-06-29 18:05 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/163328.shtml)
+- 2026-06-29 18:15 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/68174930367.shtml)
+- 2026-06-29 17:55 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/322208.shtml)
+- 2026-06-29 18:08 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.minike.top/Article/details/154518.shtml)
+- 2026-06-29 18:06 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/3229205.shtml)
+- 2026-06-29 17:58 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/6676030.shtml)

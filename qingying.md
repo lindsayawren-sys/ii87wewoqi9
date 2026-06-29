@@ -1,58 +1,61 @@
-# 2026中国水博览会在合肥开幕
+# 沃什上位在即，鲍威尔去留难题未解！美联储权力“暗战”或硝烟再起？
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-中新网合肥6月3日电 (记者 张强)2026中国水博览会3日在安徽省合肥市开幕。 开幕式上，中国水利学会2025年组织制定的18项团体标准集中发布。这些团体标准主要覆盖水旱灾害防御、国家水网建设、河湖生态环境复苏、水资源节约集约利用、智慧水利等重点领域。 该博览会以“新科技塑造美好水未来”为主题，设国家水网现代化建设、数字孪生水利创新、水旱灾害防御与应急保障、水生态复苏与流域治
+来源：金十数据 美联储主席换届进入倒计时，分析师认为，鲍威尔将拒绝在压力下离职，或留任数月以平稳过渡。沃什“政权更迭”言论，进一步推高鲍威尔留任可能性。 美国司法部在2026年4月24日宣布撤回针对美联储总部翻新项目的刑事调查，使持续数月的风波告一段落。随着这一障碍消除，美联储主席鲍威尔面临关键抉择：在主席任期即将结束之际，是否继续以理事身份留在美联储。 此前，鲍威尔曾明确表示
 
 ## 正文
 
-中新网合肥6月3日电 (记者 张强)2026中国水博览会3日在安徽省合肥市开幕。
+来源：金十数据 美联储主席换届进入倒计时，分析师认为，鲍威尔将拒绝在压力下离职，或留任数月以平稳过渡。
 
-开幕式上，中国水利学会2025年组织制定的18项团体标准集中发布。
+沃什“政权更迭”言论，进一步推高鲍威尔留任可能性。
 
-这些团体标准主要覆盖水旱灾害防御、国家水网建设、河湖生态环境复苏、水资源节约集约利用、智慧水利等重点领域。
+美国司法部在2026年4月24日宣布撤回针对美联储总部翻新项目的刑事调查，使持续数月的风波告一段落。
 
-该博览会以“新科技塑造美好水未来”为主题，设国家水网现代化建设、数字孪生水利创新、水旱灾害防御与应急保障、水生态复苏与流域治理、智慧灌区与城乡供水保障、节水产业技术与装备六大展区，吸引来自全国各地的近200家科研院所、高校、涉水企业等参加。
+随着这一障碍消除，美联储主席鲍威尔面临关键抉择：在主席任期即将结束之际，是否继续以理事身份留在美联储。
 
-安徽是水利大省，地跨长江、淮河、新安江三大流域。
+此前，鲍威尔曾明确表示，在调查彻底解决之前不会离开岗位。
 
-“十四五”期间，该省入选全国省级水网先导区，累计完成水利投资2867亿元人民币。
+上周，华盛顿特区联邦检察官珍妮娜·皮罗（Jeanine Pirro）通过社交媒体披露，相关调查已移交美联储独立监察长处理，司法部正式退出。
 
-(完)
+这一变化直接改变了鲍威尔的处境，使其可以重新考虑去留问题。
+
+过去几十年间，美联储主席在四年任期结束后通常会彻底离开，但鲍威尔仍可选择继续履行其理事任期至2028年1月。
 
 ## 相关推荐
 
-- 2026-06-29 17:57 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 18:12 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 18:04 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 18:16 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 18:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 17:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 18:14 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 17:56 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 18:12 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 17:58 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 17:48 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 17:55 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 18:10 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 18:02 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 18:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 17:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 18:18 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 18:00 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 18:09 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 18:21 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 17:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 17:59 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 18:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 18:23 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 18:08 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 18:18 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 18:02 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 18:13 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 18:11 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:48 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/10818006.shtml)
-- 2026-06-29 18:04 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/5199339.shtml)
-- 2026-06-29 17:59 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/174435204481.shtml)
-- 2026-06-29 17:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/41913637608.shtml)
-- 2026-06-29 17:53 - [业内：全球市场迎来结构性投资窗口](https://www.blog.kurohicncr.top/Article/details/54016966.shtml)
-- 2026-06-29 17:51 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/645800244.shtml)
-- 2026-06-29 17:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/601053841.shtml)
-- 2026-06-29 18:16 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/392073.shtml)
-- 2026-06-29 18:13 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/814069206182.shtml)
-- 2026-06-29 18:15 - [滚石就音乐人屠颖去世事件发声明](http://www.share.kurohicncr.top/Article/details/806572016740.shtml)
-- 2026-06-29 18:12 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.kurohicncr.top/Article/details/25061.shtml)
-- 2026-06-29 18:17 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/826421295229.shtml)
-- 2026-06-29 17:58 - [世界杯预测史上最不吃压力之物](http://www.share.kurohicncr.top/Article/details/58187011.shtml)
-- 2026-06-29 18:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/3988659783.shtml)
-- 2026-06-29 17:58 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/281143104.shtml)
+- 2026-06-29 18:07 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/611153096.shtml)
+- 2026-06-29 18:11 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/1524028391.shtml)
+- 2026-06-29 18:15 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/353256551.shtml)
+- 2026-06-29 18:20 - [蔚来回应车漆洗车时被冲掉](https://www.blog.kurohicncr.top/Article/details/171634.shtml)
+- 2026-06-29 18:00 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/514134376357.shtml)
+- 2026-06-29 18:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/82397645.shtml)
+- 2026-06-29 18:14 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/924173.shtml)
+- 2026-06-29 18:11 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/8558656.shtml)
+- 2026-06-29 18:05 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.kurohicncr.top/Article/details/264785.shtml)
+- 2026-06-29 18:03 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/16118147635.shtml)
+- 2026-06-29 18:05 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/3169315416.shtml)
+- 2026-06-29 18:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/22044322.shtml)
+- 2026-06-29 18:13 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/870301008.shtml)
+- 2026-06-29 18:00 - [学者：建设性战略稳定重塑中美关系](http://www.share.kurohicncr.top/Article/details/52317.shtml)
+- 2026-06-29 17:56 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/26994293.shtml)

@@ -1,57 +1,61 @@
-# 用友网络申请20亿银行授信，SaaS软件AI替代叙事被证伪
+# 按需点餐、低碳消费 中消协发布“五一”消费提示
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-2026年上半年，全球软件市场走出一轮从极致悲观到预期修复的剧烈行情。年初AIAgent技术加速落地，市场普遍担忧SaaS席位收费模式被智能体颠覆，IGV软件指数一季度最大回撤近30%，板块总市值蒸发超万亿美元。 悲观情绪顺着跨境资本与产业预期传导至A股国产软件板块，用友网络作为国内ERP与云SaaS龙头，成为本轮AI替代恐慌下国产软件的核心观测标的，其股价年初至今累计下跌19
+中新网4月27日电 据中国消费者协会网站消息，“五一”假期临近，全国各地将迎来旅游出行、聚会聚餐、购物消费的高峰。为倡导文明、健康、节约、环保的消费理念，维护广大消费者合法权益，中国消费者协会特发布以下消费提示：一、践行“光盘行动”，自觉抵制食品浪费 节日期间，家庭聚餐、婚宴酒席、旅游团餐等消费场景增多。消费者应树立正确食品消费观，做到按需点餐、合理搭配、剩菜打包，摒弃讲排场、
 
 ## 正文
 
-2026年上半年，全球软件市场走出一轮从极致悲观到预期修复的剧烈行情。
+中新网4月27日电 据中国消费者协会网站消息，“五一”假期临近，全国各地将迎来旅游出行、聚会聚餐、购物消费的高峰。
 
-年初AIAgent技术加速落地，市场普遍担忧SaaS席位收费模式被智能体颠覆，IGV软件指数一季度最大回撤近30%，板块总市值蒸发超万亿美元。
+为倡导文明、健康、节约、环保的消费理念，维护广大消费者合法权益，中国消费者协会特发布以下消费提示：一、践行“光盘行动”，自觉抵制食品浪费 节日期间，家庭聚餐、婚宴酒席、旅游团餐等消费场景增多。
 
-悲观情绪顺着跨境资本与产业预期传导至A股国产软件板块，用友网络作为国内ERP与云SaaS龙头，成为本轮AI替代恐慌下国产软件的核心观测标的，其股价年初至今累计下跌19.83%，同期上证指数上涨2.24%，显著跑输大盘，直观体现出市场对国产SaaS席位制商业模式被AI颠覆的集体担忧，也是国产软件板块承压的缩影。
+消费者应树立正确食品消费观，做到按需点餐、合理搭配、剩菜打包，摒弃讲排场、比阔气的陈旧观念。
 
-6月2日，用友网络公告披露，6月1日，公司以通讯表决方式召开第十届董事会第二次会议，会议一致审议通过《公司关于向银行申请综合授信额度的议案》，公司拟向6家银行申请综合授信额度不超过23.5亿元，似乎也为下一步产业部署做准备。
+外出就餐时，主动选择提供“小份菜”“半份菜”的餐饮单位，减少不必要的食材损耗；网络订餐时应适量下单，避免因促销满减而过度囤积食物。
 
-此前全市场普遍质疑，依托订阅席位变现的本土ERP厂商会被通用企业智能体快速替代，国产SaaS行业一度笼罩在生存危机之中。
+家庭采购食材宜按需购买、分类储存，减少因保存不当导致的变质浪费。
 
-进入4—5月财报季，海外头部SaaS企业密集披露的业绩全线优于市场预期，“AI吞噬软件价值”的投资叙事被基本面证伪，IGV指数5月单月大涨21.11%，创下该指数2001年7月上市以来最佳月度收益。
+餐饮经营者也应主动承担主体责任，在醒目位置张贴反食品浪费标识，引导消费者理性消费。
 
-工银瑞信基金6月3日发布观点称，AI并非软件行业的颠覆者，原有软件价值没有消失，而是向产业基础设施与垂直行业场景持续转移。
+二、拒绝过度包装，倡导简约低碳消费 “五一”前后正值春茶、糕点、时令礼品销售旺季，部分商品仍存在包装层数过多、空隙率过大、材质奢侈等问题。
 
-伴随技术迭代与商业化场景落地，全球AI产业正式迈入规模化商用周期，AI正在重塑并抬升底层软件基础设施价值。
+消费者购买节令商品时，应更加注重商品内在品质和实用价值，自觉抵制“套娃式”包装、贵金属及红木等贵重材料包装，主动选择设计简约、可循环利用的环保包装产品。
 
 ## 相关推荐
 
-- 2026-06-29 18:03 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 17:53 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 18:14 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 17:49 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 18:00 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 17:57 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 18:03 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 18:14 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 18:14 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 18:09 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 17:54 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 17:55 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 18:18 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 18:07 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 18:17 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 18:11 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 18:07 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 17:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 18:23 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 18:13 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 18:22 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 18:01 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 18:03 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 17:59 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 18:11 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 18:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:52 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/93831.shtml)
-- 2026-06-29 17:49 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/840545.shtml)
-- 2026-06-29 18:14 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/781455837824.shtml)
-- 2026-06-29 18:12 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/81890262.shtml)
-- 2026-06-29 17:53 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/3829242.shtml)
-- 2026-06-29 18:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/133105175.shtml)
-- 2026-06-29 18:12 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.kurohicncr.top/Article/details/23363329.shtml)
-- 2026-06-29 18:17 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/354372.shtml)
-- 2026-06-29 17:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/8589881790.shtml)
-- 2026-06-29 18:04 - [官媒首曝六代机？大V解读](http://www.share.kurohicncr.top/Article/details/54593833.shtml)
-- 2026-06-29 18:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/5280756.shtml)
-- 2026-06-29 17:50 - [T1 KC](http://www.share.minike.top/Article/details/15434046494.shtml)
-- 2026-06-29 17:50 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/32544213771.shtml)
-- 2026-06-29 18:04 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/083914724344.shtml)
-- 2026-06-29 17:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/688243.shtml)
+- 2026-06-29 18:02 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/350576450.shtml)
+- 2026-06-29 18:10 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/069357.shtml)
+- 2026-06-29 18:01 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/28469434.shtml)
+- 2026-06-29 18:05 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/335136244.shtml)
+- 2026-06-29 17:59 - [王安宇尊重田曦薇的一切选择](http://www.blog.kurohicncr.top/Article/details/90372559519.shtml)
+- 2026-06-29 17:57 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/044521783.shtml)
+- 2026-06-29 18:19 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/10565188.shtml)
+- 2026-06-29 18:19 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/219973797.shtml)
+- 2026-06-29 17:59 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/7419122.shtml)
+- 2026-06-29 18:10 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/93612393.shtml)
+- 2026-06-29 17:57 - [啊啊啊](http://www.blog.minike.top/Article/details/16863748257.shtml)
+- 2026-06-29 17:55 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/26301690943.shtml)
+- 2026-06-29 18:10 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/583564.shtml)
+- 2026-06-29 17:56 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/800054781016.shtml)
+- 2026-06-29 18:04 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/2900379.shtml)

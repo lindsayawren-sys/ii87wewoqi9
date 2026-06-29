@@ -1,61 +1,60 @@
-# 全球媒体聚焦 | 外媒：英国外交大臣访华 西方国家日益重视与中国的关系
+# OpenAI淡化AGI目标，修订原则释放竞争信号
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-英国外交大臣库珀于6月1日至3日访华并参加第十一次中英战略对话。对此，卡塔尔半岛电视台3日发表了题为《英中“冰河时代”解冻：为何西方需要北京》的文章。 文章称，英国首相斯塔默今年1月访问了北京，而外交大臣库珀此次对中国进行了为期三天的访问。尽管两国存在一些分歧，但英国和中国正努力重振经济和外交关系。 文章说，库珀此次访华并非个案。在库珀此次访问北京前，已经有多位其他国家的领导人
+在发布GPT-5.5后的策略窗口期，OpenAI悄然更新了公司运营原则，显著降低了对通用人工智能的明确关注，转而强调“迭代部署”与更积极的竞争姿态，此举对其合作伙伴微软及更广泛的AI市场格局产生深远影响。 从AGI到“民主化与韧性” 新旧宪章对比揭示了这一转变的实质。2018年的原始宪章提及AGI多达12次，将其作为组织的核心原则。而在2026年的新宪章中，AGI仅被提及2次，
 
 ## 正文
 
-英国外交大臣库珀于6月1日至3日访华并参加第十一次中英战略对话。
+在发布GPT-5.5后的策略窗口期，OpenAI悄然更新了公司运营原则，显著降低了对通用人工智能的明确关注，转而强调“迭代部署”与更积极的竞争姿态，此举对其合作伙伴微软及更广泛的AI市场格局产生深远影响。
 
-对此，卡塔尔半岛电视台3日发表了题为《英中“冰河时代”解冻：为何西方需要北京》的文章。
+从AGI到“民主化与韧性” 新旧宪章对比揭示了这一转变的实质。
 
-文章称，英国首相斯塔默今年1月访问了北京，而外交大臣库珀此次对中国进行了为期三天的访问。
+2018年的原始宪章提及AGI多达12次，将其作为组织的核心原则。
 
-尽管两国存在一些分歧，但英国和中国正努力重振经济和外交关系。
+而在2026年的新宪章中，AGI仅被提及2次，核心叙事已转向“民主化、赋权、普遍繁荣、韧性与适应性”五大原则。
 
-文章说，库珀此次访华并非个案。
+更重要的是，2018年宪章中“若他方率先实现AGI则停止竞争并展开合作”的承诺被删除，取而代之的是“在特定情况下，为增强韧性可牺牲部分赋权”的表述。
 
-在库珀此次访问北京前，已经有多位其他国家的领导人和官员相继访问中国。
+这标志着OpenAI从理想主义的“全人类福祉”转向更具现实竞争的“负责任领跑者”姿态。
 
-在全球局势日益动荡之际，他们都渴望与世界第二大经济体进行接触。
+与微软关系生变，押注亚马逊突围 原则修订的背后，是OpenAI与长期合作伙伴微软日益紧张的关系。
 
-文章表示，库珀承认伦敦和北京之间存在“分歧领域”，但她坚持认为，以“坦诚和尊重”的态度进行讨论将有助于增进相互了解。
+据内部备忘录披露，OpenAI首席营收官坦承，与微软的合作虽为成功基石，但“限制了我们满足企业客户的能力”，因为客户更倾向于通过亚马逊AWS的Bedrock平台使用AI模型。
 
 ## 相关推荐
 
-- 2026-06-29 18:01 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 18:14 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 18:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 18:09 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 18:13 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 17:54 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 18:01 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 17:57 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 18:16 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 17:55 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 18:06 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 18:14 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 18:09 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 18:05 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 18:01 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 18:13 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 17:58 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 17:58 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 17:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 18:20 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 18:08 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 18:11 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 18:09 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 18:14 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 17:55 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 17:55 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 18:07 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 18:03 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 17:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:08 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/77442.shtml)
-- 2026-06-29 18:08 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/042097440.shtml)
-- 2026-06-29 18:00 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/78046.shtml)
-- 2026-06-29 17:53 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/41686017.shtml)
-- 2026-06-29 18:16 - [货车司机雨中帮交警挪树获表扬](http://www.blog.kurohicncr.top/Article/details/84818453.shtml)
-- 2026-06-29 17:48 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/544383012759.shtml)
-- 2026-06-29 18:05 - [叠纸客服回应恋与深空新角色争议](http://www.share.minike.top/Article/details/2923045884.shtml)
-- 2026-06-29 17:57 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/08595.shtml)
-- 2026-06-29 17:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/1714775.shtml)
-- 2026-06-29 17:55 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/82280151.shtml)
-- 2026-06-29 18:04 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/348660.shtml)
-- 2026-06-29 17:53 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/51030704632.shtml)
-- 2026-06-29 17:58 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/23702632912.shtml)
-- 2026-06-29 18:08 - [青春环游记第三季](https://www.blog.minike.top/Article/details/2831418312.shtml)
-- 2026-06-29 17:53 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.minike.top/Article/details/586700449113.shtml)
+- 2026-06-29 17:56 - [官媒首曝六代机？大V解读](https://www.share.kurohicncr.top/Article/details/3938855.shtml)
+- 2026-06-29 18:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/7026640737.shtml)
+- 2026-06-29 18:04 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/68591.shtml)
+- 2026-06-29 17:58 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/3761180.shtml)
+- 2026-06-29 18:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/14329736131.shtml)
+- 2026-06-29 18:14 - [人形机器人](http://www.blog.minike.top/Article/details/957031603096.shtml)
+- 2026-06-29 18:04 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/12907.shtml)
+- 2026-06-29 18:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/1468934.shtml)
+- 2026-06-29 18:14 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/937908.shtml)
+- 2026-06-29 18:18 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/791439022.shtml)
+- 2026-06-29 18:18 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/8937163.shtml)
+- 2026-06-29 17:55 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/61915043104.shtml)
+- 2026-06-29 17:58 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/42509908.shtml)
+- 2026-06-29 17:58 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/2927191521.shtml)
+- 2026-06-29 17:56 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/730569921319.shtml)

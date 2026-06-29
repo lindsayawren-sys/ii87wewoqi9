@@ -1,57 +1,61 @@
-# 伊朗袭击科威特，美国在霍尔木兹附近海域发动空袭，海湾冲突再度升级
+# 中国多地专家携手制定《标准》聚焦阿尔法核素医学应用
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-海湾地区的敌对行动周三再度升级，伊朗对科威特的袭击造成该国机场受损、数十人受伤，与此同时美军在霍尔木兹海峡附近实施打击，而旨在止战的外交努力几乎未见进展迹象。 这些袭击是对摇摇欲坠的停火协议的最新考验，推动油价上涨近2%。此时，距离美以对伊朗发动打击已过去三个多月，霍尔木兹海峡基本仍处于关闭状态。 科威特当局及官方媒体称，伊朗无人机和导弹袭击导致科威特国际机场设施及外交使团受损
+中新网上海4月27日电 (记者 陈静)同济大学核医学研究所所长余飞教授27日披露，中国核药领域首个医用阿尔法核素的团体标准——《阿尔法核素医学专业术语团体标准》(以下简称《标准》)正式发布。 作为国内首个聚焦阿尔法核素医学应用的基础性标准，《标准》的发布填补了该领域术语标准空白，也为后续技术规范、剂量学评价及临床应用标准的建立提供了标准语义基础，体现了中国医用阿尔法核素的发展模
 
 ## 正文
 
-海湾地区的敌对行动周三再度升级，伊朗对科威特的袭击造成该国机场受损、数十人受伤，与此同时美军在霍尔木兹海峡附近实施打击，而旨在止战的外交努力几乎未见进展迹象。
+中新网上海4月27日电 (记者 陈静)同济大学核医学研究所所长余飞教授27日披露，中国核药领域首个医用阿尔法核素的团体标准——《阿尔法核素医学专业术语团体标准》(以下简称《标准》)正式发布。
 
-这些袭击是对摇摇欲坠的停火协议的最新考验，推动油价上涨近2%。
+作为国内首个聚焦阿尔法核素医学应用的基础性标准，《标准》的发布填补了该领域术语标准空白，也为后续技术规范、剂量学评价及临床应用标准的建立提供了标准语义基础，体现了中国医用阿尔法核素的发展模式由“单点技术突破”向“基础规范建设”延伸。
 
-此时，距离美以对伊朗发动打击已过去三个多月，霍尔木兹海峡基本仍处于关闭状态。
+该《标准》由余飞教授团队和中国科学院杭州医学研究所黄钢教授团队共同发起，联合国内众多科研院所和临床机构的权威专家历时15个月编纂、讨论、修订完成。
 
-科威特当局及官方媒体称，伊朗无人机和导弹袭击导致科威特国际机场设施及外交使团受损，造成一人死亡、逾60人受伤，机场航班一度暂停。
+作为《标准》的主要制定者，余飞教授指出，阿尔法核素药物具备“更强能量、更短射程、更耐乏氧、更易防护”四大临床应用独特优势，让核素治疗肿瘤成为“未来蓝海”。
 
-民航当局随后表示，科威特航空和半岛航空在采取安全措施后已恢复航班。
+目前，全球医学界对医用阿尔法核素的应用研究还处在起步阶段，术语使用不统一、概念界定不明晰，导致多元异构的基础研究与应用场景表述呈现交叉错配现象，这仍是需要解决的问题。
 
-据伊朗官方媒体报道，伊朗精锐的革命卫队称其并未向科威特机场开火，并将破坏归咎于美军拦截导弹未能命中目标。
+这种“各说各话”的语义现象，不仅影响科学研究结果的可比性，更增加了未来临床转化与规范管理的难度。
 
-美方军方表示这一说法不实，称伊朗无人机是蓄意针对机场发动袭击。
+据悉，围绕医用阿尔法核素的标准化工作，已有国际组织将其纳入行动计划，比如国际计量局(BIPM)推动的AlphaMet项目，尝试围绕阿尔法核素计量与应用规范开展系统研究，助力推动阿尔法核素药物从实验室走向临床、惠及患者，这标志着医用阿尔法核素开始进入“标准驱动”的新发展阶段。
 
-此前，伊朗媒体报道称，革命卫队袭击了驻巴林的美国第五舰队总部、一处美军空军基地以及一艘名为Panaya的船只。
+《标准》围绕阿尔法核素医学应用的关键科学问题与应用场景，系统梳理并规范了涉及阿尔法核素特性、放射性核素药物、辐射生物效应、微剂量学等多个技术维度的核心术语，并针对长期存在的“概念有交叉、定义不统一、使用不规范”等问题，进行了标准界定与聚类整合。
 
 ## 相关推荐
 
-- 2026-06-29 17:54 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 18:13 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 17:57 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 18:03 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 18:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 17:48 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 17:53 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 17:49 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 18:02 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 17:50 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 17:51 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 17:58 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 18:05 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 18:16 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 18:01 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 18:07 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 18:06 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 18:07 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 18:06 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 18:23 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 18:01 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 18:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 18:23 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 18:16 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 18:00 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 18:11 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:17 - [波兰创该国高温纪录](http://www.blog.minike.top/Article/details/4792730.shtml)
-- 2026-06-29 17:49 - [官媒首曝六代机？大V解读](https://www.share.kurohicncr.top/Article/details/9661225852.shtml)
-- 2026-06-29 17:50 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/88260.shtml)
-- 2026-06-29 17:54 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/02542.shtml)
-- 2026-06-29 18:13 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/03080092.shtml)
-- 2026-06-29 18:11 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/94227.shtml)
-- 2026-06-29 18:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/043239.shtml)
-- 2026-06-29 18:00 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/04454441.shtml)
-- 2026-06-29 18:00 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/625223075.shtml)
-- 2026-06-29 18:09 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/510377839.shtml)
-- 2026-06-29 18:01 - [当我回母校教书](https://www.blog.minike.top/Article/details/36101.shtml)
-- 2026-06-29 18:13 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/532425520.shtml)
-- 2026-06-29 17:49 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/222923303639.shtml)
-- 2026-06-29 18:12 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/84856234818.shtml)
-- 2026-06-29 18:08 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/58977802903.shtml)
+- 2026-06-29 18:20 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/4088669438.shtml)
+- 2026-06-29 18:09 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/84064948101.shtml)
+- 2026-06-29 18:16 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/216273756.shtml)
+- 2026-06-29 17:58 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/486214195660.shtml)
+- 2026-06-29 18:01 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/90794696.shtml)
+- 2026-06-29 17:57 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/72077.shtml)
+- 2026-06-29 17:59 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/92533.shtml)
+- 2026-06-29 17:56 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/1353271.shtml)
+- 2026-06-29 17:54 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/99401.shtml)
+- 2026-06-29 18:23 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/1637759523.shtml)
+- 2026-06-29 18:23 - [金刚川](http://www.blog.kurohicncr.top/Article/details/343418.shtml)
+- 2026-06-29 18:22 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/051582393570.shtml)
+- 2026-06-29 18:23 - [NBA交易](http://www.blog.minike.top/Article/details/3270390801.shtml)
+- 2026-06-29 18:15 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/17762035744.shtml)
+- 2026-06-29 18:12 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/3557021804.shtml)

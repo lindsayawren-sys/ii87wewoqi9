@@ -1,50 +1,56 @@
-# 【百万庄小课堂】高考遇上生理期疼痛 医生详解如何做才不伤身
+# 警惕“大佐”回归 日本政府拟修改自卫队“官阶”引质疑
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月04日 16:05 来源：中国新闻网 高考进入倒计时，如何科学应对生理期成为不少考生家长的关注焦点。记者到安徽医科大学第二附属医院采访妇科专家，详解何种症状需要医学介入、常用药物的安全性，并给出非药物舒缓建议，助力考生平稳应考。(记者 储玮玮 安徽合肥报道） 责任编辑：【叶攀】
+据日本方面消息，日前，日本政府已敲定修改自卫队“官阶”名称的方案。调整后的部分称呼包括“大佐”等与旧日本帝国军队所用存在重合。 日本舆论质疑高市政府“回归战前”色彩加深 总台记者 李卫兵：连日来，日本高市早苗政权推进再军事化的动作接连不断，继解禁武器出口、推动设立国家情报局之后，日本方面近日又爆出日本政府已经敲定修改自卫队“官阶”名称的方案，并计划于本年度内向国会提交相关修订草
 
 ## 正文
 
-发布时间：2026年06月04日 16:05 来源：中国新闻网 高考进入倒计时，如何科学应对生理期成为不少考生家长的关注焦点。
+据日本方面消息，日前，日本政府已敲定修改自卫队“官阶”名称的方案。
 
-记者到安徽医科大学第二附属医院采访妇科专家，详解何种症状需要医学介入、常用药物的安全性，并给出非药物舒缓建议，助力考生平稳应考。
+调整后的部分称呼包括“大佐”等与旧日本帝国军队所用存在重合。
 
-(记者 储玮玮 安徽合肥报道） 责任编辑：【叶攀】
+日本舆论质疑高市政府“回归战前”色彩加深 总台记者 李卫兵：连日来，日本高市早苗政权推进再军事化的动作接连不断，继解禁武器出口、推动设立国家情报局之后，日本方面近日又爆出日本政府已经敲定修改自卫队“官阶”名称的方案，并计划于本年度内向国会提交相关修订草案。
+
+调整后的部分称呼与旧日本军队的官阶名称完全一样，比如“大佐”等。
+
+高市早苗政权的这一新动向立即引发了日本国内舆论的质疑和反对的声音。
+
+日本《东京新闻》发表了标题为《高市首相是想把国家变回战前那样吗？
+
+》的相关报道，报道中表示，高市内阁中的强硬派阁僚格外活跃，正在考虑恢复旧军队的军衔称谓，“回归战前”的色彩正不断加深。
+
+日本在野党批评 此举无异于赋予日本发动无谓战争的权力 总台记者 李卫兵：日本立宪民主党籍参议院议员小西洋之在社交媒体上发文，称这种做法愚蠢至极。
 
 ## 相关推荐
 
-- 2026-06-29 18:12 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 18:14 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 18:01 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 18:10 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 18:14 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 18:04 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 18:07 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 18:07 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 18:01 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 18:06 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 17:58 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 18:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 18:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 18:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 18:15 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 18:01 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 17:55 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 18:16 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 18:05 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 18:15 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 18:14 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 18:08 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 18:03 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 18:01 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:56 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/012458481869.shtml)
-- 2026-06-29 18:16 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/235495210.shtml)
-- 2026-06-29 18:09 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/890282666347.shtml)
-- 2026-06-29 17:55 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/0409795413.shtml)
-- 2026-06-29 17:49 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/80175.shtml)
-- 2026-06-29 17:58 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/1641529.shtml)
-- 2026-06-29 17:57 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/599645.shtml)
-- 2026-06-29 18:05 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/2545567395.shtml)
-- 2026-06-29 18:03 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/84903402361.shtml)
-- 2026-06-29 18:03 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/3924984.shtml)
-- 2026-06-29 18:14 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/15850719813.shtml)
-- 2026-06-29 18:06 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.minike.top/Article/details/15965.shtml)
-- 2026-06-29 18:08 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/72848827.shtml)
-- 2026-06-29 18:10 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/911153092.shtml)
-- 2026-06-29 17:50 - [博主：AI泡沫必须破灭](https://www.blog.minike.top/Article/details/144278.shtml)
+- 2026-06-29 18:08 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/03245103476.shtml)
+- 2026-06-29 18:17 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/6514048.shtml)
+- 2026-06-29 17:57 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/0572405955.shtml)
+- 2026-06-29 18:12 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/557772.shtml)
+- 2026-06-29 18:00 - [重度抑郁女孩没钱去做心理咨询](https://www.share.minike.top/Article/details/087361721.shtml)
+- 2026-06-29 18:20 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/876535381591.shtml)
+- 2026-06-29 17:57 - [急先锋](http://www.blog.minike.top/Article/details/8027805.shtml)
+- 2026-06-29 18:13 - [当地回应林区违规放羊遭豹啃食](http://www.share.minike.top/Article/details/7694260897.shtml)
+- 2026-06-29 18:14 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/2910779551.shtml)
+- 2026-06-29 18:01 - [滚石就音乐人屠颖去世事件发声明](https://www.share.kurohicncr.top/Article/details/338943373.shtml)
+- 2026-06-29 18:14 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/3366850.shtml)
+- 2026-06-29 18:08 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/42722349.shtml)
+- 2026-06-29 18:00 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/344766732.shtml)
+- 2026-06-29 18:12 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/112529216354.shtml)
+- 2026-06-29 17:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/58551.shtml)

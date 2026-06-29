@@ -1,57 +1,59 @@
-# Redwire获Astrobiome Space合同 将发射世界首个商业太空温室
+# 美联储本周料按兵不动 中东战争冲击油价 通胀面临不确定性
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-太空基础设施公司Redwire Corporation近日宣布，已与卢森堡生物科技公司Astrobiome Space签订合同，将在国际空间站上的Redwire温室系统内种植草莓，并测试其专利土壤增效产品。此次任务标志着Redwire温室系统——被公司定位为世界首个商业太空温室——的首次太空飞行。 根据计划，Astrobiome Space将利用从极端太空环境中筛选的微生物研发
+美联储官员本周召开会议，此时中东战争已进入第二个月，给经济带来的影响造成了持续的不确定性。这很可能使央行维持利率不变。 “这场战争将如何解决仍存在不确定性，油价一直波动。但它们仍远高于战前水平，因此最终会对经济产生影响，”前克利夫兰联储主席洛蕾塔·梅斯特表示。 政策制定者正在权衡战争对通胀和增长的影响，等待观察其严重程度，这取决于战争持续时间。 前堪萨斯城联储主席埃丝特·乔治表
 
 ## 正文
 
-太空基础设施公司Redwire Corporation近日宣布，已与卢森堡生物科技公司Astrobiome Space签订合同，将在国际空间站上的Redwire温室系统内种植草莓，并测试其专利土壤增效产品。
+美联储官员本周召开会议，此时中东战争已进入第二个月，给经济带来的影响造成了持续的不确定性。
 
-此次任务标志着Redwire温室系统——被公司定位为世界首个商业太空温室——的首次太空飞行。
+这很可能使央行维持利率不变。
 
-根据计划，Astrobiome Space将利用从极端太空环境中筛选的微生物研发的生物刺激素产品，在轨道上种植首批野生草莓。
+“这场战争将如何解决仍存在不确定性，油价一直波动。
 
-该产品预计可增强草莓果实的天然抗逆性和营养密度，包括提升维生素C、钾、黄酮类化合物、多酚和抗氧化剂水平，使太空种植作物的品质更接近地球野生种植标准。
+但它们仍远高于战前水平，因此最终会对经济产生影响，”前克利夫兰联储主席洛蕾塔·梅斯特表示。
 
-为准备国际空间站飞行任务，Astrobiome Space将于6月起在地面温室系统中开始试种。
+政策制定者正在权衡战争对通胀和增长的影响，等待观察其严重程度，这取决于战争持续时间。
 
-Redwire温室系统采用经过飞行验证的植物生长技术，包括与特百惠品牌合作开发、目前由Redwire在国际空间站上运营的被动轨道营养输送系统装置。
+前堪萨斯城联储主席埃丝特·乔治表示，有一种感觉是，冲击波将贯穿整个夏季并延续到秋季，使油价保持高位并影响供应。
 
-该系统为希望将作物科学从实验室推进到太空实际生产的客户提供了一种简单、可扩展的商业解决方案。
+到目前为止，官方数据显示，由于汽油价格飙升，整体通胀已经上升，但更高的能源价格尚未传导至商品和服务价格。
 
-Redwire欧洲区执行副总裁Marc Dielissen表示：“与Astrobiome Space签订的这份合同，是推动地球以外可持续生命支持系统关键技术发展的重要一步。
+梅斯特表示，她认为美联储需要谨慎对待这种传导。
 
 ## 相关推荐
 
-- 2026-06-29 18:10 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 17:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 18:05 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 17:57 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 17:49 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 17:56 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 18:00 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 17:49 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 18:03 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 18:02 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 17:57 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 18:21 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 18:15 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 17:59 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 18:18 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 18:18 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 18:07 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 17:55 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 18:18 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 18:11 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 18:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 18:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 17:55 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 18:01 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:10 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/96665.shtml)
-- 2026-06-29 17:53 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/25834.shtml)
-- 2026-06-29 17:57 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/09812666133.shtml)
-- 2026-06-29 18:14 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/18423261340.shtml)
-- 2026-06-29 17:48 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/69284026887.shtml)
-- 2026-06-29 18:08 - [滚石就音乐人屠颖去世事件发声明](https://www.share.kurohicncr.top/Article/details/366085.shtml)
-- 2026-06-29 18:05 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/69437.shtml)
-- 2026-06-29 18:00 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/5524911.shtml)
-- 2026-06-29 18:08 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/0098139189.shtml)
-- 2026-06-29 18:11 - [女生每天戴耳机18小时突发耳聋](http://www.blog.kurohicncr.top/Article/details/778200.shtml)
-- 2026-06-29 18:14 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/233648.shtml)
-- 2026-06-29 18:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/48490013138.shtml)
-- 2026-06-29 17:48 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/4776715003.shtml)
-- 2026-06-29 17:58 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/722176.shtml)
-- 2026-06-29 18:08 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/5763518.shtml)
+- 2026-06-29 18:05 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/65404.shtml)
+- 2026-06-29 18:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/44002319.shtml)
+- 2026-06-29 18:18 - [货车司机雨中帮交警挪树获表扬](https://www.blog.minike.top/Article/details/463943780.shtml)
+- 2026-06-29 17:58 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/217218395.shtml)
+- 2026-06-29 18:09 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/377019840.shtml)
+- 2026-06-29 18:03 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/412557.shtml)
+- 2026-06-29 18:00 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.kurohicncr.top/Article/details/919282511.shtml)
+- 2026-06-29 18:20 - [货车司机雨中帮交警挪树获表扬](http://www.blog.minike.top/Article/details/10891563161.shtml)
+- 2026-06-29 18:17 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/64574.shtml)
+- 2026-06-29 18:07 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/9397421.shtml)
+- 2026-06-29 18:22 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/272946.shtml)
+- 2026-06-29 18:07 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/50829.shtml)
+- 2026-06-29 18:22 - [扬名立万](http://www.blog.minike.top/Article/details/08658450932.shtml)
+- 2026-06-29 18:04 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/162879.shtml)
+- 2026-06-29 18:18 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/4356154489.shtml)

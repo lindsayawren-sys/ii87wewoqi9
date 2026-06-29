@@ -1,60 +1,57 @@
-# 600年白沙壁画景区焕新开放 数字技术让白沙壁画“活起来”
+# Shearwater将出售SW Baret船舶用于改装为震源船
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-中国青年网北京6月3日电(见习记者 菅浩云 记者 杨月)高考临近，一场融合传统文化与数字科技的祝福活动在云南丽江白沙古镇启动。 近日，位于丽江白沙古镇的白沙壁画景区，已完成保护性提升与数字化改造。其中，拥有600余年历史的文昌宫，以“白沙纳祥·文运永昌”为主题重新开放。游客不仅可以走进古建筑感受传统文昌文化，还能通过数字化展示、沉浸式互动等方式近距离了解白沙壁画这一珍贵文化遗产
+海洋地球物理服务提供商Shearwater Geoservices已同意将SW Baret船舶出售给一位未公开的买家，该船将被改装为一艘专用震源船。 该公司表示，商定的销售价格超过了该船的账面净值，预计将为Shearwater带来账面收益，并对流动性产生积极影响。 该交易预计将于2026年第二季度末完成。 这艘建于2012年的船舶自2021年起一直处于闲置状态，出售后将进行改装
 
 ## 正文
 
-中国青年网北京6月3日电(见习记者 菅浩云 记者 杨月)高考临近，一场融合传统文化与数字科技的祝福活动在云南丽江白沙古镇启动。
+海洋地球物理服务提供商Shearwater Geoservices已同意将SW Baret船舶出售给一位未公开的买家，该船将被改装为一艘专用震源船。
 
-近日，位于丽江白沙古镇的白沙壁画景区，已完成保护性提升与数字化改造。
+该公司表示，商定的销售价格超过了该船的账面净值，预计将为Shearwater带来账面收益，并对流动性产生积极影响。
 
-其中，拥有600余年历史的文昌宫，以“白沙纳祥·文运永昌”为主题重新开放。
+该交易预计将于2026年第二季度末完成。
 
-游客不仅可以走进古建筑感受传统文昌文化，还能通过数字化展示、沉浸式互动等方式近距离了解白沙壁画这一珍贵文化遗产。
+这艘建于2012年的船舶自2021年起一直处于闲置状态，出售后将进行改装，包括拆除拖缆绞车及相关设备。
 
-白沙壁画是世界文化遗产丽江古城的重要组成部分，与敦煌莫高窟壁画、北京法海寺壁画、山西永乐宫壁画并称我国四大壁画艺术瑰宝。
+Shearwater表示，这笔交易与早前宣布的另一份船舶销售协议备忘录无关，后者预计也将在第二季度内完成。
 
-现存壁画55幅，分布于文昌宫、大宝积宫、琉璃殿和大定阁等建筑群中。
+Shearwater首席财务官表示：“此次资产剥离支持Shearwater持续优化船队、根据战略和财务优先事项配置资本的工作。
 
-始建于明洪武年间的文昌宫，则见证了丽江木氏土司崇尚汉学、兴办科举、推行教化的历史进程。
+交易净收益将按照Shearwater银行和债券协议中适用的机制进行使用。
 
-院内保留的清代科举主题壁画，生动再现古代科举风貌与文昌文化内涵，成为解读西南地区民族融合与民俗发展的珍贵实物遗存。
+”责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 17:59 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 17:51 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 17:53 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 17:48 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 17:56 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 18:17 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 17:53 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 18:00 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 18:10 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 17:52 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 18:13 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 17:59 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 18:14 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 18:05 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 18:08 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 18:11 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 17:54 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 18:12 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 18:02 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 18:22 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 17:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 18:09 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 18:16 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 18:11 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:03 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/801277.shtml)
-- 2026-06-29 18:07 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/305874.shtml)
-- 2026-06-29 18:14 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/36947036261.shtml)
-- 2026-06-29 17:50 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/52060.shtml)
-- 2026-06-29 18:15 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/8188049.shtml)
-- 2026-06-29 17:56 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/42055667624.shtml)
-- 2026-06-29 17:57 - [博主：黄金和原油回落不等于风险消失](https://www.share.minike.top/Article/details/4362450297.shtml)
-- 2026-06-29 17:52 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/536014091.shtml)
-- 2026-06-29 18:05 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/071184.shtml)
-- 2026-06-29 18:06 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/482840068.shtml)
-- 2026-06-29 17:48 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/0360578.shtml)
-- 2026-06-29 18:08 - [12所大学更正招生目录](https://www.share.minike.top/Article/details/4006374.shtml)
-- 2026-06-29 18:11 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/4036544.shtml)
-- 2026-06-29 17:53 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/5303030201.shtml)
-- 2026-06-29 17:52 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/75673777.shtml)
+- 2026-06-29 17:58 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/62468043.shtml)
+- 2026-06-29 17:54 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/22661145.shtml)
+- 2026-06-29 17:55 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/663907.shtml)
+- 2026-06-29 18:15 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/03155.shtml)
+- 2026-06-29 18:11 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/2947072811.shtml)
+- 2026-06-29 17:58 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/34277235.shtml)
+- 2026-06-29 18:17 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/89533992.shtml)
+- 2026-06-29 18:21 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/236476938.shtml)
+- 2026-06-29 17:55 - [《贺子珍》](http://www.share.minike.top/Article/details/1786680455.shtml)
+- 2026-06-29 18:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/24787142.shtml)
+- 2026-06-29 18:01 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/74945829.shtml)
+- 2026-06-29 18:08 - [业内：全球市场迎来结构性投资窗口](http://www.share.minike.top/Article/details/35050.shtml)
+- 2026-06-29 18:07 - [日本偶像龟梨和也宣布结婚](http://www.share.kurohicncr.top/Article/details/465136486580.shtml)
+- 2026-06-29 17:56 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/63487919.shtml)
+- 2026-06-29 18:19 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/34879767.shtml)

@@ -1,61 +1,59 @@
-# 红相股份“欺诈发行”案，对中信建投的影响有多大？
+# 《公开募捐平台服务管理办法》解读
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！红相股份两次欺诈发行，两大审计机构被罚，保荐机构中信建投的处罚并未明确，但其“金字招牌”投行业务再次蒙尘。 本文由无冕财经（wumiancaijing）原创发布 作者：杨一轩 编辑：陈涧 设计：岚昇 一起严重的财务造假案，走到刑事追责阶段。 5月29日，据红
+近日，民政部、工业和信息化部、广电总局、国家新闻出版署、国家网信办印发修订后的《公开募捐平台服务管理办法》，自2026年5月1日起施行。现解读如下： 一、修订背景 2016年，民政部、工业和信息化部、国家新闻出版广电总局、国家网信办联合制定了《公开募捐平台服务管理办法》(以下简称《办法》)，对广播、电视、报刊及网络服务提供者、电信运营商为慈善组织开展公开募捐活动或者发布公开募捐
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+近日，民政部、工业和信息化部、广电总局、国家新闻出版署、国家网信办印发修订后的《公开募捐平台服务管理办法》，自2026年5月1日起施行。
 
-红相股份两次欺诈发行，两大审计机构被罚，保荐机构中信建投的处罚并未明确，但其“金字招牌”投行业务再次蒙尘。
+现解读如下： 一、修订背景 2016年，民政部、工业和信息化部、国家新闻出版广电总局、国家网信办联合制定了《公开募捐平台服务管理办法》(以下简称《办法》)，对广播、电视、报刊及网络服务提供者、电信运营商为慈善组织开展公开募捐活动或者发布公开募捐信息提供平台服务的行为进行了规范。
 
-本文由无冕财经（wumiancaijing）原创发布 作者：杨一轩 编辑：陈涧 设计：岚昇 一起严重的财务造假案，走到刑事追责阶段。
+2023年12月29日，第十四届全国人民代表大会常务委员会第七次会议通过《全国人民代表大会常务委员会关于修改〈中华人民共和国慈善法〉的决定》。
 
-5月29日，据红相股份（300427.SZ）公告，公司及实控人杨成于当日收到厦门市公安局下发的《移送起诉告知书》，被移送厦门市人民检察院审查起诉。
+根据修改后的慈善法要求和实践发展需要，需要对《办法》进行修订。
 
-▲红相股份公告被审查起诉。
+二、修订内容此次修订立足慈善法新要求，保持现行《办法》基本框架、体例不变，进行最必要调整。
 
-这家“电力检测第一股”被查出连续六年虚增营收和利润，还两次欺诈发行，已在此前被行政处罚。
+修订内容主要涉及以下三个方面： 一是增加管理要求。
 
-涉及该案两家会计师事务所被合计罚没超3300万元，作为保荐机构的中信建投，尚未有明确处罚消息传出。
+修订后的《办法》第二条要求提供公开募捐平台服务的广播、电视、报刊及网络服务提供者、电信运营商“应当符合《广播电视管理条例》、《出版管理条例》、《互联网信息服务管理办法》、《中华人民共和国电信条例》等规定的条件”，对于网络服务提供者，在符合上述一般性管理要求的基础上，还应当遵守新制定的《互联网公开募捐服务平台管理办法》。
 
-今年4月30日，按北京证监局公告，中信建投因在个别保荐项目中尽职调查不充分，被采取监管谈话措施，三名保代被罚。
+第三条增加了“核实公开募捐方案在民政部门的备案情况”的要求，明确平台服务提供者除了查验慈善组织的登记证书和公开募捐资格证书外，还应当对其公开募捐方案备案情况进行核实。
 
 ## 相关推荐
 
-- 2026-06-29 18:00 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 18:04 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 18:03 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 18:16 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 18:02 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 17:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 17:53 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 18:00 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 17:48 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 17:53 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 18:10 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 18:16 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 18:06 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 18:13 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 18:02 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 17:58 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 18:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 18:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 18:23 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 18:22 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 18:01 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 18:02 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 17:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 17:58 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 18:03 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 18:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 17:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 18:18 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:55 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/54606.shtml)
-- 2026-06-29 18:04 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/26751353.shtml)
-- 2026-06-29 18:06 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/625318902.shtml)
-- 2026-06-29 18:13 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/821186.shtml)
-- 2026-06-29 18:04 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/619532267670.shtml)
-- 2026-06-29 18:07 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/29448318.shtml)
-- 2026-06-29 17:59 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/325654738976.shtml)
-- 2026-06-29 18:00 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/48449.shtml)
-- 2026-06-29 17:58 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/059772.shtml)
-- 2026-06-29 17:57 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/8410945614.shtml)
-- 2026-06-29 18:00 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/34894652613.shtml)
-- 2026-06-29 18:12 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/93428835.shtml)
-- 2026-06-29 18:11 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/0452138044.shtml)
-- 2026-06-29 18:02 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/720349383.shtml)
-- 2026-06-29 17:54 - [小说《无悔追踪》翻红](http://www.share.minike.top/Article/details/088086505.shtml)
+- 2026-06-29 18:00 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.minike.top/Article/details/30863947745.shtml)
+- 2026-06-29 17:58 - [疑似吴建豪老婆正脸照](http://www.share.minike.top/Article/details/75197530025.shtml)
+- 2026-06-29 18:04 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/629894.shtml)
+- 2026-06-29 18:10 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/145675097.shtml)
+- 2026-06-29 17:55 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/982002557.shtml)
+- 2026-06-29 18:03 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/49154.shtml)
+- 2026-06-29 18:16 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/9681583725.shtml)
+- 2026-06-29 18:23 - [叠纸客服回应恋与深空新角色争议](http://www.share.minike.top/Article/details/95807.shtml)
+- 2026-06-29 17:59 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/1616894931.shtml)
+- 2026-06-29 18:13 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/103383681857.shtml)
+- 2026-06-29 18:08 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/97909350.shtml)
+- 2026-06-29 17:54 - [流金岁月](http://www.blog.minike.top/Article/details/71051427297.shtml)
+- 2026-06-29 17:58 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/40855217.shtml)
+- 2026-06-29 18:15 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/335532.shtml)
+- 2026-06-29 18:09 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/86113516.shtml)

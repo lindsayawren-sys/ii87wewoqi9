@@ -1,48 +1,60 @@
-# 又帅又飒！看云南专业舞者把目瑙纵歌跳出全网“天花板”
+# 我的青春我“职”道|绽放在西北边陲的山茶花
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 14:42 来源：中国新闻网 近日，一段创新版景颇刀舞刷屏各大社交平台。云南省歌舞剧院首席舞者袁志平以一把长刀、将景颇族千年民俗跳出全网“天花板”，让海内外观众直呼“帅气”。一起来看袁志平现场教学景颇刀技，分享“出圈”的幕后故事！(袁鸿凯) 责任编辑：【罗攀】
+中国青年网北京4月25日电(记者 闫章默 通讯员 张璟琨)从婺江之畔到西北边陲，4700多公里，这是金华到新疆阿克苏的距离，也是李佳用脚步丈量的青春跨度。 李佳毕业于金华职业技术大学师范学院学前教育专业。2024年毕业时，她在内心暗暗立誓，“青年当有志，立志在四方，祖国需要处，皆是我故乡。”两年后的今天，她已经是新疆阿克苏地区温宿县古勒阿瓦提乡的一名“西部计划”志愿者、青年宣讲
 
 ## 正文
 
-发布时间：2026年06月05日 14:42 来源：中国新闻网 近日，一段创新版景颇刀舞刷屏各大社交平台。
+中国青年网北京4月25日电(记者 闫章默 通讯员 张璟琨)从婺江之畔到西北边陲，4700多公里，这是金华到新疆阿克苏的距离，也是李佳用脚步丈量的青春跨度。
 
-云南省歌舞剧院首席舞者袁志平以一把长刀、将景颇族千年民俗跳出全网“天花板”，让海内外观众直呼“帅气”。
+李佳毕业于金华职业技术大学师范学院学前教育专业。
 
-一起来看袁志平现场教学景颇刀技，分享“出圈”的幕后故事！
+2024年毕业时，她在内心暗暗立誓，“青年当有志，立志在四方，祖国需要处，皆是我故乡。
 
-(袁鸿凯) 责任编辑：【罗攀】
+”两年后的今天，她已经是新疆阿克苏地区温宿县古勒阿瓦提乡的一名“西部计划”志愿者、青年宣讲员、团中央青年讲师团成员。
+
+她就像一朵“山茶花”，在八婺大地灿烂成长，在西北边陲傲然绽放。
+
+缘起：一颗奔赴远方的种子 作为宁波孩子，李佳对“阿克苏”的记忆保留在妈妈拿回来的一颗颗“好吃的苹果”上，那里是小学班主任远赴支教的地方。
+
+这份遥远的向往，在她心中埋下了种子，并在2024年生根发芽。
+
+即将毕业，李佳毅然报名大学生志愿服务西部计划(以下简称“西部计划”)，“依然记得当时老师问我，为什么想参加西部计划？
 
 ## 相关推荐
 
-- 2026-06-29 17:52 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 17:49 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 17:57 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 17:56 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 18:08 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 18:02 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 17:49 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 17:59 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 18:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 18:02 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 18:06 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 17:54 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 18:01 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 18:14 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 17:59 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 18:06 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 18:11 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 18:13 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 18:19 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 17:57 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 18:17 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 18:21 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 18:14 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 18:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:15 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/83951.shtml)
-- 2026-06-29 18:04 - [黄金也扛不住了](https://www.share.minike.top/Article/details/20305.shtml)
-- 2026-06-29 18:06 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/34770614099.shtml)
-- 2026-06-29 18:00 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/601627222.shtml)
-- 2026-06-29 17:49 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/6075044241.shtml)
-- 2026-06-29 18:06 - [小鹏MONAL03预售定档7月2日](https://www.share.kurohicncr.top/Article/details/763278494.shtml)
-- 2026-06-29 18:05 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/60817267142.shtml)
-- 2026-06-29 17:58 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/962099560.shtml)
-- 2026-06-29 18:16 - [断骨增高灰产拉一人提成1.5万元](http://www.share.kurohicncr.top/Article/details/94691.shtml)
-- 2026-06-29 18:13 - [美人鱼](http://www.blog.minike.top/Article/details/2197993731.shtml)
-- 2026-06-29 18:14 - [普京承认俄出现燃料危机](https://www.share.minike.top/Article/details/144923093292.shtml)
-- 2026-06-29 18:04 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/518648.shtml)
-- 2026-06-29 18:00 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/35769.shtml)
-- 2026-06-29 18:15 - [周生如故](https://www.share.kurohicncr.top/Article/details/402534765.shtml)
-- 2026-06-29 18:04 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/61808880.shtml)
+- 2026-06-29 18:11 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/43039540.shtml)
+- 2026-06-29 18:11 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/4676642853.shtml)
+- 2026-06-29 18:04 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/534053.shtml)
+- 2026-06-29 18:18 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/23689.shtml)
+- 2026-06-29 18:18 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/259686.shtml)
+- 2026-06-29 18:17 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/23838.shtml)
+- 2026-06-29 17:54 - [小鹏MONAL03预售定档7月2日](http://www.blog.kurohicncr.top/Article/details/7877120.shtml)
+- 2026-06-29 18:14 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/46128279.shtml)
+- 2026-06-29 18:02 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/12910889.shtml)
+- 2026-06-29 17:55 - [人类对空调和其他家电有多双标](https://www.blog.kurohicncr.top/Article/details/223818212.shtml)
+- 2026-06-29 18:07 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/163962855.shtml)
+- 2026-06-29 18:22 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/9760570.shtml)
+- 2026-06-29 18:20 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/95475.shtml)
+- 2026-06-29 18:23 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/467713791.shtml)
+- 2026-06-29 18:13 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/34235.shtml)

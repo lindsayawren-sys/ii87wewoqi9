@@ -1,44 +1,56 @@
-# 华宝基金红利风向标：高股息资产承压，股息性价比提升
+# 新举措助跑旅游列车 激发消费新活力
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-责任编辑：常福强
+央视新闻客户端消息(新闻联播)：“五一”假期叠加各地春假，让铁路旅游市场提前升温。国铁集团推出一批旅游惠民服务新举措，满足旅客多样化出行需求，进一步激发文旅消费新活力。 这个周末，不少地方春假开始。郑州至信阳、乌鲁木齐至喀什、昆明至万象旅游列车加密开行，康养游、研学游、跨境游提前催热了“五一”假期旅游市场。 “五一”假期，一批全新打造的品牌旅游列车即将上线，满足旅客多样化出行需
 
 ## 正文
 
-责任编辑：常福强
+央视新闻客户端消息(新闻联播)：“五一”假期叠加各地春假，让铁路旅游市场提前升温。
+
+国铁集团推出一批旅游惠民服务新举措，满足旅客多样化出行需求，进一步激发文旅消费新活力。
+
+这个周末，不少地方春假开始。
+
+郑州至信阳、乌鲁木齐至喀什、昆明至万象旅游列车加密开行，康养游、研学游、跨境游提前催热了“五一”假期旅游市场。
+
+“五一”假期，一批全新打造的品牌旅游列车即将上线，满足旅客多样化出行需求。
+
+国铁集团推出旅游专列消费让利等服务新举措，进一步激发文旅消费新活力。
+
+目前，旅游专列沿线住宿已开始优惠券抵现活动。
+
+5月10日至31日，铁路12306客户端“铁路旅游”专区将发放5.19元、51.9元、519元三档满减券，旅客在购买相应价格的旅游专列产品时可以直接抵现。
 
 ## 相关推荐
 
-- 2026-06-29 18:06 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 18:11 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 17:51 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 17:49 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 18:05 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 18:08 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 17:55 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 17:57 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 18:04 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 18:10 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 18:11 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 18:17 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 18:20 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 18:01 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 18:06 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 17:55 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 18:14 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 18:07 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 18:00 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 18:17 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 17:57 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 18:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/6344911799.shtml)
-- 2026-06-29 18:11 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/172521105.shtml)
-- 2026-06-29 17:50 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/355638616398.shtml)
-- 2026-06-29 18:11 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/1476519.shtml)
-- 2026-06-29 18:16 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/74109318781.shtml)
-- 2026-06-29 18:06 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/193239.shtml)
-- 2026-06-29 17:59 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/294005.shtml)
-- 2026-06-29 18:03 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/550396292.shtml)
-- 2026-06-29 17:53 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/719105545609.shtml)
-- 2026-06-29 18:16 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/38578082.shtml)
-- 2026-06-29 18:02 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/111913085.shtml)
-- 2026-06-29 18:14 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/4022825218.shtml)
-- 2026-06-29 17:56 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/61340050477.shtml)
-- 2026-06-29 18:07 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/2234090.shtml)
-- 2026-06-29 17:51 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/70378.shtml)
+- 2026-06-29 17:58 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/540132280.shtml)
+- 2026-06-29 18:03 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/0805251.shtml)
+- 2026-06-29 17:55 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/215258.shtml)
+- 2026-06-29 18:02 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/03508450.shtml)
+- 2026-06-29 18:09 - [四川达州发生一起交通事故致2死](https://www.blog.minike.top/Article/details/85761205269.shtml)
+- 2026-06-29 17:54 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/014713210843.shtml)
+- 2026-06-29 18:20 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/4117333.shtml)
+- 2026-06-29 18:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/1136632.shtml)
+- 2026-06-29 17:55 - [张杰我九岁就跟你了](http://www.blog.minike.top/Article/details/998859329.shtml)
+- 2026-06-29 18:03 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/70474703212.shtml)
+- 2026-06-29 18:04 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/220912.shtml)
+- 2026-06-29 18:18 - [许建琼任湖南省检察院副检察长](http://www.blog.minike.top/Article/details/03900734888.shtml)
+- 2026-06-29 18:23 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/00725223098.shtml)
+- 2026-06-29 18:07 - [5万块的威力](http://www.blog.minike.top/Article/details/4211789.shtml)
+- 2026-06-29 18:09 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/060091337691.shtml)

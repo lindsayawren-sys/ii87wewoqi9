@@ -1,46 +1,61 @@
-# 视频|净利翻倍藏水分！药明康德靠卖资产撑业绩增长隐忧显现
+# 2026斯巴达勇士赛上海站举行 金博洋周政杰跨界组队
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：江苏经济报责任编辑：石秀珍 SF183
+中新网4月26日电 4月25日至26日，2026斯巴达勇士赛上海站在东方绿舟举行。作为2026赛季斯巴达勇士赛江浙沪地区的首站比赛，赛事吸引了超4000名选手参赛。本赛季全新的“双人组”首次亮相，中国花样滑冰运动员金博洋和演员周政杰跨界组队，完成挑战。 “双人组”赛事以队友间的协同合作为核心，参赛选手需共同完成赛道的跑步距离。本场比赛，除“胜利之矛”障碍需要两人分别单独完成尝试
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网4月26日电 4月25日至26日，2026斯巴达勇士赛上海站在东方绿舟举行。
 
-来源：江苏经济报责任编辑：石秀珍 SF183
+作为2026赛季斯巴达勇士赛江浙沪地区的首站比赛，赛事吸引了超4000名选手参赛。
+
+本赛季全新的“双人组”首次亮相，中国花样滑冰运动员金博洋和演员周政杰跨界组队，完成挑战。
+
+“双人组”赛事以队友间的协同合作为核心，参赛选手需共同完成赛道的跑步距离。
+
+本场比赛，除“胜利之矛”障碍需要两人分别单独完成尝试外，其余障碍均由任意一人完成即可计为通过。
+
+当日，金博洋与周政杰跨界组队参赛，以搭档形式回归斯巴达赛场。
+
+“第一次参加双人组比赛，和队友一起跳泥坑爬绳翻高栏，快乐加倍”，金博洋赛后说道。
+
+本次比赛举办场地位于上海东方绿舟，赛道在湖畔与林间穿行。
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 17:49 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 18:02 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 17:55 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 18:12 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 17:52 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 18:00 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 18:12 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 18:15 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 18:15 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 18:06 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 18:13 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 18:06 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 18:00 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 18:20 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 18:06 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 18:13 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 18:13 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 18:08 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 18:18 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 17:54 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 17:57 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 18:01 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 18:04 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 17:56 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 17:58 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 18:06 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:11 - [挪威王储妃长子两次强奸获刑](http://www.blog.minike.top/Article/details/88781918.shtml)
-- 2026-06-29 18:10 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/0231495156.shtml)
-- 2026-06-29 17:55 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/951216.shtml)
-- 2026-06-29 18:15 - [请回答王牌2019](http://www.share.minike.top/Article/details/47972126.shtml)
-- 2026-06-29 18:15 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/035027.shtml)
-- 2026-06-29 18:17 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/9721412.shtml)
-- 2026-06-29 17:49 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/23993775366.shtml)
-- 2026-06-29 17:51 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/5662300237.shtml)
-- 2026-06-29 18:05 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/56623208651.shtml)
-- 2026-06-29 17:55 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/52169.shtml)
-- 2026-06-29 17:50 - [V8](http://www.share.minike.top/Article/details/381800873785.shtml)
-- 2026-06-29 18:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/5044785326.shtml)
-- 2026-06-29 18:05 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/951135.shtml)
-- 2026-06-29 18:02 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/930949337141.shtml)
-- 2026-06-29 17:51 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/5410750.shtml)
+- 2026-06-29 18:03 - [税务总局披露5起合规申报个税案例](https://www.share.minike.top/Article/details/034837779082.shtml)
+- 2026-06-29 18:06 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/21821.shtml)
+- 2026-06-29 18:15 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/34754629.shtml)
+- 2026-06-29 18:21 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/373954860.shtml)
+- 2026-06-29 18:12 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/81456.shtml)
+- 2026-06-29 18:04 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/04523930.shtml)
+- 2026-06-29 18:08 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/7338149.shtml)
+- 2026-06-29 17:58 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/48097845209.shtml)
+- 2026-06-29 18:09 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/29671628115.shtml)
+- 2026-06-29 18:20 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/47160.shtml)
+- 2026-06-29 18:23 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/6957215085.shtml)
+- 2026-06-29 18:18 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/2349764.shtml)
+- 2026-06-29 18:18 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/930879868.shtml)
+- 2026-06-29 18:05 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/51544128.shtml)
+- 2026-06-29 17:55 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/478053903182.shtml)

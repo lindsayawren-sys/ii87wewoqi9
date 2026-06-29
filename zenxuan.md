@@ -1,50 +1,56 @@
-# 日韩股市集体低开 韩股跌2%
+# 我国能源供给保障有力 能源安全韧性持续增强
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-日经225指数开盘下跌0.8%，报67860.84点，科技股与电子股拖累大盘走弱。韩国综合股价指数（KOSPI）开盘下跌2%，至8623.82点。责任编辑：王永生
+央视新闻客户端消息(新闻联播)：国家能源局公布的最新数据显示，今年以来，我国能源生产稳步增长，能源绿色低碳转型纵深推进，能源安全韧性不断增强。 最新数据显示，截至3月底，全国累计发电装机容量39.6亿千瓦，同比增长15.5%。近40亿千瓦的体量稳居世界首位，装机量占全球总装机量近三成。 除了装机总量保持增长，能源供应结构也在发生积极变化。一季度，规模以上工业水电、核电、风电、太
 
 ## 正文
 
-日经225指数开盘下跌0.8%，报67860.84点，科技股与电子股拖累大盘走弱。
+央视新闻客户端消息(新闻联播)：国家能源局公布的最新数据显示，今年以来，我国能源生产稳步增长，能源绿色低碳转型纵深推进，能源安全韧性不断增强。
 
-韩国综合股价指数（KOSPI）开盘下跌2%，至8623.82点。
+最新数据显示，截至3月底，全国累计发电装机容量39.6亿千瓦，同比增长15.5%。
 
-责任编辑：王永生
+近40亿千瓦的体量稳居世界首位，装机量占全球总装机量近三成。
+
+除了装机总量保持增长，能源供应结构也在发生积极变化。
+
+一季度，规模以上工业水电、核电、风电、太阳能发电等清洁能源发电量0.7万亿千瓦时，同比增长2.8%，占规模以上工业发电量的33.2%。
+
+截至3月底，我国风电、太阳能装机量达到19亿千瓦。
+
+与此同时，能源消费结构也在持续优化。
+
+国家统计局数据显示，初步测算，一季度能源消费总量同比增长3.9%，增速比上年全年加快0.4个百分点；非化石能源占能源消费总量比重持续提高，比上年同期提高0.4个百分点；清洁电力生产和能源绿色消费实现同步增长，带动电气化水平稳步提升。
 
 ## 相关推荐
 
-- 2026-06-29 17:56 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 18:02 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 17:58 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 18:17 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 18:13 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 18:12 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 17:55 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 18:00 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 17:54 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 17:53 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 18:15 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 17:52 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 18:03 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 17:48 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 18:12 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 18:22 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 18:13 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 17:55 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 17:58 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 17:58 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 17:59 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 18:00 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 18:13 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 18:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:08 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/323241084.shtml)
-- 2026-06-29 18:12 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/4619399174.shtml)
-- 2026-06-29 17:51 - [娜扎搂着我的腰和我合照](http://www.share.minike.top/Article/details/18698160.shtml)
-- 2026-06-29 18:17 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/4912098.shtml)
-- 2026-06-29 18:16 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.kurohicncr.top/Article/details/77920066479.shtml)
-- 2026-06-29 18:06 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/756363902160.shtml)
-- 2026-06-29 18:17 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/635488894.shtml)
-- 2026-06-29 18:05 - [金牌调解](http://www.share.kurohicncr.top/Article/details/84234207.shtml)
-- 2026-06-29 18:12 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/1442167824.shtml)
-- 2026-06-29 18:09 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/614057562496.shtml)
-- 2026-06-29 18:09 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/189150246853.shtml)
-- 2026-06-29 17:51 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/537366677683.shtml)
-- 2026-06-29 18:02 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/50422.shtml)
-- 2026-06-29 17:56 - [明星大侦探第一季](http://www.share.minike.top/Article/details/9299718.shtml)
-- 2026-06-29 18:13 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/84467279.shtml)
+- 2026-06-29 18:01 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/1495970.shtml)
+- 2026-06-29 18:23 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/344424751.shtml)
+- 2026-06-29 18:11 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/1054338.shtml)
+- 2026-06-29 18:11 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/5473258732.shtml)
+- 2026-06-29 18:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/744213.shtml)
+- 2026-06-29 18:23 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/9720190839.shtml)
+- 2026-06-29 18:15 - [四川达州发生一起交通事故致2死](http://www.blog.minike.top/Article/details/8611877073.shtml)
+- 2026-06-29 18:04 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.minike.top/Article/details/1815020.shtml)
+- 2026-06-29 18:03 - [美国大满贯首日国乒主力均取胜](http://www.share.minike.top/Article/details/714685.shtml)
+- 2026-06-29 18:10 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/565345.shtml)
+- 2026-06-29 18:12 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/832771.shtml)
+- 2026-06-29 18:18 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/447728263129.shtml)
+- 2026-06-29 17:57 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/674321742548.shtml)
+- 2026-06-29 18:19 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/01536527340.shtml)
+- 2026-06-29 17:54 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/22838692.shtml)

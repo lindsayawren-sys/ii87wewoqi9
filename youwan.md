@@ -1,60 +1,46 @@
-# “天下第一雄关”嘉峪关迎马拉松 6月21日开赛文化属性跃升
+# 300200，实际控制人已被解除留置
 
-> 更新时间：2026-06-29 18:18:02 UTC+8
+> 更新时间：2026-06-29 18:24:02 UTC+8
 
 ## 摘要
 
-中新网兰州6月4日电 (闫姣 王佳怡)2026“中国建设银行”嘉峪关长城马拉松，将于6月21日在甘肃嘉峪关鸣枪开跑。嘉峪关市副市长赵淑敏3日在兰州表示，此次赛事设全程马拉松和半程马拉松，总规模7000人。受众更广的健康跑、家庭跑，将首次以配套活动——“夜跑雄关”的形式，于6月20日傍晚举行，规模达5000人。 当日，甘肃省政府新闻办在兰州举行嘉峪关长城马拉松新闻发布会。 嘉峪关
+4月24日，高盟新材（300200）公告称，公司收到控股股东高金技术产业集团有限公司（简称“高金集团”）转发的由四川省监察委员会签发的《解除留置通知书》，四川省监察委员会已解除对熊海涛女士的留置措施。目前，熊海涛女士已能正常履行公司董事的职责，公司生产经营情况正常。公司于2026年1月27日收到控高金集团的通知，公司实际控制人、副董事长熊海涛女士被四川省监察委员会立案调查并实施
 
 ## 正文
 
-中新网兰州6月4日电 (闫姣 王佳怡)2026“中国建设银行”嘉峪关长城马拉松，将于6月21日在甘肃嘉峪关鸣枪开跑。
+4月24日，高盟新材（300200）公告称，公司收到控股股东高金技术产业集团有限公司（简称“高金集团”）转发的由四川省监察委员会签发的《解除留置通知书》，四川省监察委员会已解除对熊海涛女士的留置措施。
 
-嘉峪关市副市长赵淑敏3日在兰州表示，此次赛事设全程马拉松和半程马拉松，总规模7000人。
+目前，熊海涛女士已能正常履行公司董事的职责，公司生产经营情况正常。
 
-受众更广的健康跑、家庭跑，将首次以配套活动——“夜跑雄关”的形式，于6月20日傍晚举行，规模达5000人。
-
-当日，甘肃省政府新闻办在兰州举行嘉峪关长城马拉松新闻发布会。
-
-嘉峪关长城马拉松是中国独具长城特色的主题赛事，自2023年创办以来已连续举办三年。
-
-赵淑敏介绍说，相比往年，2026年的赛道实现了三大核心升级：文化属性跃升、参赛体验优化、赛事周期延长。
-
-“长城马拉松”的主题更加鲜明，沿途将串联起嘉峪关最核心的自然与人文精华景观，跑一次马拉松，就能读懂一座城，“赛事期间，参赛选手凭号码布可免费游览嘉峪关关城、悬壁长城、长城第一墩、紫轩葡萄酒庄园等景区，随行家属也可享受半价优惠。
-
-” “天下第一雄关”嘉峪关是全国长城文化重要标志地，有“河西第一隘口”“边陲锁钥”之称。
+公司于2026年1月27日收到控高金集团的通知，公司实际控制人、副董事长熊海涛女士被四川省监察委员会立案调查并实施留置。
 
 ## 相关推荐
 
-- 2026-06-29 18:08 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 17:48 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 17:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 17:50 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 18:07 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 18:01 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 17:48 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 18:17 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 18:12 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 17:57 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 18:01 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 18:01 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 18:02 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 17:52 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 18:01 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 18:22 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 17:58 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 17:59 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 18:23 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 18:00 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 18:19 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 18:05 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 18:09 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 18:18 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/39163206.shtml)
-- 2026-06-29 17:50 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/79067.shtml)
-- 2026-06-29 18:10 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.kurohicncr.top/Article/details/843368789.shtml)
-- 2026-06-29 18:12 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/45270391.shtml)
-- 2026-06-29 17:57 - [12所大学更正招生目录](https://www.blog.kurohicncr.top/Article/details/043326231.shtml)
-- 2026-06-29 17:52 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/778425.shtml)
-- 2026-06-29 17:48 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/5639641445.shtml)
-- 2026-06-29 17:53 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/26831.shtml)
-- 2026-06-29 18:03 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/12241095687.shtml)
-- 2026-06-29 18:14 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/46744904922.shtml)
-- 2026-06-29 18:10 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/36705414500.shtml)
-- 2026-06-29 18:16 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/216159682.shtml)
-- 2026-06-29 18:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/18202327114.shtml)
-- 2026-06-29 17:57 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/39173533529.shtml)
-- 2026-06-29 17:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/38036217.shtml)
+- 2026-06-29 18:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/62520275.shtml)
+- 2026-06-29 17:54 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/93054220083.shtml)
+- 2026-06-29 17:55 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/4798908877.shtml)
+- 2026-06-29 18:02 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.kurohicncr.top/Article/details/505996547.shtml)
+- 2026-06-29 18:04 - [博主：AI泡沫必须破灭](http://www.blog.kurohicncr.top/Article/details/53257.shtml)
+- 2026-06-29 18:19 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/28585451.shtml)
+- 2026-06-29 18:03 - [美国大满贯首日国乒主力均取胜](http://www.blog.kurohicncr.top/Article/details/5810257984.shtml)
+- 2026-06-29 18:19 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/55484.shtml)
+- 2026-06-29 18:07 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/463317807.shtml)
+- 2026-06-29 18:18 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/70201054.shtml)
+- 2026-06-29 18:20 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/098735887.shtml)
+- 2026-06-29 18:19 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/1921913848.shtml)
+- 2026-06-29 18:04 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/202079.shtml)
+- 2026-06-29 18:19 - [人形机器人](https://www.share.kurohicncr.top/Article/details/34163440240.shtml)
+- 2026-06-29 18:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/721449.shtml)
