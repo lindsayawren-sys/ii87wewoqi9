@@ -1,60 +1,57 @@
-# 国家顶层部署“六张网”，数万亿元投资新机遇
+# 解码文化自信的城市样本｜潮州：工夫从未负潮州
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-(央视财经《经济信息联播》)近期召开的中共中央政治局会议明确提出，要深入挖掘内需潜力，加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等“六张网”的规划建设，这也是“六张网”建设首次被纳入国家顶层部署。从一系列重磅会议的明确部署，再到国家发展改革委的统筹规划，“六张网”建设正在加速从蓝图迈向现实。 >>> “六张网”如何稳定经济大盘？ ·水网 甘甜的丹江水，沿着南
+原标题：解码文化自信的城市样本丨工夫从未负潮州——解码“海滨邹鲁”潮州的文化自信样本 广东潮州，一座低调的小城，为何近年来愈发引人注目？ 是春节霸榜全网的“年味之最”，还是潮州菜的“人间至味”？是金漆木雕凝结的“时间美学”，还是工夫茶氤氲出的“气定神闲”？或许只有置身其中，方能渐渐品出真味——这座“活着的千年古城”，既是中原文化在南海之滨的活态传承，又与现代生活相映成趣。 20
 
 ## 正文
 
-(央视财经《经济信息联播》)近期召开的中共中央政治局会议明确提出，要深入挖掘内需潜力，加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等“六张网”的规划建设，这也是“六张网”建设首次被纳入国家顶层部署。
+原标题：解码文化自信的城市样本丨工夫从未负潮州——解码“海滨邹鲁”潮州的文化自信样本 广东潮州，一座低调的小城，为何近年来愈发引人注目？
 
-从一系列重磅会议的明确部署，再到国家发展改革委的统筹规划，“六张网”建设正在加速从蓝图迈向现实。
+是春节霸榜全网的“年味之最”，还是潮州菜的“人间至味”？
 
->>> “六张网”如何稳定经济大盘？
+是金漆木雕凝结的“时间美学”，还是工夫茶氤氲出的“气定神闲”？
 
-·水网 甘甜的丹江水，沿着南水北调这条水网大动脉一路北上，进入千家万户。
+或许只有置身其中，方能渐渐品出真味——这座“活着的千年古城”，既是中原文化在南海之滨的活态传承，又与现代生活相映成趣。
 
-然而，这条大动脉的核心水源——汉江，也面临自身“吃紧”的难题。
+2020年10月，习近平总书记来到潮州市考察，指出“潮州文化具有鲜明的地域特色，是岭南文化的重要组成部分，是中华文化的重要支脉”，并殷殷嘱托“要保护好城市历史文化遗存，延续城市文脉，使历史和当代相得益彰”。
 
-为了保障水资源调配的稳定，一条新的脉络正在水网之上加速显影。
+2026年春节假期，两倍于本地人口数量的游客涌入，吃潮州菜、赏英歌舞、行广济桥，看街巷烟火。
 
-2022年，引江补汉工程正式开工，作为国家水网主骨架建设的关键工程，这个项目建成后，中线北调水量可由年均95亿立方米增加到115.1亿立方米，大幅提升供水能力和保证率。
+这座兼具历史厚度、文化深度和发展热度的宝藏小城，正在传承保护中延续千年文脉，在活化创新中实现古韵新生。
 
-当水网的骨架在江河之间合龙，崭新的能量也开始在节点之间流动。
+工夫从来最潮州 广济楼展厅内，刺绣、木雕、泥塑、手拉朱泥壶、麦秆剪贴画……一件件潮州非遗作品美轮美奂、巧夺天工。
 
 ## 相关推荐
 
-- 2026-06-30 00:47 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 00:48 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 00:30 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 00:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 00:41 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 00:31 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 00:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 00:25 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 00:31 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 00:44 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 00:38 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 00:44 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 00:33 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 00:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 00:31 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 00:52 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 00:43 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 00:42 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 00:33 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 00:43 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 00:56 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 00:53 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 00:47 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 00:45 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 00:38 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:43 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/00460111007.shtml)
-- 2026-06-30 00:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/14991134688.shtml)
-- 2026-06-30 00:36 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/859810923.shtml)
-- 2026-06-30 00:37 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/307102.shtml)
-- 2026-06-30 00:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/5316905078.shtml)
-- 2026-06-30 00:38 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/79128441311.shtml)
-- 2026-06-30 00:53 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/61716558679.shtml)
-- 2026-06-30 00:47 - [扬名立万](http://www.share.minike.top/Article/details/4734337.shtml)
-- 2026-06-30 00:42 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/29183.shtml)
-- 2026-06-30 00:32 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/67626481759.shtml)
-- 2026-06-30 00:36 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/2967610.shtml)
-- 2026-06-30 00:40 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/8337844.shtml)
-- 2026-06-30 00:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/04184539069.shtml)
-- 2026-06-30 00:27 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/67698289.shtml)
-- 2026-06-30 00:27 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/34904.shtml)
+- 2026-06-30 00:38 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/60856787051.shtml)
+- 2026-06-30 00:30 - [《贺子珍》](http://www.blog.minike.top/Article/details/9411850.shtml)
+- 2026-06-30 00:59 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/9679378898.shtml)
+- 2026-06-30 00:56 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/68308093.shtml)
+- 2026-06-30 00:42 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/882385505.shtml)
+- 2026-06-30 00:40 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/068755820523.shtml)
+- 2026-06-30 00:57 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/072739.shtml)
+- 2026-06-30 00:37 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/804559941897.shtml)
+- 2026-06-30 00:58 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/40473.shtml)
+- 2026-06-30 00:53 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/8049991.shtml)
+- 2026-06-30 00:41 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/213994711522.shtml)
+- 2026-06-30 00:38 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/747050.shtml)
+- 2026-06-30 00:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/06140.shtml)
+- 2026-06-30 00:46 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/931764079.shtml)
+- 2026-06-30 00:59 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/98322573294.shtml)

@@ -1,59 +1,47 @@
-# 连续两年财务造假！这家公司被“ST”！
+# 光大期货0421热点追踪：蒙古限运是真是假？焦煤反弹能走多远？
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：IPO日报 6月7日晚间，西安派瑞功率半导体变流技术股份有限公司（下称“派瑞股份”，300831）发布公告称，公司于6月5日收到陕西证监局下发的《行政处罚事先告知书》。 派瑞股份2024年年度报告和2025年半年度报告存在虚假记载，但涉及的违法违规行为未触及《深圳证券交易所创业板股票上市规则》第十章第
+专题：光大期货热点追踪视频合集 0421热点追踪：蒙古限运是真是假？焦煤反弹能走多远？责任编辑：李铁民
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：光大期货热点追踪视频合集 0421热点追踪：蒙古限运是真是假？
 
-来源：IPO日报 6月7日晚间，西安派瑞功率半导体变流技术股份有限公司（下称“派瑞股份”，300831）发布公告称，公司于6月5日收到陕西证监局下发的《行政处罚事先告知书》。
+焦煤反弹能走多远？
 
-派瑞股份2024年年度报告和2025年半年度报告存在虚假记载，但涉及的违法违规行为未触及《深圳证券交易所创业板股票上市规则》第十章第五节规定的重大违法强制退市的情形。
-
-公司股票将自6月8日（星期一）开市起停牌一天，将于6月9日（星期二）开市起复牌并被实行“其他风险警示”处理，股票简称由“派瑞股份”变更为“ST派瑞（维权）”。
-
-张力制图 平滑业绩 根据《行政处罚事先告知书》，公司为平滑业绩，通过篡改商品验收单据的方式延迟确认销售收入。
-
-这导致公司2024年年度报告虚减营业收入2271.50万元、虚减利润总额1711.73万元，分别占当期报告披露金额的11.84%和26.18%。
-
-而2025年半年度报告中，公司虚增营业收入2271.50万元，虚增利润总额1711.73万元，分别占当期报告披露金额的26.87%和50.02%。
-
-2025年12月，公司已披露《关于前期会计差错更正及追溯调整的公告》，对受影响的相关定期报告中有关财务数据进行了更正调整。
+责任编辑：李铁民
 
 ## 相关推荐
 
-- 2026-06-30 00:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 00:49 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 00:25 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 00:41 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 00:38 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 00:40 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 00:50 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 00:53 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 00:37 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 00:41 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 00:41 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 00:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 00:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 00:33 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 00:30 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 00:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 00:37 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 00:52 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 00:49 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 00:50 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 00:51 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 00:31 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 00:35 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 01:00 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:38 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/91719305230.shtml)
-- 2026-06-30 00:48 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/85016023.shtml)
-- 2026-06-30 00:50 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/8087913.shtml)
-- 2026-06-30 00:24 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/08284970935.shtml)
-- 2026-06-30 00:33 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/866192726.shtml)
-- 2026-06-30 00:48 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/60694313455.shtml)
-- 2026-06-30 00:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/2261833.shtml)
-- 2026-06-30 00:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/421137.shtml)
-- 2026-06-30 00:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/6086786.shtml)
-- 2026-06-30 00:36 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/13164481586.shtml)
-- 2026-06-30 00:28 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/594750362.shtml)
-- 2026-06-30 00:38 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/9751069561.shtml)
-- 2026-06-30 00:45 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/33488.shtml)
-- 2026-06-30 00:29 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/42394121172.shtml)
-- 2026-06-30 00:53 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/02235.shtml)
+- 2026-06-30 00:44 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/91409449.shtml)
+- 2026-06-30 00:46 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/2740248029.shtml)
+- 2026-06-30 00:35 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/13400.shtml)
+- 2026-06-30 00:42 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/76410.shtml)
+- 2026-06-30 00:43 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/382126402692.shtml)
+- 2026-06-30 00:39 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/21927779184.shtml)
+- 2026-06-30 00:43 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/82438.shtml)
+- 2026-06-30 00:30 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/888726935157.shtml)
+- 2026-06-30 00:38 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/57084291.shtml)
+- 2026-06-30 00:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/3129234.shtml)
+- 2026-06-30 00:38 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/18812.shtml)
+- 2026-06-30 00:58 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/18292963.shtml)
+- 2026-06-30 00:57 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/60677388.shtml)
+- 2026-06-30 00:46 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/50216.shtml)
+- 2026-06-30 00:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/4361293088.shtml)

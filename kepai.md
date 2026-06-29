@@ -1,59 +1,61 @@
-# 上棉棉花日报（6.8） | 供需双弱压制短期走势，厄尔尼诺或引中期反弹
+# 中国成品油价年内首降
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-（来源：上海国际棉花交易中心）核心观点棉花价格今日延续弱势下行，郑棉主力合约跌破15900元/吨，短期受宏观压力、美棉产区天气改善及国内消费淡季拖累，呈现供需双弱格局；中长期需关注厄尔尼诺对新年度单产的潜在冲击及进口激增对供应结构的重塑，预计短期承压震荡，中期存在天气升水支撑。行情回顾6月8日，郑棉主力合约收盘报15830元/吨，下跌1.19%，日内减仓8943手，价格下跌伴随
+中新社北京4月21日电 (记者 庞无忌)中国成品油价迎年内首次下调。 中国国家发改委21日消息，4月7日国内成品油价格调整以来，国际市场原油价格剧烈震荡，前几日大幅回落后，4月20日再次出现较大幅度上涨，但本次调价的前10个工作日平均价格仍低于上次调价前10个工作日平均价格。根据国际市场油价变化情况，自4月21日24时起，国内汽、柴油价格每吨分别下调555元(人民币，下同)、5
 
 ## 正文
 
-（来源：上海国际棉花交易中心）核心观点棉花价格今日延续弱势下行，郑棉主力合约跌破15900元/吨，短期受宏观压力、美棉产区天气改善及国内消费淡季拖累，呈现供需双弱格局；中长期需关注厄尔尼诺对新年度单产的潜在冲击及进口激增对供应结构的重塑，预计短期承压震荡，中期存在天气升水支撑。
+中新社北京4月21日电 (记者 庞无忌)中国成品油价迎年内首次下调。
 
-行情回顾6月8日，郑棉主力合约收盘报15830元/吨，下跌1.19%，日内减仓8943手，价格下跌伴随资金离场，显示多头信心不足，市场看空情绪升温。
+中国国家发改委21日消息，4月7日国内成品油价格调整以来，国际市场原油价格剧烈震荡，前几日大幅回落后，4月20日再次出现较大幅度上涨，但本次调价的前10个工作日平均价格仍低于上次调价前10个工作日平均价格。
 
-现货市场交投平淡，纺企以刚需采购为主，部分新疆纺企出货尚可但整体报价稳中偏弱，促销力度加大导致库存累积。
+根据国际市场油价变化情况，自4月21日24时起，国内汽、柴油价格每吨分别下调555元(人民币，下同)、530元。
 
-下游纯棉纱市场维持平缓盘整，淡季特征明显，观望情绪浓厚抑制补库意愿。
+折合升价，92号汽油、95号汽油、0号柴油每升分别下调0.44元、0.46元、0.45元。
 
-据上海国际棉花交易中心监测，截至6月8日，本年度新疆机采棉在库综合成本均价为14998元/吨（毛重），北疆均价为15003元/吨，南疆均价为14994元/吨；截至6月8日，本年度新疆机采棉期货仓单成本均价为15052元/吨（毛重），北疆均价为15057元/吨，南疆均价为15048元/吨。
+这是今年以来成品油价首次下调。
 
-6月8日，新疆机采棉疆内库销售基差指数（31级双29含杂2.8%以内）为1383元/吨，较上一日上涨8元。
+本次调价过后，2026年中国成品油调价将呈现“六涨一跌一搁浅”的格局。
 
-其中，北疆基差为1435元/吨，奎屯、昌吉区域主流基差在1370–1490元/吨左右；南疆基差在1319元/吨，巴州、阿克苏两地主流基差在1350–1470元/吨左右，喀什地区在1050–1225元/吨左右。
+卓创资讯成品油分析师曹莹莹表示，此次调价落地后，私家车单次加满一箱50升的汽油将少花22元左右。
 
-基本面深度分析供给侧：新年度新疆植棉面积同比减少约3.5%，但实地调研显示减幅存在3%~10%的差异，实际收缩幅度或小于预期，削弱前期减产炒作逻辑。
+以月跑2000公里、百公里平均油耗8升的燃油汽车为例，下次调价窗口开启前(2026年5月8日24时)，单辆车的燃油成本将减少40元左右。
 
 ## 相关推荐
 
-- 2026-06-30 00:49 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 00:30 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 00:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 00:28 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 00:43 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 00:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 00:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 00:25 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 00:50 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 00:32 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 00:46 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 00:44 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 00:51 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 00:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 00:50 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 00:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 00:38 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 00:45 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 00:59 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 00:39 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 00:36 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 00:37 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 00:49 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 00:41 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 01:00 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 00:59 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 00:49 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 00:53 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:47 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/5588476389.shtml)
-- 2026-06-30 00:37 - [金刚川](https://www.share.kurohicncr.top/Article/details/331815665.shtml)
-- 2026-06-30 00:51 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/9338588713.shtml)
-- 2026-06-30 00:46 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/76126962.shtml)
-- 2026-06-30 00:33 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/4047714.shtml)
-- 2026-06-30 00:41 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/58259.shtml)
-- 2026-06-30 00:40 - [金刚川](http://www.blog.kurohicncr.top/Article/details/99007.shtml)
-- 2026-06-30 00:53 - [金刚川](http://www.share.kurohicncr.top/Article/details/7944249621.shtml)
-- 2026-06-30 00:24 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/35572.shtml)
-- 2026-06-30 00:32 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/05853475.shtml)
-- 2026-06-30 00:39 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/3319277701.shtml)
-- 2026-06-30 00:27 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/57782181.shtml)
-- 2026-06-30 00:42 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/66896.shtml)
-- 2026-06-30 00:35 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/442848144229.shtml)
-- 2026-06-30 00:48 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/7201582352.shtml)
+- 2026-06-30 00:35 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/93430760446.shtml)
+- 2026-06-30 00:32 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/6759861.shtml)
+- 2026-06-30 00:35 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/670671.shtml)
+- 2026-06-30 00:58 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/5236386937.shtml)
+- 2026-06-30 00:53 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/988678638485.shtml)
+- 2026-06-30 00:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/1501797225.shtml)
+- 2026-06-30 00:56 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/4982705.shtml)
+- 2026-06-30 00:56 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/676721.shtml)
+- 2026-06-30 00:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/650900.shtml)
+- 2026-06-30 00:36 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/03960918533.shtml)
+- 2026-06-30 00:58 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/068940319.shtml)
+- 2026-06-30 00:47 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/925041943174.shtml)
+- 2026-06-30 00:55 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/5574683.shtml)
+- 2026-06-30 00:58 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/878568515225.shtml)
+- 2026-06-30 00:37 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/490940223367.shtml)

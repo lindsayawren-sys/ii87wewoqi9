@@ -1,58 +1,58 @@
-# 海外华媒从明月峡“六道同峡”奇特景观细读浓缩中国交通史
+# 消息人士称，SpaceX将于本周举行为期三天的分析师会议，试图以此争取华尔街的支持
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网广元6月9日电 (程兆)嘉陵江水穿峡而过，绝壁之上，古栈道孔眼依稀可见。峡谷之间，公路、铁路、水道与古道在同一空间相遇。德国欧洲新侨网总编辑高翔在栈道上闭上双眼，细细感受明月峡的独特气息。“闭目聆风语，侧耳听涛吟。”高翔用一句即兴创作的诗句形容自己的做法。6月8日，“2026海外华文媒体川渝行——聚焦成渝地区双城经济圈建设”联合参访活动走进位于四川省广元市朝天区的明月峡，
+据三位知情人士透露，SpaceX正推进史上最受期待的IPO相关计划，本周将在其位于得克萨斯州的发射设施和田纳西州的大型数据中心，举办为期三天的分析师闭门会议。 埃隆・马斯克旗下公司正为华尔街顶尖航空航天与科技分析师举办情况介绍会，计划融资750亿美元，这将成为全球史上规模最大的IPO，公司高管目标是在6月下旬正式挂牌交易。 知情人士称，本次推介活动于周二启动，在这家卫星与火箭制
 
 ## 正文
 
-中新网广元6月9日电 (程兆)嘉陵江水穿峡而过，绝壁之上，古栈道孔眼依稀可见。
+据三位知情人士透露，SpaceX正推进史上最受期待的IPO相关计划，本周将在其位于得克萨斯州的发射设施和田纳西州的大型数据中心，举办为期三天的分析师闭门会议。
 
-峡谷之间，公路、铁路、水道与古道在同一空间相遇。
+埃隆・马斯克旗下公司正为华尔街顶尖航空航天与科技分析师举办情况介绍会，计划融资750亿美元，这将成为全球史上规模最大的IPO，公司高管目标是在6月下旬正式挂牌交易。
 
-德国欧洲新侨网总编辑高翔在栈道上闭上双眼，细细感受明月峡的独特气息。
+知情人士称，本次推介活动于周二启动，在这家卫星与火箭制造商位于得克萨斯州博卡奇卡的星舰基地发射设施举行全天会议与分析师参观活动。
 
-“闭目聆风语，侧耳听涛吟。
+他们表示，另一批代表大型共同基金、养老计划等机构投资者的分析师，将于周三在星舰基地参加另一场专场介绍会。
 
-”高翔用一句即兴创作的诗句形容自己的做法。
+此外，分析师受邀于周四前往该公司位于田纳西州孟菲斯的巨像数据中心，考察其“Macrohard”项目。
 
-6月8日，“2026海外华文媒体川渝行——聚焦成渝地区双城经济圈建设”联合参访活动走进位于四川省广元市朝天区的明月峡，在“六道同峡”的奇特景观中，读一部浓缩的中国交通史。
+一位知情人士透露，参会人员需上交电子设备方可入场。
 
-明月峡景区讲解员任桂葶介绍，明月峡，又称朝天峡，拥有2300多年历史。
+由于相关信息尚未公开，三位消息人士均要求匿名。
 
-这里集先秦古栈道、嘉陵水道、纤夫鸟道、金牛驿道、108国道、宝成复线六道于一峡，是古今道路交通最集中、时间跨度最大、保存最完整的“中国交通历史博物馆”。
+SpaceX未就置评请求作出回应。
 
 ## 相关推荐
 
-- 2026-06-30 00:41 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 00:27 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 00:46 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 00:31 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 00:38 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 00:33 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-30 00:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 00:31 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 00:50 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 00:35 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 00:37 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 00:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 00:32 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 00:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 00:43 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 00:44 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 00:49 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 00:32 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 00:50 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 00:37 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 00:52 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 00:45 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 00:42 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 00:54 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:32 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/50961189.shtml)
-- 2026-06-30 00:30 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/16410103936.shtml)
-- 2026-06-30 00:38 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/3988505463.shtml)
-- 2026-06-30 00:39 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/27225942552.shtml)
-- 2026-06-30 00:48 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/602856.shtml)
-- 2026-06-30 00:26 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/20145345.shtml)
-- 2026-06-30 00:29 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/94078.shtml)
-- 2026-06-30 00:44 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/294626.shtml)
-- 2026-06-30 00:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/75565974652.shtml)
-- 2026-06-30 00:34 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/29495.shtml)
-- 2026-06-30 00:29 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/623564386947.shtml)
-- 2026-06-30 00:44 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/120597818937.shtml)
-- 2026-06-30 00:35 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/61053.shtml)
-- 2026-06-30 00:36 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/51408578.shtml)
-- 2026-06-30 00:30 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/972152177.shtml)
+- 2026-06-30 00:36 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/39162331125.shtml)
+- 2026-06-30 00:42 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/68687349470.shtml)
+- 2026-06-30 00:30 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/6851696203.shtml)
+- 2026-06-30 00:51 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/180647106365.shtml)
+- 2026-06-30 00:54 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/18611704440.shtml)
+- 2026-06-30 00:43 - [美人鱼](http://www.share.minike.top/Article/details/8701839988.shtml)
+- 2026-06-30 00:53 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/184516426961.shtml)
+- 2026-06-30 00:45 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/205036848.shtml)
+- 2026-06-30 00:41 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/408976281068.shtml)
+- 2026-06-30 00:46 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/2128134567.shtml)
+- 2026-06-30 00:32 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/543831507.shtml)
+- 2026-06-30 00:59 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/8997012.shtml)
+- 2026-06-30 00:44 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/988612.shtml)
+- 2026-06-30 00:31 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/65351.shtml)
+- 2026-06-30 00:43 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/30101758.shtml)

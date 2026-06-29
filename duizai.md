@@ -1,57 +1,59 @@
-# 冈比亚副总统贾洛：发展是为了人的幸福 我们与中国有着共同看法
+# 上期所镍期货及期权引入境外交易者参与交易
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网天津6月8日电 (记者 孙玲玲)冈比亚共和国副总统穆罕默德·贾洛7日在参访天津时表示，中国将生存权和发展权作为最基本的人权，这一理念与冈比亚的认知高度一致。 “如果一个人拥有各种权利，却无法获得幸福，那么这些权利的意义又在哪里呢？”贾洛说，最重要的是实现人的全面发展，不存在任何形式的歧视，“我们相信，在这一点上，我们与中国有着共同的看法。” 来自多个国家和地区、国际组织的
+中新社上海4月21日电 (高志苗 康玉湛)21日晚间，上海期货交易所镍期货及期权引入境外交易者参与交易，同步向合格境外投资者开放。同时，上期所子公司上海国际能源交易中心上市20号胶和国际铜期权，并引入境外交易者参与交易，同步向合格境外投资者开放。 镍期货及期权是上期所挂牌的首个对外开放的期货及期权品种，推进镍品种的国际化，是上期所顺应全球镍产业发展趋势、服务实体经济高质量发展的
 
 ## 正文
 
-中新网天津6月8日电 (记者 孙玲玲)冈比亚共和国副总统穆罕默德·贾洛7日在参访天津时表示，中国将生存权和发展权作为最基本的人权，这一理念与冈比亚的认知高度一致。
+中新社上海4月21日电 (高志苗 康玉湛)21日晚间，上海期货交易所镍期货及期权引入境外交易者参与交易，同步向合格境外投资者开放。
 
-“如果一个人拥有各种权利，却无法获得幸福，那么这些权利的意义又在哪里呢？
+同时，上期所子公司上海国际能源交易中心上市20号胶和国际铜期权，并引入境外交易者参与交易，同步向合格境外投资者开放。
 
-”贾洛说，最重要的是实现人的全面发展，不存在任何形式的歧视，“我们相信，在这一点上，我们与中国有着共同的看法。
+镍期货及期权是上期所挂牌的首个对外开放的期货及期权品种，推进镍品种的国际化，是上期所顺应全球镍产业发展趋势、服务实体经济高质量发展的重要举措。
 
-” 来自多个国家和地区、国际组织的官员和专家等7日走进天津市滨海新区，先后参访“美丽滨城”会客厅、天津港智慧零碳码头、国家海洋博物馆、天津茱莉亚学院等地。
+20号胶期权、国际铜期权同步上市，则有助于加快实现上期能源成熟品种期权全覆盖，进一步丰富企业风险管理工具箱，支持企业开展精细化、个性化套保操作，提升稳健经营能力，有利于期货市场功能发挥。
 
-在天津港智慧零碳码头，贾洛对港口的自动化水平和零碳排放印象深刻。
+上海市委金融委员会办公室副主任曹艳文表示，20号胶、国际铜期权的上市，与镍期货及期权国际化同步推进，将吸引更多国际投资者参与，有助于扩大现有品种开放，有助于推动上期所加快建成世界一流交易所，有助于巩固上海在全球大宗商品市场的地位。
 
-“这里几乎没有任何排放。
+上海将继续支持上期所品种国际化与新品种上市。
 
-”作为来自平均海拔较低的国家的领导人，贾洛对气候变化尤为敏感，“只要海平面稍微上升一点，我们的首都实际上就有被淹没的风险。
+上期所理事长田向阳表示，镍期货及期权品种国际化，20号胶与国际铜期权的顺利上市，是上期所深化高水平对外开放、提升重要大宗商品价格影响力的重要举措。
 
-” 贾洛认为，天津港的经验对冈比亚具有重要借鉴意义，自动化不仅提升物流效率，也通过再培训为工人创造新的就业机会，“经济发展了，收入增加了，就能在其他领域创造更多就业机会，这对所有人都是有益的。
+下一步，上期所将持续完善产品矩阵、优化制度规则、强化市场培育、深化双向开放，稳步提升期货市场运行质量与服务实体经济能力，加力加压加快建成世界一流交易所。
 
 ## 相关推荐
 
-- 2026-06-30 00:25 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 00:43 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 00:48 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 00:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 00:48 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 00:27 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 00:31 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 00:52 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 00:53 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 00:44 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 00:32 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 00:30 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 00:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 00:51 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 00:43 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 00:35 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 00:57 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 00:33 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 00:42 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 00:46 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 00:40 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 00:52 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 00:47 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-30 00:32 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:52 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/821891739859.shtml)
-- 2026-06-30 00:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/4633819338.shtml)
-- 2026-06-30 00:46 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/63288900.shtml)
-- 2026-06-30 00:45 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/035221.shtml)
-- 2026-06-30 00:32 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/543027068688.shtml)
-- 2026-06-30 00:48 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/526568.shtml)
-- 2026-06-30 00:28 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/14826794998.shtml)
-- 2026-06-30 00:39 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/283506387149.shtml)
-- 2026-06-30 00:39 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/952549768952.shtml)
-- 2026-06-30 00:41 - [世界杯](http://www.share.minike.top/Article/details/717671848.shtml)
-- 2026-06-30 00:45 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/41739970106.shtml)
-- 2026-06-30 00:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/44215621.shtml)
-- 2026-06-30 00:52 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/6682625663.shtml)
-- 2026-06-30 00:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/499586.shtml)
-- 2026-06-30 00:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/2768505.shtml)
+- 2026-06-30 00:58 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/15122.shtml)
+- 2026-06-30 00:31 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/91524.shtml)
+- 2026-06-30 00:33 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/2129065172.shtml)
+- 2026-06-30 00:36 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/644681631.shtml)
+- 2026-06-30 00:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/6340867.shtml)
+- 2026-06-30 00:50 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/01535474.shtml)
+- 2026-06-30 00:44 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/23597231.shtml)
+- 2026-06-30 00:34 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/79246.shtml)
+- 2026-06-30 00:56 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/819051017179.shtml)
+- 2026-06-30 00:39 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/54256.shtml)
+- 2026-06-30 00:58 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/872841415.shtml)
+- 2026-06-30 00:59 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/958886529.shtml)
+- 2026-06-30 00:34 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/45608.shtml)
+- 2026-06-30 00:59 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/7080542.shtml)
+- 2026-06-30 00:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/5099921837.shtml)

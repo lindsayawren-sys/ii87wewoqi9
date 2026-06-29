@@ -1,56 +1,58 @@
-# 日本加息预期升温，美元兑日元站稳160关口
+# 第115届全国糖酒商品交易会将于10月在南京举办
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——亚洲交易时段，美元兑日元维持高位整理走势，汇价运行于160.30附近。尽管日本公布的一系列经济数据表现强劲，但市场对于美国利率维持高位的预期以及避险资金流向美元，令日元升值空间受到明显限制。 当前市场最关注的焦点依然是美元兑日元持续运行在160整数关口上方所带来的政策风险。过去一年，日本财务省曾多次在类似水平附近采取汇市干预措施，因此投资者对于官方可能再次出
+中新网南京4月22日电 (常慕城)全国糖酒商品交易会组委会22日在南京举行新闻发布会，宣布第115届全国糖酒商品交易会将于2026年10月15日至17日在南京国际博览中心举办。 全国糖酒商品交易会组委会常务副主任、中粮糖业控股股份有限公司董事长李明华介绍，第115届全国糖酒商品交易会展览总面积20万平方米，将设置9大展区和16个特色品类专区，构建系统化、专业化展示交易体系，满足
 
 ## 正文
 
-汇通财经APP讯——亚洲交易时段，美元兑日元维持高位整理走势，汇价运行于160.30附近。
+中新网南京4月22日电 (常慕城)全国糖酒商品交易会组委会22日在南京举行新闻发布会，宣布第115届全国糖酒商品交易会将于2026年10月15日至17日在南京国际博览中心举办。
 
-尽管日本公布的一系列经济数据表现强劲，但市场对于美国利率维持高位的预期以及避险资金流向美元，令日元升值空间受到明显限制。
+全国糖酒商品交易会组委会常务副主任、中粮糖业控股股份有限公司董事长李明华介绍，第115届全国糖酒商品交易会展览总面积20万平方米，将设置9大展区和16个特色品类专区，构建系统化、专业化展示交易体系，满足各类企业精准展示、客商高效选购的需求。
 
-当前市场最关注的焦点依然是美元兑日元持续运行在160整数关口上方所带来的政策风险。
+凭借深厚消费底蕴与创新发展势能，南京入选商务部“国际化消费环境建设试点城市”和“消费新业态新模式新场景试点城市”。
 
-过去一年，日本财务省曾多次在类似水平附近采取汇市干预措施，因此投资者对于官方可能再次出手稳定汇率保持高度警惕。
+本届糖酒商品交易会将突出“展城融合”特色，把展会从专业展馆延伸到城市街区、青年社群和消费场景之中。
 
-从最新公布的数据来看，日本经济表现明显好于市场预期。
+南京市副市长许峰向海内外客商发出“甜蜜邀约”。
 
-数据显示，日本2026年第一季度国内生产总值（GDP）季率增长0.5%，高于市场预期的0.3%，同时较上一季度的0.2%进一步加快，创下自2025年初以来最强季度增长表现。
+他表示，南京将以最大诚意、最优服务、最实举措，当好“城市合伙人”，全力将糖酒商品交易会打造成特色鲜明、实效突出的行业盛会，推动专业展会的“甜蜜流量”转化为行业发展的“强劲增量”。
 
-按年化计算，日本第一季度GDP增长率达到1.8%。
+据悉，全国糖酒商品交易会始于1955年，是中国历史最为悠久的大型专业展会之一，被誉为中国食品行业的“晴雨表”。
 
-虽然略低于此前初值预估的2.1%，但仍显著高于市场预测的1.3%，同时远高于前值修正后的0.7%。
+全国糖酒商品交易会一年两届，分春、秋两季举行。
 
 ## 相关推荐
 
-- 2026-06-30 00:30 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 00:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 00:25 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 00:48 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-30 00:51 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 00:41 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 00:41 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 00:45 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 00:49 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 00:53 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 00:39 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 00:51 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 00:44 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 00:33 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 00:48 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 00:43 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-30 00:33 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 00:59 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 00:38 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 00:58 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 00:35 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 00:32 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/6520983062.shtml)
-- 2026-06-30 00:36 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/473557.shtml)
-- 2026-06-30 00:51 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/409011413.shtml)
-- 2026-06-30 00:29 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/883857863.shtml)
-- 2026-06-30 00:48 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/70010210598.shtml)
-- 2026-06-30 00:31 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/71343986.shtml)
-- 2026-06-30 00:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/98002407502.shtml)
-- 2026-06-30 00:31 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/94004288.shtml)
-- 2026-06-30 00:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/17536.shtml)
-- 2026-06-30 00:45 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/35632126.shtml)
-- 2026-06-30 00:52 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/594586.shtml)
-- 2026-06-30 00:52 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/967464563851.shtml)
-- 2026-06-30 00:37 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/71888.shtml)
-- 2026-06-30 00:52 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/750591267058.shtml)
-- 2026-06-30 00:45 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/05432718.shtml)
+- 2026-06-30 00:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/388336.shtml)
+- 2026-06-30 00:46 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/37535357.shtml)
+- 2026-06-30 00:44 - [爱很美味](http://www.share.minike.top/Article/details/69319488464.shtml)
+- 2026-06-30 00:38 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/293292.shtml)
+- 2026-06-30 00:39 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/084871.shtml)
+- 2026-06-30 00:58 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/85643.shtml)
+- 2026-06-30 00:39 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/95273483237.shtml)
+- 2026-06-30 00:30 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/6821762.shtml)
+- 2026-06-30 00:40 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/7014391.shtml)
+- 2026-06-30 00:49 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/324047523.shtml)
+- 2026-06-30 00:58 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/87796816.shtml)
+- 2026-06-30 00:47 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/245622899.shtml)
+- 2026-06-30 00:38 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/51671028.shtml)
+- 2026-06-30 00:53 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/145126.shtml)
+- 2026-06-30 00:54 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/25018.shtml)

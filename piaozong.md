@@ -1,59 +1,45 @@
-# 外籍专家成都点赞科技普惠的中国经验
+# 日本通过内阁决议正式允许出口杀伤性武器
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新社成都6月8日电 (记者 岳依桐 胡默达)近年来，全球具身智能技术不断发展，一项新的议题随之浮现：智能时代，如何让每一个人共享科技发展带来的便利？6月8日，国际专家走进成都人形机器人创新中心，探寻科技普惠的中国经验。 尖端科技正逐渐走进民众生活。拿拖鞋、打开冰箱里取出一瓶冰镇饮料、冲泡咖啡、拿电视遥控器、拾捡垃圾……体重仅25公斤的“贡嘎一号”超轻量级人形机器人主打家庭康养
+据日本方面消息，日本政府21日在内阁会议上正式修改了“防卫装备转移三原则”及其运用指南，原则上将允许出口杀伤性武器。
 
 ## 正文
 
-中新社成都6月8日电 (记者 岳依桐 胡默达)近年来，全球具身智能技术不断发展，一项新的议题随之浮现：智能时代，如何让每一个人共享科技发展带来的便利？
-
-6月8日，国际专家走进成都人形机器人创新中心，探寻科技普惠的中国经验。
-
-尖端科技正逐渐走进民众生活。
-
-拿拖鞋、打开冰箱里取出一瓶冰镇饮料、冲泡咖啡、拿电视遥控器、拾捡垃圾……体重仅25公斤的“贡嘎一号”超轻量级人形机器人主打家庭康养、智能陪伴，俨然一位贴心的管家；该中心研发的AI神经网络电子皮肤同样给国际专家留下深刻印象。
-
-电子皮肤力测量精度达到0.005牛顿微力识别，让机器人拥有“敏感触觉”，使精细化护理不再成为难题。
-
-据了解，成立于2024年的成都人形机器人创新中心，聚焦人形机器人“大脑”这一核心命题，致力于研发真正拥有自主决策能力的智能人形机器人。
-
-目前，该中心已拥有人形机器人大脑、小脑、肢体方向的国际顶尖研发成果30余项。
-
-“今天在这里看到的先进技术让我惊喜，相信这就是未来生活的发展方向。
+据日本方面消息，日本政府21日在内阁会议上正式修改了“防卫装备转移三原则”及其运用指南，原则上将允许出口杀伤性武器。
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 00:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 00:45 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 00:25 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 00:32 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 00:48 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 00:24 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 00:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 00:31 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 00:42 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 00:27 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 00:43 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 00:36 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 00:38 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 00:48 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 00:43 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 00:58 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 00:57 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 00:34 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 00:51 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 00:58 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 00:31 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 00:42 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 00:40 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 00:50 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 00:33 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:49 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/43480671.shtml)
-- 2026-06-30 00:41 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/8427580.shtml)
-- 2026-06-30 00:26 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/47358732841.shtml)
-- 2026-06-30 00:34 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/52691.shtml)
-- 2026-06-30 00:49 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/813722363400.shtml)
-- 2026-06-30 00:45 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/7660614.shtml)
-- 2026-06-30 00:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/69803370251.shtml)
-- 2026-06-30 00:25 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/755067336344.shtml)
-- 2026-06-30 00:51 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/42811325.shtml)
-- 2026-06-30 00:29 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/5591894.shtml)
-- 2026-06-30 00:31 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/9725666.shtml)
-- 2026-06-30 00:49 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/54254120.shtml)
-- 2026-06-30 00:47 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/8538415502.shtml)
-- 2026-06-30 00:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/820215422.shtml)
-- 2026-06-30 00:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/568588.shtml)
+- 2026-06-30 00:41 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/97051582.shtml)
+- 2026-06-30 00:52 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/48214610.shtml)
+- 2026-06-30 00:33 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/3158647765.shtml)
+- 2026-06-30 00:35 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/04512576608.shtml)
+- 2026-06-30 00:43 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/06639343905.shtml)
+- 2026-06-30 00:47 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/30286.shtml)
+- 2026-06-30 00:51 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/90102432.shtml)
+- 2026-06-30 00:30 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/930688947.shtml)
+- 2026-06-30 00:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/489343.shtml)
+- 2026-06-30 00:42 - [房价什么时候能涨](https://www.share.minike.top/Article/details/3179194534.shtml)
+- 2026-06-30 00:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/951820131.shtml)
+- 2026-06-30 00:56 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/418594086.shtml)
+- 2026-06-30 00:43 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.kurohicncr.top/Article/details/651224530772.shtml)
+- 2026-06-30 00:32 - [乔家的儿女](https://www.blog.minike.top/Article/details/13240.shtml)
+- 2026-06-30 00:52 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/52613.shtml)

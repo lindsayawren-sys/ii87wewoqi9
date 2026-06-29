@@ -1,47 +1,56 @@
-# 欧盟内部围绕推动俄乌谈判存在分歧
+# 斯诺克世锦赛：丁俊晖成功晋级 16强战对阵赵心童
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 09:38 来源：央视新闻 责任编辑：【李骏】
+中新社英国谢菲尔德4月21日电 当地时间20日，2026斯诺克世界锦标赛在英国谢菲尔德继续进行首轮较量，中国选手丁俊晖以10比5击败英格兰选手大卫·吉尔伯特，晋级16强。 丁俊晖在19日第一阶段较量中凭借更稳定的发挥以7比2领先吉尔伯特，在19局10胜的赛制下占据较大优势。20日第二阶段比赛开始后，吉尔伯特状态回暖，展开反击，前四局赢下三局，一度将比分追至5比8。第十四局，丁俊
 
 ## 正文
 
-发布时间：2026年06月09日 09:38 来源：央视新闻 责任编辑：【李骏】
+中新社英国谢菲尔德4月21日电 当地时间20日，2026斯诺克世界锦标赛在英国谢菲尔德继续进行首轮较量，中国选手丁俊晖以10比5击败英格兰选手大卫·吉尔伯特，晋级16强。
+
+丁俊晖在19日第一阶段较量中凭借更稳定的发挥以7比2领先吉尔伯特，在19局10胜的赛制下占据较大优势。
+
+20日第二阶段比赛开始后，吉尔伯特状态回暖，展开反击，前四局赢下三局，一度将比分追至5比8。
+
+第十四局，丁俊晖手感火热再度掌控比赛，单杆打出106分，以9比5拿到赛点，并在最后一局再打出一个单杆50+，以80比40锁定胜利，大比分10比5淘汰对手晋级。
+
+接下来的16强战中，丁俊晖将与另一位中国强手赵心童相遇，后者2025年持外卡参赛，成为首位赢得世锦赛冠军的中国球手。
+
+此次赛事中，赵心童首日淘汰英格兰的利亚姆·海菲尔德晋级。
+
+两位中国球手的比赛将于当地时间4月24日开始，16强赛采用25局13胜赛制。
+
+吴宜泽和雷佩凡此役展开“中国德比”，当日第一阶段较量，以种子选手身份参赛的吴宜泽在比赛中呈现压倒性优势，从第一局开始就火力全开，连续轰下单杆93分和92分，迅速取得4比0的领先优势。
 
 ## 相关推荐
 
-- 2026-06-30 00:40 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 00:39 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 00:26 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 00:27 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 00:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 00:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-30 00:53 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 00:45 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 00:50 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 00:35 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 00:52 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 00:35 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 00:46 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 00:32 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 00:46 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 00:48 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 00:47 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 00:33 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 00:45 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 00:55 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 00:42 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 00:44 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 00:31 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 00:39 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 00:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:45 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/8679947.shtml)
-- 2026-06-30 00:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/297017738.shtml)
-- 2026-06-30 00:25 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/887776029.shtml)
-- 2026-06-30 00:40 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/857463203.shtml)
-- 2026-06-30 00:38 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/78571436985.shtml)
-- 2026-06-30 00:38 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/68507399.shtml)
-- 2026-06-30 00:31 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/230926944.shtml)
-- 2026-06-30 00:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/8556957274.shtml)
-- 2026-06-30 00:31 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/69356241.shtml)
-- 2026-06-30 00:46 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/861622930.shtml)
-- 2026-06-30 00:36 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/9457019060.shtml)
-- 2026-06-30 00:34 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/170770.shtml)
-- 2026-06-30 00:30 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/64325036.shtml)
-- 2026-06-30 00:28 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/9828868.shtml)
-- 2026-06-30 00:27 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/00623925129.shtml)
+- 2026-06-30 00:31 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/732563137860.shtml)
+- 2026-06-30 00:45 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/00485075.shtml)
+- 2026-06-30 00:45 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/742547.shtml)
+- 2026-06-30 00:32 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/053928115255.shtml)
+- 2026-06-30 00:35 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/61958587.shtml)
+- 2026-06-30 00:48 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/49861164352.shtml)
+- 2026-06-30 00:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/00700.shtml)
+- 2026-06-30 00:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/89803229199.shtml)
+- 2026-06-30 00:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/78660.shtml)
+- 2026-06-30 00:38 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/630243.shtml)
+- 2026-06-30 00:56 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/68856826.shtml)
+- 2026-06-30 00:32 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/91566.shtml)
+- 2026-06-30 00:59 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/3156995536.shtml)
+- 2026-06-30 00:35 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/30237510.shtml)
+- 2026-06-30 00:40 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/596860725.shtml)

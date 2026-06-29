@@ -1,56 +1,54 @@
-# 中国驻塔吉克斯坦使馆提醒在塔中国公民避免前往南部边境地区
+# 四川累计外送电量突破2万亿千瓦时
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网阿斯塔纳6月9日电 中国驻塔吉克斯坦大使馆9日发布安全提醒称，当前塔吉克斯坦南部边境地区安全局势依然复杂，加之自5月以来极端天气频发，提醒在塔中国公民避免前往相关地区工作及旅行。 使馆表示，上述情况给当地民众及中国公民人身安全造成威胁。鉴此，驻塔使馆提醒在塔中国公民避免前往塔南部边境地区工作及旅行，确保生命和财产安全。 使馆同时公布了相关应急联系方式。塔吉克斯坦火警电话为
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！总台央视记者 孙渊 记者从国家电网了解到，目前，四川累计外送电量突破2万亿千瓦时，这一规模约相当于江苏、浙江、安徽三省2025年全社会用电量之和。 最新数据显示，截至4月21日，四川累计外送电量达到20004.15亿千瓦时，突破2万亿千瓦时，其中，超99.98%为水电和新能源，相当于替代燃煤消耗约6.5亿吨
 
 ## 正文
 
-中新网阿斯塔纳6月9日电 中国驻塔吉克斯坦大使馆9日发布安全提醒称，当前塔吉克斯坦南部边境地区安全局势依然复杂，加之自5月以来极端天气频发，提醒在塔中国公民避免前往相关地区工作及旅行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-使馆表示，上述情况给当地民众及中国公民人身安全造成威胁。
+总台央视记者 孙渊 记者从国家电网了解到，目前，四川累计外送电量突破2万亿千瓦时，这一规模约相当于江苏、浙江、安徽三省2025年全社会用电量之和。
 
-鉴此，驻塔使馆提醒在塔中国公民避免前往塔南部边境地区工作及旅行，确保生命和财产安全。
+最新数据显示，截至4月21日，四川累计外送电量达到20004.15亿千瓦时，突破2万亿千瓦时，其中，超99.98%为水电和新能源，相当于替代燃煤消耗约6.5亿吨，减排二氧化碳约16亿吨。
 
-使馆同时公布了相关应急联系方式。
+作为我国重要的清洁能源基地，以及“西电东送”重要起点，四川自1998年开始向省外送电，目前已建成7条特高压直流外送通道，跨区跨省外送能力超6260万千瓦，位居全国首位。
 
-塔吉克斯坦火警电话为01，匪警电话为02，急救电话为03。
+目前，四川电力总装机已达到1.6亿千瓦，其中，水电装机超1亿千瓦，占绝对主力，此外，风、光等新能源装机超3200万千瓦，成为第二大电源。
 
-如遇紧急情况，中国公民可拨打外交部全球领事保护与服务应急热线(24小时)+86-10-12308或+86-10-65612308求助，也可联系中国驻塔吉克斯坦使馆领事保护与协助电话+992-935710666、+922-888883999寻求帮助。
+当前，四川正加快推进金沙江上游、雅砻江、大渡河流域水风光一体化清洁能源基地规划建设，引导甘孜、阿坝、凉山风光资源富集地区规模化、基地化、集约化发展。
 
-(完)
+责任编辑：张乔松
 
 ## 相关推荐
 
-- 2026-06-30 00:38 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 00:31 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 00:47 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 00:51 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 00:49 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 00:24 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 00:49 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 00:48 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 00:52 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 00:47 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 00:52 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 00:46 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 00:40 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 00:32 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 00:55 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 00:51 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 00:46 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 00:38 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 00:31 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 00:41 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 00:30 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 00:54 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:39 - [速度与激情9](http://www.blog.minike.top/Article/details/31761334.shtml)
-- 2026-06-30 00:35 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/657904413726.shtml)
-- 2026-06-30 00:26 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/15678596432.shtml)
-- 2026-06-30 00:42 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/0605254624.shtml)
-- 2026-06-30 00:51 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/7422756.shtml)
-- 2026-06-30 00:34 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/5752515.shtml)
-- 2026-06-30 00:43 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/4033683.shtml)
-- 2026-06-30 00:52 - [东方风云榜直播](https://www.share.minike.top/Article/details/978871737160.shtml)
-- 2026-06-30 00:33 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/874924403.shtml)
-- 2026-06-30 00:40 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/47762785346.shtml)
-- 2026-06-30 00:27 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/71985.shtml)
-- 2026-06-30 00:47 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/40981378791.shtml)
-- 2026-06-30 00:28 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/7108982.shtml)
-- 2026-06-30 00:42 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/37882.shtml)
-- 2026-06-30 00:45 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/4883994583.shtml)
+- 2026-06-30 00:30 - [炽夏](http://www.share.minike.top/Article/details/428306879.shtml)
+- 2026-06-30 00:40 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/4580690.shtml)
+- 2026-06-30 00:44 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/8210557457.shtml)
+- 2026-06-30 00:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/109328271.shtml)
+- 2026-06-30 00:36 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/447590462828.shtml)
+- 2026-06-30 00:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/952323.shtml)
+- 2026-06-30 00:37 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/707070.shtml)
+- 2026-06-30 00:49 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/84755328498.shtml)
+- 2026-06-30 00:31 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/108610162003.shtml)
+- 2026-06-30 00:57 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/04304119.shtml)
+- 2026-06-30 00:39 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/6937207.shtml)
+- 2026-06-30 00:51 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/979471.shtml)
+- 2026-06-30 00:37 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/65893.shtml)
+- 2026-06-30 00:41 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/7825495.shtml)
+- 2026-06-30 00:30 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/009717.shtml)

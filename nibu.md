@@ -1,56 +1,59 @@
-# 赤子城科技早盘涨逾14% 本月累计回购总金额约1179万港元
+# 甘肃和政：百年古树结“慢梨” 百变风味富人家
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-赤子城科技（09911）早盘涨超14%，截至发稿，股价上涨13.66%，现报8.07港元，成交额1.30亿港元。 赤子城科技近期密集回购，6月以来，公司累计进行6次回购，合计回购147.6万股，回购总金额约1，179万港元。此外，公司此前公告称，注销此前于2026年4月27日至5月29日期间购回的合共517.4万股股份，涉及总回购金额约4532万港元。今年3月，赤子城科技宣布，
+中新网兰州4月22日电 (马临舟)“摘下来不能立刻入口，要等15天左右自然‘慢熟’才显真味。”甘肃临夏州和政县林草事业发展中心正高级工程师杨永林说，被当地人称作“慢梨”的啤特果，正跳出单一鲜果售卖的局限，以果汁、果醋、果酒乃至乡村旅游的百变形态，串联起一条生态美、产业兴、百姓富的特色发展之路。 在和政县海拔2400米的高寒山区，种植啤特果的历史可追溯至上千年前，如今在该县多个乡
 
 ## 正文
 
-赤子城科技（09911）早盘涨超14%，截至发稿，股价上涨13.66%，现报8.07港元，成交额1.30亿港元。
+中新网兰州4月22日电 (马临舟)“摘下来不能立刻入口，要等15天左右自然‘慢熟’才显真味。
 
-赤子城科技近期密集回购，6月以来，公司累计进行6次回购，合计回购147.6万股，回购总金额约1，179万港元。
+”甘肃临夏州和政县林草事业发展中心正高级工程师杨永林说，被当地人称作“慢梨”的啤特果，正跳出单一鲜果售卖的局限，以果汁、果醋、果酒乃至乡村旅游的百变形态，串联起一条生态美、产业兴、百姓富的特色发展之路。
 
-此外，公司此前公告称，注销此前于2026年4月27日至5月29日期间购回的合共517.4万股股份，涉及总回购金额约4532万港元。
+在和政县海拔2400米的高寒山区，种植啤特果的历史可追溯至上千年前，如今在该县多个乡镇，仍保留着成片古树群，这种鲜食时酸涩刺喉的啤特果，曾让当地人一度皱起眉头。
 
-今年3月，赤子城科技宣布，计划未来两年斥资约3亿港元在市场上进行股份回购。
+目前，全县已登记古树有159株，其中啤特果就占了80余株，最老树龄超过300年，至今仍在挂果。
 
-公司表示，注销购回股份将提高每股股份资产净值及每股股份盈利，符合公司及股东整体利益，董事会将继续不时检讨及全权酌情决定进行股份购回。
+从事啤特果研究已有30多年的杨永林介绍说，该果的食用方式颇为特别，不能像普通梨即摘即食，需经过自然后熟，果皮由青绿转为深褐甚至乌黑，果肉变得软糯，原本尖锐的酸涩才会沉淀为醇厚的复合果香，带着淡淡的焦糖回甘。
 
-赤子城科技2026年第一季度未经审核营运数据显示，期内总收入预期约20.30亿~21.30亿元人民币，同比增长约33.0%~39.6%。
+正因为上述特性，啤特果耐存，没有磕碰的果子放在阴凉通风处，能一直吃到次年四月。
 
-其中，核心社交业务同比增长约31.3%~37.2%；创新业务同比增长约46.7%~58.7%，主要得益于AI驱动下短剧业务的快速增长。
+杨永林说，20世纪90年代以前，啤特果只是农户房前屋后零星种植的果树，随着退耕还林工程实施，凭借极强生态适应性和稳定经济效益，啤特果作为主栽树种在和政推广，种植面积一度达16.8万亩，但后受多方影响，种植面积缩减到目前8万亩。
 
-中泰证券指，考虑到公司头部产品与创新业务势能向上，MENA、东南亚等地区社交及娱乐市场空间广阔，未来业绩具备高成长性。
+要充分发挥啤特果的经济效益，离不开龙头企业带动。
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 00:43 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 00:33 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 00:51 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 00:36 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 00:53 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 00:48 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 00:36 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 00:27 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 00:47 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 00:58 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 00:41 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 00:53 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 00:34 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 00:56 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 00:37 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 00:46 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 00:31 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 00:38 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-30 00:48 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-30 00:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 00:56 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 00:45 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:28 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/539840460.shtml)
-- 2026-06-30 00:42 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/482535.shtml)
-- 2026-06-30 00:47 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/11593852205.shtml)
-- 2026-06-30 00:28 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/80896.shtml)
-- 2026-06-30 00:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/033400966.shtml)
-- 2026-06-30 00:51 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/557010380441.shtml)
-- 2026-06-30 00:35 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/27536947.shtml)
-- 2026-06-30 00:33 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/31509460.shtml)
-- 2026-06-30 00:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/7894081.shtml)
-- 2026-06-30 00:40 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/546961121.shtml)
-- 2026-06-30 00:31 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/389288591.shtml)
-- 2026-06-30 00:53 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/035123903.shtml)
-- 2026-06-30 00:42 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/47756139854.shtml)
-- 2026-06-30 00:27 - [女心理师](http://www.share.minike.top/Article/details/753380325.shtml)
-- 2026-06-30 00:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/37810290378.shtml)
+- 2026-06-30 00:34 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/91558168.shtml)
+- 2026-06-30 00:46 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/80705347.shtml)
+- 2026-06-30 00:59 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/9962629125.shtml)
+- 2026-06-30 00:31 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/09328509793.shtml)
+- 2026-06-30 00:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/5134775.shtml)
+- 2026-06-30 00:56 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/7168220.shtml)
+- 2026-06-30 00:55 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/33389.shtml)
+- 2026-06-30 00:48 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/5795459462.shtml)
+- 2026-06-30 00:47 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/02841253177.shtml)
+- 2026-06-30 00:55 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/4652552.shtml)
+- 2026-06-30 00:40 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/176394049219.shtml)
+- 2026-06-30 00:58 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/029785762628.shtml)
+- 2026-06-30 00:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/7193779080.shtml)
+- 2026-06-30 00:40 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/7891547812.shtml)
+- 2026-06-30 00:50 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/365811963.shtml)

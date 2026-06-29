@@ -1,57 +1,49 @@
-# 【建投专题】花生：供给收缩预期与高库存的十字路口？
+# “护苗”典型案例｜非法印制并销售侵权盗版中小学教辅
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-作者 | 中信建投期货研究发展部研究员：田亚雄 期货交易咨询业务资格：证监许可〔2011〕1461号 本报告完成时间 | 2026年6月8日 核心数据速览 期货持仓35万手（近年新高） / 主产区现货约7800元/吨（交割品） / 基差结构约-300元/吨（负基差） / 油厂开机率近5年次高水平 / 压榨利润约300元/吨 / 花生油库存4.5万吨附近（近5年最高） / 花生油
+群众举报网购的少儿教辅类图书质量低劣疑似盗版，经查，当事人刘某大量印制教辅类侵权盗版图书，并将该图书面向全国销售。最终当事人因侵犯著作权罪被判处刑罚。
 
 ## 正文
 
-作者 | 中信建投期货研究发展部研究员：田亚雄 期货交易咨询业务资格：证监许可〔2011〕1461号 本报告完成时间 | 2026年6月8日 核心数据速览 期货持仓35万手（近年新高） / 主产区现货约7800元/吨（交割品） / 基差结构约-300元/吨（负基差） / 油厂开机率近5年次高水平 / 压榨利润约300元/吨 / 花生油库存4.5万吨附近（近5年最高） / 花生油较豆油溢价约5500元/吨（历史低位） 关于油料花生的定价：从产业链视角来看，花生定价本质上是油厂压榨利润驱动下的倒推定价——即由花生油与花生粕的销售收益，减去压榨成本后反推出原料花生的采购价。
+群众举报网购的少儿教辅类图书质量低劣疑似盗版，经查，当事人刘某大量印制教辅类侵权盗版图书，并将该图书面向全国销售。
 
-这一机制导致花生价格对植物油市场、蛋白粕市场的联动均高度敏感。
-
-在时间节奏上，花生行情的驱动矩阵随季节迁移：3-11月生长期天气情况和花针下针进程主导预期；11月-次年1月开秤定价期油厂收购节奏与贸易商心态成为核心变量；2-8月春夏销售季则以库存走速与需求景气度为锚。
-
-当前时点（6月上旬）正处于生长期中段，华中产区开花下针期来临，叠加面积调研窗口开启，是预期形成与修正的关键节点。
-
-近期的重要聚焦： A．供给端的面积变动与区域差异； B．需求端的压榨利润与开机率回升； C．花生油溢价的坍塌对定价的约束； D．库存与基差结构的重要暗示； 第一部分：关于种植面积的讨论 河南是中国最大的花生产区，2025年种植面积占全国主产区比重高达40.50%，花生仁产量327万吨，占全国总量逾三分之一。
-
-在省内，南阳与驻马店两市合计产量约660万吨，接近全省总量的七成，是花生供给格局的核心支撑。
-
-最近新的重要驱动是：豫南花生产区（以驻马店为核心）今年春播面积预计显著减少，去年夏秋持续降雨与果腐病导致花生品质严重下滑，产出大量“水泡籽”，商品价值大幅折损，打击农户收益与种植意愿，部分农户转种玉米等替代作物，更多农田需等待麦茬后播种，使得最终面积取决于6月天气与夏播意愿。
-
-多头核心叙事：若6月中旬面积调研数据证实减种幅度超预期（尤其是豫南地区），将构成多头预期强化的催化剂，届时期货持仓（目前已达35万手近年新高）可能进一步扩张，形成阶段性上冲动力。
+最终当事人因侵犯著作权罪被判处刑罚。
 
 ## 相关推荐
 
-- 2026-06-30 00:47 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 00:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 00:26 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 00:34 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 00:29 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 00:41 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 00:37 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 00:37 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 00:33 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 00:52 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 00:33 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 00:51 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 00:34 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 00:43 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 00:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 00:44 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 00:54 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 00:46 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 00:45 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 00:58 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 00:56 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 00:53 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 01:00 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 00:48 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 00:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 00:49 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:37 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/862502688.shtml)
-- 2026-06-30 00:50 - [我们的少年时代2](https://www.share.minike.top/Article/details/1393980306.shtml)
-- 2026-06-30 00:25 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/334653193326.shtml)
-- 2026-06-30 00:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/34836220.shtml)
-- 2026-06-30 00:37 - [男子称在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/65508559.shtml)
-- 2026-06-30 00:45 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/066172.shtml)
-- 2026-06-30 00:44 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/6830354.shtml)
-- 2026-06-30 00:24 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/25944647943.shtml)
-- 2026-06-30 00:42 - [一见倾心](https://www.share.minike.top/Article/details/0800683.shtml)
-- 2026-06-30 00:43 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/131270.shtml)
-- 2026-06-30 00:49 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/957148733444.shtml)
-- 2026-06-30 00:27 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/16393.shtml)
-- 2026-06-30 00:51 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/20793096709.shtml)
-- 2026-06-30 00:31 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/465212953539.shtml)
-- 2026-06-30 00:33 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/667658.shtml)
+- 2026-06-30 00:44 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/388930199.shtml)
+- 2026-06-30 00:37 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/8400815471.shtml)
+- 2026-06-30 00:56 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/11338671.shtml)
+- 2026-06-30 00:33 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/15543.shtml)
+- 2026-06-30 00:53 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/898151152.shtml)
+- 2026-06-30 00:42 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/266237875991.shtml)
+- 2026-06-30 00:41 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/197884200.shtml)
+- 2026-06-30 00:37 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/188551.shtml)
+- 2026-06-30 00:33 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/232792267103.shtml)
+- 2026-06-30 00:30 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/45481709993.shtml)
+- 2026-06-30 00:34 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/788094044.shtml)
+- 2026-06-30 00:46 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/4429557092.shtml)
+- 2026-06-30 00:40 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/541328544194.shtml)
+- 2026-06-30 00:47 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/8090164243.shtml)
+- 2026-06-30 00:59 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/6828429.shtml)

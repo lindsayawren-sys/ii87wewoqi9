@@ -1,52 +1,53 @@
-# 瑞昌国际控股获控股股东陆波增持137万股
+# 美国财长贝森特：财政部将继续对伊朗施压
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-瑞昌国际控股（01334）发布公告，董事会获悉，公司控股股东、执行董事、行政总裁兼董事会主席陆波先生透过其控制法团于2026年6月5日及2026年6月8日在公开市场上购入本公司137万股股份（增持股份）。增持股份的总代价约为143.845万港元。 诚如陆波先生所告知，增持股份显示其对本公司内在价值的肯定，以及其对本公司发展前景及增长潜力的坚定信心。陆波先生不排除于适当时候根据适
+美国财政部长贝森特在社交平台X发文表示，财政部“将继续实施极限施压”，以“削弱德黑兰获取、转移和汇回资金的能力”。 贝森特表示，由于封锁措施，“哈尔克岛的存储空间将被填满，而脆弱的伊朗油井将被迫关停”。 他还表示，继续冻结腐败领导层窃取的资金。责任编辑：李桐
 
 ## 正文
 
-瑞昌国际控股（01334）发布公告，董事会获悉，公司控股股东、执行董事、行政总裁兼董事会主席陆波先生透过其控制法团于2026年6月5日及2026年6月8日在公开市场上购入本公司137万股股份（增持股份）。
+美国财政部长贝森特在社交平台X发文表示，财政部“将继续实施极限施压”，以“削弱德黑兰获取、转移和汇回资金的能力”。
 
-增持股份的总代价约为143.845万港元。
+贝森特表示，由于封锁措施，“哈尔克岛的存储空间将被填满，而脆弱的伊朗油井将被迫关停”。
 
-诚如陆波先生所告知，增持股份显示其对本公司内在价值的肯定，以及其对本公司发展前景及增长潜力的坚定信心。
+他还表示，继续冻结腐败领导层窃取的资金。
 
-陆波先生不排除于适当时候根据适用法律及法规进一步增持本公司股份的可能性。
-
-责任编辑：卢昱君
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 00:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 00:52 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 00:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 00:43 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 00:29 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 00:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 00:25 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 00:37 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 00:49 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 00:35 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 00:53 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 00:25 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 00:37 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 00:43 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 00:39 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 00:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 00:56 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 00:40 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 00:46 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 00:46 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 00:52 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 00:47 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 00:56 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 00:51 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 00:31 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 00:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 00:47 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:26 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/773461500.shtml)
-- 2026-06-30 00:49 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/6845487.shtml)
-- 2026-06-30 00:29 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/42340520694.shtml)
-- 2026-06-30 00:31 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/35714612.shtml)
-- 2026-06-30 00:34 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/980267045115.shtml)
-- 2026-06-30 00:24 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/981454.shtml)
-- 2026-06-30 00:34 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/886170125.shtml)
-- 2026-06-30 00:30 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/664440.shtml)
-- 2026-06-30 00:31 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/6224868210.shtml)
-- 2026-06-30 00:39 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/561981108700.shtml)
-- 2026-06-30 00:43 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/79057881692.shtml)
-- 2026-06-30 00:51 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/988589632.shtml)
-- 2026-06-30 00:39 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/68393.shtml)
-- 2026-06-30 00:24 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/303311547020.shtml)
-- 2026-06-30 00:53 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/403384201921.shtml)
+- 2026-06-30 00:31 - [金牌调解](https://www.share.kurohicncr.top/Article/details/36133.shtml)
+- 2026-06-30 00:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/2282856995.shtml)
+- 2026-06-30 00:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/413070938782.shtml)
+- 2026-06-30 00:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/8883506119.shtml)
+- 2026-06-30 00:44 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/7575814.shtml)
+- 2026-06-30 00:52 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/514034358388.shtml)
+- 2026-06-30 00:40 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/26715701.shtml)
+- 2026-06-30 00:30 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/63243271782.shtml)
+- 2026-06-30 00:36 - [明星大侦探第四季](https://www.share.minike.top/Article/details/214741504.shtml)
+- 2026-06-30 00:44 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/598157664.shtml)
+- 2026-06-30 00:48 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/5120641341.shtml)
+- 2026-06-30 00:54 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/7512761453.shtml)
+- 2026-06-30 00:37 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/2656002.shtml)
+- 2026-06-30 00:34 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/957635379.shtml)
+- 2026-06-30 00:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/395933.shtml)

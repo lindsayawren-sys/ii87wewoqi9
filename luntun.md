@@ -1,56 +1,53 @@
-# 钉钉副总裁马锐拉离职，发文《置身钉外》
+# 香港大埔宏福苑居民火灾后终归家 首日共264人上楼
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-6月8日，钉钉副总裁、AI产品负责人马锐拉在个人公众号上发布题为《置身钉外》的文章，称他已于5月15日办完离职手续，正式告别三年阿里生涯，离开钉钉。在这篇文章中，马锐拉主要分享了自己阅读《置身钉内》后的感受与思考，反复强调“心疼”。 就在上一周，阿里内网一篇长达7.5万字的文章《置身钉内》引发全网围观。作者系钉钉“ONE”项目（钉钉8.0推出的旗舰AI工作首页）核心产品经理滕雅
+发布时间：2026年04月21日 10:11 来源：中国新闻网 4月20日，大埔宏福苑受影响居民火灾后首次返回家中收拾物品。此次居民分批返回家中，时间至5月4日。香港特区政府政务司副司长卓永兴会见传媒时表示，当日开放宏新阁10个楼层供居民收拾，秩序良好，整体运作大致畅顺。据统计，当天实际上楼的户数有77户，共264人，进出大厦的平均时间为1小时44分钟。(记者 周圣昀） 责任编
 
 ## 正文
 
-6月8日，钉钉副总裁、AI产品负责人马锐拉在个人公众号上发布题为《置身钉外》的文章，称他已于5月15日办完离职手续，正式告别三年阿里生涯，离开钉钉。
+发布时间：2026年04月21日 10:11 来源：中国新闻网 4月20日，大埔宏福苑受影响居民火灾后首次返回家中收拾物品。
 
-在这篇文章中，马锐拉主要分享了自己阅读《置身钉内》后的感受与思考，反复强调“心疼”。
+此次居民分批返回家中，时间至5月4日。
 
-就在上一周，阿里内网一篇长达7.5万字的文章《置身钉内》引发全网围观。
+香港特区政府政务司副司长卓永兴会见传媒时表示，当日开放宏新阁10个楼层供居民收拾，秩序良好，整体运作大致畅顺。
 
-作者系钉钉“ONE”项目（钉钉8.0推出的旗舰AI工作首页）核心产品经理滕雅辛（花名“幽素”），在这篇长文中，她按时间线复盘了“ONE”这款AI产品从立项、冲高至300万日活（DAU），再到最终收缩、拆分的全过程。
+据统计，当天实际上楼的户数有77户，共264人，进出大厦的平均时间为1小时44分钟。
 
-ONE项目是钉钉创始人陈航（花名“无招”）回归后主推的首个AI原生战略项目，随2025年8月发布的钉钉8.0上线，主打“事找人”的AI工作信息流模式。
-
-然而，该项目最终因定位迷失、底层基因冲突、设计逻辑脱节、组织内部高压管理等多重矛盾走向收缩，资源全面迁移至悟空Agent。
-
-对于这篇文章，钉钉方面暂无回应。
-
-相关人士对记者表示，该项目“不代表整体和组织，失败会有各种各样的理由”。
+(记者 周圣昀） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 00:31 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 00:27 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 00:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 00:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 00:46 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 00:30 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 00:41 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 00:48 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 00:33 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-30 00:34 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 00:45 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 00:33 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 00:31 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 00:33 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 00:37 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 00:59 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 00:59 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 00:47 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 00:33 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 00:58 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-30 00:49 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 00:49 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 00:45 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:25 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/28006.shtml)
-- 2026-06-30 00:46 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/1335669.shtml)
-- 2026-06-30 00:24 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/904090.shtml)
-- 2026-06-30 00:48 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/87607793.shtml)
-- 2026-06-30 00:37 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/29680.shtml)
-- 2026-06-30 00:31 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/0984154753.shtml)
-- 2026-06-30 00:46 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/6380019123.shtml)
-- 2026-06-30 00:31 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/524737055.shtml)
-- 2026-06-30 00:27 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/69553923324.shtml)
-- 2026-06-30 00:41 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/434004782.shtml)
-- 2026-06-30 00:28 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/4290542.shtml)
-- 2026-06-30 00:36 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/64025467933.shtml)
-- 2026-06-30 00:25 - [周生如故](http://www.share.minike.top/Article/details/685290.shtml)
-- 2026-06-30 00:51 - [肝不好身体这几处会“说话”](https://www.share.kurohicncr.top/Article/details/2586234.shtml)
-- 2026-06-30 00:50 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/86492.shtml)
+- 2026-06-30 00:57 - [斛珠夫人](http://www.blog.minike.top/Article/details/1159228900.shtml)
+- 2026-06-30 00:37 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/69285.shtml)
+- 2026-06-30 00:45 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/480766807224.shtml)
+- 2026-06-30 00:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/935401.shtml)
+- 2026-06-30 00:57 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/05323990.shtml)
+- 2026-06-30 00:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/552518134955.shtml)
+- 2026-06-30 00:36 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/51393382.shtml)
+- 2026-06-30 00:59 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/11381.shtml)
+- 2026-06-30 00:44 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/132587825216.shtml)
+- 2026-06-30 00:44 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/05986.shtml)
+- 2026-06-30 00:32 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/732903341.shtml)
+- 2026-06-30 00:48 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/8090253576.shtml)
+- 2026-06-30 00:37 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/50600194.shtml)
+- 2026-06-30 00:55 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/21962142680.shtml)
+- 2026-06-30 00:57 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/353009.shtml)

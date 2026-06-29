@@ -1,47 +1,55 @@
-# 新华图讯丨习近平同金正恩举行会谈
+# 台安全部门称大陆对台新举措可能是“介选”行为 国台办回应
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。 摄影：谢环驰 李响 燕雁 殷博古 编辑：侯俊 毕晓洋 李琰 郝昭 虞东升 卢烨 许睿
+4月22日，国务院台办举行例行新闻发布会。有记者问，对于中国国民党主席郑丽文率团来大陆访问，台安全部门负责人称，两岸交流应该由台湾当局主导，不应该由党对党决定；大陆推出对台新举措可能是“介选”行为，希望影响岛内选举。请问对此有何评论？ 发言人张晗答问表示，民进党当局顽固坚持“台独”分裂立场，导致两岸对话协商停摆，还刻意抹黑攻击打压岛内其他政党、团体和社会各界与大陆的正常交往交流
 
 ## 正文
 
-当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。
+4月22日，国务院台办举行例行新闻发布会。
 
-摄影：谢环驰 李响 燕雁 殷博古 编辑：侯俊 毕晓洋 李琰 郝昭 虞东升 卢烨 许睿
+有记者问，对于中国国民党主席郑丽文率团来大陆访问，台安全部门负责人称，两岸交流应该由台湾当局主导，不应该由党对党决定；大陆推出对台新举措可能是“介选”行为，希望影响岛内选举。
+
+请问对此有何评论？
+
+发言人张晗答问表示，民进党当局顽固坚持“台独”分裂立场，导致两岸对话协商停摆，还刻意抹黑攻击打压岛内其他政党、团体和社会各界与大陆的正常交往交流。
+
+我们推出10项促进两岸交流合作的政策措施，岛内社会各界、广大台湾同胞都叫好都支持，都想早谋其利，只有民进党当局跳出来攻击、污蔑、反对。
+
+这再次充分暴露了民进党当局图谋“台独”的真实面目，以及破坏两岸交流合作、损害民众福祉、与民众对着干的邪恶本性。
+
+(记者赵博、尚昊)
 
 ## 相关推荐
 
-- 2026-06-30 00:27 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 00:52 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 00:41 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 00:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 00:42 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 00:29 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 00:34 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 00:28 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-30 00:27 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 00:53 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 00:50 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 00:52 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-30 00:48 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 00:49 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 00:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 00:48 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 00:33 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 00:36 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 00:57 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-30 00:48 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 00:51 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 00:34 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 00:57 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 00:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [明星大侦探第一季](https://www.share.minike.top/Article/details/769616072787.shtml)
-- 2026-06-30 00:46 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/3257278.shtml)
-- 2026-06-30 00:40 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/954761.shtml)
-- 2026-06-30 00:40 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/028667.shtml)
-- 2026-06-30 00:43 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/425395982658.shtml)
-- 2026-06-30 00:53 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/99840214274.shtml)
-- 2026-06-30 00:53 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/82777.shtml)
-- 2026-06-30 00:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/674441344.shtml)
-- 2026-06-30 00:50 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/201592.shtml)
-- 2026-06-30 00:38 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/09397288.shtml)
-- 2026-06-30 00:27 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/049596612247.shtml)
-- 2026-06-30 00:50 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/4423623.shtml)
-- 2026-06-30 00:29 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/64089726.shtml)
-- 2026-06-30 00:41 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/125766717634.shtml)
-- 2026-06-30 00:42 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/45725.shtml)
+- 2026-06-30 00:50 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/333873456.shtml)
+- 2026-06-30 00:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/9235009.shtml)
+- 2026-06-30 00:43 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/5056493986.shtml)
+- 2026-06-30 00:45 - [千香](http://www.blog.minike.top/Article/details/37955172349.shtml)
+- 2026-06-30 00:58 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/96480907945.shtml)
+- 2026-06-30 00:41 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/0188328701.shtml)
+- 2026-06-30 00:40 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/938680091.shtml)
+- 2026-06-30 00:59 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/594803306.shtml)
+- 2026-06-30 00:57 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/70402798617.shtml)
+- 2026-06-30 00:36 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/56042093849.shtml)
+- 2026-06-30 00:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/071073.shtml)
+- 2026-06-30 00:43 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/886287119698.shtml)
+- 2026-06-30 00:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/20564337432.shtml)
+- 2026-06-30 00:52 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/1773919.shtml)
+- 2026-06-30 00:41 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/971533598.shtml)

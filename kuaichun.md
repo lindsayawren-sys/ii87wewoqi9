@@ -1,44 +1,56 @@
-# 中国足球小将抵达巴西参赛 教练董路谈意大利夺冠：中国足球什么都不缺 只缺胜利 我不认为差距是决定比赛胜负的主要原因 找对方法同样可以以弱胜强
+# 开盘：美股周二高开 特朗普预测美伊将在停火到期前达成协议
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 14:10 来源：中国新闻网 中国足球小将抵达巴西参赛 教练董路谈意大利夺冠：中国足球什么都不缺 只缺胜利 我不认为差距是决定比赛胜负的主要原因 找对方法同样可以以弱胜强 责任编辑：【翟璐】
+北京时间4月21日晚，美股周二高开。美国总统特朗普表示他预计美伊将在停火协议周三到期之前达成一项“伟大的协议”，并威胁称，如果未能签署协议，美国军队“已准备好”轰炸伊朗。 道指开盘上涨272.60点，涨幅为0.55%，报49715.16点；纳指涨47.80点，涨幅为0.20%，报24452.20点；标普500指数涨16.16点，涨幅为0.23%，报7125.30点。 美国总统特
 
 ## 正文
 
-发布时间：2026年06月09日 14:10 来源：中国新闻网 中国足球小将抵达巴西参赛 教练董路谈意大利夺冠：中国足球什么都不缺 只缺胜利 我不认为差距是决定比赛胜负的主要原因 找对方法同样可以以弱胜强 责任编辑：【翟璐】
+北京时间4月21日晚，美股周二高开。
+
+美国总统特朗普表示他预计美伊将在停火协议周三到期之前达成一项“伟大的协议”，并威胁称，如果未能签署协议，美国军队“已准备好”轰炸伊朗。
+
+道指开盘上涨272.60点，涨幅为0.55%，报49715.16点；纳指涨47.80点，涨幅为0.20%，报24452.20点；标普500指数涨16.16点，涨幅为0.23%，报7125.30点。
+
+美国总统特朗普周二对媒体表示：“我们最终会达成一项伟大的协议。
+
+他们别无选择。
+
+我们已经摧毁了他们的海军，摧毁了他们的空军，消灭了他们的领导人。
+
+” 不过，特朗普还补充说，如果在停火截止日期前未能签署协议，美国军队“已准备好”轰炸伊朗，并且他不想延长停火期限。
+
+此前，特朗普周二早些时候在Truth Social上发文称，伊朗“多次违反停火协议！
 
 ## 相关推荐
 
-- 2026-06-30 00:35 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 00:51 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 00:41 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 00:51 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 00:37 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 00:29 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 00:25 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 00:29 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 00:27 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 00:25 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 00:38 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 00:35 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 00:57 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 00:34 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 00:46 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 00:32 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 00:34 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 00:55 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 00:55 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 00:55 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 00:30 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 00:58 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:28 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/60304874.shtml)
-- 2026-06-30 00:26 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/07670637991.shtml)
-- 2026-06-30 00:50 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/864405.shtml)
-- 2026-06-30 00:34 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/718285140.shtml)
-- 2026-06-30 00:53 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/77486.shtml)
-- 2026-06-30 00:45 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/20508997.shtml)
-- 2026-06-30 00:25 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/4533970450.shtml)
-- 2026-06-30 00:34 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/46525976001.shtml)
-- 2026-06-30 00:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/05457150696.shtml)
-- 2026-06-30 00:39 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/681955360.shtml)
-- 2026-06-30 00:48 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/103420838956.shtml)
-- 2026-06-30 00:51 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/560468087.shtml)
-- 2026-06-30 00:37 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/433241.shtml)
-- 2026-06-30 00:32 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/822614761832.shtml)
-- 2026-06-30 00:37 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/94714.shtml)
+- 2026-06-30 00:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/3297754422.shtml)
+- 2026-06-30 00:30 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/14594080.shtml)
+- 2026-06-30 00:34 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/762687155.shtml)
+- 2026-06-30 00:39 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/726288382687.shtml)
+- 2026-06-30 00:37 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/750445.shtml)
+- 2026-06-30 00:37 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/5051239830.shtml)
+- 2026-06-30 00:51 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/8164604.shtml)
+- 2026-06-30 00:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/645636609.shtml)
+- 2026-06-30 00:35 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/098210104457.shtml)
+- 2026-06-30 00:58 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/4402122.shtml)
+- 2026-06-30 00:31 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/88167232037.shtml)
+- 2026-06-30 00:31 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/93401.shtml)
+- 2026-06-30 00:33 - [把邻居裸体发群算维权还是侵权](http://www.blog.minike.top/Article/details/2384527.shtml)
+- 2026-06-30 00:52 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/704421872.shtml)
+- 2026-06-30 00:49 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/37818522938.shtml)

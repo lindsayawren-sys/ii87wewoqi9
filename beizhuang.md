@@ -1,58 +1,58 @@
-# CPO“一哥”，融资客加仓断层第一
+# 外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！上周，A股市场震荡分化，上证指数、深证成指、创业板指分别累计下跌1.00%、1.67%、1.98%。在市场调整的情况下，Wind数据显示，截至6月5日，A股市场融资余额报28857.15亿元，融券余额报209.73亿元，上周融资余额环比减少52.58亿元。上周通信行业融资余额增加超90亿元，A股市场融资净买
+中新网北京4月22日电 (记者 张蔚然)中国外交部发言人郭嘉昆22日主持例行记者会。 有记者提问：据报道，继日本首相高市早苗向靖国神社供奉祭品后，今天高市再次向靖国神社供奉祭祀费，成长战略担当大臣城内实、自民党总务会长有村治子和多名国会议员前往参拜，请问中方对此有何评论？ 郭嘉昆：我们昨天已经阐明中方的严正立场，日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知。中
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京4月22日电 (记者 张蔚然)中国外交部发言人郭嘉昆22日主持例行记者会。
 
-上周，A股市场震荡分化，上证指数、深证成指、创业板指分别累计下跌1.00%、1.67%、1.98%。
+有记者提问：据报道，继日本首相高市早苗向靖国神社供奉祭品后，今天高市再次向靖国神社供奉祭祀费，成长战略担当大臣城内实、自民党总务会长有村治子和多名国会议员前往参拜，请问中方对此有何评论？
 
-在市场调整的情况下，Wind数据显示，截至6月5日，A股市场融资余额报28857.15亿元，融券余额报209.73亿元，上周融资余额环比减少52.58亿元。
+郭嘉昆：我们昨天已经阐明中方的严正立场，日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知。
 
-上周通信行业融资余额增加超90亿元，A股市场融资净买入金额最大的股票为中际旭创，净卖出金额最大的股票为澜起科技。
+中方对上述恶行十分愤慨，严厉谴责。
 
-融资客加仓通信行业超90亿元 Wind数据显示，截至6月5日，A股两融余额报29066.88亿元，融资余额报28857.15亿元，上周A股市场融资余额环比减少52.58亿元，在连续8周增加后首次出现减少。
+二战期间日本军国主义犯下罄竹难书的滔天罪行，给中国等亚洲国家和世界带来深重灾难。
 
-具体来看，6月1日A股融资余额减少75.74亿元，6月2日增加13.15亿元，6月3日增加85.04亿元，6月4日增加64.86亿元，6月5日减少139.88亿元。
+靖国神社是日本军国主义对外发动侵略战争的精神工具和象征，是事实上的“战犯神社”，供奉有对侵略战争负有直接罪责的二战甲级战犯，包括战争狂人、头号战犯东条英机，侵华贼首土肥原贤二，南京大屠杀元凶松井石根、偷袭珍珠港的下令者永野修身、杀害无数朝鲜半岛抗日民众的罪魁小矶国昭等。
 
-从行业情况来看，上周31个申万一级行业中有11个行业融资余额增加，通信、煤炭、国防军工行业融资净买入金额居前，分别为98.03亿元、11.60亿元、7.45亿元。
+这些人均是对亚洲乃至世界人民犯下滔天罪行的重要战争责任者。
 
-在出现融资净卖出的20个行业中，电力设备、电子、医药生物行业融资净卖出金额居前，分别为37.33亿元、32.77亿元、22.49亿元。
+靖国神社问题的实质是日本能否正确认识和深刻反省军国主义侵略历史，能否汲取历史教训，避免重蹈历史覆辙。
 
 ## 相关推荐
 
-- 2026-06-30 00:27 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 00:32 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 00:44 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 00:30 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 00:36 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 00:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 00:31 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 00:41 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 00:31 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 00:24 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 00:34 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 00:33 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 00:47 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 00:59 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 00:31 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 00:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 00:57 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 00:37 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 00:49 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 00:40 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 00:46 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 00:39 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 00:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 00:40 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/754780131542.shtml)
-- 2026-06-30 00:50 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/528580.shtml)
-- 2026-06-30 00:37 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/61966029.shtml)
-- 2026-06-30 00:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/9051777578.shtml)
-- 2026-06-30 00:39 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/626076115.shtml)
-- 2026-06-30 00:30 - [美人鱼](https://www.share.minike.top/Article/details/297495770.shtml)
-- 2026-06-30 00:36 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/925092.shtml)
-- 2026-06-30 00:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/615795.shtml)
-- 2026-06-30 00:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/6391734125.shtml)
-- 2026-06-30 00:30 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/321876605.shtml)
-- 2026-06-30 00:47 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/4943584.shtml)
-- 2026-06-30 00:28 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/0216452115.shtml)
-- 2026-06-30 00:30 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/4859361.shtml)
-- 2026-06-30 00:27 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/1017177695.shtml)
-- 2026-06-30 00:44 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/8133360.shtml)
+- 2026-06-30 00:41 - [金刚川](http://www.share.kurohicncr.top/Article/details/738244508.shtml)
+- 2026-06-30 00:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/82660561.shtml)
+- 2026-06-30 00:56 - [绘画区你赢了](https://www.share.minike.top/Article/details/704240.shtml)
+- 2026-06-30 00:37 - [TOP Prada](https://www.share.minike.top/Article/details/580638.shtml)
+- 2026-06-30 00:34 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/6814944.shtml)
+- 2026-06-30 00:39 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/752215138.shtml)
+- 2026-06-30 00:35 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/515863.shtml)
+- 2026-06-30 00:34 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/1889246265.shtml)
+- 2026-06-30 00:50 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/08429949.shtml)
+- 2026-06-30 00:44 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/34668634384.shtml)
+- 2026-06-30 00:45 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/8731680.shtml)
+- 2026-06-30 00:33 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/98024457.shtml)
+- 2026-06-30 00:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/44690066.shtml)
+- 2026-06-30 00:55 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/00434035903.shtml)
+- 2026-06-30 00:55 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/67491.shtml)

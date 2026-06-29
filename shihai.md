@@ -1,60 +1,60 @@
-# 私募股权科技交易额暴跌70% AI担忧令投资者对估值越发谨慎
+# 邦达亚洲:加拿大加息预期重燃 美元加元刷新6周低位
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-贝恩公司报告显示，私募股权科技交易额自去年底以来大幅下滑，原因是投资者在人工智能（AI）时代对企业估值变得越发谨慎。 贝恩分析Dealogic数据在报告中表示，第一季度全球收购交易额下降70%，至200亿美元，因已完成的大型交易减少。该报告分析了Dealogic的数据。同期软件公司估值下降约8%，而所有其他行业下降0.3%。 私募股权公司几年来一直难以以高于买入价的价格出售资产
+4月21日，日本央行行长植田和男在出席国际货币基金组织会议后，并未提前承诺本月加息，但仍释放出偏鹰派的政策信号，暗示若非4月，6月加息的可能性依然存在。尽管市场焦点集中于他未明确暗示4月行动，但植田和男也并未淡化4月加息的可能性，并特别强调需密切关注中东局势及其对日本经济的潜在冲击。三位熟悉日本央行决策思路的消息人士透露，在两种可能性均未排除的情况下，决策者可能会犹豫到最后一刻
 
 ## 正文
 
-贝恩公司报告显示，私募股权科技交易额自去年底以来大幅下滑，原因是投资者在人工智能（AI）时代对企业估值变得越发谨慎。
+4月21日，日本央行行长植田和男在出席国际货币基金组织会议后，并未提前承诺本月加息，但仍释放出偏鹰派的政策信号，暗示若非4月，6月加息的可能性依然存在。
 
-贝恩分析Dealogic数据在报告中表示，第一季度全球收购交易额下降70%，至200亿美元，因已完成的大型交易减少。
+尽管市场焦点集中于他未明确暗示4月行动，但植田和男也并未淡化4月加息的可能性，并特别强调需密切关注中东局势及其对日本经济的潜在冲击。
 
-该报告分析了Dealogic的数据。
+三位熟悉日本央行决策思路的消息人士透露，在两种可能性均未排除的情况下，决策者可能会犹豫到最后一刻，才会在4月27日至28日的政策会议上最终决定是否加息，这一决定在很大程度上取决于美伊结束冲突的谈判进展。
 
-同期软件公司估值下降约8%，而所有其他行业下降0.3%。
+消息人士表示：“在高度不确定的情况下，现在就为一周多以后的政策会议做出决定还为时过早。
 
-私募股权公司几年来一直难以以高于买入价的价格出售资产，并向投资者返还资本，而AI对软件公司尤其构成颠覆性威胁，加剧了这些困境。
+” 另外，摩根士丹利发布研报称，自中东冲突爆发以来，金价出现抛售，令投资者对其避险角色产生怀疑。
 
-贝恩全球私募股权业务负责人Rebecca Burack在采访中表示，这个刚刚摆脱美国总统唐纳德·特朗普贸易战影响的行业，进入今年却又遭遇所谓的“软件即服务末日”（SaaSpocalypse）冲击、私募信贷担忧以及伊朗战争推动的油价飙升。
+大摩认为，金价疲软反映的是冲击的类型，而非避险魅力的丧失。
 
-“我们有点像是连续第二年陷入‘土拨鼠日’般的循环，”她表示。
+黄金可能仍对实际收益率敏感，但认为未来仍有上行空间。
 
-“我们仍然不认为市场从根本上出了问题，”Burack表示，她指出，尽管受到冲击，经济仍在继续扩张。
+大摩又指，供应冲击对利率的影响与需求冲击不同，黄金与实际收益率的关系正在回归。
 
 ## 相关推荐
 
-- 2026-06-30 00:40 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 00:30 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 00:43 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 00:36 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 00:45 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 00:44 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 00:30 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 00:44 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 00:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 00:52 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 00:27 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 00:30 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 00:26 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 00:30 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 00:42 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 00:31 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 00:32 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 00:34 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 00:38 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 00:59 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 00:54 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 00:34 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 00:56 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 00:49 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 00:39 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 00:45 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 00:48 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 00:56 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:45 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/1576120315.shtml)
-- 2026-06-30 00:40 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/2248029117.shtml)
-- 2026-06-30 00:53 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/017659999.shtml)
-- 2026-06-30 00:43 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/78306975.shtml)
-- 2026-06-30 00:24 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/8444688.shtml)
-- 2026-06-30 00:49 - [世界杯](https://www.blog.kurohicncr.top/Article/details/67489325171.shtml)
-- 2026-06-30 00:45 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/4395899989.shtml)
-- 2026-06-30 00:44 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/89779860262.shtml)
-- 2026-06-30 00:38 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/802405953.shtml)
-- 2026-06-30 00:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/8648017491.shtml)
-- 2026-06-30 00:31 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/18942530076.shtml)
-- 2026-06-30 00:36 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/16765687259.shtml)
-- 2026-06-30 00:31 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/19406817.shtml)
-- 2026-06-30 00:44 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/36506.shtml)
-- 2026-06-30 00:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/49457.shtml)
+- 2026-06-30 00:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/5766535.shtml)
+- 2026-06-30 00:59 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/2484680149.shtml)
+- 2026-06-30 00:59 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/39378413.shtml)
+- 2026-06-30 00:32 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/34048841434.shtml)
+- 2026-06-30 00:58 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/36232258.shtml)
+- 2026-06-30 00:44 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/286160069.shtml)
+- 2026-06-30 00:39 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/6911762142.shtml)
+- 2026-06-30 00:46 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/41899243.shtml)
+- 2026-06-30 00:56 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/395092.shtml)
+- 2026-06-30 00:53 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/094907754534.shtml)
+- 2026-06-30 00:45 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/5953269233.shtml)
+- 2026-06-30 00:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/6343850.shtml)
+- 2026-06-30 00:56 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/2425777.shtml)
+- 2026-06-30 00:30 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/722576177132.shtml)
+- 2026-06-30 00:49 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/803919701534.shtml)

@@ -1,49 +1,53 @@
-# 美国纽约一车站发生持刀伤人事件 致5人受伤
+# 国台办：坚决反对美国一些人搞“以台遏华”
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网6月8日电 据法新社报道，当地时间7日，美国纽约消防部门称，一车站发生持刀伤人事件，造成5人受伤，嫌疑人已被拘留。 据报道，伤者已被送往医院，其中1人重伤。 目前，调查正在进行中。
+4月22日，国务院台办举行例行新闻发布会。有记者问：美国国会跨党派参议员日前致函台湾民意机构，敦促其通过台湾所谓“国防特别预算”，以“强化台湾防卫能力”，并加速采购美国军备，并有议员呼吁美国行政部门继续推进美国对台军售程序，请问发言人对此有何评论？发言人张晗表示，一段时间以来，美国一些人妄图“打台湾牌”，搞“以台遏华”，阻挠中国统一，我们对此坚决反对。民进党当局图谋“以武谋独”
 
 ## 正文
 
-中新网6月8日电 据法新社报道，当地时间7日，美国纽约消防部门称，一车站发生持刀伤人事件，造成5人受伤，嫌疑人已被拘留。
+4月22日，国务院台办举行例行新闻发布会。
 
-据报道，伤者已被送往医院，其中1人重伤。
+有记者问：美国国会跨党派参议员日前致函台湾民意机构，敦促其通过台湾所谓“国防特别预算”，以“强化台湾防卫能力”，并加速采购美国军备，并有议员呼吁美国行政部门继续推进美国对台军售程序，请问发言人对此有何评论？
 
-目前，调查正在进行中。
+发言人张晗表示，一段时间以来，美国一些人妄图“打台湾牌”，搞“以台遏华”，阻挠中国统一，我们对此坚决反对。
+
+民进党当局图谋“以武谋独”“倚外谋独”，甘当美国军火商的“提款机”，最终只会将台岛变成“火药桶”“弹药库”，毁台、害台，自取灭亡。
+
+(总台央视记者 赵超逸 张立雷)
 
 ## 相关推荐
 
-- 2026-06-30 00:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 00:37 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 00:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 00:25 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 00:44 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 00:29 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 00:47 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 00:52 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 00:43 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 00:40 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 00:33 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 00:39 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 00:47 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 00:50 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 00:50 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 00:49 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 00:44 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 00:49 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 00:32 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 00:50 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 00:52 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 00:55 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 00:46 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 00:42 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 00:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 00:33 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:37 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/0454745072.shtml)
-- 2026-06-30 00:29 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/970827922921.shtml)
-- 2026-06-30 00:40 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/4139955.shtml)
-- 2026-06-30 00:31 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/396484.shtml)
-- 2026-06-30 00:49 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/0278160402.shtml)
-- 2026-06-30 00:33 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/698599773.shtml)
-- 2026-06-30 00:39 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/1324663897.shtml)
-- 2026-06-30 00:30 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/6135285.shtml)
-- 2026-06-30 00:47 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/737969.shtml)
-- 2026-06-30 00:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/579055713.shtml)
-- 2026-06-30 00:27 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/84441539.shtml)
-- 2026-06-30 00:32 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/881126868.shtml)
-- 2026-06-30 00:39 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/435562706052.shtml)
-- 2026-06-30 00:48 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/32787.shtml)
-- 2026-06-30 00:30 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/58670544817.shtml)
+- 2026-06-30 00:45 - [一见倾心](https://www.share.minike.top/Article/details/771949121140.shtml)
+- 2026-06-30 00:53 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/79142.shtml)
+- 2026-06-30 00:36 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/347366210.shtml)
+- 2026-06-30 00:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/92461339.shtml)
+- 2026-06-30 00:32 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/647029.shtml)
+- 2026-06-30 00:59 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/41436954541.shtml)
+- 2026-06-30 00:55 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/0264737.shtml)
+- 2026-06-30 00:48 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/8940534183.shtml)
+- 2026-06-30 00:45 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/186126.shtml)
+- 2026-06-30 00:49 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/7925236710.shtml)
+- 2026-06-30 00:45 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/88342119738.shtml)
+- 2026-06-30 00:47 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/2170110501.shtml)
+- 2026-06-30 00:43 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/951106498.shtml)
+- 2026-06-30 00:52 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/022205919822.shtml)
+- 2026-06-30 00:30 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/882246086.shtml)

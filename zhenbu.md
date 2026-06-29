@@ -1,48 +1,55 @@
-# 开箱！最大规模莫兰迪展即将登陆上海
+# 一季度重庆外贸进出口总值创历史同期新高
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 18:59 来源：中国新闻网 6月9日，“乔治·莫兰迪：独白”大展在上海浦东美术馆举行开箱仪式，《静物》与《冯达扎大道庭院》两件真迹率先亮相。该展由浦东美术馆与意大利博洛尼亚莫兰迪博物馆共同呈现，将展出140余件原作，其中超120件系首次在华展出，堪称本世纪以来最完整、最系统的莫兰迪作品呈现。艺术家莫兰迪以低饱和度的色调闻名，这一独特的色彩系统
+中新社重庆4月21日电 (张旭)重庆海关21日发布消息称，据统计，2026年一季度，重庆外贸进出口总值2215.5亿元(人民币，下同)，同比增长34.3%，创历史同期新高。 其中，出口1537.2亿元，同比增长27%；进口678.3亿元，同比增长54.5%。 2026年一季度，重庆有实绩进出口企业达4357家，创历史同期新高。 2026年一季度，东盟、欧盟为重庆前两大贸易伙伴，
 
 ## 正文
 
-发布时间：2026年06月09日 18:59 来源：中国新闻网 6月9日，“乔治·莫兰迪：独白”大展在上海浦东美术馆举行开箱仪式，《静物》与《冯达扎大道庭院》两件真迹率先亮相。
+中新社重庆4月21日电 (张旭)重庆海关21日发布消息称，据统计，2026年一季度，重庆外贸进出口总值2215.5亿元(人民币，下同)，同比增长34.3%，创历史同期新高。
 
-该展由浦东美术馆与意大利博洛尼亚莫兰迪博物馆共同呈现，将展出140余件原作，其中超120件系首次在华展出，堪称本世纪以来最完整、最系统的莫兰迪作品呈现。
+其中，出口1537.2亿元，同比增长27%；进口678.3亿元，同比增长54.5%。
 
-艺术家莫兰迪以低饱和度的色调闻名，这一独特的色彩系统也被世人称为“莫兰迪色”。
+2026年一季度，重庆有实绩进出口企业达4357家，创历史同期新高。
 
-(记者 张亨伟 制作 王嘉怡) 责任编辑：【刘湃】
+2026年一季度，东盟、欧盟为重庆前两大贸易伙伴，重庆对东盟、欧盟分别进出口364.8亿元、291.8亿元，分别同比增长30.2%、31.8%。
+
+同期，重庆对共建“一带一路”国家进出口1023.3亿元，同比增长39.5%；对拉美、非洲等新兴市场进出口分别同比增长37.4%、40.2%。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 00:46 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 00:33 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 00:36 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 00:38 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 00:27 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 00:29 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 00:48 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 00:45 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 00:26 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 00:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 00:36 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 00:31 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 00:33 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-30 00:40 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 00:31 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 00:52 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 00:31 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 00:34 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 00:44 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 00:30 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 00:30 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 00:54 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 00:43 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/638699587660.shtml)
-- 2026-06-30 00:25 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/34072.shtml)
-- 2026-06-30 00:41 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/9219947259.shtml)
-- 2026-06-30 00:28 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/813263015763.shtml)
-- 2026-06-30 00:44 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/16868.shtml)
-- 2026-06-30 00:24 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/89964999.shtml)
-- 2026-06-30 00:33 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/38611110.shtml)
-- 2026-06-30 00:41 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/313723623799.shtml)
-- 2026-06-30 00:27 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/812853370.shtml)
-- 2026-06-30 00:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/0518578052.shtml)
-- 2026-06-30 00:40 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/28652870384.shtml)
-- 2026-06-30 00:50 - [毒液2](http://www.share.kurohicncr.top/Article/details/894340.shtml)
-- 2026-06-30 00:28 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/71998.shtml)
-- 2026-06-30 00:40 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/289779.shtml)
-- 2026-06-30 00:39 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/47622259123.shtml)
+- 2026-06-30 00:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/0089354558.shtml)
+- 2026-06-30 00:47 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/05961.shtml)
+- 2026-06-30 00:41 - [千香](https://www.share.kurohicncr.top/Article/details/89878853.shtml)
+- 2026-06-30 00:55 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/464925957555.shtml)
+- 2026-06-30 00:47 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/82719940903.shtml)
+- 2026-06-30 00:42 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/412721.shtml)
+- 2026-06-30 00:54 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/783626.shtml)
+- 2026-06-30 00:33 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/73928670.shtml)
+- 2026-06-30 00:51 - [沙丘](http://www.share.minike.top/Article/details/75927059.shtml)
+- 2026-06-30 00:32 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/192810519.shtml)
+- 2026-06-30 00:57 - [演员都来上音综的原因](http://www.share.kurohicncr.top/Article/details/677290867603.shtml)
+- 2026-06-30 00:41 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/97959201825.shtml)
+- 2026-06-30 00:58 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/7873172.shtml)
+- 2026-06-30 00:48 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/23389214228.shtml)
+- 2026-06-30 00:53 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/6747202.shtml)

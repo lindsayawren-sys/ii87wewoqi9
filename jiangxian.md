@@ -1,58 +1,56 @@
-# 顶层设计出炉 私募基金监管迎来系统性升级
+# 海南离岛免税政策实施15周年 免税购物金额达2864亿元
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 本文来源：经参证券 记者：吴黎华、罗逸姝 规模超23万亿元的私募基金行业迎来了“顶层设计”的纲领性文件。国务院办公厅日前印发《国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见》（以下简称《指导意见》）。《指导意见》坚持目标导向、问题导向，聚焦私募基金行业提质增效，着力加强部际央地监管协同，构建风险化解长效机制
+2011年4月20日，海南离岛免税政策正式落地实施。15年来，离岛免税政策进行了10次迭代升级：从每人每年5000元额度到10万元，从单一的“口岸提货”到“邮寄送达”“即购即提”“返岛提取”等多种提货方式并行，从35类商品到涵盖47大类。据海口海关统计，自2011年4月20日至2026年4月19日，15年来，海口海关累计监管海南离岛免税购物金额2864亿元，购物件数34788.
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 本文来源：经参证券 记者：吴黎华、罗逸姝 规模超23万亿元的私募基金行业迎来了“顶层设计”的纲领性文件。
+2011年4月20日，海南离岛免税政策正式落地实施。
 
-国务院办公厅日前印发《国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见》（以下简称《指导意见》）。
+15年来，离岛免税政策进行了10次迭代升级：从每人每年5000元额度到10万元，从单一的“口岸提货”到“邮寄送达”“即购即提”“返岛提取”等多种提货方式并行，从35类商品到涵盖47大类。
 
-《指导意见》坚持目标导向、问题导向，聚焦私募基金行业提质增效，着力加强部际央地监管协同，构建风险化解长效机制。
+据海口海关统计，自2011年4月20日至2026年4月19日，15年来，海口海关累计监管海南离岛免税购物金额2864亿元，购物件数34788.43万件，购物人数5086.67万人次。
 
-业内人士指出，《指导意见》以“扶优限劣、去伪存真”为内核，标志着行业正式进入强监管、促发展并重的高质量发展新阶段。
+目前，海南全岛已形成6家经营主体、12家离岛免税店的有序竞争格局。
 
-锚定私募基金发展航向 来自中国证券投资基金业协会的数据显示，截至2026年4月末，共有存续私募基金142078只，存续基金规模23.46万亿元。
+三亚国际免税城成为全国唯一一个被评为4A级景区的免税店，离岛免税政策正推动文旅、会展、演艺等产业齐头并进。
 
-其中，存续私募证券投资基金82705只，存续规模7.85万亿元；存续私募股权投资基金29749只，存续规模11.38万亿元；存续创业投资基金28952只，存续规模3.96万亿元。
+在海南自贸港封关运作的新起点上，离岛免税政策正成为链接全球旅客的桥梁。
 
-在稳步发展的同时，私募基金行业也面临着一些突出问题，主要体现在：行业大而不强，募资结构失衡，部分国资基金偏离功能定位，募投管退各环节均有短板。
+2025年11月的新政明确允许“离岛且离境旅客”享受离岛免税购物政策，这意味着国际游客在海南离境时同样可以带走免税好物。
 
-证监会新闻发言人指出，《指导意见》作为私募基金领域“1+N+X”政策制度体系的纲领性文件，对下一步各项工作进行了全面系统部署，通过完善机制、补齐短板、加强协同，实现优化增量、盘活存量、扶优限劣、提质增效，推动私募基金行业在规范中发展，在发展中提升。
+政策覆盖范围的扩大，叠加日益便利的免签入境政策和即买即退的离境退税政策，配合“多语种标识”“跨境便捷支付”等软环境提升，让越来越多的外国游客将海南列为“购物清单”上的必到一站。
 
 ## 相关推荐
 
-- 2026-06-30 00:35 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 00:26 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 00:27 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 00:45 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 00:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 00:52 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 00:35 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 00:36 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 00:49 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 00:51 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 00:42 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 00:31 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 00:42 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 00:37 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 00:38 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 00:40 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 00:52 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 00:36 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 00:52 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 00:32 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 00:52 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 00:40 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:38 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/87901099.shtml)
-- 2026-06-30 00:42 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/10052572518.shtml)
-- 2026-06-30 00:43 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/994783325900.shtml)
-- 2026-06-30 00:29 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/05909823.shtml)
-- 2026-06-30 00:35 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/10825366.shtml)
-- 2026-06-30 00:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/770107.shtml)
-- 2026-06-30 00:45 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/05565701.shtml)
-- 2026-06-30 00:33 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/7505913.shtml)
-- 2026-06-30 00:51 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/80836578627.shtml)
-- 2026-06-30 00:38 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/79556152248.shtml)
-- 2026-06-30 00:47 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/625835949135.shtml)
-- 2026-06-30 00:46 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/3453636250.shtml)
-- 2026-06-30 00:42 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/778241.shtml)
-- 2026-06-30 00:40 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/9182388.shtml)
-- 2026-06-30 00:51 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/09693521.shtml)
+- 2026-06-30 00:55 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/1265687251.shtml)
+- 2026-06-30 00:40 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/91689492450.shtml)
+- 2026-06-30 00:35 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/87200.shtml)
+- 2026-06-30 00:33 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/60024826441.shtml)
+- 2026-06-30 00:43 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/182626.shtml)
+- 2026-06-30 00:52 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/614798659.shtml)
+- 2026-06-30 00:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/444100032442.shtml)
+- 2026-06-30 00:57 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/140163199975.shtml)
+- 2026-06-30 00:42 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/31066.shtml)
+- 2026-06-30 00:42 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/65810797680.shtml)
+- 2026-06-30 00:42 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/916955.shtml)
+- 2026-06-30 00:42 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/8700947.shtml)
+- 2026-06-30 00:38 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/239550454.shtml)
+- 2026-06-30 00:53 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/67577874353.shtml)
+- 2026-06-30 00:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/89604849.shtml)

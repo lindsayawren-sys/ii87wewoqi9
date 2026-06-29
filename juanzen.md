@@ -1,59 +1,53 @@
-# ASML首席执行官警告欧盟不要干预芯片供应事宜
+# 外交部回应美方宣布延长停火期限：当务之急仍是全力避免战端重启
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-欧洲市值最高企业的负责人警示欧盟，切勿直接干预半导体供应链。他表示，想要降低对海外技术的依赖，根本之道是培育欧洲本土实力更强的企业。 荷兰芯片设备制造商阿斯麦（ASML）首席执行官克里斯托夫・富凯在接受英国媒体采访时称：“如果本土没有完整的供应链，又谈何干预供应链？” 富凯透露，阿斯麦在欧洲的销售额仅占总营收的1%左右，而亚洲市场占比约达80%。他认为这让企业处境十分“被动”，
+4月22日，外交部发言人郭嘉昆主持例行记者会。 就美方宣布延长美伊停火期限，郭嘉昆表示，当前地区局势处于战和转换的关键阶段，当务之急仍是全力避免战端重启。中方支持相关方继续坚持通过政治外交途径化解争端，实现全面持久停火止战，维护好中东和海湾地区和平稳定。 中方愿根据习近平主席四点主张精神，同国际社会一道为此发挥积极建设性作用。 （总台央视记者 申杨） 责任编辑：刘万里 SF01
 
 ## 正文
 
-欧洲市值最高企业的负责人警示欧盟，切勿直接干预半导体供应链。
+4月22日，外交部发言人郭嘉昆主持例行记者会。
 
-他表示，想要降低对海外技术的依赖，根本之道是培育欧洲本土实力更强的企业。
+就美方宣布延长美伊停火期限，郭嘉昆表示，当前地区局势处于战和转换的关键阶段，当务之急仍是全力避免战端重启。
 
-荷兰芯片设备制造商阿斯麦（ASML）首席执行官克里斯托夫・富凯在接受英国媒体采访时称：“如果本土没有完整的供应链，又谈何干预供应链？
+中方支持相关方继续坚持通过政治外交途径化解争端，实现全面持久停火止战，维护好中东和海湾地区和平稳定。
 
-” 富凯透露，阿斯麦在欧洲的销售额仅占总营收的1%左右，而亚洲市场占比约达80%。
+中方愿根据习近平主席四点主张精神，同国际社会一道为此发挥积极建设性作用。
 
-他认为这让企业处境十分“被动”，毕竟行业发展的常态就是贴近客户布局业务。
-
-就在此番言论发表的数日前，欧盟刚刚公布全新发展战略，其中包括授权相关部门在芯片短缺时紧急调配物资，以及一系列扶持欧洲半导体产业的举措。
-
-欧盟正力图减少对北美科技企业和亚洲制造商的依赖，政策制定者也在不断权衡：是直接出手干预产业，还是营造良好环境，助力本土企业发展、参与全球竞争。
-
-富凯于2024年出任阿斯麦首席执行官，他说道：“有人主张‘优先采购欧洲产品’。
+（总台央视记者 申杨） 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 00:29 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-30 00:33 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 00:42 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 00:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 00:51 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 00:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 00:53 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-30 00:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 00:32 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 00:42 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 00:48 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 00:27 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 00:48 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 00:47 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 00:35 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-30 00:37 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 00:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 00:46 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 00:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 00:43 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 00:50 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 00:41 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 00:47 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 00:53 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 00:53 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 00:43 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:50 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/2168328.shtml)
-- 2026-06-30 00:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/127384288309.shtml)
-- 2026-06-30 00:25 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/57465032.shtml)
-- 2026-06-30 00:46 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/64245488063.shtml)
-- 2026-06-30 00:39 - [美股](http://www.share.kurohicncr.top/Article/details/024810388.shtml)
-- 2026-06-30 00:25 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/712975905302.shtml)
-- 2026-06-30 00:53 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/4702175.shtml)
-- 2026-06-30 00:46 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/2459138.shtml)
-- 2026-06-30 00:34 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/718537.shtml)
-- 2026-06-30 00:37 - [千香](https://www.share.minike.top/Article/details/43872934.shtml)
-- 2026-06-30 00:43 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/7547006607.shtml)
-- 2026-06-30 00:24 - [第一炉香](https://www.share.minike.top/Article/details/346377182055.shtml)
-- 2026-06-30 00:42 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/282867461.shtml)
-- 2026-06-30 00:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/8170175309.shtml)
-- 2026-06-30 00:29 - [青春环游记第三季](http://www.share.minike.top/Article/details/34288228.shtml)
+- 2026-06-30 00:31 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/30739.shtml)
+- 2026-06-30 00:50 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/696167.shtml)
+- 2026-06-30 00:37 - [扬名立万](http://www.share.kurohicncr.top/Article/details/62112871587.shtml)
+- 2026-06-30 00:32 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/28903.shtml)
+- 2026-06-30 00:32 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/7436020108.shtml)
+- 2026-06-30 00:49 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/72267027.shtml)
+- 2026-06-30 00:39 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/72540874922.shtml)
+- 2026-06-30 00:50 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/727227340488.shtml)
+- 2026-06-30 00:34 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/143583257.shtml)
+- 2026-06-30 00:52 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/3664129.shtml)
+- 2026-06-30 00:50 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/5597195085.shtml)
+- 2026-06-30 00:46 - [肝不好身体这几处会“说话”](https://www.share.kurohicncr.top/Article/details/842303.shtml)
+- 2026-06-30 00:52 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/66979581.shtml)
+- 2026-06-30 00:46 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/23716348362.shtml)
+- 2026-06-30 00:45 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/31898222.shtml)

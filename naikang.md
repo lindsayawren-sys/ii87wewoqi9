@@ -1,61 +1,61 @@
-# 光模块再踩刹车，高“光”创业板人工智能ETF（159363）三连跌，情绪“错杀”还是行情见顶？机构火线解读
+# 中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-周一（6月8日），A股震荡调整，创业板指跌超3%，全市场近4600只个股下跌。盘面上，光模块CPO等算力硬件调整，天孚通信下跌7%日线三连跌，新易盛下跌3%，中际旭创下跌2%。 热门ETF方面，光模块CPO含量超50%且“易中天”含量高的创业板人工智能ETF华宝（159363）大幅低开后跌幅收窄，最终场内收跌3.97%，日线三连跌，单日成交17.69亿元。 今日AI板块下跌，或
+4月21日，“中国长安汽车集团全球战略发布会”举行，主题为：创新创业 智启长安。中国长安汽车集团有限公司党委书记、董事长朱华荣介绍到，新能源“香格里拉计划”是长安汽车转型最重要的三大计划之一。 他提到，中国长安迭代了三电技术，推出了长安“金钟罩”电池品牌，实现了长寿命、真安全、超高效快补能。我们在20安时级别的硫化物及氧聚合物固态电池上完成了试验验证，能量密度达到了每公斤400
 
 ## 正文
 
-周一（6月8日），A股震荡调整，创业板指跌超3%，全市场近4600只个股下跌。
+4月21日，“中国长安汽车集团全球战略发布会”举行，主题为：创新创业 智启长安。
 
-盘面上，光模块CPO等算力硬件调整，天孚通信下跌7%日线三连跌，新易盛下跌3%，中际旭创下跌2%。
+中国长安汽车集团有限公司党委书记、董事长朱华荣介绍到，新能源“香格里拉计划”是长安汽车转型最重要的三大计划之一。
 
-热门ETF方面，光模块CPO含量超50%且“易中天”含量高的创业板人工智能ETF华宝（159363）大幅低开后跌幅收窄，最终场内收跌3.97%，日线三连跌，单日成交17.69亿元。
+他提到，中国长安迭代了三电技术，推出了长安“金钟罩”电池品牌，实现了长寿命、真安全、超高效快补能。
 
-今日AI板块下跌，或主要受外部情绪扰动影响，但基本面核心逻辑未变，调整更多是结构性、情绪性的短期反应。
+我们在20安时级别的硫化物及氧聚合物固态电池上完成了试验验证，能量密度达到了每公斤400瓦时。
 
-从直接原因看，消息面上，6月5日美股上演“黑色星期五”，科技股普遍调整。
+同时，集团量产了新一代的电驱和电池管理系统，将末端充电时间缩短了30%。
 
-背后有两重触发因素：一是美股AI芯片龙头博通业绩不及预期，二是美国强劲的非农数据推升流动性紧缩预期。
+“我们交出了动力技术领域的重磅答卷。
 
-兴业证券对此轮调整的定性认为，本轮调整并非支撑行情的核心逻辑发生变化，更多是情绪层面的扰动，且影响偏结构。
+” 此外，朱华荣还提到了集团推出的全球混动中国方案——蓝鲸超擎，油耗低至每百公里2.98升，推动蓝牌家轿在城区工况下的油耗迈入了“两升时代”。
 
-近期的外部扰动并不能改变、反而有望更加强化A股盈利驱动的底层逻辑。
+他透露到，“其实我要告诉大家一个真实的数据，在实际测试中，试验者的油耗达到了百公里1.6升。
 
 ## 相关推荐
 
-- 2026-06-30 00:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 00:44 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 00:33 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 00:44 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 00:42 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 00:46 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 00:37 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 00:27 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 00:52 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 00:24 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 00:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 00:51 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 00:32 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 00:52 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 00:39 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 00:49 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 00:52 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 00:41 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 00:32 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 00:39 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 00:41 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 00:30 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 00:37 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 00:44 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 00:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 00:57 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 00:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 00:45 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 00:49 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 00:30 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:27 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/056261782.shtml)
-- 2026-06-30 00:36 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/0142175.shtml)
-- 2026-06-30 00:52 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/204551.shtml)
-- 2026-06-30 00:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/857576706866.shtml)
-- 2026-06-30 00:44 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/865259.shtml)
-- 2026-06-30 00:36 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/62317060113.shtml)
-- 2026-06-30 00:52 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/756855605803.shtml)
-- 2026-06-30 00:35 - [刘念回应](https://www.share.minike.top/Article/details/49132456337.shtml)
-- 2026-06-30 00:53 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/44533974307.shtml)
-- 2026-06-30 00:52 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/11914248.shtml)
-- 2026-06-30 00:27 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/74283069227.shtml)
-- 2026-06-30 00:30 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/24168538.shtml)
-- 2026-06-30 00:46 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/955437325003.shtml)
-- 2026-06-30 00:37 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/03625361.shtml)
-- 2026-06-30 00:25 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/474072975.shtml)
+- 2026-06-30 00:51 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/891323070.shtml)
+- 2026-06-30 00:43 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/7975069.shtml)
+- 2026-06-30 00:44 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/309831444073.shtml)
+- 2026-06-30 00:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/586428.shtml)
+- 2026-06-30 00:55 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/311704862786.shtml)
+- 2026-06-30 00:30 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/100939042.shtml)
+- 2026-06-30 00:54 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/908106.shtml)
+- 2026-06-30 00:59 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/1416128.shtml)
+- 2026-06-30 00:42 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/72423.shtml)
+- 2026-06-30 00:37 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/7997990690.shtml)
+- 2026-06-30 00:56 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/73600663.shtml)
+- 2026-06-30 00:52 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/585565390.shtml)
+- 2026-06-30 00:43 - [流金岁月](http://www.share.minike.top/Article/details/437883346.shtml)
+- 2026-06-30 00:45 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/6870714.shtml)
+- 2026-06-30 00:46 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/482413.shtml)

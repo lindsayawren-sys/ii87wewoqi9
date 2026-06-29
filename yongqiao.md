@@ -1,58 +1,53 @@
-# 非农数据击碎华尔街降息幻想，美股、黄金大跌
+# 津上机床中国发盈喜 预期年度归母应占溢利约10.94亿元同比增加约40%
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-南方财经 21世纪经济报道特约撰稿 王应贵 美国东部时间6月5日，美国劳工部公布了5月非农就业报告，新增就业岗位17.2万个，失业率维持在4.3%。 尽管就业市场数据远超预期，美国金融市场却跌声一片。当日收盘时，道琼斯30种工业股票平均指数、标准普尔500指数、纳斯达克指数分别收于50866.78、7383.74、25709.43点，下跌1.35%、2.64%、4.18%。受医
+津上机床中国（01651）公布，该集团预期截至2026年3月31日止年度取得公司拥有人应占溢利约人民币10.94亿元，同比增加约40%。 董事会认为，集团业绩增长受益于中国经济形势持续向好、国内制造业的设备需求继续增长的良好态势，包括汽车行业、3C行业及气动液压行业的资本开支均在增长。此外，AI液冷、半导体等新兴领域的快速发展，对高精度、自动化、复合化机床设备的需求持续提升，成
 
 ## 正文
 
-南方财经 21世纪经济报道特约撰稿 王应贵 美国东部时间6月5日，美国劳工部公布了5月非农就业报告，新增就业岗位17.2万个，失业率维持在4.3%。
+津上机床中国（01651）公布，该集团预期截至2026年3月31日止年度取得公司拥有人应占溢利约人民币10.94亿元，同比增加约40%。
 
-尽管就业市场数据远超预期，美国金融市场却跌声一片。
+董事会认为，集团业绩增长受益于中国经济形势持续向好、国内制造业的设备需求继续增长的良好态势，包括汽车行业、3C行业及气动液压行业的资本开支均在增长。
 
-当日收盘时，道琼斯30种工业股票平均指数、标准普尔500指数、纳斯达克指数分别收于50866.78、7383.74、25709.43点，下跌1.35%、2.64%、4.18%。
+此外，AI液冷、半导体等新兴领域的快速发展，对高精度、自动化、复合化机床设备的需求持续提升，成为集团业绩增长的主要驱动力。
 
-受医疗行业股业绩支撑，道琼斯30种工业股票平均指数跌幅较小，但以科技股为主的纳斯达克指数惨跌。
+同时，集团推进全员参与的降本增效的改善活动取得了显著成效，公司盈利水平得到明显提升。
 
-其他市场，美国10年期国债收益率收于4.536%，即涨1.32%（价格收于109.08美元，跌0.47%）；WTI 7月原油合约收于90.54美元/桶，跌2.69%；（伦敦）现货黄金收于4329.33美元/盎司，大跌3.26%；美元指数收报100.05点，涨0.67%；比特币现货收于61053美元，大跌4.37%。
-
-就业数据既是利好又是利空 最近两年，美国就业市场最令投资者担心。
-
-与2023年相比，新增就业岗位数量明显下降，特别是自2024年5月以来，就业市场处于低迷状态。
-
-今年5月，美国新增就业岗位维持在10万个以上，但就业质量（收入水平）依然让人担心。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:31 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 00:31 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 00:42 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 00:43 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 00:53 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 00:42 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 00:52 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 00:39 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 00:26 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 00:39 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 00:31 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 00:38 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 00:56 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 00:49 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 00:37 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 00:48 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 00:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 00:42 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 00:54 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 00:59 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 00:59 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 00:39 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 00:38 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 00:53 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 00:55 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:33 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/4081543118.shtml)
-- 2026-06-30 00:27 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/5769716.shtml)
-- 2026-06-30 00:25 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/380204668180.shtml)
-- 2026-06-30 00:43 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/66207836508.shtml)
-- 2026-06-30 00:53 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/4555116.shtml)
-- 2026-06-30 00:38 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/921997.shtml)
-- 2026-06-30 00:51 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/5080455.shtml)
-- 2026-06-30 00:31 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/546572.shtml)
-- 2026-06-30 00:33 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/23774808.shtml)
-- 2026-06-30 00:36 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/157033195681.shtml)
-- 2026-06-30 00:27 - [美股](https://www.blog.minike.top/Article/details/601250070.shtml)
-- 2026-06-30 00:50 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/351058521.shtml)
-- 2026-06-30 00:37 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/9934280654.shtml)
-- 2026-06-30 00:45 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/734161432381.shtml)
-- 2026-06-30 00:28 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/931872.shtml)
+- 2026-06-30 00:34 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/72257.shtml)
+- 2026-06-30 00:46 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/382165797419.shtml)
+- 2026-06-30 00:39 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/0729929.shtml)
+- 2026-06-30 00:34 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/65484903807.shtml)
+- 2026-06-30 00:50 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/55270820.shtml)
+- 2026-06-30 00:33 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/3576237908.shtml)
+- 2026-06-30 00:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/551954.shtml)
+- 2026-06-30 00:45 - [世界杯](http://www.share.minike.top/Article/details/93183616.shtml)
+- 2026-06-30 00:39 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/170201263.shtml)
+- 2026-06-30 00:45 - [送你一朵小红花](http://www.share.minike.top/Article/details/4357553.shtml)
+- 2026-06-30 00:50 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/854034.shtml)
+- 2026-06-30 00:58 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/6434502983.shtml)
+- 2026-06-30 00:54 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/640306611.shtml)
+- 2026-06-30 00:37 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/0044140.shtml)
+- 2026-06-30 00:39 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/82895362.shtml)

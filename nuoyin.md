@@ -1,58 +1,50 @@
-# 开盘：美股周一高开 芯片股从暴跌中反弹
+# 日媒：日本央行4月将维持利率不变
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-北京时间6月8日晚，美股周一高开。芯片股在上周遭遇猛烈抛售后出现企稳反弹迹象，但中东紧张局势持续发酵以及本周五SpaceX史诗级IPO的临近，令市场整体情绪保持谨慎。 道指涨105.34点，涨幅为0.21%，报50972.12点；标普500指数涨58.65点，涨幅为0.79%，报7442.39点；纳指涨400.06点，涨幅为1.56%，报26109.496点。 引领本轮牛市内存
+据日本媒体，日本央行可能在4月27日至28日的政策会议上维持利率在0.75%不变。 该媒体表示，中东紧张局势对日本经济和物价的影响仍不明朗；日本央行将推迟到6月的会议上做出是否升息的决定。责任编辑：刘明亮
 
 ## 正文
 
-北京时间6月8日晚，美股周一高开。
+据日本媒体，日本央行可能在4月27日至28日的政策会议上维持利率在0.75%不变。
 
-芯片股在上周遭遇猛烈抛售后出现企稳反弹迹象，但中东紧张局势持续发酵以及本周五SpaceX史诗级IPO的临近，令市场整体情绪保持谨慎。
+该媒体表示，中东紧张局势对日本经济和物价的影响仍不明朗；日本央行将推迟到6月的会议上做出是否升息的决定。
 
-道指涨105.34点，涨幅为0.21%，报50972.12点；标普500指数涨58.65点，涨幅为0.79%，报7442.39点；纳指涨400.06点，涨幅为1.56%，报26109.496点。
-
-引领本轮牛市内存芯片制造商美光科技在周五下跌13%后，周一上涨逾5%。
-
-英伟达和博通的股价也有所反弹。
-
-芯片板块出现明显反弹迹象。
-
-美光科技上涨4%，该股上周五曾大跌13%；英伟达和博通盘前亦分别上涨约2%和1.5%。
-
-市场分析认为，尽管上周五的抛售主要受强劲非农数据引发的加息担忧以及博通财报不及预期影响，但投资者并未对AI长期前景失去信心。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 00:39 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 00:25 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-30 00:49 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 00:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-30 00:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 00:24 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 00:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 00:48 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-30 00:40 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 00:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-30 00:28 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 00:44 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 00:53 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 00:51 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 00:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 00:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 00:30 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 00:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 00:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 00:56 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 00:35 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 00:31 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 00:31 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 00:45 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 00:32 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 00:32 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:40 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/7250512.shtml)
-- 2026-06-30 00:24 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/000332.shtml)
-- 2026-06-30 00:25 - [乔家的儿女](http://www.blog.minike.top/Article/details/17496442.shtml)
-- 2026-06-30 00:52 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/07243294825.shtml)
-- 2026-06-30 00:32 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/236886.shtml)
-- 2026-06-30 00:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/192613278.shtml)
-- 2026-06-30 00:28 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/7015203.shtml)
-- 2026-06-30 00:39 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/885940948.shtml)
-- 2026-06-30 00:25 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/352553536168.shtml)
-- 2026-06-30 00:30 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/745984.shtml)
-- 2026-06-30 00:29 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/96101604.shtml)
-- 2026-06-30 00:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/604652950952.shtml)
-- 2026-06-30 00:27 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/367595666.shtml)
-- 2026-06-30 00:26 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/48059116564.shtml)
-- 2026-06-30 00:50 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/619087.shtml)
+- 2026-06-30 00:39 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/68464597.shtml)
+- 2026-06-30 00:32 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/1350519.shtml)
+- 2026-06-30 00:32 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/757250604294.shtml)
+- 2026-06-30 00:34 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/48973.shtml)
+- 2026-06-30 00:41 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/2100647.shtml)
+- 2026-06-30 00:42 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/275116801.shtml)
+- 2026-06-30 00:57 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/42567.shtml)
+- 2026-06-30 00:35 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/65462.shtml)
+- 2026-06-30 00:30 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/0891390.shtml)
+- 2026-06-30 00:42 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/5411382774.shtml)
+- 2026-06-30 00:35 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/797504.shtml)
+- 2026-06-30 00:31 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/293217161.shtml)
+- 2026-06-30 00:30 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/6316441307.shtml)
+- 2026-06-30 00:34 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/265836.shtml)
+- 2026-06-30 00:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/520667940713.shtml)

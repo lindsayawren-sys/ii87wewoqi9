@@ -1,58 +1,56 @@
-# 中国驻菲律宾大使馆提醒在菲中国公民防范地震灾害
+# 我国适龄儿童国家免疫规划疫苗接种率持续保持在90%以上
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网马尼拉6月8日电 中国驻菲律宾大使馆8日发布公告，提醒在菲中国公民防范地震灾害。 公告说，据中国地震台网测定，北京时间6月8日7时37分菲律宾棉兰老岛海域发生7.9级地震，震源深度40千米(菲火山地震研究所报：震级7.8级，震源深度33公里)。截至6月8日15时，菲方已记录逾百次余震，萨兰加尼省、苏丹库达拉省等沿海地区发生海啸，已有人员伤亡报道。菲方预计未来几周内，震中附
+中新网4月22日电 国家疾控局22日举行新闻发布会，介绍近期重点传染病疫情形势分析和健康风险提示等情况。 国家疾控局新闻发言人席晶晶表示，4月25日是第40个“全国儿童预防接种日”。可以说，接种疫苗，是预防、控制疾病和保护公众健康最有效、最经济的手段。一直以来，我国结合传染病防控的新形势、新挑战，推动构建全生命周期疫苗防护体系，持续优化调整国家免疫规划策略，不断细化便民惠民服务
 
 ## 正文
 
-中新网马尼拉6月8日电 中国驻菲律宾大使馆8日发布公告，提醒在菲中国公民防范地震灾害。
+中新网4月22日电 国家疾控局22日举行新闻发布会，介绍近期重点传染病疫情形势分析和健康风险提示等情况。
 
-公告说，据中国地震台网测定，北京时间6月8日7时37分菲律宾棉兰老岛海域发生7.9级地震，震源深度40千米(菲火山地震研究所报：震级7.8级，震源深度33公里)。
+国家疾控局新闻发言人席晶晶表示，4月25日是第40个“全国儿童预防接种日”。
 
-截至6月8日15时，菲方已记录逾百次余震，萨兰加尼省、苏丹库达拉省等沿海地区发生海啸，已有人员伤亡报道。
+可以说，接种疫苗，是预防、控制疾病和保护公众健康最有效、最经济的手段。
 
-菲方预计未来几周内，震中附近区域还将持续发生余震。
+一直以来，我国结合传染病防控的新形势、新挑战，推动构建全生命周期疫苗防护体系，持续优化调整国家免疫规划策略，不断细化便民惠民服务措施，提升预防接种工作质量，推进疾病防控关口前移。
 
-中国驻菲律宾使领馆提醒在菲中国公民密切关注当地预警和灾害信息，防范余震及地震导致的次生灾害；保持冷静，做好安全防护，保持通讯畅通。
+2025年，我国将人乳头瘤病毒疫苗(HPV)疫苗纳入国家免疫规划，2026年又纳入卫生健康系统为民服务实事项目，为适龄女孩提供免费、贴心且安心的接种服务。
 
-请相关地区中国公民立即远离海边，转移至高地或内陆避险。
+席晶晶指出，这些年来，我国适龄儿童的国家免疫规划疫苗接种率持续保持在90%以上，麻疹、风疹、流脑、乙脑、甲肝等多种疫苗针对传染病的发病率已降至历史较低水平，实现了消除新生儿破伤风的目标，“防患于未然”的中国智慧守护着千家万户的生命健康。
 
-如遇紧急情况，请联系：菲律宾报警急救电话：911 菲律宾红十字会急救电话：143 中国驻菲律宾使馆领保协助电话：0063-2-82311033 中国驻宿务总领馆领保协助电话：0063-32-3430008 中国驻拉瓦格领馆领保协助电话：0063-9178051226 中国驻达沃总领馆领保协助电话：0063-9271304354 外交部全球领事保护与服务应急热线(24小时)：0086-10-12308或0086-10-65612308。
-
-(完)
+这些成就的取得，得益于广大预防接种一线工作者的辛勤付出，也得益于社会各界的同向发力、密切协作，更离不开广大公众的积极支持和主动参与。
 
 ## 相关推荐
 
-- 2026-06-30 00:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 00:45 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 00:26 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 00:53 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 00:31 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 00:47 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 00:39 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 00:33 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 00:26 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 00:25 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 00:32 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-30 00:40 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 00:30 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 00:57 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 00:31 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 00:33 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 00:41 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 00:53 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 00:51 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 00:55 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 00:33 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-30 00:55 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 00:35 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 00:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:41 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/101238.shtml)
-- 2026-06-30 00:37 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/24163.shtml)
-- 2026-06-30 00:37 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/00636622.shtml)
-- 2026-06-30 00:34 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/2004711287.shtml)
-- 2026-06-30 00:36 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/120196301172.shtml)
-- 2026-06-30 00:37 - [沉睡花园](http://www.share.minike.top/Article/details/9885330685.shtml)
-- 2026-06-30 00:49 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/43323618.shtml)
-- 2026-06-30 00:42 - [一生一世](http://www.share.minike.top/Article/details/055611419481.shtml)
-- 2026-06-30 00:39 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/202040131843.shtml)
-- 2026-06-30 00:31 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/16663011864.shtml)
-- 2026-06-30 00:40 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/5344184.shtml)
-- 2026-06-30 00:34 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/408155423.shtml)
-- 2026-06-30 00:49 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/22575560.shtml)
-- 2026-06-30 00:42 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/43990032040.shtml)
-- 2026-06-30 00:38 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/392607.shtml)
+- 2026-06-30 00:36 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/787694.shtml)
+- 2026-06-30 00:47 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/188502440050.shtml)
+- 2026-06-30 00:37 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/0841279.shtml)
+- 2026-06-30 00:51 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/04910748204.shtml)
+- 2026-06-30 00:52 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/42156.shtml)
+- 2026-06-30 00:55 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/7814797.shtml)
+- 2026-06-30 00:57 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/784827.shtml)
+- 2026-06-30 00:55 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/94945575185.shtml)
+- 2026-06-30 00:33 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/234185098180.shtml)
+- 2026-06-30 00:39 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/294289.shtml)
+- 2026-06-30 00:51 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/78314.shtml)
+- 2026-06-30 00:47 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/092517957.shtml)
+- 2026-06-30 00:45 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/98638030849.shtml)
+- 2026-06-30 00:56 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/371962521.shtml)
+- 2026-06-30 00:41 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/1684597.shtml)

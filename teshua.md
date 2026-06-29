@@ -1,60 +1,56 @@
-# 首钢朗泽盘中逆市涨超17% 公司有望受益SAF市场快速扩容
+# 满足“五一”出行需求 新疆铁路计划增开302列临客列车
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-首钢朗泽（02553）盘中逆市涨超17%，较招股价14.6港元已涨超140%。截至发稿，股价上涨4.15%，现报31.60港元，成交额6793.37万港元。 公开资料显示，首钢朗泽深耕于碳捕集、利用和封存行业（CCUS），专注于以钢铁厂、铁合金厂生产过程中产生的含碳工业尾气为原料，通过碳捕集和利用技术生产乙醇及微生物蛋白等低碳产品，并提供低碳综合性解决方案。据弗若斯特沙利文统计
+记者从中国铁路乌鲁木齐局集团有限公司获悉，今年“五一”假期铁路运输期自4月29日起至5月6日止，共8天。新疆铁路部门预计发送旅客179.96万人次，同比增幅2%，计划累计增开临时旅客列车302列。其中，成都西、兰州跨省方向临时旅客列车30列、疆内方向272列。 在疆内出行方面，铁路部门将分别在南疆方向增开116列、北疆方向增开142列，东疆方向增开14列临时旅客列车，满足旅客出
 
 ## 正文
 
-首钢朗泽（02553）盘中逆市涨超17%，较招股价14.6港元已涨超140%。
+记者从中国铁路乌鲁木齐局集团有限公司获悉，今年“五一”假期铁路运输期自4月29日起至5月6日止，共8天。
 
-截至发稿，股价上涨4.15%，现报31.60港元，成交额6793.37万港元。
+新疆铁路部门预计发送旅客179.96万人次，同比增幅2%，计划累计增开临时旅客列车302列。
 
-公开资料显示，首钢朗泽深耕于碳捕集、利用和封存行业（CCUS），专注于以钢铁厂、铁合金厂生产过程中产生的含碳工业尾气为原料，通过碳捕集和利用技术生产乙醇及微生物蛋白等低碳产品，并提供低碳综合性解决方案。
+其中，成都西、兰州跨省方向临时旅客列车30列、疆内方向272列。
 
-据弗若斯特沙利文统计，依照2025年数据，首钢朗泽为全球利用合成生物技术的CCUS行业中规模最大的企业。
+在疆内出行方面，铁路部门将分别在南疆方向增开116列、北疆方向增开142列，东疆方向增开14列临时旅客列车，满足旅客出行需求。
 
-据悉，国际能源署（IEA）将CCUS列为全球实现碳中和的关键技术之一，预计全球碳捕集市场累计投资在2030年达到1600亿美元。
+据铁路部门分析预测，今年“五一”假期客流主要以旅游、探亲、学生等传统客流为主，加之新疆部分地州中小学“春假”与节日叠加，各地文旅活动丰富多彩等因素，群众出行需求旺盛。
 
-与此同时，全球可持续航空燃料（SAF）市场快速扩容，也为CCUS行业带来机遇。
+假日运输期间，铁路客流将呈现“首尾两日高、中间较低”的特征，客流主要集中在乌鲁木齐与伊宁、喀什、库尔勒等地州间双向流动，出疆客流集中在兰州、嘉峪关、西安、成都等热门方向。
 
-招股书披露，首钢朗泽计划于2026年在内蒙古包头建设可持续航空燃料设施并在2027年投产，为公司产业链延伸打开长期空间。
-
-责任编辑：卢昱君
+(总台记者 王新宇 彭婵)
 
 ## 相关推荐
 
-- 2026-06-30 00:49 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 00:47 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 00:29 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 00:38 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 00:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 00:27 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 00:31 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 00:47 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 00:42 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 00:48 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 00:24 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 00:29 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-30 00:31 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 00:29 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 00:59 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 00:59 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 00:30 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 00:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 00:47 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 00:56 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 00:34 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 00:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 00:59 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 00:32 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 00:32 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 00:41 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:49 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/5383352.shtml)
-- 2026-06-30 00:33 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/99157530713.shtml)
-- 2026-06-30 00:35 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/0030915.shtml)
-- 2026-06-30 00:28 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/946505070729.shtml)
-- 2026-06-30 00:38 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/93645435126.shtml)
-- 2026-06-30 00:34 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/4270382704.shtml)
-- 2026-06-30 00:24 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/94142007.shtml)
-- 2026-06-30 00:28 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/19076.shtml)
-- 2026-06-30 00:30 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/934982.shtml)
-- 2026-06-30 00:49 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/9830736.shtml)
-- 2026-06-30 00:40 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/720298.shtml)
-- 2026-06-30 00:43 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/367933.shtml)
-- 2026-06-30 00:44 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/70878449.shtml)
-- 2026-06-30 00:40 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/706938080.shtml)
-- 2026-06-30 00:42 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/67326482.shtml)
+- 2026-06-30 00:43 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/20496480870.shtml)
+- 2026-06-30 00:36 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/1916643910.shtml)
+- 2026-06-30 00:32 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/5106627.shtml)
+- 2026-06-30 00:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/408248690681.shtml)
+- 2026-06-30 00:34 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/44980497850.shtml)
+- 2026-06-30 00:31 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/40414.shtml)
+- 2026-06-30 00:45 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/20095639339.shtml)
+- 2026-06-30 00:48 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/7983415124.shtml)
+- 2026-06-30 00:40 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/470247.shtml)
+- 2026-06-30 00:36 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/4291318.shtml)
+- 2026-06-30 00:53 - [爱很美味](https://www.share.kurohicncr.top/Article/details/688556.shtml)
+- 2026-06-30 00:57 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/7482676738.shtml)
+- 2026-06-30 00:53 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/30968540.shtml)
+- 2026-06-30 00:41 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/159679493.shtml)
+- 2026-06-30 00:42 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/99590.shtml)

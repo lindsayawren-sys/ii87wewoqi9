@@ -1,59 +1,58 @@
-# 约瑟芬·约翰逊《十一月的此刻》分享会在京举办
+# Revolut目标估值2000亿美元，IPO计划初具雏形
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网北京6月8日电 (记者 高凯)“她的生活会一直向前——约瑟芬·约翰逊《十一月的此刻》分享会”日前在京举办。《十一月的此刻》译者、北京师范大学教授郭乙瑶，作家、第八届宝珀理想国文学奖首奖得主辽京，以及“随机波动”主播冷建国围绕《十一月的此刻》展开了一场关于文学、自然、女性与生存韧性的深度对话。 约瑟芬·约翰逊(Josephine Johnson，1910—1990)是美国小
+据熟悉内情的投资者透露，伦敦金融科技公司Revolut正在为未来上市设定1500亿至2000亿美元的估值目标，但该公司已表示不会在2028年之前寻求上市。目前尚未确定正式的估值目标，Revolut拒绝置评。预计今年下半年进行的二次股票出售可能会使该公司估值超过1000亿美元。 Revolut已成长为欧洲估值最高的初创公司。去年11月的一轮融资对该集团的估值为750亿美元，高于2
 
 ## 正文
 
-中新网北京6月8日电 (记者 高凯)“她的生活会一直向前——约瑟芬·约翰逊《十一月的此刻》分享会”日前在京举办。
+据熟悉内情的投资者透露，伦敦金融科技公司Revolut正在为未来上市设定1500亿至2000亿美元的估值目标，但该公司已表示不会在2028年之前寻求上市。
 
-《十一月的此刻》译者、北京师范大学教授郭乙瑶，作家、第八届宝珀理想国文学奖首奖得主辽京，以及“随机波动”主播冷建国围绕《十一月的此刻》展开了一场关于文学、自然、女性与生存韧性的深度对话。
+目前尚未确定正式的估值目标，Revolut拒绝置评。
 
-约瑟芬·约翰逊(Josephine Johnson，1910—1990)是美国小说家、诗人和散文家，她曾在《大西洋月刊》《名利场》《圣路易斯评论》等发表短篇小说。
+预计今年下半年进行的二次股票出售可能会使该公司估值超过1000亿美元。
 
-多次获欧·亨利奖。
+Revolut已成长为欧洲估值最高的初创公司。
 
-1935年，年仅25岁的约翰逊凭借自己的首部小说《十一月的此刻》获得普利策小说奖。
+去年11月的一轮融资对该集团的估值为750亿美元，高于2024年的450亿美元，并新增了包括英伟达在内的投资方。
 
-《十一月的此刻》以美国大萧条与西部大旱灾为背景，讲述一家五口从城市回到乡村务农、在债务与自然的双重绞杀下艰难求生的故事。
+去年，该公司税前利润增长57%，达到17亿英镑，营收为45亿英镑，其中高级订阅收入增长67%是主要推动力。
 
-郭乙瑶回忆，自己最初通过出版社推荐接触到这本书，读了几章便深深喜欢上了它。
+创始人本周表示，上市最早将在2028年进行，并补充称“上市公司比私营公司更受信任”。
 
-“她的语言非常诗意，句子很短，风格唯美。
+若达到2000亿美元估值，将触发创始人的薪酬协议，他可能获得公司约40%的股份，使其持股价值约800亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 00:34 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 00:40 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 00:43 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 00:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 00:38 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 00:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 00:47 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 00:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 00:48 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 00:52 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 00:53 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 00:25 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 00:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 00:46 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 00:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 00:33 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 00:46 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 00:53 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 00:47 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 00:53 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 00:51 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 00:43 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 00:49 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 00:48 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 00:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/648650.shtml)
-- 2026-06-30 00:24 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/87268.shtml)
-- 2026-06-30 00:26 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/835202047.shtml)
-- 2026-06-30 00:47 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/615714.shtml)
-- 2026-06-30 00:32 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/382886.shtml)
-- 2026-06-30 00:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/40670733.shtml)
-- 2026-06-30 00:27 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/65652.shtml)
-- 2026-06-30 00:25 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/47765.shtml)
-- 2026-06-30 00:47 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/29920333.shtml)
-- 2026-06-30 00:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/743432868676.shtml)
-- 2026-06-30 00:24 - [金刚川](https://www.blog.minike.top/Article/details/813897768392.shtml)
-- 2026-06-30 00:26 - [逃狱兄弟](http://www.blog.minike.top/Article/details/01960.shtml)
-- 2026-06-30 00:33 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/1415911.shtml)
-- 2026-06-30 00:46 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/0533218321.shtml)
-- 2026-06-30 00:31 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/991756.shtml)
+- 2026-06-30 00:48 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/1807017895.shtml)
+- 2026-06-30 00:59 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/758610.shtml)
+- 2026-06-30 00:52 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/907295064037.shtml)
+- 2026-06-30 00:55 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/51393728297.shtml)
+- 2026-06-30 00:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/323928.shtml)
+- 2026-06-30 00:43 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/85949.shtml)
+- 2026-06-30 00:55 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/3471947.shtml)
+- 2026-06-30 00:30 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/1707232096.shtml)
+- 2026-06-30 00:33 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/244094620308.shtml)
+- 2026-06-30 00:54 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/861146842921.shtml)
+- 2026-06-30 00:59 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.kurohicncr.top/Article/details/77961.shtml)
+- 2026-06-30 00:53 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/93417070245.shtml)
+- 2026-06-30 00:42 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/290321362527.shtml)
+- 2026-06-30 00:35 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/489029439.shtml)
+- 2026-06-30 00:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/009758.shtml)

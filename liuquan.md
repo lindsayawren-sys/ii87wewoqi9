@@ -1,51 +1,56 @@
-# 伊朗称美国应对以色列的行动和地区紧张局势负责
+# 大众汽车宣布今年下半年起在中国市场车型搭载语音人工智能
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-伊朗外交部发言人伊斯梅尔·巴加埃在每周例行记者会上表示，伊朗认为美国应该对以色列的行为以及由此导致的地区紧张局势升级负责。 他表示，美国在火炮和防空等领域与以色列进行合作与协调。 他还称，伊朗与美国之间的信息交流是在一种深度不信任的氛围中进行的。 此外，巴加埃补充说，伊朗不会允许以色列扩大其行动。 推荐阅读：伊朗和以色列互射导弹 危及特朗普的和平谈判责任编辑：刘明亮
+核心要点 德国汽车巨头大众汽车宣布，将为中国市场车型搭载语音人工智能控制系统。 大众周二表示，自今年下半年起，基于大众中国车载系统打造的所有车型，均将配备智能语音 AI 助手，用户可通过语音指令操控车辆各项功能。 “汽车应当像一位伙伴。” 大众中国首席技术官托马斯・乌尔布里希接受 CNBC 记者尹恩熙采访时表示。 他称，大众车载 AI 助手将整合腾讯、阿里巴巴、百度等企业的技术
 
 ## 正文
 
-伊朗外交部发言人伊斯梅尔·巴加埃在每周例行记者会上表示，伊朗认为美国应该对以色列的行为以及由此导致的地区紧张局势升级负责。
+核心要点 德国汽车巨头大众汽车宣布，将为中国市场车型搭载语音人工智能控制系统。
 
-他表示，美国在火炮和防空等领域与以色列进行合作与协调。
+大众周二表示，自今年下半年起，基于大众中国车载系统打造的所有车型，均将配备智能语音 AI 助手，用户可通过语音指令操控车辆各项功能。
 
-他还称，伊朗与美国之间的信息交流是在一种深度不信任的氛围中进行的。
+“汽车应当像一位伙伴。
 
-此外，巴加埃补充说，伊朗不会允许以色列扩大其行动。
+” 大众中国首席技术官托马斯・乌尔布里希接受 CNBC 记者尹恩熙采访时表示。
 
-推荐阅读：伊朗和以色列互射导弹 危及特朗普的和平谈判责任编辑：刘明亮
+他称，大众车载 AI 助手将整合腾讯、阿里巴巴、百度等企业的技术，打造出具备 “个性”、能够预判驾驶员需求的智能工具。
+
+该人工智能采用本地化训练的大语言模型，所有运算均在车机端完成，无需依赖云端。
+
+大众周二在北京亮相四款车型，其中包括 ID.UNYX 09，该车型由大众与新能源车企小鹏汽车耗时两年联合开发。
+
+在中国市场快速从燃油车向电动车转型的背景下，此举是大众挽回流失市场份额战略的一部分。
 
 ## 相关推荐
 
-- 2026-06-30 00:31 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 00:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 00:27 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 00:45 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-30 00:25 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 00:43 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 00:34 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 00:53 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 00:28 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 00:38 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 00:50 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 00:56 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 00:56 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 00:53 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 00:40 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 00:39 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 00:50 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 00:37 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 00:54 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 00:47 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 00:36 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:29 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/4647413.shtml)
-- 2026-06-30 00:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/8681593.shtml)
-- 2026-06-30 00:47 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/924823536.shtml)
-- 2026-06-30 00:38 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/993252890637.shtml)
-- 2026-06-30 00:37 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/86323.shtml)
-- 2026-06-30 00:50 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/780254.shtml)
-- 2026-06-30 00:37 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/62296251278.shtml)
-- 2026-06-30 00:41 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/7379381853.shtml)
-- 2026-06-30 00:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/8098407.shtml)
-- 2026-06-30 00:52 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/417089625.shtml)
-- 2026-06-30 00:33 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/60268.shtml)
-- 2026-06-30 00:53 - [乔家的儿女](https://www.share.minike.top/Article/details/29149.shtml)
-- 2026-06-30 00:39 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/3262648518.shtml)
-- 2026-06-30 00:47 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/13523336.shtml)
-- 2026-06-30 00:36 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/3256573928.shtml)
+- 2026-06-30 00:50 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/463940320049.shtml)
+- 2026-06-30 00:59 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/088308985.shtml)
+- 2026-06-30 00:47 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/36501541.shtml)
+- 2026-06-30 00:39 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/49129.shtml)
+- 2026-06-30 00:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/8037967585.shtml)
+- 2026-06-30 00:40 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/13265.shtml)
+- 2026-06-30 00:43 - [毒液2](https://www.blog.kurohicncr.top/Article/details/766321231.shtml)
+- 2026-06-30 00:37 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/6884825.shtml)
+- 2026-06-30 00:31 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/66796835139.shtml)
+- 2026-06-30 00:40 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/03449817565.shtml)
+- 2026-06-30 00:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/83331051.shtml)
+- 2026-06-30 00:31 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/425906.shtml)
+- 2026-06-30 00:33 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/48102281.shtml)
+- 2026-06-30 00:33 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/0933149725.shtml)
+- 2026-06-30 00:30 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/262116.shtml)

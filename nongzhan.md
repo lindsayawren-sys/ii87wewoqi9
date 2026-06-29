@@ -1,46 +1,49 @@
-# 微视频｜中朝友谊 历久弥坚
+# 石嘴山银行被罚20万元：违反金融统计管理规定
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月08日 09:00 来源：新华社 责任编辑：【杨彦宇】
+4月21日金融一线消息，中国人民银行石嘴山市分行行政处罚决定信息公示表显示，石嘴山银行股份有限公司因违反金融统计管理规定，被罚款20万元。 责任编辑：王馨茹
 
 ## 正文
 
-发布时间：2026年06月08日 09:00 来源：新华社 责任编辑：【杨彦宇】
+4月21日金融一线消息，中国人民银行石嘴山市分行行政处罚决定信息公示表显示，石嘴山银行股份有限公司因违反金融统计管理规定，被罚款20万元。
+
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 00:38 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 00:35 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 00:24 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 00:35 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 00:41 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 00:28 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 00:50 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 00:49 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 00:49 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 00:40 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 00:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 00:45 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 00:31 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 00:51 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 00:42 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 00:53 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 00:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 00:32 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 00:49 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 00:51 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 00:38 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 00:45 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 00:32 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 00:39 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 00:43 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 00:59 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 00:34 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 00:37 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 00:34 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [青春环游记第三季](http://www.share.minike.top/Article/details/3865629285.shtml)
-- 2026-06-30 00:48 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/83634983.shtml)
-- 2026-06-30 00:25 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/95633062597.shtml)
-- 2026-06-30 00:49 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/830768363.shtml)
-- 2026-06-30 00:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/03916849886.shtml)
-- 2026-06-30 00:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/076620.shtml)
-- 2026-06-30 00:46 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/50390.shtml)
-- 2026-06-30 00:39 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/458752202.shtml)
-- 2026-06-30 00:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/48816376949.shtml)
-- 2026-06-30 00:50 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/11269657051.shtml)
-- 2026-06-30 00:44 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/63988897967.shtml)
-- 2026-06-30 00:24 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/8209671484.shtml)
-- 2026-06-30 00:35 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/55305.shtml)
-- 2026-06-30 00:37 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/129415142.shtml)
-- 2026-06-30 00:51 - [田曦薇没招了](http://www.share.minike.top/Article/details/769991423370.shtml)
+- 2026-06-30 00:48 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/56148.shtml)
+- 2026-06-30 00:44 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/749463740.shtml)
+- 2026-06-30 00:55 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/409270231.shtml)
+- 2026-06-30 00:41 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/7336719.shtml)
+- 2026-06-30 00:57 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/9621122.shtml)
+- 2026-06-30 00:41 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/183667.shtml)
+- 2026-06-30 00:58 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/027443.shtml)
+- 2026-06-30 00:55 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/648295013.shtml)
+- 2026-06-30 00:30 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/482469.shtml)
+- 2026-06-30 00:47 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/91281422.shtml)
+- 2026-06-30 00:33 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/69337699188.shtml)
+- 2026-06-30 00:52 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/408661005699.shtml)
+- 2026-06-30 00:31 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/611423.shtml)
+- 2026-06-30 00:32 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/792852.shtml)
+- 2026-06-30 00:31 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/140565778.shtml)

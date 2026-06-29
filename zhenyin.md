@@ -1,60 +1,56 @@
-# 人形机器人政策加码，创业板50ETF华安（159949）半日涨超2%成交13亿！机构：夏日“阵雨”无碍二三季度新高
+# 用软件脚本“秒抢”医院专家号 上海警方抓获非法倒卖号源10人
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-6月9日电，三大指数高开后震荡，创指、深成指均涨超1%。受此带动，创业板50ETF华安（159949）涨2.16%，报1.892元，换手率5.76%，半日成交额13.18亿元，居同类标的ETF首位。 消息面上，工业和信息化部、国务院国资委联合开展2026年度人形机器人与具身智能实景实训专项行动。坚持应用牵引，面向工业、特种、服务等领域重点场景，一体推进实景实训空间建设、创新应用
+中新网上海4月22日电(李姝徵 陆毅豪)医院的专家号刚放出就“秒空”，竟是被不法分子利用技术手段公然倒卖，非法牟利。记者22日从上海闵行警方获悉，近日，警方经过缜密侦查，捣毁一利用非法技术抢占、倒卖医院号源的犯罪团伙。 2026年3月，上海市公安局闵行分局网安支队接到辖区某三甲医院反映线索称，医院线上挂号小程序显示大量专家号已约满，然而实际到诊率却不高，不少号源无人就诊。与此同
 
 ## 正文
 
-6月9日电，三大指数高开后震荡，创指、深成指均涨超1%。
+中新网上海4月22日电(李姝徵 陆毅豪)医院的专家号刚放出就“秒空”，竟是被不法分子利用技术手段公然倒卖，非法牟利。
 
-受此带动，创业板50ETF华安（159949）涨2.16%，报1.892元，换手率5.76%，半日成交额13.18亿元，居同类标的ETF首位。
+记者22日从上海闵行警方获悉，近日，警方经过缜密侦查，捣毁一利用非法技术抢占、倒卖医院号源的犯罪团伙。
 
-消息面上，工业和信息化部、国务院国资委联合开展2026年度人形机器人与具身智能实景实训专项行动。
+2026年3月，上海市公安局闵行分局网安支队接到辖区某三甲医院反映线索称，医院线上挂号小程序显示大量专家号已约满，然而实际到诊率却不高，不少号源无人就诊。
 
-坚持应用牵引，面向工业、特种、服务等领域重点场景，一体推进实景实训空间建设、创新应用联合体培育、作业技能攻关、应用部署验证等重点任务，通过真实场景训练，持续优化具身智能模型算法，积累高质量真机数据，提升本体关键部组件性能，探索构建人形机器人及具身智能产品全生命周期管理和保障机制。
+与此同时，部分患者向院方投诉，即便他们准时“卡点”守在挂号页面，专家号依然在放号不久后被抢空，挂号难度远超常理。
 
-到2026年底，人形机器人等重点产品在一批代表性场景中率先完成应用验证和常态部署，开启“作业模式”；凝练形成百个以上高价值应用场景，进一步丰富具身智能应用谱系，带动形成万台级规模落地能力。
+院方察觉异常后，立即向警方报案求助。
 
-国泰海通证券认为，虽然海外局势反复或对国内交易侧产生扰动，但夏日“阵雨”的冲击不会太长，二三季度中国股市还会有不错的表现，有望走出新高，四季度需要更稳健。
+院方介绍，医院线上小程序每个账号可关联3名就诊人。
 
-国信证券表示，目前A股市场震荡分化加速，科技主线资金分歧加大。
+在发现大量号源被预约后无人就诊的异常情况后，医院尝试通过预留电话联系就诊人，却发现不少号码无法接通。
 
-美伊冲突风险趋于收敛，对全球风险偏好的压制有所减弱，但美联储官员表态偏鹰，海外流动性宽松节奏放缓。
+这些“占而不用”的号源，造成医疗资源的浪费。
 
 ## 相关推荐
 
-- 2026-06-30 00:43 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 00:48 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 00:31 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 00:41 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 00:53 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-30 00:44 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 00:50 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 00:24 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 00:46 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 00:29 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 00:35 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 00:24 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 00:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 00:36 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 00:48 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 00:36 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 00:48 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 00:45 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 00:35 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 00:31 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 00:35 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 00:32 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 00:31 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 00:58 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:53 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/1984323640.shtml)
-- 2026-06-30 00:29 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/62849.shtml)
-- 2026-06-30 00:31 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/783053164601.shtml)
-- 2026-06-30 00:26 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/7696262.shtml)
-- 2026-06-30 00:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/56944295449.shtml)
-- 2026-06-30 00:28 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/5552369.shtml)
-- 2026-06-30 00:39 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/1735919936.shtml)
-- 2026-06-30 00:32 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/54323.shtml)
-- 2026-06-30 00:49 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/8339137373.shtml)
-- 2026-06-30 00:48 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/0672737187.shtml)
-- 2026-06-30 00:33 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/59611.shtml)
-- 2026-06-30 00:35 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/49061.shtml)
-- 2026-06-30 00:38 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/86896642.shtml)
-- 2026-06-30 00:50 - [美股](http://www.share.minike.top/Article/details/99379339.shtml)
-- 2026-06-30 00:36 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/707240.shtml)
+- 2026-06-30 00:50 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/90046722623.shtml)
+- 2026-06-30 00:47 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/17066468.shtml)
+- 2026-06-30 00:51 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/8672197.shtml)
+- 2026-06-30 00:53 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/1547522.shtml)
+- 2026-06-30 00:57 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/30538824.shtml)
+- 2026-06-30 00:31 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/1723760.shtml)
+- 2026-06-30 00:45 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/622106098831.shtml)
+- 2026-06-30 00:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/8817434.shtml)
+- 2026-06-30 00:36 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/292203281992.shtml)
+- 2026-06-30 00:43 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/93990.shtml)
+- 2026-06-30 00:53 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/425728456.shtml)
+- 2026-06-30 00:32 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/560084740.shtml)
+- 2026-06-30 00:45 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/70129.shtml)
+- 2026-06-30 00:54 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/65471.shtml)
+- 2026-06-30 00:40 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/78620827729.shtml)

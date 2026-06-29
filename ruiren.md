@@ -1,56 +1,56 @@
-# 日股日经225指数收跌逾3% 受科技股及中东局势影响
+# 算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-日股日经指数周一创下三个月来最大跌幅，日元兑美元升逾160日元，受科技股估值担忧重燃及中东局势再度紧张影响。 日经指数挫跌3.85%，收于64024.60点，创下3月9日以来的最大单日跌幅。东证股价指数下跌2.45%，收于3852.38点。 美国科技股周五大幅下挫，因一份火热的5月就业报告引发市场担忧，认为美联储可能转向更偏鹰派的政策立场。费城半导体指数创下自2020年3月以来
+在全球电力需求增长、AI数据中心加速扩张的背景下，国内“算电协同”政策加速落地，电力板块持续获得资金青睐。今日（26/4/22）早盘，电力板块延续升温态势，相关ETF交投活跃。 受AI数据中心用电需求爆发影响，北美电力短缺问题日益严峻。能源消费者组织PowerLines报告显示，美国大型公用事业公司计划未来五年累计增加约1.4万亿美元资本支出，主要用于大规模升级老旧电网，为科技
 
 ## 正文
 
-日股日经指数周一创下三个月来最大跌幅，日元兑美元升逾160日元，受科技股估值担忧重燃及中东局势再度紧张影响。
+在全球电力需求增长、AI数据中心加速扩张的背景下，国内“算电协同”政策加速落地，电力板块持续获得资金青睐。
 
-日经指数挫跌3.85%，收于64024.60点，创下3月9日以来的最大单日跌幅。
+今日（26/4/22）早盘，电力板块延续升温态势，相关ETF交投活跃。
 
-东证股价指数下跌2.45%，收于3852.38点。
+受AI数据中心用电需求爆发影响，北美电力短缺问题日益严峻。
 
-美国科技股周五大幅下挫，因一份火热的5月就业报告引发市场担忧，认为美联储可能转向更偏鹰派的政策立场。
+能源消费者组织PowerLines报告显示，美国大型公用事业公司计划未来五年累计增加约1.4万亿美元资本支出，主要用于大规模升级老旧电网，为科技巨头主导的AI数据中心建设周期提供电力扩容支撑。
 
-费城半导体指数创下自2020年3月以来的最大单日跌幅。
+此外，国际能源署最新数据显示，2025 年全球电动汽车和数据中心的电力需求分别增长了 38% 和 17%。
 
-周一油价跳升，此前以色列周末对贝鲁特发动攻击后，引发伊朗向以色列目标发射一连串导弹作为回应。
+国内方面，2026年4月21日国新办新闻发布会上，有关部门表示近年来算力基础设施已成为驱动人工智能发展的关键底座，正在开展算电协同政策研究和标准制定。
 
-美国总统特朗普周日表示，以色列与伊朗的新一轮攻击不会影响其政府与德黑兰之间的和平谈判。
+国盛证券认为，算电协同作为国家基础设施顶层设计，各地区持续高频落地算电协同相关政策，持续投资与项目落地确定性强，关注调节价值凸显火电企业；电算协同有望打开绿电企业新增长空间，看好优质风光资产；把握水核防御，水电电价具备市场化优势、水核容量电价有待补充。
 
-野村证券股票策略师Maki Sawada表示，“除了科技类股下跌外，地缘政治风险似乎也在拖累市场。
+电力板块交投显著升温，相关ETF持续“吸金”。
 
 ## 相关推荐
 
-- 2026-06-30 00:53 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 00:42 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 00:29 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 00:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 00:51 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-30 00:46 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 00:50 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 00:43 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 00:47 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-30 00:43 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 00:48 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 00:57 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 00:53 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 00:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 00:56 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 00:32 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 00:45 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 00:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 00:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 00:43 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/2407361556.shtml)
-- 2026-06-30 00:52 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/588899499859.shtml)
-- 2026-06-30 00:25 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/11997.shtml)
-- 2026-06-30 00:30 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/842252.shtml)
-- 2026-06-30 00:26 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/9542906.shtml)
-- 2026-06-30 00:36 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/6025540.shtml)
-- 2026-06-30 00:46 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/9798311114.shtml)
-- 2026-06-30 00:28 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/41709256964.shtml)
-- 2026-06-30 00:53 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/7592851739.shtml)
-- 2026-06-30 00:53 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/907953.shtml)
-- 2026-06-30 00:32 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/90042.shtml)
-- 2026-06-30 00:34 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/73867.shtml)
-- 2026-06-30 00:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/1263102670.shtml)
-- 2026-06-30 00:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/47824902.shtml)
-- 2026-06-30 00:32 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/85889.shtml)
+- 2026-06-30 00:38 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/8903687828.shtml)
+- 2026-06-30 00:57 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/301676903558.shtml)
+- 2026-06-30 00:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/23592.shtml)
+- 2026-06-30 00:59 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/594104358.shtml)
+- 2026-06-30 00:32 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/062049680.shtml)
+- 2026-06-30 00:47 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/74938402562.shtml)
+- 2026-06-30 00:50 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/37380018538.shtml)
+- 2026-06-30 00:39 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/7488345733.shtml)
+- 2026-06-30 00:42 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/776584.shtml)
+- 2026-06-30 00:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/271119.shtml)
+- 2026-06-30 00:37 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/35591.shtml)
+- 2026-06-30 00:47 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/7025331718.shtml)
+- 2026-06-30 00:32 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/638923262298.shtml)
+- 2026-06-30 00:56 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/50454600.shtml)
+- 2026-06-30 00:58 - [毒液2](http://www.share.minike.top/Article/details/54985069557.shtml)

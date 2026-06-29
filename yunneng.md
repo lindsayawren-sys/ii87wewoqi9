@@ -1,52 +1,61 @@
-# 领取实体社保卡多久后可以申领电子社保卡？人社部回应
+# 日本前首相村山富市追思会在东京举行
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网6月9日电 据人社部微信公众号消息，领取实体社保卡后即可随时申领电子社保卡，无时间间隔要求。只要持卡人已经领取实体社保卡且卡未注销，就可以申领电子社保卡。 持卡人可通过电子社保卡APP、微信小程序、支付宝小程序，以及国家政务服务平台、国务院客户端微信小程序、掌上12333、云闪付、人社部门APP、服务银行APP等渠道申领电子社保卡。 针对新申领第三代社保卡的持卡人已开通电
+中新网东京4月21日电 (记者 朱晨曦)日本前首相村山富市追思会20日下午在东京举行。日本国会众议院议长森英介、参议院议长关口昌一等约450名政界及社会各界人士到场参加。 日本自民党前总裁河野洋平在致辞中表示，村山最大的功绩凝聚于“村山谈话”。该谈话以真诚态度正视日本对亚洲的殖民统治与侵略历史，这种正义感与对和平的追求在国际社会获得高度评价。 日本社民党党首福岛瑞穗回忆称，她多
 
 ## 正文
 
-中新网6月9日电 据人社部微信公众号消息，领取实体社保卡后即可随时申领电子社保卡，无时间间隔要求。
+中新网东京4月21日电 (记者 朱晨曦)日本前首相村山富市追思会20日下午在东京举行。
 
-只要持卡人已经领取实体社保卡且卡未注销，就可以申领电子社保卡。
+日本国会众议院议长森英介、参议院议长关口昌一等约450名政界及社会各界人士到场参加。
 
-持卡人可通过电子社保卡APP、微信小程序、支付宝小程序，以及国家政务服务平台、国务院客户端微信小程序、掌上12333、云闪付、人社部门APP、服务银行APP等渠道申领电子社保卡。
+日本自民党前总裁河野洋平在致辞中表示，村山最大的功绩凝聚于“村山谈话”。
 
-针对新申领第三代社保卡的持卡人已开通电子社保卡同步申领服务。
+该谈话以真诚态度正视日本对亚洲的殖民统治与侵略历史，这种正义感与对和平的追求在国际社会获得高度评价。
 
-个人在申领第三代实体社保卡时，会同步完成电子社保卡的申领，持卡人实名登录电子社保卡APP及小程序、发卡地人社部门APP、社保卡服务银行APP等渠道，经本人授权后可直接使用电子社保卡。
+日本社民党党首福岛瑞穗回忆称，她多次听村山提到“绝不能再次发生战争”。
+
+福岛瑞穗表示，在当今世界多地仍爆发冲突、日本国内推动修改宪法第九条的动向不断增强的背景下，继承并发展“村山谈话”，将有助于防止日本成为战争当事国，并推动和平的实现。
+
+村山富市1924年出生，1994年出任日本首相。
+
+其在任期间推动多项社会政策，并于1995年以内阁决议形式发表“村山谈话”，承认日本过去实行了错误的国策，走了战争道路，明确指出日本的“殖民统治和侵略给许多国家，特别是亚洲各国人民带来了巨大损害和痛苦”，并表示“深刻反省和由衷歉意”。
 
 ## 相关推荐
 
-- 2026-06-30 00:50 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 00:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 00:35 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 00:52 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 00:38 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 00:39 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 00:42 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 00:40 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 00:39 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 00:46 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 00:31 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 00:43 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 00:32 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 00:56 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 00:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 00:41 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 00:55 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 00:37 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 00:46 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-30 00:34 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 00:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 00:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 00:57 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 00:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 00:45 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 00:33 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 00:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:37 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/72271201.shtml)
-- 2026-06-30 00:39 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/5391388774.shtml)
-- 2026-06-30 00:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/444115530.shtml)
-- 2026-06-30 00:34 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/69712.shtml)
-- 2026-06-30 00:42 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/93045879.shtml)
-- 2026-06-30 00:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/794854206525.shtml)
-- 2026-06-30 00:52 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/345228884252.shtml)
-- 2026-06-30 00:36 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/17750820395.shtml)
-- 2026-06-30 00:34 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/9304930.shtml)
-- 2026-06-30 00:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/54022.shtml)
-- 2026-06-30 00:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/54867873.shtml)
-- 2026-06-30 00:28 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/867659267.shtml)
-- 2026-06-30 00:51 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/074267955.shtml)
-- 2026-06-30 00:31 - [起风了](https://www.share.minike.top/Article/details/5149820.shtml)
-- 2026-06-30 00:53 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/56429877.shtml)
+- 2026-06-30 00:51 - [速度与激情9](https://www.share.minike.top/Article/details/184285809.shtml)
+- 2026-06-30 00:58 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/087088062313.shtml)
+- 2026-06-30 00:32 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/81131999.shtml)
+- 2026-06-30 00:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/395111929.shtml)
+- 2026-06-30 00:47 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/76372443.shtml)
+- 2026-06-30 00:41 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/6554224422.shtml)
+- 2026-06-30 00:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/641541.shtml)
+- 2026-06-30 00:55 - [女心理师](https://www.share.kurohicncr.top/Article/details/4106009.shtml)
+- 2026-06-30 00:57 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/58743915.shtml)
+- 2026-06-30 00:33 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/177866695.shtml)
+- 2026-06-30 00:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/2669641171.shtml)
+- 2026-06-30 00:39 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/76185480.shtml)
+- 2026-06-30 00:38 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/4894098.shtml)
+- 2026-06-30 00:59 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/66259959586.shtml)
+- 2026-06-30 00:32 - [刘念回应](https://www.share.minike.top/Article/details/2796659.shtml)

@@ -1,60 +1,48 @@
-# 黄仁勋和SK集团董事长Chey将于周一宣布合作计划
+# 民生银行获批收购腾冲民生村镇银行并设立分支机构
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-来源：财联社 据报道，英伟达首席执行官黄仁勋和SK集团董事长Chey将于周一宣布合作计划。 此外，黄仁勋还表示，明天要与三星电子的副董事长全永铉（Young Hyun Jun）会面。全永铉自2025年起任三星电子副董事长兼联席CEO，主导DS（设备解决方案）与存储业务。 值得注意的是，黄仁勋表示，内存短缺问题将持续存在相当长一段时间（数年）。 今日稍早前，有报道显示，黄仁勋7日
+4月22日金融一线消息，保山金融监管分局发布批复，同意民生银行收购腾冲民生村镇银行并设立民生银行腾冲支行，承接腾冲民生村镇银行全部资产负债、权利义务，同时，同意民生银行腾冲支行开业。 责任编辑：王馨茹
 
 ## 正文
 
-来源：财联社 据报道，英伟达首席执行官黄仁勋和SK集团董事长Chey将于周一宣布合作计划。
+4月22日金融一线消息，保山金融监管分局发布批复，同意民生银行收购腾冲民生村镇银行并设立民生银行腾冲支行，承接腾冲民生村镇银行全部资产负债、权利义务，同时，同意民生银行腾冲支行开业。
 
-此外，黄仁勋还表示，明天要与三星电子的副董事长全永铉（Young Hyun Jun）会面。
-
-全永铉自2025年起任三星电子副董事长兼联席CEO，主导DS（设备解决方案）与存储业务。
-
-值得注意的是，黄仁勋表示，内存短缺问题将持续存在相当长一段时间（数年）。
-
-今日稍早前，有报道显示，黄仁勋7日在首尔江南区的网吧先后会见韩国游戏公司KRAFTON创始人兼董事长蔣柄圭和游戏开发商NCSOFT代表金泽辰。
-
-据悉，当天黄仁勋和蔣柄圭可能就物理AI等人形机器人，以及基于英伟达近期发布的首款AI笔记本电脑系列“RTX Spark”的游戏领域合作等进行讨论。
-
-KRAFTON长期与英伟达合作研发AI功能，并将其融入游戏之中。
-
-通过游戏结成的合作关系还推动了双方有关物理AI合作的讨论。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 00:50 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 00:53 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 00:27 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 00:46 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 00:44 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 00:49 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 00:26 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 00:48 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 00:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-30 00:50 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 00:26 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 00:51 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 00:50 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 00:34 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 00:57 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 00:43 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 00:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 00:31 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 00:47 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 00:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 00:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 00:34 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 00:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 00:53 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 00:51 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 00:54 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 00:33 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 00:30 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:50 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/698127128.shtml)
-- 2026-06-30 00:41 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/014404105234.shtml)
-- 2026-06-30 00:31 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/67022656732.shtml)
-- 2026-06-30 00:46 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/091354411.shtml)
-- 2026-06-30 00:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/0901575.shtml)
-- 2026-06-30 00:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/851295014.shtml)
-- 2026-06-30 00:40 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/04421188390.shtml)
-- 2026-06-30 00:29 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/80237054.shtml)
-- 2026-06-30 00:29 - [恋与深空致歉](http://www.share.minike.top/Article/details/656994.shtml)
-- 2026-06-30 00:51 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/90591618.shtml)
-- 2026-06-30 00:33 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/309775.shtml)
-- 2026-06-30 00:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/604810930.shtml)
-- 2026-06-30 00:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/386733.shtml)
-- 2026-06-30 00:51 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/56014995869.shtml)
-- 2026-06-30 00:49 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/93609014569.shtml)
+- 2026-06-30 00:32 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/037134.shtml)
+- 2026-06-30 00:37 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/663764974.shtml)
+- 2026-06-30 00:40 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/66997448.shtml)
+- 2026-06-30 00:59 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/67171.shtml)
+- 2026-06-30 00:33 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/57025666.shtml)
+- 2026-06-30 00:59 - [把邻居裸体发群算维权还是侵权](http://www.share.minike.top/Article/details/4071207854.shtml)
+- 2026-06-30 00:57 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/11775892.shtml)
+- 2026-06-30 00:53 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/940349279016.shtml)
+- 2026-06-30 00:53 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/06376.shtml)
+- 2026-06-30 00:50 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/6256441.shtml)
+- 2026-06-30 00:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/264755708.shtml)
+- 2026-06-30 00:36 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/2802917323.shtml)
+- 2026-06-30 00:40 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/782347821427.shtml)
+- 2026-06-30 00:42 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/617910.shtml)
+- 2026-06-30 00:30 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/57251160124.shtml)

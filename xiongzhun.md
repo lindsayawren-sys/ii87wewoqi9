@@ -1,56 +1,47 @@
-# 海底珊瑚监测、废弃渔网回收 珠澳携手保护海洋生态
+# 中触媒2025年度归母净利润约2.05亿元 同比增40.76%
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-6月8日是世界海洋日。这两天，珠澳联动开展了净滩护海、海底保育、跨境海洋科普研学等系列活动，推进粤港澳大湾区海洋生态共建共享，让海洋保护理念走进公众生活。 在珠海庙湾岛周边海域，由大湾区潜水员组成的海洋保育队伍，开展了鹿角珊瑚监测、废弃渔网等海洋垃圾水下回收。巡查过程中，潜水员还记录了珊瑚群落生长状态和海域生态数据，为近海生态修复和常态化监测提供资料。 此外，当地还开展了为期两
+4月21日晚间，中触媒（688267.SH）发布年度业绩报告。报告显示，2025年该公司营业收入约8.46亿元，同比增加26.88%；归属于上市公司股东的净利润约2.05亿元，同比增加40.76%；基本每股收益1.18元，同比增加38.82%。（央广财经）（文章来源：央广财经）
 
 ## 正文
 
-6月8日是世界海洋日。
+4月21日晚间，中触媒（688267.SH）发布年度业绩报告。
 
-这两天，珠澳联动开展了净滩护海、海底保育、跨境海洋科普研学等系列活动，推进粤港澳大湾区海洋生态共建共享，让海洋保护理念走进公众生活。
+报告显示，2025年该公司营业收入约8.46亿元，同比增加26.88%；归属于上市公司股东的净利润约2.05亿元，同比增加40.76%；基本每股收益1.18元，同比增加38.82%。
 
-在珠海庙湾岛周边海域，由大湾区潜水员组成的海洋保育队伍，开展了鹿角珊瑚监测、废弃渔网等海洋垃圾水下回收。
-
-巡查过程中，潜水员还记录了珊瑚群落生长状态和海域生态数据，为近海生态修复和常态化监测提供资料。
-
-此外，当地还开展了为期两天的“海洋小卫士”亲子研学营，许多亲子家庭参与了海洋科普课堂、潜水知识分享、贝壳归海等研学活动，在沉浸式体验中学习珊瑚保护、海洋垃圾治理和生物多样性保护。
-
-未来，当地还将持续开展珊瑚监测、海底保育、海滩清洁和跨境海洋科普研学等公益行动，推动粤港澳大湾区海洋生态保护和生态文明建设不断深化。
+（央广财经）（文章来源：央广财经）
 
 ## 相关推荐
 
-- 2026-06-30 00:33 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 00:48 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 00:47 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-30 00:50 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 00:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 00:52 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 00:49 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-30 00:30 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 00:29 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 00:33 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 00:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 00:24 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 00:51 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 00:43 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 00:54 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 00:32 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 00:54 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 00:37 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 00:30 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 00:39 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 00:52 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 00:37 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 00:44 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-30 00:40 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 00:51 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:50 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/76327390.shtml)
-- 2026-06-30 00:46 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/70788.shtml)
-- 2026-06-30 00:50 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/44128.shtml)
-- 2026-06-30 00:34 - [美股](http://www.share.minike.top/Article/details/049105.shtml)
-- 2026-06-30 00:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/657407.shtml)
-- 2026-06-30 00:34 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/27699963821.shtml)
-- 2026-06-30 00:41 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/4233605.shtml)
-- 2026-06-30 00:53 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/5287544.shtml)
-- 2026-06-30 00:29 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/7493231.shtml)
-- 2026-06-30 00:27 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/95087163214.shtml)
-- 2026-06-30 00:43 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/58492451004.shtml)
-- 2026-06-30 00:50 - [《贺子珍》](http://www.blog.minike.top/Article/details/67314225491.shtml)
-- 2026-06-30 00:40 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/772700175174.shtml)
-- 2026-06-30 00:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/68315.shtml)
-- 2026-06-30 00:30 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/84097.shtml)
+- 2026-06-30 00:56 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/8329193.shtml)
+- 2026-06-30 00:48 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/72023198.shtml)
+- 2026-06-30 00:57 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/0146877.shtml)
+- 2026-06-30 00:56 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/23042.shtml)
+- 2026-06-30 00:41 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/650244038.shtml)
+- 2026-06-30 00:53 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/381928946.shtml)
+- 2026-06-30 00:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/8995755475.shtml)
+- 2026-06-30 00:45 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/705805.shtml)
+- 2026-06-30 00:40 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/71961253.shtml)
+- 2026-06-30 00:38 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/393456.shtml)
+- 2026-06-30 00:33 - [男子称在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/1284750902.shtml)
+- 2026-06-30 00:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/957305142.shtml)
+- 2026-06-30 00:45 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/5435574.shtml)
+- 2026-06-30 00:36 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/0656596650.shtml)
+- 2026-06-30 00:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/80788241162.shtml)

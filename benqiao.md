@@ -1,60 +1,57 @@
-# 酒价内参6月9日价格发布：青花郎上涨3元，收获二连涨
+# 感冒流感药品销售疲软 利洁时股价下跌5.9%
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月9日整体再度明显走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9895元，较昨日大幅下跌23元，重返9900元下方。市场在前三日连续明显回升后步入回调，终端交投情绪偏谨慎，核心单品的涨跌分化显著。 今日11大白酒单品三涨八跌，输家占据绝对优势。上涨方面，国窖1573涨幅居前，上涨5元/
+专题：聚焦美股2026年第一季度财报 欧美感冒流感季症状较轻导致欧洲净收入下滑 受欧美感冒流感季症状较轻影响，利洁时集团在欧洲与北美地区销售表现不佳，公司股价随之走低。 这家英国快消品巨头旗下拥有 Mucinex 感冒药、杜蕾斯避孕套及来苏尔消毒液等品牌，其公布的一季度净收入为 32.5 亿英镑（43.9 亿美元），去年同期为 36.8 亿英镑。 公司汇总的分析师预期为：一季度
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月9日整体再度明显走弱。
+专题：聚焦美股2026年第一季度财报 欧美感冒流感季症状较轻导致欧洲净收入下滑 受欧美感冒流感季症状较轻影响，利洁时集团在欧洲与北美地区销售表现不佳，公司股价随之走低。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9895元，较昨日大幅下跌23元，重返9900元下方。
+这家英国快消品巨头旗下拥有 Mucinex 感冒药、杜蕾斯避孕套及来苏尔消毒液等品牌，其公布的一季度净收入为 32.5 亿英镑（43.9 亿美元），去年同期为 36.8 亿英镑。
 
-市场在前三日连续明显回升后步入回调，终端交投情绪偏谨慎，核心单品的涨跌分化显著。
+公司汇总的分析师预期为：一季度净收入 31.9 亿英镑，可比口径增长 1.6%。
 
-今日11大白酒单品三涨八跌，输家占据绝对优势。
+伦敦早盘交易中，该公司股价下跌 5.9%。
 
-上涨方面，国窖1573涨幅居前，上涨5元/瓶，终结此前五连阴，但价格仍囿于月内次低位；青花郎上涨3元/瓶收获二连涨；飞天茅台上涨2元/瓶，四连阳后价格升至月内次高位。
+利洁时表示，因感冒流感季表现疲软，欧洲地区净收入出现下滑；公司此前已预警该地区业绩将持续面临挑战。
 
-下跌方面，五粮液普五八代、古井贡古20与习酒君品均下跌6元/瓶，其中普五八代再度失守810元，古井贡古20回吐前一日全部涨幅，习酒君品连续两日回落，价格快速下探创月内新低，近一个月其价格中枢持续下移；精品茅台下跌5元/瓶，此前三连阳的强劲涨势告终；洋河梦之蓝M6+下跌3元/瓶，平月内次低价位；青花汾20下跌3元/瓶，回落至370元下方；五粮液1618与水晶剑南春均下跌2元/瓶，其中前者创下月内最低价纪录。
+本季度欧洲可比净收入下降 4.2%，集团非处方药业务可比销售额录得双位数跌幅。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+伯恩斯坦分析师在致客户报告中写道：“过去数月管理层已多次提示感冒流感品类表现疲软，但市场似乎仍低估了此次压力的程度。
 
-随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台（5月16日上调至2359元/瓶），这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
+” 不过，集团整体可比净收入仍增长 0.6%，其中新兴市场大幅增长 7.6%。
 
 ## 相关推荐
 
-- 2026-06-30 00:42 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 00:27 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 00:44 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 00:40 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 00:42 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-30 00:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 00:25 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 00:47 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 00:35 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 00:50 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 00:43 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 00:37 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 00:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 00:48 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 00:59 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 00:42 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 00:57 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 00:35 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 00:43 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 00:41 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 00:36 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 00:42 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 00:51 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 00:39 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 00:52 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:25 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/4814414527.shtml)
-- 2026-06-30 00:34 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/478409593.shtml)
-- 2026-06-30 00:52 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/837702.shtml)
-- 2026-06-30 00:50 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/463851462.shtml)
-- 2026-06-30 00:30 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/684974.shtml)
-- 2026-06-30 00:35 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/504460957869.shtml)
-- 2026-06-30 00:25 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/50335514.shtml)
-- 2026-06-30 00:25 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/478737.shtml)
-- 2026-06-30 00:54 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/4891072.shtml)
-- 2026-06-30 00:38 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/40345351782.shtml)
-- 2026-06-30 00:48 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/909572134175.shtml)
-- 2026-06-30 00:28 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/617359486879.shtml)
-- 2026-06-30 00:35 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/9283238142.shtml)
-- 2026-06-30 00:46 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/4952770.shtml)
-- 2026-06-30 00:30 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/9822685.shtml)
+- 2026-06-30 00:57 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/990640946.shtml)
+- 2026-06-30 00:40 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/455690.shtml)
+- 2026-06-30 00:45 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/569687.shtml)
+- 2026-06-30 00:42 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/601810571143.shtml)
+- 2026-06-30 00:38 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/97871.shtml)
+- 2026-06-30 00:51 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/7156765.shtml)
+- 2026-06-30 00:36 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/146025390204.shtml)
+- 2026-06-30 00:46 - [新官上任三把火](http://www.share.minike.top/Article/details/806110783856.shtml)
+- 2026-06-30 00:53 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/246453.shtml)
+- 2026-06-30 00:42 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/215425219.shtml)
+- 2026-06-30 00:55 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/905624140509.shtml)
+- 2026-06-30 00:38 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/2313787821.shtml)
+- 2026-06-30 00:31 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/66654.shtml)
+- 2026-06-30 00:53 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/006880.shtml)
+- 2026-06-30 00:32 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/59213470.shtml)

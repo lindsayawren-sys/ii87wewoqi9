@@ -1,53 +1,49 @@
-# 新疆“富贵小羊”爆火 摊主：让“小羊们”更华丽一点
+# 伊朗司法总监：美国可能恢复袭击
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 11:23 来源：中国新闻网 新疆“富贵小羊”文创玩偶近日火爆出圈，游客排队两天抢购。它被网友亲切地称为“新疆拉布布”，俨然成为2026年新疆文旅圈的一匹“黑马”。在新疆乌鲁木齐金泉商城，摊主阿卜都拉·艾米日拉的摊位前每天顾客“里三层外三层”，排队选购专属“富贵小羊”。(记者 戎睿 制作 乐小敏） 责任编辑：【李季】
+据伊朗媒体报道，伊朗司法总监表示，由于美国政府尚未达成其目标，美军重启对伊朗袭击的可能性一点也不低。 拥有数十年伊朗司法与情报系统工作经验的首席大法官还称，伊朗伊斯兰共和国必须对此种情况做好万全准备。责任编辑：何云
 
 ## 正文
 
-发布时间：2026年06月09日 11:23 来源：中国新闻网 新疆“富贵小羊”文创玩偶近日火爆出圈，游客排队两天抢购。
+据伊朗媒体报道，伊朗司法总监表示，由于美国政府尚未达成其目标，美军重启对伊朗袭击的可能性一点也不低。
 
-它被网友亲切地称为“新疆拉布布”，俨然成为2026年新疆文旅圈的一匹“黑马”。
+拥有数十年伊朗司法与情报系统工作经验的首席大法官还称，伊朗伊斯兰共和国必须对此种情况做好万全准备。
 
-在新疆乌鲁木齐金泉商城，摊主阿卜都拉·艾米日拉的摊位前每天顾客“里三层外三层”，排队选购专属“富贵小羊”。
-
-(记者 戎睿 制作 乐小敏） 责任编辑：【李季】
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 00:34 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 00:52 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 00:50 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 00:29 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 00:46 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 00:51 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 00:38 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 00:36 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 00:33 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 00:25 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 00:42 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 00:29 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 00:46 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 00:39 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 00:26 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 00:37 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 00:44 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 00:44 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 00:47 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 00:38 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 00:43 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 00:47 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 00:31 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 00:45 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 00:54 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 00:30 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 00:46 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 00:33 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:31 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/53909964488.shtml)
-- 2026-06-30 00:29 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/47774.shtml)
-- 2026-06-30 00:50 - [爱很美味](https://www.blog.minike.top/Article/details/038148480.shtml)
-- 2026-06-30 00:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/111102.shtml)
-- 2026-06-30 00:38 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/459597.shtml)
-- 2026-06-30 00:29 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/01432.shtml)
-- 2026-06-30 00:28 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/957983605.shtml)
-- 2026-06-30 00:39 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/37717.shtml)
-- 2026-06-30 00:28 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/517714294140.shtml)
-- 2026-06-30 00:44 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/403240230.shtml)
-- 2026-06-30 00:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/2554011600.shtml)
-- 2026-06-30 00:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/74865034692.shtml)
-- 2026-06-30 00:42 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/516433971.shtml)
-- 2026-06-30 00:36 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/1047042.shtml)
-- 2026-06-30 00:45 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/7230271361.shtml)
+- 2026-06-30 00:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/561962.shtml)
+- 2026-06-30 00:33 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/550085237.shtml)
+- 2026-06-30 00:32 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/1773977456.shtml)
+- 2026-06-30 00:40 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/39123640.shtml)
+- 2026-06-30 00:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/97862678769.shtml)
+- 2026-06-30 00:51 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/406603.shtml)
+- 2026-06-30 00:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/917303999.shtml)
+- 2026-06-30 00:50 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/97299.shtml)
+- 2026-06-30 00:34 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/697956020.shtml)
+- 2026-06-30 00:51 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/657778.shtml)
+- 2026-06-30 00:34 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/880999558581.shtml)
+- 2026-06-30 00:49 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/8128534.shtml)
+- 2026-06-30 00:42 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/6039387296.shtml)
+- 2026-06-30 00:44 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/287639092384.shtml)
+- 2026-06-30 00:45 - [东方风云榜](https://www.share.minike.top/Article/details/9736379822.shtml)

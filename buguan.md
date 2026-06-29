@@ -1,60 +1,58 @@
-# 德国（第二届）HSK留学中国展在杜塞尔多夫举行
+# 再论“远方”与“当下” 北京人艺小剧场新戏《天边外》将演
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网柏林6月9日电 杜塞尔多夫消息：由汉考国际主办、德国汉园中文学习测试中心承办的德国(第二届)HSK留学中国展近日在杜塞尔多夫举行。 中国驻杜塞尔多夫总领馆、中国人民大学、汉考国际及德国汉园中文学校等相关负责人出席活动，吸引德国及华裔学生、家长、教育从业者等1000余人参加。 本届教育展汇聚北京大学、清华大学、中国人民大学、复旦大学、上海交通大学、西安交通大学等20所中国知
+中新网北京4月22日电 (记者 高凯)北京人艺小剧场新排剧目《天边外》日前举办媒体见面会。北京人民艺术剧院院长、本剧艺术指导冯远征，导演张彤，主演张鑫名、王俊淇、胡昕怡、孙星、付瑶、李珀、曾泳醍及一众主创集体亮相。 《天边外》是尤金·奥尼尔的成名作，创作于1918年。1920年该剧在百老汇首演后，为奥尼尔赢得了他的第一个普利策戏剧奖。故事围绕上世纪美国乡村一对性格截然相反的兄弟
 
 ## 正文
 
-中新网柏林6月9日电 杜塞尔多夫消息：由汉考国际主办、德国汉园中文学习测试中心承办的德国(第二届)HSK留学中国展近日在杜塞尔多夫举行。
+中新网北京4月22日电 (记者 高凯)北京人艺小剧场新排剧目《天边外》日前举办媒体见面会。
 
-中国驻杜塞尔多夫总领馆、中国人民大学、汉考国际及德国汉园中文学校等相关负责人出席活动，吸引德国及华裔学生、家长、教育从业者等1000余人参加。
+北京人民艺术剧院院长、本剧艺术指导冯远征，导演张彤，主演张鑫名、王俊淇、胡昕怡、孙星、付瑶、李珀、曾泳醍及一众主创集体亮相。
 
-本届教育展汇聚北京大学、清华大学、中国人民大学、复旦大学、上海交通大学、西安交通大学等20所中国知名高校，为有意赴华留学的学生提供院校介绍、专业咨询、申请指导等服务。
+《天边外》是尤金·奥尼尔的成名作，创作于1918年。
 
-德国汉园中文学校校长孙晓帆表示，语言是跨文化交流的重要桥梁。
+1920年该剧在百老汇首演后，为奥尼尔赢得了他的第一个普利策戏剧奖。
 
-学习中文不仅是掌握语言技能，更是感知中华文化、推动中外交流的重要途径。
+故事围绕上世纪美国乡村一对性格截然相反的兄弟展开：一次关于爱情的选择，让梦想远方的弟弟罗伯特被困农场，热爱土地的哥哥安德鲁却漂泊海上。
 
-随着中国国际影响力不断增强，海外青少年学习中文的热情愈发浓厚。
+人生遭遇错位，梦想最终破灭，由此揭示出人生理想与客观现实之间的深刻矛盾。
 
-HSK作为权威中文水平测评标准，为海外学子赴华求学、交流与发展提供坚实保障。
+“从这部百余年前的作品中，我们依然能找到自己或他人的影子，这就是经典作品的划时代性——每个时代都能常演常新。
 
-她希望更多青少年学好中文、传播中华文化，成为中外友好交流的使者。
+”冯远征表示，“作为北京人艺2026年度首部小剧场新创剧目，我们希望通过对作品的深度解读，以扎实的舞台呈现，让当代观众与经典作品之间产生新的链接。
 
 ## 相关推荐
 
-- 2026-06-30 00:36 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 00:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 00:39 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 00:43 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 00:40 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 00:28 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 00:28 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 00:42 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 00:27 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 00:24 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 00:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 00:38 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-30 00:47 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 00:49 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 00:45 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 00:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 00:32 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 00:54 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 00:32 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-30 00:49 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 00:35 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 00:30 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 00:32 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 00:31 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 00:57 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-30 00:55 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:32 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/56069548113.shtml)
-- 2026-06-30 00:37 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/3969392.shtml)
-- 2026-06-30 00:49 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/800883858.shtml)
-- 2026-06-30 00:25 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/8278342352.shtml)
-- 2026-06-30 00:32 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/908835900197.shtml)
-- 2026-06-30 00:35 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/6816648.shtml)
-- 2026-06-30 00:30 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/8539124.shtml)
-- 2026-06-30 00:34 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/68317.shtml)
-- 2026-06-30 00:40 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/94048008.shtml)
-- 2026-06-30 00:37 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/1003890993.shtml)
-- 2026-06-30 00:31 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/8115999529.shtml)
-- 2026-06-30 00:32 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/0400248585.shtml)
-- 2026-06-30 00:28 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.kurohicncr.top/Article/details/362374995862.shtml)
-- 2026-06-30 00:38 - [起风了](http://www.share.minike.top/Article/details/1733940533.shtml)
-- 2026-06-30 00:37 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/8879076433.shtml)
+- 2026-06-30 00:30 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/599325.shtml)
+- 2026-06-30 00:50 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/077374.shtml)
+- 2026-06-30 00:32 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/5846165777.shtml)
+- 2026-06-30 00:54 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/35382.shtml)
+- 2026-06-30 00:42 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/185113744.shtml)
+- 2026-06-30 00:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/03744641922.shtml)
+- 2026-06-30 00:39 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/37445.shtml)
+- 2026-06-30 00:40 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/26014.shtml)
+- 2026-06-30 00:50 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/206034.shtml)
+- 2026-06-30 00:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/1768266.shtml)
+- 2026-06-30 00:56 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/7956132.shtml)
+- 2026-06-30 00:48 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/02419509.shtml)
+- 2026-06-30 00:46 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/404016.shtml)
+- 2026-06-30 00:41 - [世界杯](http://www.share.kurohicncr.top/Article/details/83340238596.shtml)
+- 2026-06-30 00:50 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/74340.shtml)

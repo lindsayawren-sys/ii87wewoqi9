@@ -1,51 +1,59 @@
-# 日菲绕开中方擅自启动所谓“海域划界谈判” 中国外交部：绝不允许
+# 江河与共丨探末梢、促转型，民建中央以“经济视野”破题长江生态与发展共赢
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网北京6月9日电 (记者 张素)中国外交部发言人林剑6月9日主持例行记者会。 会上在回答有关中国海警舰艇编队开展执法巡查的问题时，林剑表示，中国在台湾以东海域拥有专属经济区和大陆架。日本和菲律宾绕开中方擅自启动所谓“海域划界谈判”，严重违反包括《联合国海洋法公约》在内的国际法和国际关系基本准则，严重侵害中方的海洋权益，中方绝不允许。(完)
+发布时间：2026年04月22日 08:01 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，围绕长江生态环境保护进行专项监督。从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。中新社重磅推出9集专题片《江河与共》，见证专项监督凝心聚力，积微成著。 自2021年开展长江生态环境保护民主监督工作以来，民
 
 ## 正文
 
-中新网北京6月9日电 (记者 张素)中国外交部发言人林剑6月9日主持例行记者会。
+发布时间：2026年04月22日 08:01 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，围绕长江生态环境保护进行专项监督。
 
-会上在回答有关中国海警舰艇编队开展执法巡查的问题时，林剑表示，中国在台湾以东海域拥有专属经济区和大陆架。
+从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。
 
-日本和菲律宾绕开中方擅自启动所谓“海域划界谈判”，严重违反包括《联合国海洋法公约》在内的国际法和国际关系基本准则，严重侵害中方的海洋权益，中方绝不允许。
+中新社重磅推出9集专题片《江河与共》，见证专项监督凝心聚力，积微成著。
 
-(完)
+自2021年开展长江生态环境保护民主监督工作以来，民建中央充分发挥经济界别的独特优势，将监督触角延伸至最末梢。
+
+从牵动十万人饭碗的华容芥菜小镇，到黑臭水体治理的乡村一线，他们建立起独具特色的“基层监测点”网络；面对百年矿山的重金属污染沉疴，他们不仅从源头建言顶层设计，更在终端推动“变毒为宝”的技术转化与产业升级。
+
+从宏观监管到微观治理，民建中央在三湘大地写下了一份将“绿水青山”切实转化为“金山银山”的生动答卷。
+
+责任编辑：【田博群】
 
 ## 相关推荐
 
-- 2026-06-30 00:52 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 00:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-30 00:26 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 00:34 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 00:42 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 00:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 00:34 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 00:53 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 00:30 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 00:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 00:39 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 00:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 00:43 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 00:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 00:47 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 00:47 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 00:54 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 00:38 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 00:33 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 00:57 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 00:34 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 00:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 00:45 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 00:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 00:45 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 00:48 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 00:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 00:56 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:47 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/7704068603.shtml)
-- 2026-06-30 00:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/508238891844.shtml)
-- 2026-06-30 00:27 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/07371.shtml)
-- 2026-06-30 00:27 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/22167.shtml)
-- 2026-06-30 00:24 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/40547473051.shtml)
-- 2026-06-30 00:24 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/72317289.shtml)
-- 2026-06-30 00:46 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/67398501.shtml)
-- 2026-06-30 00:24 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/16960877952.shtml)
-- 2026-06-30 00:34 - [刘念回应](https://www.blog.minike.top/Article/details/719683547.shtml)
-- 2026-06-30 00:41 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/3475588.shtml)
-- 2026-06-30 00:31 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/9220517630.shtml)
-- 2026-06-30 00:51 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/006171800931.shtml)
-- 2026-06-30 00:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/797670898.shtml)
-- 2026-06-30 00:27 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/88037.shtml)
-- 2026-06-30 00:36 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/987898633.shtml)
+- 2026-06-30 00:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/1524537.shtml)
+- 2026-06-30 00:32 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/5147453659.shtml)
+- 2026-06-30 00:52 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/700049540.shtml)
+- 2026-06-30 00:45 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/76085.shtml)
+- 2026-06-30 00:32 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/12166284.shtml)
+- 2026-06-30 00:30 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/05657.shtml)
+- 2026-06-30 00:57 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/341113918891.shtml)
+- 2026-06-30 00:48 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/06458777.shtml)
+- 2026-06-30 00:31 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/24264.shtml)
+- 2026-06-30 00:46 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/1081556715.shtml)
+- 2026-06-30 00:41 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/18963943089.shtml)
+- 2026-06-30 00:32 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/731005665245.shtml)
+- 2026-06-30 00:36 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/329603657785.shtml)
+- 2026-06-30 00:46 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/2336738663.shtml)
+- 2026-06-30 00:54 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/636960.shtml)

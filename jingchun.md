@@ -1,56 +1,49 @@
-# 澳门同胞返乡浙江新昌“送清凉” 两地同心情意浓
+# 巴基斯坦从沙特阿拉伯获得10亿美元资金
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网绍兴6月9日电(项菁)“礼轻情意重。希望在这个夏天通过‘送清凉’，可以增进两地交流、加深彼此情感。”在浙江绍兴新昌县，澳门绍兴联谊会会长张福平受访时说。 近日，澳门绍兴联谊会组织多名澳门同胞返回家乡，开展了为期三天的夏日送清凉公益慰问活动。他们以桑梓情怀传递温暖，持续增进澳门与绍兴两地民间情谊。 在新昌，澳门同胞们先后走进大佛寺、兴善寺、阳光福利院、新昌县机关幼儿园等地。
+巴基斯坦国家银行（巴基斯坦央行）发布声明称，已于4月20日的起息日收到沙特阿拉伯提供的10亿美元。本次到账资金为沙特此前承诺的30亿美元存款援助中的第二批款项。首批20亿美元资金已于4月15日到账。责任编辑：王永生
 
 ## 正文
 
-中新网绍兴6月9日电(项菁)“礼轻情意重。
+巴基斯坦国家银行（巴基斯坦央行）发布声明称，已于4月20日的起息日收到沙特阿拉伯提供的10亿美元。
 
-希望在这个夏天通过‘送清凉’，可以增进两地交流、加深彼此情感。
+本次到账资金为沙特此前承诺的30亿美元存款援助中的第二批款项。
 
-”在浙江绍兴新昌县，澳门绍兴联谊会会长张福平受访时说。
+首批20亿美元资金已于4月15日到账。
 
-近日，澳门绍兴联谊会组织多名澳门同胞返回家乡，开展了为期三天的夏日送清凉公益慰问活动。
-
-他们以桑梓情怀传递温暖，持续增进澳门与绍兴两地民间情谊。
-
-在新昌，澳门同胞们先后走进大佛寺、兴善寺、阳光福利院、新昌县机关幼儿园等地。
-
-每到一处，他们细致了解僧众、老人、小孩的日常生活情况，并按需送上饮用水、食用油、大米以及儿童生活用品等物资。
-
-幼儿园里，孩子们还精心准备了体操表演，以朝气蓬勃的精神面貌向来访者表达谢意。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 00:44 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 00:33 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 00:33 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-30 00:39 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-30 00:45 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 00:32 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 00:30 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 00:51 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 00:31 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 00:28 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 00:36 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 00:45 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 00:34 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-30 00:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 00:56 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 00:55 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 00:55 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 00:53 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 00:36 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 00:52 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 00:50 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:34 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/19473777983.shtml)
-- 2026-06-30 00:40 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/8424560.shtml)
-- 2026-06-30 00:28 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/16257845.shtml)
-- 2026-06-30 00:42 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/31330593.shtml)
-- 2026-06-30 00:34 - [女心理师](http://www.blog.minike.top/Article/details/34760.shtml)
-- 2026-06-30 00:48 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/344915680888.shtml)
-- 2026-06-30 00:45 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/341043.shtml)
-- 2026-06-30 00:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/10690076032.shtml)
-- 2026-06-30 00:48 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/43124.shtml)
-- 2026-06-30 00:30 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/94464525434.shtml)
-- 2026-06-30 00:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/21874579975.shtml)
-- 2026-06-30 00:39 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/9863179626.shtml)
-- 2026-06-30 00:45 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/845909738.shtml)
-- 2026-06-30 00:44 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/733721015027.shtml)
-- 2026-06-30 00:50 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/2068261.shtml)
+- 2026-06-30 00:31 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/75284035992.shtml)
+- 2026-06-30 00:54 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/30040808.shtml)
+- 2026-06-30 00:51 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/3255909.shtml)
+- 2026-06-30 00:40 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/84918186.shtml)
+- 2026-06-30 00:54 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/7224368.shtml)
+- 2026-06-30 00:49 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/50060994979.shtml)
+- 2026-06-30 00:36 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/63386625462.shtml)
+- 2026-06-30 00:54 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/54489813026.shtml)
+- 2026-06-30 00:33 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/24056290824.shtml)
+- 2026-06-30 00:39 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/48566821597.shtml)
+- 2026-06-30 00:45 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/02870.shtml)
+- 2026-06-30 00:43 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/1575936.shtml)
+- 2026-06-30 00:57 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/68570685941.shtml)
+- 2026-06-30 00:52 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/48234428.shtml)
+- 2026-06-30 00:39 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/0750002167.shtml)

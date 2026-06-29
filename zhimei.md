@@ -1,61 +1,60 @@
-# 美国航空拒绝合并提议后，联合航空CEO看淡航空业并购浪潮
+# 舞台“变小” 距离“变近” 湖南以小剧场打开演艺新空间
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-核心要点 今年美国航空直接回绝合并提议后，联合航空首席执行官斯科特・柯比对外表示，美国航空业很难再有大规模整合机会，联合航空也无意主动推进并购交易。 周日，柯比在国际航空运输协会（IATA）年会间隙接受媒体采访时称：“联合航空不会为了并购而盲目并购。” 记者问及近年行业整合浪潮 —— 今年忠实航空、太阳乡村航空完成合并，2024 年阿拉斯加航空收购夏威夷航空，柯比直言后续几乎没
+中新网长沙4月21日电 (邓霞 刘妮婷)近日，在湖南大剧院四楼小剧场，行进式话剧《宋美龄的耳环丢了》正在演出。观众没有坐在台下，而是手持“陪审员证”，在走廊、电梯间、秘密房间穿行，一边走一边推理一桩民国悬案。自2025年12月首演以来，这部让观众参与剧情的话剧已演出12场，成为长沙小剧场的一张招牌。 过去，国有文艺院团更习惯大剧场、大制作、大场面的演出模式。观众买票进场，坐定看
 
 ## 正文
 
-核心要点 今年美国航空直接回绝合并提议后，联合航空首席执行官斯科特・柯比对外表示，美国航空业很难再有大规模整合机会，联合航空也无意主动推进并购交易。
+中新网长沙4月21日电 (邓霞 刘妮婷)近日，在湖南大剧院四楼小剧场，行进式话剧《宋美龄的耳环丢了》正在演出。
 
-周日，柯比在国际航空运输协会（IATA）年会间隙接受媒体采访时称：“联合航空不会为了并购而盲目并购。
+观众没有坐在台下，而是手持“陪审员证”，在走廊、电梯间、秘密房间穿行，一边走一边推理一桩民国悬案。
 
-” 记者问及近年行业整合浪潮 —— 今年忠实航空、太阳乡村航空完成合并，2024 年阿拉斯加航空收购夏威夷航空，柯比直言后续几乎没有可行的整合机会：“现在已经没有合适的并购标的了。
+自2025年12月首演以来，这部让观众参与剧情的话剧已演出12场，成为长沙小剧场的一张招牌。
 
-” “如今并购的门槛比以往高得多。
+过去，国有文艺院团更习惯大剧场、大制作、大场面的演出模式。
 
-” 柯比表示，“我亲身主导过美国航空业多轮整合，经手大量并购项目。
+观众买票进场，坐定看戏，鼓掌离场——这是延续了上百年的观演关系。
 
-这类交易推进难度极大，没有经济价值的并购完全没必要做。
+但现在的年轻观众不再满足于“坐着看”，他们更想“参与进去”。
 
-” 柯比此前已多次否认收购合作方捷蓝航空的可能性。
+景区、商场、茶馆、美术馆等传统意义上的“非剧场空间”，也在成为演艺的新阵地。
 
-CNBC 此前报道，今年早些时候，曾在美国航空任职的柯比曾提出与美国航空合并的构想，并向特朗普政府试探可行性。
+以马王堆汉墓出土文物为蓝本的《西汉有戏·辛追的家宴》，把“宴席”变成舞台，观众落座即“入宴”。
 
 ## 相关推荐
 
-- 2026-06-30 00:25 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 00:45 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 00:31 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 00:49 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 00:40 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 00:39 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 00:38 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 00:25 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 00:43 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 00:26 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 00:47 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 00:32 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 00:38 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 00:53 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 00:24 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 00:30 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 00:35 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 00:32 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 00:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 00:33 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 00:30 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 00:35 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 00:37 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 00:47 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 00:55 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 00:53 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 00:50 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 00:40 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 00:53 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:43 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/91111165.shtml)
-- 2026-06-30 00:28 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/63515466853.shtml)
-- 2026-06-30 00:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/820983052.shtml)
-- 2026-06-30 00:33 - [起风了](https://www.share.minike.top/Article/details/3585238695.shtml)
-- 2026-06-30 00:39 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/878997324322.shtml)
-- 2026-06-30 00:40 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/72432901.shtml)
-- 2026-06-30 00:48 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/299915.shtml)
-- 2026-06-30 00:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/110594.shtml)
-- 2026-06-30 00:28 - [绘画区你赢了](https://www.blog.minike.top/Article/details/479842181.shtml)
-- 2026-06-30 00:31 - [女心理师](http://www.blog.kurohicncr.top/Article/details/453282454.shtml)
-- 2026-06-30 00:53 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/667583676.shtml)
-- 2026-06-30 00:52 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/809149507402.shtml)
-- 2026-06-30 00:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/7987240.shtml)
-- 2026-06-30 00:31 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/440556179.shtml)
-- 2026-06-30 00:26 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/07879564765.shtml)
+- 2026-06-30 00:32 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/9292356783.shtml)
+- 2026-06-30 00:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/51500220.shtml)
+- 2026-06-30 00:38 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/15350685695.shtml)
+- 2026-06-30 00:38 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/884777908373.shtml)
+- 2026-06-30 00:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/4372587357.shtml)
+- 2026-06-30 00:50 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/0305456074.shtml)
+- 2026-06-30 00:56 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/072498727256.shtml)
+- 2026-06-30 00:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/1506696.shtml)
+- 2026-06-30 00:46 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/546890.shtml)
+- 2026-06-30 00:33 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/5705268.shtml)
+- 2026-06-30 00:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/7664662.shtml)
+- 2026-06-30 00:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/755631425.shtml)
+- 2026-06-30 00:45 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/509185196362.shtml)
+- 2026-06-30 00:57 - [巴西vs日本](http://www.share.minike.top/Article/details/1042072113.shtml)
+- 2026-06-30 00:41 - [起风了](http://www.blog.kurohicncr.top/Article/details/38007.shtml)

@@ -1,49 +1,61 @@
-# “数爱无疆”数字公益故事展播 | 我的马拉松｜跑在你身边
+# 海港人寿首换总经理！“监管+财务+精算”锁定航向，直面“化险”后半程
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 18:09 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。 2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由新华社推送的“我的马拉松｜
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：观潮财经 海港人寿步入价值深耕期新阶段。 观潮财经独家获悉，今天上午海港人寿召开董事会会议，审议齐美祝担任该公司临时负责人。经监管审批等相关程序后，其将接棒乔宁成为该公司新一任总经理。 齐美祝来自太平养老，具备精算、财务等相关背景，新时期尤其对化险类机构而言，这无疑给未来增加了一定确定性。 海港人寿承接的恒大人寿2015年
 
 ## 正文
 
-发布时间：2026年06月09日 18:09 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：观潮财经 海港人寿步入价值深耕期新阶段。
 
-2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由新华社推送的“我的马拉松｜跑在你身边”作品入选。
+观潮财经独家获悉，今天上午海港人寿召开董事会会议，审议齐美祝担任该公司临时负责人。
 
-责任编辑：【刘湃】
+经监管审批等相关程序后，其将接棒乔宁成为该公司新一任总经理。
+
+齐美祝来自太平养老，具备精算、财务等相关背景，新时期尤其对化险类机构而言，这无疑给未来增加了一定确定性。
+
+海港人寿承接的恒大人寿2015年被恒大集团收购后更名并迅速扩张，但在恒大集团债务危机爆发后严重资不抵债。
+
+2023年，由深圳国资控股、保险保障基金加持的海港人寿获批开业，注册资本高达150亿元，整体受让恒大人寿保险业务及相应资产、负债，完成了对恒大人寿的“接盘”重组。
+
+从“实战派”乔宁到“精算派”齐美祝，海港人寿成立近三年来的首次总经理更迭，折射出这家承接恒大人寿风险资产的国有险企，正从“平稳承接、化解风险”的上半场，迈入“精耕细作、价值增长”的下半场。
+
+未来航向如何，值得持续关注。
 
 ## 相关推荐
 
-- 2026-06-30 00:29 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 00:45 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 00:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 00:37 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 00:46 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 00:32 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 00:38 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 00:36 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 00:35 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 00:24 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 00:42 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 00:42 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 00:36 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 00:46 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 00:57 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 00:50 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 00:34 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 00:48 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 00:48 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 00:54 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 00:56 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 00:45 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 00:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 00:31 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 00:59 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 00:46 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 00:38 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 00:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:46 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/11198186108.shtml)
-- 2026-06-30 00:27 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/63500.shtml)
-- 2026-06-30 00:49 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/91242.shtml)
-- 2026-06-30 00:50 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/276077451.shtml)
-- 2026-06-30 00:36 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/6994899077.shtml)
-- 2026-06-30 00:41 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/57903385.shtml)
-- 2026-06-30 00:34 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/32962664.shtml)
-- 2026-06-30 00:51 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/68434587.shtml)
-- 2026-06-30 00:39 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/4721273.shtml)
-- 2026-06-30 00:25 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/70690307.shtml)
-- 2026-06-30 00:48 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/6734616.shtml)
-- 2026-06-30 00:46 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/027560123268.shtml)
-- 2026-06-30 00:25 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/39586370848.shtml)
-- 2026-06-30 00:33 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/55405.shtml)
-- 2026-06-30 00:34 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/744068325.shtml)
+- 2026-06-30 00:59 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/17717179.shtml)
+- 2026-06-30 00:52 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/564543046.shtml)
+- 2026-06-30 00:57 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/98545558.shtml)
+- 2026-06-30 00:46 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/33824.shtml)
+- 2026-06-30 00:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/708513848.shtml)
+- 2026-06-30 00:51 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/0768332.shtml)
+- 2026-06-30 00:51 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/23629.shtml)
+- 2026-06-30 00:57 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/286336669361.shtml)
+- 2026-06-30 00:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/30032415441.shtml)
+- 2026-06-30 00:51 - [山东发布山洪灾害气象预警](http://www.blog.minike.top/Article/details/169782.shtml)
+- 2026-06-30 00:43 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/69963.shtml)
+- 2026-06-30 00:37 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/129689.shtml)
+- 2026-06-30 00:49 - [千与千寻](http://www.blog.minike.top/Article/details/44156559218.shtml)
+- 2026-06-30 00:39 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/671187189123.shtml)
+- 2026-06-30 00:43 - [刘念回应](http://www.blog.minike.top/Article/details/468675.shtml)

@@ -1,50 +1,56 @@
-# 天生多屏！中兴云电脑解锁 AI 全场景新生活
+# 5.9亿股权拍卖落槌，江西首家民营银行国资持股升至59.5%
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-无需笨重主机，中兴云电脑实现多端无缝流转，手机、平板、笔电、自由屏一套数据通用，办公全程零切换成本。云端多重加密备份，数据远比本地设备安全。 兼顾3A游戏娱乐、孩子远程学习守护、老人健康康养，全场景适配家庭生活。轻量化终端、按需付费，让普惠算力走进千家万户，真正实现AI平权！#中兴云电脑# #AI普惠新生活#
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！界面新闻记者 | 曾令俊 江西裕民银行的国有股权比例进一步增加。 4月21日上午10时，中国拍卖行业协会网司法拍卖网络平台上的两笔股权拍卖落槌——江西博能实业集团（下称：博能实业）持有的江西裕民银行合计5.9亿股股权成功拍出。 最终，当地国企南昌红谷滩城投集团、南昌水业集团分别竞得其中的4亿股和1.9亿股，
 
 ## 正文
 
-无需笨重主机，中兴云电脑实现多端无缝流转，手机、平板、笔电、自由屏一套数据通用，办公全程零切换成本。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-云端多重加密备份，数据远比本地设备安全。
+界面新闻记者 | 曾令俊 江西裕民银行的国有股权比例进一步增加。
 
-兼顾3A游戏娱乐、孩子远程学习守护、老人健康康养，全场景适配家庭生活。
+4月21日上午10时，中国拍卖行业协会网司法拍卖网络平台上的两笔股权拍卖落槌——江西博能实业集团（下称：博能实业）持有的江西裕民银行合计5.9亿股股权成功拍出。
 
-轻量化终端、按需付费，让普惠算力走进千家万户，真正实现AI平权！
+最终，当地国企南昌红谷滩城投集团、南昌水业集团分别竞得其中的4亿股和1.9亿股，成交价分别约3.58亿元和1.7亿元。
 
-#中兴云电脑# #AI普惠新生活#
+待交割完成后，裕民银行国有股权占比将跃升至59.5%，迈入国资绝对控股的行列。
+
+国资持有这么高的比例，裕民银行的性质是否会发生相应变化？
+
+招联首席经济学家董希淼对界面新闻记者分析称，在金融监管部门统计中，裕民银行仍列入民营银行序列。
+
+作为裕民银行的发起人股东之一，博能实业是赣商大佬温显来创立的知名民营企业集团。
 
 ## 相关推荐
 
-- 2026-06-30 00:32 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 00:49 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 00:43 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 00:46 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 00:24 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 00:42 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 00:35 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 00:51 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 00:32 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 00:27 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 00:49 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 00:44 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 00:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 00:31 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 00:44 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 00:41 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 00:52 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 00:35 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 00:34 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 00:52 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:34 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/41225314052.shtml)
-- 2026-06-30 00:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/935461000257.shtml)
-- 2026-06-30 00:34 - [沙丘](https://www.share.kurohicncr.top/Article/details/548889249.shtml)
-- 2026-06-30 00:35 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/61445359151.shtml)
-- 2026-06-30 00:24 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/67310396.shtml)
-- 2026-06-30 00:47 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/85941.shtml)
-- 2026-06-30 00:26 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/37382.shtml)
-- 2026-06-30 00:24 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/51330371.shtml)
-- 2026-06-30 00:27 - [湖南姑娘被东北同事带偏口音](http://www.blog.kurohicncr.top/Article/details/369085805.shtml)
-- 2026-06-30 00:52 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/4414416.shtml)
-- 2026-06-30 00:47 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/3097706742.shtml)
-- 2026-06-30 00:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/805010238791.shtml)
-- 2026-06-30 00:36 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/9890985.shtml)
-- 2026-06-30 00:52 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/318706.shtml)
-- 2026-06-30 00:42 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/4384761079.shtml)
+- 2026-06-30 00:48 - [急先锋](https://www.share.minike.top/Article/details/61340539171.shtml)
+- 2026-06-30 00:45 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/38979132.shtml)
+- 2026-06-30 00:41 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/78085.shtml)
+- 2026-06-30 00:33 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/3667549.shtml)
+- 2026-06-30 00:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/247729.shtml)
+- 2026-06-30 00:51 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/31888125106.shtml)
+- 2026-06-30 00:47 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/616798.shtml)
+- 2026-06-30 00:48 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/07136421.shtml)
+- 2026-06-30 00:50 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/2302597.shtml)
+- 2026-06-30 00:38 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/1420433.shtml)
+- 2026-06-30 00:48 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/38313910.shtml)
+- 2026-06-30 00:37 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/33901083347.shtml)
+- 2026-06-30 00:57 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/52948.shtml)
+- 2026-06-30 00:54 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/8542535662.shtml)
+- 2026-06-30 00:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/53430902.shtml)

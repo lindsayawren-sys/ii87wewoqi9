@@ -1,58 +1,61 @@
-# 三名初中生被困贺兰山 银川消防历时近20小时将其救出
+# 2026年“三月三”假期广西消费市场人气爆棚
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网银川6月8日电 (记者 杨迪)记者8日从银川市消防救援支队获悉，近日三名初中生被困贺兰山，银川消防历时近20小时将其救出。 6月6日21时59分，银川市消防救援支队指挥中心接到报警称：贺兰山一景区有三人被困。接到报警后，银川市消防救援支队迅速调动辖区文萃北街消防救援站，出动2车14人赶赴现场开展救援。 消防救援力量抵达现场后分为两队展开行动。第一队做好救援准备工作后立即进
+中新网南宁4月22日电 (韦炳成)广西壮族自治区商务厅4月22日介绍，2026年，“广西三月三”假期遇上全国“春假”首启，广西以“今年春假来广西畅游畅购三月三”为主题，推出系列商文旅体健融合促消费活动。广西全区消费市场呈现“供需两旺、人气爆棚、活力迸发”图景。假期前夕，广西成为全国热门旅游目的地，假期期间全区各地游客人流涌动，商圈步行街人气爆棚。 商务监测数据显示，假期期间广西
 
 ## 正文
 
-中新网银川6月8日电 (记者 杨迪)记者8日从银川市消防救援支队获悉，近日三名初中生被困贺兰山，银川消防历时近20小时将其救出。
+中新网南宁4月22日电 (韦炳成)广西壮族自治区商务厅4月22日介绍，2026年，“广西三月三”假期遇上全国“春假”首启，广西以“今年春假来广西畅游畅购三月三”为主题，推出系列商文旅体健融合促消费活动。
 
-6月6日21时59分，银川市消防救援支队指挥中心接到报警称：贺兰山一景区有三人被困。
+广西全区消费市场呈现“供需两旺、人气爆棚、活力迸发”图景。
 
-接到报警后，银川市消防救援支队迅速调动辖区文萃北街消防救援站，出动2车14人赶赴现场开展救援。
+假期前夕，广西成为全国热门旅游目的地，假期期间全区各地游客人流涌动，商圈步行街人气爆棚。
 
-消防救援力量抵达现场后分为两队展开行动。
+商务监测数据显示，假期期间广西重点监测30个街区商圈平均客流、营业额分别同比增长23%、15%，其中，南宁三街两巷、阳朔益田西街、南宁江南盛天地、北海老街、南宁相思小镇步行街、玉林金城中心等重点商圈客流增长均超25%。
 
-第一队做好救援准备工作后立即进山展开搜索，利用喊话器、无人机等设备在山中开展搜索。
+美团数据显示，4月13日至18日广西文旅产品预订量同比增长361%。
 
-由于夜间能见度低，山区地形复杂被困人员无法准确描述自身位置，救援人员在山中搜寻一整夜，仍未发现三名学生的踪迹。
+同程旅行数据显示，假期前广西相关旅游产品整体搜索热度环比上月上涨3倍，其中南宁整体旅游产品搜索热度环比上涨超360%。
 
-次日清晨，被困学生与家长取得联系，并通过手机发送了实时位置信息。
+携程平台数据显示，假期期间，广西旅游市场呈现强劲增长态势，旅游人次、旅游消费金额同比分别增长78.1%、78.9%。
 
-根据这一关键线索，第二队救援人员立即携带装备，按照定位进山展开第二轮搜寻。
+其间，广西打造“观演艺”系列活动，邀请知名艺人开展个人演唱会，举办系列音乐节，吸引各地乐迷奔赴广西。
 
 ## 相关推荐
 
-- 2026-06-30 00:27 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 00:38 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 00:35 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 00:33 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 00:46 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 00:50 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 00:45 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 00:29 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 00:49 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 00:31 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 00:28 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 00:34 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 00:40 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 00:31 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 00:54 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 00:53 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 00:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 00:44 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 00:30 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 00:34 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 00:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 00:40 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 00:30 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 00:59 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 00:38 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 00:33 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 00:36 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:45 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/15107.shtml)
-- 2026-06-30 00:52 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/17469900782.shtml)
-- 2026-06-30 00:27 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/209417950.shtml)
-- 2026-06-30 00:44 - [新官上任三把火](https://www.share.minike.top/Article/details/464529487018.shtml)
-- 2026-06-30 00:32 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/207047130033.shtml)
-- 2026-06-30 00:51 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/485738626.shtml)
-- 2026-06-30 00:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/4652482494.shtml)
-- 2026-06-30 00:34 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/555612.shtml)
-- 2026-06-30 00:25 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/32833.shtml)
-- 2026-06-30 00:34 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/059220.shtml)
-- 2026-06-30 00:42 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/0587085556.shtml)
-- 2026-06-30 00:47 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/12887.shtml)
-- 2026-06-30 00:47 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/05687566049.shtml)
-- 2026-06-30 00:25 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/959448605594.shtml)
-- 2026-06-30 00:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/6308815952.shtml)
+- 2026-06-30 00:57 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/41852637.shtml)
+- 2026-06-30 00:49 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/297232848.shtml)
+- 2026-06-30 00:39 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/93691558.shtml)
+- 2026-06-30 00:49 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/3317237341.shtml)
+- 2026-06-30 00:53 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.kurohicncr.top/Article/details/21164.shtml)
+- 2026-06-30 00:42 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/72249902.shtml)
+- 2026-06-30 00:56 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/727712202973.shtml)
+- 2026-06-30 00:30 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/40415.shtml)
+- 2026-06-30 00:47 - [刘宇宁 好听](https://www.share.minike.top/Article/details/854721224337.shtml)
+- 2026-06-30 00:44 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/8729715463.shtml)
+- 2026-06-30 00:49 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/00871686.shtml)
+- 2026-06-30 00:44 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/76342089490.shtml)
+- 2026-06-30 00:31 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/98935.shtml)
+- 2026-06-30 00:39 - [一生一世](https://www.blog.minike.top/Article/details/038724924.shtml)
+- 2026-06-30 00:56 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/06822.shtml)

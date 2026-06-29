@@ -1,52 +1,57 @@
-# 燧原科技科创板IPO定于6月15日上会 拟募资60亿元
+# 日本7.7级地震已致6人受伤 气象厅提醒防范后续地震
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-观点网讯：6月8日，上海证券交易所公告称，上市审核委员会定于2026年6月15日召开2026年第37次审议会议，审议上海燧原科技股份有限公司首发事项。同日，燧原科技正式披露科创板上会稿，本次公开发行拟融资60亿元，保荐机构为中信证券。信息显示，燧原科技成立于2018年3月，专注云端AI芯片及算力平台研发，产品涵盖AI芯片、加速卡、智算系统及集群等。财务数据显示，2023至202
+中新网4月21日电 据日本广播协会(NHK)报道，日本内阁官房长官木原稔表示，截至当地时间21日上午8时，20日下午日本东北部海域发生的7.7级地震已致2人重伤，4人轻伤。 日本气象厅还对北海道及三陆地区近海发布“后续地震注意信息”，提醒防范可能发生的后续强震。对此，木原稔称，“政府将与地方政府和有关机构紧密合作，继续保持紧张感开展应对工作。” 据报道，受此次地震影响，宫崎县石
 
 ## 正文
 
-观点网讯：6月8日，上海证券交易所公告称，上市审核委员会定于2026年6月15日召开2026年第37次审议会议，审议上海燧原科技股份有限公司首发事项。
+中新网4月21日电 据日本广播协会(NHK)报道，日本内阁官房长官木原稔表示，截至当地时间21日上午8时，20日下午日本东北部海域发生的7.7级地震已致2人重伤，4人轻伤。
 
-同日，燧原科技正式披露科创板上会稿，本次公开发行拟融资60亿元，保荐机构为中信证券。
+日本气象厅还对北海道及三陆地区近海发布“后续地震注意信息”，提醒防范可能发生的后续强震。
 
-信息显示，燧原科技成立于2018年3月，专注云端AI芯片及算力平台研发，产品涵盖AI芯片、加速卡、智算系统及集群等。
+对此，木原稔称，“政府将与地方政府和有关机构紧密合作，继续保持紧张感开展应对工作。
 
-财务数据显示，2023至2025年，该公司营业收入分别为3.01亿元、7.22亿元、9.90亿元；归母净利润分别为-16.65亿元、-15.10亿元、-11.64亿元。
+” 据报道，受此次地震影响，宫崎县石卷市出现道路塌陷的情况。
 
-本次募集资金将用于第五代和第六代AI芯片系列产品的研发及产业化项目，以及先进人工智能软硬件协同创新项目。
+青森县还报告多处建筑受损。
 
-免责声明：本文内容与数据由观点根据公开信息整理，不构成投资建议，使用前请核实。
+据此前报道，日本气象厅20日说，日本东北部海域当天发生7.4级地震，随后将地震震级修正为7.5级，又修正为7.7级。
+
+日本青森县、东京都、北海道、宫城县在内的多地有强烈震感。
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 00:40 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 00:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 00:50 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 00:42 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 00:25 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 00:42 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 00:33 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 00:53 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 00:43 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 00:51 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 00:47 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 00:59 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 00:49 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 00:45 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 00:40 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 00:57 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 00:38 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 00:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 00:57 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 00:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 00:43 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 00:41 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:30 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/1398974.shtml)
-- 2026-06-30 00:51 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/16448155.shtml)
-- 2026-06-30 00:51 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/995938851.shtml)
-- 2026-06-30 00:33 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/42899462.shtml)
-- 2026-06-30 00:50 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/771647.shtml)
-- 2026-06-30 00:38 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/442120.shtml)
-- 2026-06-30 00:37 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/6598799.shtml)
-- 2026-06-30 00:41 - [存储三巨头被告了](http://www.share.minike.top/Article/details/012342110.shtml)
-- 2026-06-30 00:35 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/68695783.shtml)
-- 2026-06-30 00:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/798894103.shtml)
-- 2026-06-30 00:48 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/390554086.shtml)
-- 2026-06-30 00:25 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/43129698355.shtml)
-- 2026-06-30 00:28 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/79782300.shtml)
-- 2026-06-30 00:35 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/570206.shtml)
-- 2026-06-30 00:49 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/59461405.shtml)
+- 2026-06-30 00:49 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/166051.shtml)
+- 2026-06-30 00:51 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/88328340371.shtml)
+- 2026-06-30 00:56 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/3152989469.shtml)
+- 2026-06-30 00:49 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/17165468127.shtml)
+- 2026-06-30 00:40 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/9501409.shtml)
+- 2026-06-30 00:37 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/437666.shtml)
+- 2026-06-30 00:50 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/82036.shtml)
+- 2026-06-30 00:55 - [美股](https://www.share.kurohicncr.top/Article/details/710838303140.shtml)
+- 2026-06-30 00:38 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/731249.shtml)
+- 2026-06-30 00:30 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/27087257065.shtml)
+- 2026-06-30 00:35 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/7216485.shtml)
+- 2026-06-30 00:54 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/4859691.shtml)
+- 2026-06-30 00:41 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/6323377148.shtml)
+- 2026-06-30 00:33 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/428944.shtml)
+- 2026-06-30 00:33 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/207811941.shtml)

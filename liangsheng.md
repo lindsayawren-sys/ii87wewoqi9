@@ -1,55 +1,56 @@
-# 海南：海洋经济要从“三分天下有其一”向“半壁江山”迈进
+# 国务院印发《关于推进服务业扩能提质的意见》
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月08日 19:52 来源：中国新闻网 6月8日，海南省开局起步“十五五”系列主题新闻发布会(第三场)——《海南省“十五五”海洋经济发展规划(2026—2030年)》暨《海南省海洋文化发展行动方案(2026—2030年)》专场在海口召开。海南省海洋厅党组成员、副厅长、新闻发言人戴文达在会上介绍，“十五五”期间，海南省不再单纯追求海洋生产总值绝对值，而是以
+新华社北京4月21日电为深入贯彻落实习近平总书记关于服务业发展的重要指示和全国服务业大会精神，国务院日前印发《关于推进服务业扩能提质的意见》（以下简称《意见》）。 《意见》要求，以习近平新时代中国特色社会主义思想为指导，深入贯彻党的二十大和二十届历次全会精神，完整准确全面贯彻新发展理念，坚持有效市场和有为政府相结合，坚持扩能和提质并举、发展和监管统筹，突出需求牵引、改革攻坚、科
 
 ## 正文
 
-发布时间：2026年06月08日 19:52 来源：中国新闻网 6月8日，海南省开局起步“十五五”系列主题新闻发布会(第三场)——《海南省“十五五”海洋经济发展规划(2026—2030年)》暨《海南省海洋文化发展行动方案(2026—2030年)》专场在海口召开。
+新华社北京4月21日电为深入贯彻落实习近平总书记关于服务业发展的重要指示和全国服务业大会精神，国务院日前印发《关于推进服务业扩能提质的意见》（以下简称《意见》）。
 
-海南省海洋厅党组成员、副厅长、新闻发言人戴文达在会上介绍，“十五五”期间，海南省不再单纯追求海洋生产总值绝对值，而是以“海洋生产总值占全省GDP比重”作为核心结构性指标。
+《意见》要求，以习近平新时代中国特色社会主义思想为指导，深入贯彻党的二十大和二十届历次全会精神，完整准确全面贯彻新发展理念，坚持有效市场和有为政府相结合，坚持扩能和提质并举、发展和监管统筹，突出需求牵引、改革攻坚、科技赋能、开放合作，深入实施服务业扩能提质行动，推进生产性服务业向专业化和价值链高端延伸，促进生活性服务业高品质多样化便利化发展。
 
-到2030年，这一比重力争达到45%以上；到2035年，力争超过50%。
+到2030年，服务业总规模迈上100万亿元台阶，培育更多“中国服务”品牌，服务业全球竞争力、影响力明显增强，人民群众获得感持续提升。
 
-这意味着，“十五五”期间，海南的海洋经济增速必须快于全省GDP增速，海洋经济要从“三分天下有其一”向“半壁江山”迈进。
+《意见》提出，要全链条补强生产性服务业薄弱环节，强化科技服务支撑作用，增强现代物流综合竞争力，加快软件和信息服务创新发展，增强供应链金融专业服务能力，积极发展节能环保服务，做强做优商务服务。
 
-(记者 林士杰) 责任编辑：【刘湃】
+要提升生活性服务业重点领域发展能级，增加居民服务优质供给，提高养老托育服务适配水平，增强健康服务专业化能力，创新文旅体服务模式。
+
+要提升服务业数智化、标准化、融合化、国际化水平，推进服务业数智化转型，加快服务业标准化建设，提高现代服务业与先进制造业、现代农业融合发展水平，稳步推进服务业开放合作。
+
+《意见》明确，要完善支持服务业扩能提质的政策体系，深化改革创新，丰富财政金融政策工具，提升基础设施支撑保障能力，扩大服务业优质经营主体，加强人才建设，强化安全监管。
+
+《意见》要求，各地区各部门要在党中央集中统一领导下，结合实际抓好贯彻落实，努力开创服务业高质量发展新局面。
 
 ## 相关推荐
 
-- 2026-06-30 00:49 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 00:33 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 00:53 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 00:40 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 00:46 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 00:36 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 00:37 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 00:38 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 00:38 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-30 00:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-30 00:33 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 00:38 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 00:47 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 00:38 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 00:27 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 00:52 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 00:33 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 00:48 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-30 00:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 00:51 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 00:42 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 00:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 00:56 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 00:53 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 00:33 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:27 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/709670398.shtml)
-- 2026-06-30 00:39 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/824913.shtml)
-- 2026-06-30 00:41 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/071147.shtml)
-- 2026-06-30 00:38 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/62635991399.shtml)
-- 2026-06-30 00:40 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/1930999.shtml)
-- 2026-06-30 00:51 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/460892.shtml)
-- 2026-06-30 00:29 - [恋与深空 巧合](http://www.share.minike.top/Article/details/670939634.shtml)
-- 2026-06-30 00:44 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/291881888.shtml)
-- 2026-06-30 00:52 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/360423.shtml)
-- 2026-06-30 00:27 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/105598741.shtml)
-- 2026-06-30 00:39 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/76966677265.shtml)
-- 2026-06-30 00:52 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/95722.shtml)
-- 2026-06-30 00:41 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/4759580328.shtml)
-- 2026-06-30 00:35 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/6802507.shtml)
-- 2026-06-30 00:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/76130840.shtml)
+- 2026-06-30 00:32 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/406444165.shtml)
+- 2026-06-30 00:47 - [恋与深空 巧合](https://www.share.minike.top/Article/details/7276241.shtml)
+- 2026-06-30 00:52 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/199355864339.shtml)
+- 2026-06-30 00:42 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/067137.shtml)
+- 2026-06-30 00:51 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/0896087.shtml)
+- 2026-06-30 00:33 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/575205.shtml)
+- 2026-06-30 00:48 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/61954259.shtml)
+- 2026-06-30 00:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/49247.shtml)
+- 2026-06-30 00:34 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/63770.shtml)
+- 2026-06-30 00:54 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/80414.shtml)
+- 2026-06-30 00:53 - [斗破苍穹](https://www.blog.minike.top/Article/details/88932802.shtml)
+- 2026-06-30 00:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/16306.shtml)
+- 2026-06-30 00:32 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/57773.shtml)
+- 2026-06-30 00:55 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/602353450.shtml)
+- 2026-06-30 00:51 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/97099676.shtml)

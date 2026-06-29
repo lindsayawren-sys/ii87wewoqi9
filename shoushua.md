@@ -1,57 +1,59 @@
-# 中外逾2000名专家学者将赴长春参加光博会
+# 【生猪旬报】期现反弹修复后的市场展望
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网长春6月9日电 (谭伟旗 金乔)9日，长春市政府新闻办召开第三届长春国际光电博览会(下称“长春光博会”)·Light国际会议暨中国光学学会长春学术大会新闻发布会，介绍相关情况。长春市工业和信息化局局长方述华介绍，卡尔蔡司、海克斯康、牧野(中国)、奥德堡等42家外资、合资企业主动参展，较上一届增长55%；来自6大洲23个国家的2000余名专家学者将应邀参会，国际交流合作格局
+作者|中信建投期货研究发展部 邓昊然 本报告完成时间|2026年4月20日 期货交易咨询业务资格：证监许可\[2011\]1461号 摘要 近期生猪期货主力合约LH2607自前期低点大幅反弹，短期走出明显的情绪修复行情，核心驱动来自养殖端头部猪企阶段性缩量出栏、散户抗价情绪升温以及五一节前备货带动屠宰端需求回暖，叠加收储政策托底预期，市场悲观情绪显著修复，现货价格也同步企稳回升，部
 
 ## 正文
 
-中新网长春6月9日电 (谭伟旗 金乔)9日，长春市政府新闻办召开第三届长春国际光电博览会(下称“长春光博会”)·Light国际会议暨中国光学学会长春学术大会新闻发布会，介绍相关情况。
+作者|中信建投期货研究发展部 邓昊然 本报告完成时间|2026年4月20日 期货交易咨询业务资格：证监许可\[2011\]1461号 摘要 近期生猪期货主力合约LH2607自前期低点大幅反弹，短期走出明显的情绪修复行情，核心驱动来自养殖端头部猪企阶段性缩量出栏、散户抗价情绪升温以及五一节前备货带动屠宰端需求回暖，叠加收储政策托底预期，市场悲观情绪显著修复，现货价格也同步企稳回升，部分地区价格重回10元以上区间。
 
-长春市工业和信息化局局长方述华介绍，卡尔蔡司、海克斯康、牧野(中国)、奥德堡等42家外资、合资企业主动参展，较上一届增长55%；来自6大洲23个国家的2000余名专家学者将应邀参会，国际交流合作格局更加多元。
+从基本面来看，当前生猪市场仍处于供强需弱的格局之中，但迎来供应阶段性改善窗口期。
 
-本届长春光博会将于6月12日至14日举办，重点聚焦半导体、超精密光学、商业航天等十余个核心细分赛道，创新设置原子级制造、商业航天、国防光电系统与装备、汽车电子、低空经济、具身智能、光+智慧农业七大特色主题展区，全力打造光电产业跨界融合、协同发展平台。
+根据农业部数据，一季度末，全国生猪存栏42358万头，同比增加627万头，增长1.5%。
 
-今年，活动延续“一展两会”整体架构，主体为第三届长春国际光电博览会、Light国际会议、中国光学学会长春学术大会。
+其中，能繁母猪存栏3904万头，同比减少135万头，下降3.3%，目前为正常保有量的100.1%。
 
-此外，2026原子级制造创新发展大会也将同期举办。
+虽然能繁母猪存栏已连续回落，但整体存栏水平仍高于合理调控区间。
 
-其中，Light国际会议设置绿色农业、智能与先进制造、跨学科交叉等14场分会，800余名海内外专家将现场分享前沿学术成果。
+而从最新的新生仔猪数据指引看，26年供给压力可能在4月左右阶段性达峰，5-6月可能迎来环比改善。
 
-中国光学学会长春学术大会围绕新原理新方法、光学设计与特种材料等方向，开展13场专项研讨。
+但26年1月新生仔猪数据出现环比反弹（环比+1.3%），2月（环比-0.3%）、3月（环比-0.2%）新生仔猪数据环比改善幅度有限，即使在3月现货价格大幅下跌的情况下产能去化程度仍相对有限，对于周期拐点的判断可能需要更后置。
 
-2026原子级制造创新发展大会聚焦原子级加工工艺、核心装备及精密检测技术，举办7场专题交流，共同探索原子级制造的发展路径与产业新生态。
+从交易题材看，前期现货、期货价格均跌至历史低位，绝对价格以及猪粮比价估值层面都存在明显超跌修复需求，本轮反弹更多依靠空头集中平仓离场与短期资金博弈推动，呈现较为明显的移仓驱动特征。
 
 ## 相关推荐
 
-- 2026-06-30 00:26 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 00:25 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 00:52 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 00:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 00:30 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 00:33 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 00:36 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 00:36 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 00:25 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 00:39 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-30 00:48 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 00:51 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 00:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 00:55 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 00:59 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 00:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 00:34 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 00:51 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 00:44 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 00:33 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 00:44 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 00:47 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 00:47 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 00:48 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/280346118.shtml)
-- 2026-06-30 00:41 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/393119023.shtml)
-- 2026-06-30 00:37 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/7514511.shtml)
-- 2026-06-30 00:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/62415946544.shtml)
-- 2026-06-30 00:53 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/7367913135.shtml)
-- 2026-06-30 00:50 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/56968767519.shtml)
-- 2026-06-30 00:25 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/15666457.shtml)
-- 2026-06-30 00:43 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/4281741.shtml)
-- 2026-06-30 00:42 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/0377809.shtml)
-- 2026-06-30 00:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/97921757.shtml)
-- 2026-06-30 00:50 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/6827179461.shtml)
-- 2026-06-30 00:41 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/280462.shtml)
-- 2026-06-30 00:38 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/24185.shtml)
-- 2026-06-30 00:37 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/86342611.shtml)
-- 2026-06-30 00:34 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/655533567.shtml)
+- 2026-06-30 00:55 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/529603881846.shtml)
+- 2026-06-30 00:40 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/34776374.shtml)
+- 2026-06-30 00:55 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/80158062969.shtml)
+- 2026-06-30 00:50 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/7107682706.shtml)
+- 2026-06-30 00:50 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/002517138971.shtml)
+- 2026-06-30 00:56 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/93979494.shtml)
+- 2026-06-30 00:38 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/972432867.shtml)
+- 2026-06-30 00:56 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/00488835521.shtml)
+- 2026-06-30 00:40 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/205037568.shtml)
+- 2026-06-30 00:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/453855614390.shtml)
+- 2026-06-30 00:44 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/70074799288.shtml)
+- 2026-06-30 00:44 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/059752499.shtml)
+- 2026-06-30 00:55 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/5643153.shtml)
+- 2026-06-30 00:40 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/872709.shtml)
+- 2026-06-30 00:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/27417037590.shtml)

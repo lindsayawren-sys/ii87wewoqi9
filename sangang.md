@@ -1,55 +1,59 @@
-# 渝农商行：2025年度A股每股派发现金红利0.11755元 将于6月16日派息
+# 国台办回应赖清德取消窜访非洲计划
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-6月8日金融一线消息，渝农商行今日发布2025年年度A股权益分派实施公告。本次利润分配以方案实施前的本行总股本11，357，000，000股为基数（其中A股股本为8，843，663，959股），每股派发现金红利人民币0.11755元（含税），共计派发现金红利人民币1，335，015，350元（含税），其中派发A股现金红利人民币1，039，572，698.38元（含税）。除权（息
+中新网4月22日电 4月22日，国台办举行例行新闻发布会。有记者问：民进党当局昨天宣布，赖清德原拟窜访斯威士兰，因有关国家拒绝向其包机发放飞行许可而取消。对此有何评论？ 国台办发言人张晗表示，我们对有关国家坚持一个中国原则的立场和做法表示赞赏。得道多助，失道寡助。事实再次证明，一个中国原则是国际关系基本准则和国际社会普遍共识，是大势所趋、大义所在、人心所向。(中新网“燕新台”工
 
 ## 正文
 
-6月8日金融一线消息，渝农商行今日发布2025年年度A股权益分派实施公告。
+中新网4月22日电 4月22日，国台办举行例行新闻发布会。
 
-本次利润分配以方案实施前的本行总股本11，357，000，000股为基数（其中A股股本为8，843，663，959股），每股派发现金红利人民币0.11755元（含税），共计派发现金红利人民币1，335，015，350元（含税），其中派发A股现金红利人民币1，039，572，698.38元（含税）。
+有记者问：民进党当局昨天宣布，赖清德原拟窜访斯威士兰，因有关国家拒绝向其包机发放飞行许可而取消。
 
-除权（息）日为2026年6月16日。
+对此有何评论？
 
-重庆渝富资本运营集团有限公司、重庆市城市建设投资（集团）有限公司、重庆发展置业管理有限公司、重庆市水利投资（集团）有限公司、重庆水务集团股份有限公司及本行未确认持有人证券专用账户的现金红利由本行按照相关规定自行发放。
+国台办发言人张晗表示，我们对有关国家坚持一个中国原则的立场和做法表示赞赏。
 
-责任编辑：曹睿潼
+得道多助，失道寡助。
+
+事实再次证明，一个中国原则是国际关系基本准则和国际社会普遍共识，是大势所趋、大义所在、人心所向。
+
+(中新网“燕新台”工作室)
 
 ## 相关推荐
 
-- 2026-06-30 00:31 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 00:49 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 00:48 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 00:32 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 00:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 00:33 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 00:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 00:35 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 00:47 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-30 00:33 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 00:39 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 00:46 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 00:52 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 00:31 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 00:25 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 00:50 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 00:32 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 00:54 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 00:31 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 00:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 00:50 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 00:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 00:55 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 00:32 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 00:31 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 00:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 00:59 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 00:58 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 00:43 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 00:55 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/945001621.shtml)
-- 2026-06-30 00:36 - [沙丘](http://www.share.minike.top/Article/details/64560795.shtml)
-- 2026-06-30 00:43 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/5074303610.shtml)
-- 2026-06-30 00:37 - [千香](http://www.share.minike.top/Article/details/112261.shtml)
-- 2026-06-30 00:29 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/5524224801.shtml)
-- 2026-06-30 00:29 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/247545509788.shtml)
-- 2026-06-30 00:48 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/646399848.shtml)
-- 2026-06-30 00:25 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/83035054528.shtml)
-- 2026-06-30 00:32 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/79265225073.shtml)
-- 2026-06-30 00:28 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/301803028690.shtml)
-- 2026-06-30 00:50 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/12560606354.shtml)
-- 2026-06-30 00:30 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/73942.shtml)
-- 2026-06-30 00:44 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/59507751104.shtml)
-- 2026-06-30 00:52 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/448051058520.shtml)
-- 2026-06-30 00:49 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/35139150079.shtml)
+- 2026-06-30 00:51 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/503689350.shtml)
+- 2026-06-30 00:34 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/6203860965.shtml)
+- 2026-06-30 00:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/100687.shtml)
+- 2026-06-30 00:35 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/580789114.shtml)
+- 2026-06-30 00:53 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/224236407.shtml)
+- 2026-06-30 00:56 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/271303.shtml)
+- 2026-06-30 00:30 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/33122.shtml)
+- 2026-06-30 00:54 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/55739289733.shtml)
+- 2026-06-30 00:54 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/71028.shtml)
+- 2026-06-30 00:38 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/45544.shtml)
+- 2026-06-30 00:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/20512.shtml)
+- 2026-06-30 00:47 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/1073676569.shtml)
+- 2026-06-30 00:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/2556892.shtml)
+- 2026-06-30 00:54 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/93103131.shtml)
+- 2026-06-30 00:47 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/113036.shtml)

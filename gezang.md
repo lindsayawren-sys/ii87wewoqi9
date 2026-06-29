@@ -1,60 +1,58 @@
-# 2026中国银行人民币国际使用论坛在上海举办 葛海蛟出席活动并致辞
+# 搭上马斯克，惠州首富再敲钟，公司市值一年暴涨10倍，夫妇身家680亿
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-来源：中国银行 6月9日，2026中国银行人民币国际使用论坛在上海举办。上海市常务副市长吴伟、中国人民银行副行长陶玲、希腊央行副行长西奥多·佩拉吉迪斯（Theodore Pelagidis）、中国银行董事长葛海蛟出席活动并致辞。中国银行副行长黄学玲现场发布《中国银行人民币国际使用白皮书（2026）》。 葛海蛟表示，中国“十五五”规划纲要提出，扩大高水平对外开放，推进人民币国际化
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨杨期鑫 刘雪莹 4月21日，全球AI算力PCB龙头胜宏科技（02476.HK）正式登陆港交所主板，开盘价报330港元/股，较发行价209.88港元大幅上涨57.23%，盘中最高涨幅达60.19%，市场认购热情高涨。截至21日收盘，胜宏科技H股报收313港元/股，涨超49%，市值高达3598亿港元。其A
 
 ## 正文
 
-来源：中国银行 6月9日，2026中国银行人民币国际使用论坛在上海举办。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-上海市常务副市长吴伟、中国人民银行副行长陶玲、希腊央行副行长西奥多·佩拉吉迪斯（Theodore Pelagidis）、中国银行董事长葛海蛟出席活动并致辞。
+记者丨杨期鑫 刘雪莹 4月21日，全球AI算力PCB龙头胜宏科技（02476.HK）正式登陆港交所主板，开盘价报330港元/股，较发行价209.88港元大幅上涨57.23%，盘中最高涨幅达60.19%，市场认购热情高涨。
 
-中国银行副行长黄学玲现场发布《中国银行人民币国际使用白皮书（2026）》。
+截至21日收盘，胜宏科技H股报收313港元/股，涨超49%，市值高达3598亿港元。
 
-葛海蛟表示，中国“十五五”规划纲要提出，扩大高水平对外开放，推进人民币国际化，与世界各国共享机遇、共同发展。
+其A股收跌3.53%，报330.9元/股，最新市值3152亿元。
 
-当前，跨境人民币清算结算“跑出加速度”，跨境人民币投融资“驶入快车道”，跨境人民币支付创新“按下快进键”，人民币国际使用加速从量变走向质变。
+值得注意的是，在2024年，胜宏科技A股市值还仅为290亿元左右，这意味着仅一年，公司市值已增长近10倍。
 
-作为跨境人民币服务主渠道，中国银行国际结算客户约40万户，今年前5个月办理跨境人民币结算量同比增长超20%，熊猫债、离岸人民币债券承销金额市场领先，深度参与“跨境支付通”、多边央行数字货币桥、跨境二维码支付等创新项目，切实见证人民币国际使用的巨大需求和潜力。
+此次发行由摩根大通、中信建投国际及广发证券联席保荐。
 
-葛海蛟表示，中国银行将以这次论坛为契机，持续探索人民币产品服务创新，努力成为全球投资者投资中国、使用人民币的好朋友、好伙伴。
+根据最终发售价公告，公司全球发售8334.8万股H股，香港公开发售及国际发售分别占比10%和90%。
 
-以更深层次的场景融合促进国际经贸合作，加大对跨境电商等新业态支持力度，助力大宗商品贸易、海运领域全链条人民币计价结算，大力拓展外籍来华人士支付等消费场景；以更紧密的互联互通服务投融资便利化，大力支持债券通、互换通、跨境理财通等机制扩容，助力境外机构分享中国市场发展机遇；以更前沿的科技融入跨境支付体系建设，持续推广跨境人民币基础设施互联互通项目，全面支持上海数字人民币国际运营中心建设；以更密切的国际合作共建人民币业务生态圈，深化与境外央行、金融机构、企业及国际组织合作，持续为市场提供稳定的人民币流动性，促进人民币在境外国别间使用。
+该公司引入CPE Rosewood、Janchor Fund、Yunfeng Capital、Deliante等38家基石投资者，合计认购约9.97亿美元（约78.12亿港元）。
 
 ## 相关推荐
 
-- 2026-06-30 00:35 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 00:52 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 00:36 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 00:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 00:45 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 00:33 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 00:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 00:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 00:39 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 00:51 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 00:50 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 00:33 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 00:50 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 00:31 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 00:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 00:47 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 00:42 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 00:41 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 00:30 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 00:51 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 00:31 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 00:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 00:41 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 00:52 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 00:48 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 00:49 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:34 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/7988083723.shtml)
-- 2026-06-30 00:32 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/7216659.shtml)
-- 2026-06-30 00:38 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/66028052167.shtml)
-- 2026-06-30 00:42 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/649792.shtml)
-- 2026-06-30 00:49 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/885262577599.shtml)
-- 2026-06-30 00:34 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/010886.shtml)
-- 2026-06-30 00:28 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/1361712.shtml)
-- 2026-06-30 00:25 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/33741700.shtml)
-- 2026-06-30 00:28 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/02399561865.shtml)
-- 2026-06-30 00:31 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/34114653.shtml)
-- 2026-06-30 00:26 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/47471676.shtml)
-- 2026-06-30 00:34 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/47145074981.shtml)
-- 2026-06-30 00:49 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/939372.shtml)
-- 2026-06-30 00:42 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/654771024505.shtml)
-- 2026-06-30 00:27 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/549365.shtml)
+- 2026-06-30 00:41 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/74803367945.shtml)
+- 2026-06-30 00:53 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/5653629514.shtml)
+- 2026-06-30 00:40 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/65981.shtml)
+- 2026-06-30 00:47 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/682417356141.shtml)
+- 2026-06-30 00:49 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/838110399.shtml)
+- 2026-06-30 00:44 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/48768931627.shtml)
+- 2026-06-30 00:57 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/996935.shtml)
+- 2026-06-30 00:30 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/343906.shtml)
+- 2026-06-30 00:38 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/992091833.shtml)
+- 2026-06-30 00:37 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/73999.shtml)
+- 2026-06-30 00:39 - [小娘惹](https://www.share.minike.top/Article/details/41314580320.shtml)
+- 2026-06-30 00:51 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/5811402445.shtml)
+- 2026-06-30 00:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/729185.shtml)
+- 2026-06-30 00:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/980987.shtml)
+- 2026-06-30 00:30 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/08542880.shtml)

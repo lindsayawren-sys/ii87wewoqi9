@@ -1,59 +1,57 @@
-# 习近平同格鲁吉亚总统卡韦拉什维利就中格建交34周年互致贺电并共同宣布将双边关系提升为全面战略伙伴关系
+# 登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-新华社北京6月9日电 6月9日，国家主席习近平同格鲁吉亚总统卡韦拉什维利互致贺电，庆祝两国建交34周年。 习近平指出，34年来，中格两国始终秉持互尊互信、合作共赢原则，推动双边关系健康稳定发展，各领域合作取得丰硕成果。2023年中格两国建立战略伙伴关系后，双方政治互信愈加牢固，务实合作加速推进，多边协作更富成效。 习近平强调，无论国际形势如何变化，中方始终从战略高度和长远角度看
+视频丨登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中 视频：莫桑比克总统访华：登青藏高原见证绿色发展 期盼更大合作来源：央视新闻客户端 4月20日，莫桑比克总统丹尼尔·查波抵达北京，继续访华行程。在抵京前，查波曾先后赴湖南省、青海省参访。在青海期间，他走访新能源企业，亲身见证中国绿色发展成果。查波表示，将把中国经验应用于莫桑比克的绿色发展中，并期待双方实现更
 
 ## 正文
 
-新华社北京6月9日电 6月9日，国家主席习近平同格鲁吉亚总统卡韦拉什维利互致贺电，庆祝两国建交34周年。
+视频丨登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中 视频：莫桑比克总统访华：登青藏高原见证绿色发展 期盼更大合作来源：央视新闻客户端 4月20日，莫桑比克总统丹尼尔·查波抵达北京，继续访华行程。
 
-习近平指出，34年来，中格两国始终秉持互尊互信、合作共赢原则，推动双边关系健康稳定发展，各领域合作取得丰硕成果。
+在抵京前，查波曾先后赴湖南省、青海省参访。
 
-2023年中格两国建立战略伙伴关系后，双方政治互信愈加牢固，务实合作加速推进，多边协作更富成效。
+在青海期间，他走访新能源企业，亲身见证中国绿色发展成果。
 
-习近平强调，无论国际形势如何变化，中方始终从战略高度和长远角度看待中格关系。
+查波表示，将把中国经验应用于莫桑比克的绿色发展中，并期待双方实现更大合作。
 
-借此机会，我愿同卡韦拉什维利总统共同宣布，将中格关系提升为全面战略伙伴关系。
+踏上海拔两千多米的青藏高原，莫桑比克总统查波在青海开启“绿色”之旅。
 
-相信这将为中格关系发展开辟新前景，为两国传统友谊续写新篇章，为双方互利合作注入强劲动力，为中格人民创造更多福祉。
+参访清洁能源和绿色算力调度中心，行走光伏组件全自动智能生产线，走进矿产开发企业，从水电站如何选址，到怎样建立风光互补综合能源体系，再到光伏板制作工艺，查波听得认真，问得仔细，遇到自己感兴趣的产品，他更是直接拿起来向随行人员展示。
 
-卡韦拉什维利表示，回顾过去30余年，格中建立了长久友谊，双边关系在相互尊重、相互信任、建设性合作的基础上取得显著成就。
+所到之处，访华团的成员也纷纷拿起手机和笔记本，记录着自己在中国的“绿水青山”中找到的发展密码。
 
-在两国建交34周年之际，我们共同决定将格中关系提升至全面战略伙伴水平。
+莫桑比克总统 丹尼尔·查波：我十分认同“绿水青山就是金山银山”的理念。
 
 ## 相关推荐
 
-- 2026-06-30 00:29 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 00:40 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 00:24 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 00:24 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 00:41 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 00:29 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 00:49 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 00:25 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 00:37 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 00:51 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 00:51 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 00:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 00:48 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 00:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 00:44 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 00:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 00:44 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 00:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 00:52 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 00:52 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 00:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 00:38 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 00:47 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 00:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [美股](http://www.share.kurohicncr.top/Article/details/1113083163.shtml)
-- 2026-06-30 00:29 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/519888.shtml)
-- 2026-06-30 00:28 - [天道](https://www.share.kurohicncr.top/Article/details/47414942.shtml)
-- 2026-06-30 00:38 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/7351878.shtml)
-- 2026-06-30 00:36 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/07558870.shtml)
-- 2026-06-30 00:47 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/66861860.shtml)
-- 2026-06-30 00:37 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/537497858984.shtml)
-- 2026-06-30 00:49 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/35535225.shtml)
-- 2026-06-30 00:53 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/835866.shtml)
-- 2026-06-30 00:36 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/501936605501.shtml)
-- 2026-06-30 00:33 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/227621.shtml)
-- 2026-06-30 00:28 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/828168951.shtml)
-- 2026-06-30 00:53 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/644735104.shtml)
-- 2026-06-30 00:46 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/212045.shtml)
-- 2026-06-30 00:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/77135304545.shtml)
+- 2026-06-30 00:51 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/88892484034.shtml)
+- 2026-06-30 00:35 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/772015348.shtml)
+- 2026-06-30 00:31 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/462923455.shtml)
+- 2026-06-30 00:43 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/7685459.shtml)
+- 2026-06-30 00:33 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/1592958.shtml)
+- 2026-06-30 00:32 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/1092329.shtml)
+- 2026-06-30 00:54 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/41225404.shtml)
+- 2026-06-30 00:55 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/79630884158.shtml)
+- 2026-06-30 00:54 - [女心理师](http://www.blog.minike.top/Article/details/227068990936.shtml)
+- 2026-06-30 00:55 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/0767852.shtml)
+- 2026-06-30 00:41 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/15801603033.shtml)
+- 2026-06-30 00:49 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/404219797.shtml)
+- 2026-06-30 00:57 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/1104222927.shtml)
+- 2026-06-30 00:43 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/733462851879.shtml)
+- 2026-06-30 00:36 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/163776.shtml)

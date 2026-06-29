@@ -1,61 +1,58 @@
-# SpaceX即将创下历史最大IPO，估值将达1.77万亿美元
+# 俄军总参谋长：已完全控制卢甘斯克地区
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-SpaceX正在筹备一场史无前例的首次公开募股。根据其向美国证券交易委员会提交的最新招股文件，该公司计划于6月12日在纳斯达克挂牌上市，股票代码SPCX，发行价定为每股135美元，拟发行约5.556亿股，基础募资规模达750亿美元，整体估值约1.77万亿美元。 这一规模将打破沙特阿美2019年创下的290亿美元募资纪录，成为全球资本市场历史上最大的IPO。若承销商行使超额配售权
+中新社莫斯科4月21日电 俄罗斯国防部21日发布消息说，俄武装力量总参谋长格拉西莫夫表示俄军已完全控制卢甘斯克地区。 据俄国防部消息，格拉西莫夫视察了“南方”集团军相关部队，听取部队指挥官的报告，并就下一步行动下达任务。俄国防部并未透露格拉西莫夫此行的具体时间。 格拉西莫夫表示，俄军今年3月至4月在特别军事行动区内共控制34个居民点、约700平方公里土地。自今年年初以来，俄军已
 
 ## 正文
 
-SpaceX正在筹备一场史无前例的首次公开募股。
+中新社莫斯科4月21日电 俄罗斯国防部21日发布消息说，俄武装力量总参谋长格拉西莫夫表示俄军已完全控制卢甘斯克地区。
 
-根据其向美国证券交易委员会提交的最新招股文件，该公司计划于6月12日在纳斯达克挂牌上市，股票代码SPCX，发行价定为每股135美元，拟发行约5.556亿股，基础募资规模达750亿美元，整体估值约1.77万亿美元。
+据俄国防部消息，格拉西莫夫视察了“南方”集团军相关部队，听取部队指挥官的报告，并就下一步行动下达任务。
 
-这一规模将打破沙特阿美2019年创下的290亿美元募资纪录，成为全球资本市场历史上最大的IPO。
+俄国防部并未透露格拉西莫夫此行的具体时间。
 
-若承销商行使超额配售权，总募资额最高可达862.5亿美元。
+格拉西莫夫表示，俄军今年3月至4月在特别军事行动区内共控制34个居民点、约700平方公里土地。
 
-上市后，SpaceX市值将超越特斯拉，跻身全美上市公司市值第七位，马斯克仍持有超过82%的投票权。
+自今年年初以来，俄军已控制80个居民点和超过1700平方公里土地。
 
-SpaceX目前拥有三大业务板块：以猎鹰9号火箭为核心的航天发射业务、星链卫星互联网服务，以及今年2月正式并入的人工智能子公司xAI。
+特种军事行动的任务仍在继续，各部队正在所有方向发起进攻。
 
-其中星链是当前最强劲的盈利来源，2025年实现运营利润约44亿美元。
+他同时表示，为阻止俄军推进，乌克兰武装部队在2月和3月发动了170多次反击，但未能实现其目标，并损失了超过3000名士兵和160多件装备。
 
-然而，合并后的xAI正成为巨大的资金消耗源，该部门2025年运营亏损约63.99亿美元，仅今年第一季度资本支出就高达77亿美元。
+4月1日，俄国防部曾宣布，俄军已完成对卢甘斯克地区的全面控制。
 
 ## 相关推荐
 
-- 2026-06-30 00:43 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 00:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 00:46 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 00:42 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 00:46 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 00:51 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 00:24 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 00:36 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 00:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 00:47 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 00:27 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-30 00:28 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 00:41 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 00:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 00:29 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 00:46 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 00:59 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 00:56 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 00:54 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 00:36 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 00:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 00:50 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-30 00:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 00:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 00:37 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 00:40 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 00:54 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:49 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/87746916.shtml)
-- 2026-06-30 00:47 - [世界杯](http://www.share.kurohicncr.top/Article/details/31000127414.shtml)
-- 2026-06-30 00:31 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/272305.shtml)
-- 2026-06-30 00:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/53146.shtml)
-- 2026-06-30 00:34 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/88315828745.shtml)
-- 2026-06-30 00:32 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/46452851.shtml)
-- 2026-06-30 00:26 - [刘念回应](https://www.blog.minike.top/Article/details/334846.shtml)
-- 2026-06-30 00:52 - [小娘惹](https://www.blog.minike.top/Article/details/3666802869.shtml)
-- 2026-06-30 00:37 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/01993.shtml)
-- 2026-06-30 00:53 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/14414078600.shtml)
-- 2026-06-30 00:35 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/151101.shtml)
-- 2026-06-30 00:37 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/568280.shtml)
-- 2026-06-30 00:26 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/961310911499.shtml)
-- 2026-06-30 00:24 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/54752.shtml)
-- 2026-06-30 00:47 - [存储三巨头被告了](https://www.share.minike.top/Article/details/35993.shtml)
+- 2026-06-30 00:59 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/624434.shtml)
+- 2026-06-30 00:46 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/6926529.shtml)
+- 2026-06-30 00:55 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.kurohicncr.top/Article/details/84374410576.shtml)
+- 2026-06-30 00:35 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/044040375.shtml)
+- 2026-06-30 00:53 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/714933.shtml)
+- 2026-06-30 00:41 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/36655.shtml)
+- 2026-06-30 00:47 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/990398.shtml)
+- 2026-06-30 00:37 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/07450747601.shtml)
+- 2026-06-30 00:45 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/514328555.shtml)
+- 2026-06-30 00:51 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/244740.shtml)
+- 2026-06-30 00:48 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/60382.shtml)
+- 2026-06-30 00:38 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/022954577.shtml)
+- 2026-06-30 00:43 - [炽夏](https://www.blog.minike.top/Article/details/4249845464.shtml)
+- 2026-06-30 00:53 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/415014.shtml)
+- 2026-06-30 00:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/168460226113.shtml)

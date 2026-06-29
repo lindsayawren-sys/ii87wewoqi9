@@ -1,56 +1,56 @@
-# 专家解读：黄山对话会为何举办 空间考古如何构建新范式
+# 赵明车圈首秀：千里科技 AI 战略暨产品发布会今晚 7 点举行
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网北京6月9日电 (记者 孙自法)第五届联合国教科文组织名录遗产与可持续发展黄山对话会(黄山对话会)近日顺利举办，中外学界和业界代表相聚安徽黄山，共商“数智技术驱动名录遗产可持续发展”大计。 作为大会组委会主席，中国科学院空天信息创新研究院研究员、联合国教科文组织自然与文化遗产空间技术国际中心(HIST)副主任王心源在会间接受记者采访，聚焦黄山对话会为何举办、五届以来收获哪
+IT之家 4 月 22 日消息，千里科技联席董事长赵明今日宣布，自己来到车圈的第一次发布会已准备就绪，正在彩排。IT之家查询到，本场发布会是千里科技 AI 战略暨产品发布会，今晚 7 点举行（直播间 6 点半开启），将全面展示「AI+ 车」最新落地成果，首次阐述 AI 商业化战略及目标、全新发布“脑体协同”技术合作。公开资料显示，赵明于 1998 年加入华为，2015 年接任荣
 
 ## 正文
 
-中新网北京6月9日电 (记者 孙自法)第五届联合国教科文组织名录遗产与可持续发展黄山对话会(黄山对话会)近日顺利举办，中外学界和业界代表相聚安徽黄山，共商“数智技术驱动名录遗产可持续发展”大计。
+IT之家 4 月 22 日消息，千里科技联席董事长赵明今日宣布，自己来到车圈的第一次发布会已准备就绪，正在彩排。
 
-作为大会组委会主席，中国科学院空天信息创新研究院研究员、联合国教科文组织自然与文化遗产空间技术国际中心(HIST)副主任王心源在会间接受记者采访，聚焦黄山对话会为何举办、五届以来收获哪些亮点成果、何以结缘双遗产地黄山等话题进行解读。
+IT之家查询到，本场发布会是千里科技 AI 战略暨产品发布会，今晚 7 点举行（直播间 6 点半开启），将全面展示「AI+ 车」最新落地成果，首次阐述 AI 商业化战略及目标、全新发布“脑体协同”技术合作。
 
-他还以“从遥感考古到空间考古”为题作学术报告，为大数据、人工智能(AI)时代如何构建空间考古新范式建言献策。
+公开资料显示，赵明于 1998 年加入华为，2015 年接任荣耀总裁，2020 年荣耀独立后出任 CEO。
 
-影响力越来越大 王心源说，名录遗产是全人类共同的瑰宝，是历史文明的鲜活载体，也是联结过去、当下与未来的纽带，国际对话、交流、合作则是自然文化遗产全球治理的重要内容。
+2025 年 1 月，赵明从荣耀离职，经过近一年的休整，在 2026 年 2 月官宣加入千里科技，3 月 3 日正式出任千里科技联席董事长。
 
-黄山对话会自2014年举办第一届以来，迄今已成功举办五届，主题从关注空间技术利用到监测气候变化对名录遗产影响，从强调天空地一体化到关注大数据、人工智能赋能名录遗产保护与可持续发展，对话水平越来越高，质量越来越好，影响力越来越大。
+千里科技前身为力帆科技，创立于 1992 年，2025 年 2 月完成更名。
 
-王心源指出，黄山是国际上具有重要知名度和广泛影响力的自然与文化双遗产地，也是世界地质公园、世界生物圈保护区，被列入世界遗产名录以来，黄山市在经费投入、研究管理等方面投入很大力量，成为联合国教科文组织名录遗产典型示范地。
-
-一方面，双遗产地黄山如何处理好保护与高质量可持续发展，新的发展形势提出新的挑战。
-
-另一方面，HIST的建设与发展，也需要建立一个国际同行深度对话、交流合作的学术平台。
+目前千里科技聚焦「AI+ 车」核心战略，吉利是其重要股东。
 
 ## 相关推荐
 
-- 2026-06-30 00:37 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 00:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-30 00:27 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 00:47 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 00:31 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 00:40 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 00:26 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 00:31 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 00:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 00:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 00:58 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 00:40 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 00:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 00:34 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 00:40 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 00:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 00:33 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 00:59 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 00:53 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 00:57 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 00:38 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 00:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 00:33 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 00:48 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:42 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/289219102867.shtml)
-- 2026-06-30 00:45 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/89796908630.shtml)
-- 2026-06-30 00:40 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/052269.shtml)
-- 2026-06-30 00:44 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/16707160.shtml)
-- 2026-06-30 00:53 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/183066377643.shtml)
-- 2026-06-30 00:28 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/58544823.shtml)
-- 2026-06-30 00:44 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/197690.shtml)
-- 2026-06-30 00:26 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/3838829916.shtml)
-- 2026-06-30 00:50 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/81529330021.shtml)
-- 2026-06-30 00:28 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/63974043767.shtml)
-- 2026-06-30 00:35 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/730433.shtml)
-- 2026-06-30 00:50 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/733209.shtml)
-- 2026-06-30 00:39 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/43269009734.shtml)
-- 2026-06-30 00:31 - [扬名立万](http://www.share.minike.top/Article/details/284462195.shtml)
-- 2026-06-30 00:43 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/02225.shtml)
+- 2026-06-30 00:59 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/5476925157.shtml)
+- 2026-06-30 00:43 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/16397.shtml)
+- 2026-06-30 00:44 - [乔家的儿女](http://www.share.minike.top/Article/details/287613417.shtml)
+- 2026-06-30 00:45 - [东方风云榜](http://www.blog.minike.top/Article/details/8586838.shtml)
+- 2026-06-30 00:36 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/24705297.shtml)
+- 2026-06-30 00:37 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/010863.shtml)
+- 2026-06-30 00:53 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/275971055.shtml)
+- 2026-06-30 00:36 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/8235774838.shtml)
+- 2026-06-30 00:47 - [房价什么时候能涨](http://www.share.minike.top/Article/details/6153401774.shtml)
+- 2026-06-30 00:45 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/34290254324.shtml)
+- 2026-06-30 00:31 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/58785515277.shtml)
+- 2026-06-30 00:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/0470681.shtml)
+- 2026-06-30 00:31 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/547104634912.shtml)
+- 2026-06-30 00:48 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/544814434143.shtml)
+- 2026-06-30 00:58 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/5706184.shtml)

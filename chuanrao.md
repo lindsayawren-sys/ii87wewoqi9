@@ -1,59 +1,57 @@
-# 美加墨世界杯将近 华侨华人：气氛热烈 期待开赛
+# ATFX:特朗普宣布延长停火 但黄金却涨不动了
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网北京6月8日电 (记者 门睿)2026美加墨世界杯开赛在即，赛事举办地侨胞接受中新网记者线上采访时表示，当前比赛场馆附近赛事气氛热烈，侨胞做好准备，期待赛事鸣哨开球。 本届世界杯揭幕战将于当地时间6月11日在墨西哥城阿兹特克体育场上演。在墨西哥生活5年多的自媒体博主王先生在连线采访中告诉中新网记者，墨西哥足球气息浓厚，平日里每逢球赛，无论是餐厅酒馆还是街边排档，都会聚集大
+专题：ATFX外汇专栏投稿 4月22日，ATFX：在连续两天下跌后（此前一个交易日下跌超过2%），周三亚市早段，黄金价格略有回升，美国总统特朗普周二在原定停火到期前数小时宣布，无限期延长与伊朗的停火，以便两国能够继续推进和平谈判，不过伊朗方面还没有表态。 ▲ATFX图 周二，美国副总统万斯取消了原定前往伊斯兰堡参加和平谈判的行程，此前伊朗方面告知美国，伊朗不会出席谈判。特朗普表
 
 ## 正文
 
-中新网北京6月8日电 (记者 门睿)2026美加墨世界杯开赛在即，赛事举办地侨胞接受中新网记者线上采访时表示，当前比赛场馆附近赛事气氛热烈，侨胞做好准备，期待赛事鸣哨开球。
+专题：ATFX外汇专栏投稿 4月22日，ATFX：在连续两天下跌后（此前一个交易日下跌超过2%），周三亚市早段，黄金价格略有回升，美国总统特朗普周二在原定停火到期前数小时宣布，无限期延长与伊朗的停火，以便两国能够继续推进和平谈判，不过伊朗方面还没有表态。
 
-本届世界杯揭幕战将于当地时间6月11日在墨西哥城阿兹特克体育场上演。
+▲ATFX图 周二，美国副总统万斯取消了原定前往伊斯兰堡参加和平谈判的行程，此前伊朗方面告知美国，伊朗不会出席谈判。
 
-在墨西哥生活5年多的自媒体博主王先生在连线采访中告诉中新网记者，墨西哥足球气息浓厚，平日里每逢球赛，无论是餐厅酒馆还是街边排档，都会聚集大批民众。
+特朗普表示，在伊朗提交新的方案“并达成最终协议”之前，他将暂缓进一步的打击行动。
 
-他们通常身穿支持球队的球衣，即使是在屏幕前收看转播，依然热情不减地为球队助威。
+但霍尔木兹海峡仍然对船只关闭，伊朗表示，只要美国继续封锁往返伊朗的船只，伊朗就不会重新开放这条至关重要的水道。
 
-王先生观察到，随着开赛日临近，墨西哥城部分地铁线路的现代化改造、连接市中心两座换乘地铁站的“高架公园”等多项市政设施建设项目进入尾声，位于墨西哥城中心的宪法广场也已搭建起大屏幕，届时将供观众同步观赛。
+这意味着，虽然停火被延长、直接军事冲突的风险下降，但能源供应中断的压力并未解除，原油价格仍交投于高位，这一矛盾使得市场对地缘风险的定价变得复杂。
 
-目前，王先生已经连续在社交媒体平台发布多条视频，以倒计时方式介绍场馆周边环境、当地公共交通线路等情况。
+中东战争已持续八周，引发了前所未有的能源供应冲击，加剧了通胀风险，使得各国央行更有可能维持利率不变甚至提高利率——这对不产生收益的贵金属构成了不利因素。
 
-他表示，赛事期间墨西哥城逐渐进入雨季，偶尔会有短时强降雨，观众前往当地观赛可备好雨具。
+昨日公布的美国3月零售销售增幅超出预期，主要受到加油站收入创纪录猛增提振，而退税则支撑了其他领域的消费，零售销售数据强化美联储今年将维持利率不变的预期。
 
-他也将持续记录当地的世界杯氛围，向更多中国网友分享这场足球盛会。
+金价也受到凯文·沃什承诺若被确认为下一任美联储主席将独立行事的影响。
 
 ## 相关推荐
 
-- 2026-06-30 00:51 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-30 00:49 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 00:31 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 00:48 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 00:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-30 00:24 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 00:42 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 00:46 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 00:28 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 00:40 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 00:27 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 00:28 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-30 00:36 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 00:42 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 00:47 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 00:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 00:42 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 00:31 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 00:33 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 00:35 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 00:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 00:31 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 00:52 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 00:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:30 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/11033943.shtml)
-- 2026-06-30 00:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/577379150664.shtml)
-- 2026-06-30 00:47 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/596347.shtml)
-- 2026-06-30 00:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/7748652277.shtml)
-- 2026-06-30 00:29 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/3457058571.shtml)
-- 2026-06-30 00:53 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/105677355906.shtml)
-- 2026-06-30 00:49 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/04591.shtml)
-- 2026-06-30 00:45 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/1765461674.shtml)
-- 2026-06-30 00:36 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/1301842.shtml)
-- 2026-06-30 00:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/68764.shtml)
-- 2026-06-30 00:42 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/234360.shtml)
-- 2026-06-30 00:34 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/26959.shtml)
-- 2026-06-30 00:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/878286362089.shtml)
-- 2026-06-30 00:52 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/7185826.shtml)
-- 2026-06-30 00:28 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/36544.shtml)
+- 2026-06-30 00:59 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/9743980.shtml)
+- 2026-06-30 00:53 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/87344630.shtml)
+- 2026-06-30 00:57 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/316599.shtml)
+- 2026-06-30 00:40 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/5269147.shtml)
+- 2026-06-30 00:53 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/504802.shtml)
+- 2026-06-30 00:42 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/90779214955.shtml)
+- 2026-06-30 00:40 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/44047.shtml)
+- 2026-06-30 00:37 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/54750.shtml)
+- 2026-06-30 00:58 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/903520.shtml)
+- 2026-06-30 00:46 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/15130320.shtml)
+- 2026-06-30 00:32 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/08020732601.shtml)
+- 2026-06-30 00:30 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/795812194156.shtml)
+- 2026-06-30 00:48 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/701335264.shtml)
+- 2026-06-30 00:41 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/4013705044.shtml)
+- 2026-06-30 00:56 - [世界杯](http://www.blog.minike.top/Article/details/981617979.shtml)

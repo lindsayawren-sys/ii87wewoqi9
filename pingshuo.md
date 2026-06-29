@@ -1,54 +1,61 @@
-# 【香港故事】香港模特曾宝珍：60岁惊艳秀场 年龄从来框不住女性力量
+# GTC泽汇:美国能源进军印度的挑战
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 14:15 来源：中国新闻网 香港模特曾宝珍，自幼身处一个重男轻女的家庭，但生活的挫折从未压垮她，反而让她练出了“打不死”的韧性。经历过职场打拼，也曾回归家庭。59岁，已是七个女儿母亲的她，第一次亮相T台，自此翻开了全新的人生篇章。 她说“60岁的女人也可以有肌肉”，要“拥抱”自己的年纪，优雅地老去。 出走半生，她一步步，打破性别偏见与年龄桎梏
+4月22日，近期，GTC泽汇观察到，美国希望扩大对印度的能源出口，但面临来自俄罗斯、中东和伊朗等更具价格与地理优势的供应商的激烈竞争。美国轻质原油运输成本较高，加上印度炼厂偏好重质原油，使美国原油在当地市场的吸引力受到限制。GTC泽汇认为，即便天然气出口潜力更大，实现显著市场份额增长仍可能需要通过价格折扣来吸引买家。 数据显示，2024年美国对印度石油出口占比仅为9%，远低于俄
 
 ## 正文
 
-发布时间：2026年06月09日 14:15 来源：中国新闻网 香港模特曾宝珍，自幼身处一个重男轻女的家庭，但生活的挫折从未压垮她，反而让她练出了“打不死”的韧性。
+4月22日，近期，GTC泽汇观察到，美国希望扩大对印度的能源出口，但面临来自俄罗斯、中东和伊朗等更具价格与地理优势的供应商的激烈竞争。
 
-经历过职场打拼，也曾回归家庭。
+美国轻质原油运输成本较高，加上印度炼厂偏好重质原油，使美国原油在当地市场的吸引力受到限制。
 
-59岁，已是七个女儿母亲的她，第一次亮相T台，自此翻开了全新的人生篇章。
+GTC泽汇认为，即便天然气出口潜力更大，实现显著市场份额增长仍可能需要通过价格折扣来吸引买家。
 
-她说“60岁的女人也可以有肌肉”，要“拥抱”自己的年纪，优雅地老去。
+数据显示，2024年美国对印度石油出口占比仅为9%，远低于俄罗斯的日均175.4万桶和伊拉克的100.5万桶。
 
-出走半生，她一步步，打破性别偏见与年龄桎梏，归来，仍是最有力量的女性模样。
+GTC泽汇分析，这反映出印度能源进口结构的稳定性，也说明美国在进入这一市场时面临多重阻力。
 
-记者 程宇 香港报道 责任编辑：【罗攀】
+印度恢复购买伊朗原油进一步显示，买家在能源选择上偏向多元化，使单靠美国产能增加难以改变现状。
+
+价格优势、运输成本和炼厂配置成为美国拓展市场的主要障碍。
+
+在液化天然气和液化石油气领域，GTC泽汇认为，美国拥有相对充足的供应潜力，可为印度提供替代来源。
 
 ## 相关推荐
 
-- 2026-06-30 00:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 00:45 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 00:50 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 00:47 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 00:39 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-30 00:38 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-30 00:47 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 00:30 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 00:41 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 00:37 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 00:40 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 00:48 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 00:45 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 00:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 00:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 00:41 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 00:53 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 00:30 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 00:47 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 00:47 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 00:54 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 00:45 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 00:39 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 00:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 00:50 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 00:50 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 00:32 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:27 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/378864049.shtml)
-- 2026-06-30 00:46 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/384073814363.shtml)
-- 2026-06-30 00:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/88468681.shtml)
-- 2026-06-30 00:47 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/42445919981.shtml)
-- 2026-06-30 00:43 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/134679.shtml)
-- 2026-06-30 00:28 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/4918269504.shtml)
-- 2026-06-30 00:39 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/85326.shtml)
-- 2026-06-30 00:39 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/942333415.shtml)
-- 2026-06-30 00:49 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/173719385040.shtml)
-- 2026-06-30 00:48 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/54983.shtml)
-- 2026-06-30 00:48 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/9277581.shtml)
-- 2026-06-30 00:48 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/1198836.shtml)
-- 2026-06-30 00:53 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/390909790078.shtml)
-- 2026-06-30 00:42 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/6585674.shtml)
-- 2026-06-30 00:39 - [扫黑风暴](https://www.share.minike.top/Article/details/767137867.shtml)
+- 2026-06-30 00:53 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/13948930.shtml)
+- 2026-06-30 00:42 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/601957.shtml)
+- 2026-06-30 00:47 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/1390062352.shtml)
+- 2026-06-30 00:39 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/5125568261.shtml)
+- 2026-06-30 00:43 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/3095981718.shtml)
+- 2026-06-30 00:38 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/673843742185.shtml)
+- 2026-06-30 00:54 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/0110685.shtml)
+- 2026-06-30 00:35 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/19482.shtml)
+- 2026-06-30 00:30 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/14953532822.shtml)
+- 2026-06-30 00:39 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/52127084.shtml)
+- 2026-06-30 00:47 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/867168837.shtml)
+- 2026-06-30 00:56 - [巴西队主帅称日本队是世界最佳之一](http://www.share.minike.top/Article/details/424648206.shtml)
+- 2026-06-30 00:49 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/7437795823.shtml)
+- 2026-06-30 00:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/11655581579.shtml)
+- 2026-06-30 00:51 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/47617.shtml)

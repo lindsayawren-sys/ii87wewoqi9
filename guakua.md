@@ -1,58 +1,60 @@
-# 77岁夏伯渝保持锻炼 力争完成“7+2”极限挑战
+# 应急管理部：一季度全国生产安全事故总量明显下降
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网北京6月8日电 “我年龄这么大，所以必须要加倍努力，保持住现在的状态，才能完成梦想。”6日，中国首位依靠双腿假肢登顶珠峰的登山者夏伯渝分享了他未来的登山计划，即力争完成征服“7+2”(七大洲最高山峰+南北两极)的极限挑战。 1975年，身为中国登山队队员的夏伯渝在登珠峰时冻伤双小腿导致截肢。2018年5月14日，他在69岁第五次挑战登顶珠峰时成功。 今年已经77岁的夏伯渝
+中新网4月22日电 应急管理部22日上午举行季度例行新闻发布会，应急管理部新闻发言人、新闻宣传司司长申展利通报一季度全国安全生产情况。 申展利介绍，今年以来，应急管理部认真落实全国安全生产和森林草原防灭火视频会议部署，深入推进安全生产治本攻坚三年行动，强化重点行业领域安全风险隐患排查整治，全力防范化解重大安全风险，全国安全生产形势总体稳定。 一季度，全国生产安全事故总量明显下降
 
 ## 正文
 
-中新网北京6月8日电 “我年龄这么大，所以必须要加倍努力，保持住现在的状态，才能完成梦想。
+中新网4月22日电 应急管理部22日上午举行季度例行新闻发布会，应急管理部新闻发言人、新闻宣传司司长申展利通报一季度全国安全生产情况。
 
-”6日，中国首位依靠双腿假肢登顶珠峰的登山者夏伯渝分享了他未来的登山计划，即力争完成征服“7+2”(七大洲最高山峰+南北两极)的极限挑战。
+申展利介绍，今年以来，应急管理部认真落实全国安全生产和森林草原防灭火视频会议部署，深入推进安全生产治本攻坚三年行动，强化重点行业领域安全风险隐患排查整治，全力防范化解重大安全风险，全国安全生产形势总体稳定。
 
-1975年，身为中国登山队队员的夏伯渝在登珠峰时冻伤双小腿导致截肢。
+一季度，全国生产安全事故总量明显下降，大部分地区和行业领域安全形势明显好转。
 
-2018年5月14日，他在69岁第五次挑战登顶珠峰时成功。
+全国共发生各类生产安全事故3258起、死亡和下落不明3122人，同比分别下降26.7%、22.7%，未发生特别重大事故。
 
-今年已经77岁的夏伯渝表示，自己在“7+2”中已经登过了厄尔布鲁士、阿空加瓜、乞力马扎罗以及珠峰，剩下的几个准备在最近一、两年之内完成，自己每天都在锻炼身体，为登顶作准备。
+32个省级统计单位中，26个事故总量同比“双下降”。
 
-除夏伯渝之外，在6日于北京举办的2026搜狐极限探索者大会上还汇聚了国内外百余位顶尖极限探索者，涵盖高山攀登、水域探索、荒野远征、翼装飞行、极地科考等领域，他们一同分享了真实的挑战历程以及对极限探索的理解。
+重点行业领域中，渔业船舶、煤矿、化工、建筑业、铁路运输、道路运输、航空运输等7个行业领域事故总量“双下降”。
 
-中国登山协会副主席、中国登山队队长王勇峰强调了敬畏自然与安全第一的原则。
+但部分地区和行业领域较大事故、重大涉险事故多发，矿山、化工、消防、烟花爆竹等行业领域非法违法生产行为有所抬头，防范遏制重特大事故压力进一步增大，安全生产形势不容乐观。
 
-他直言，登顶不是全部，安全回来才是完成攀登，真正的探索精神不仅包含勇往直前的勇气，也包括懂得适时慢下来、果断撤退的智慧。
+申展利通报一季度全国自然灾害情况。
 
 ## 相关推荐
 
-- 2026-06-30 00:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 00:38 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 00:52 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 00:51 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 00:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 00:34 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 00:48 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 00:45 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 00:37 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 00:38 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 00:49 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 00:40 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 00:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 00:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 00:48 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 00:47 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 00:30 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 00:50 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 00:41 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 00:59 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 00:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 00:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 00:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 00:44 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 00:35 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 00:30 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/44360767.shtml)
-- 2026-06-30 00:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/72625.shtml)
-- 2026-06-30 00:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/871889057.shtml)
-- 2026-06-30 00:39 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/62534592.shtml)
-- 2026-06-30 00:49 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/6508022.shtml)
-- 2026-06-30 00:24 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/324735.shtml)
-- 2026-06-30 00:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/240575.shtml)
-- 2026-06-30 00:25 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/2478743525.shtml)
-- 2026-06-30 00:51 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/2962617.shtml)
-- 2026-06-30 00:48 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/544131983.shtml)
-- 2026-06-30 00:31 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/266455111.shtml)
-- 2026-06-30 00:45 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/21326510478.shtml)
-- 2026-06-30 00:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/06789.shtml)
-- 2026-06-30 00:44 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/568804255467.shtml)
-- 2026-06-30 00:38 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/00517840938.shtml)
+- 2026-06-30 00:44 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/276436336562.shtml)
+- 2026-06-30 00:47 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/43834885649.shtml)
+- 2026-06-30 00:40 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/85148542.shtml)
+- 2026-06-30 00:54 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/611305219.shtml)
+- 2026-06-30 00:57 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/596482347408.shtml)
+- 2026-06-30 00:33 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/747337.shtml)
+- 2026-06-30 00:53 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/154132.shtml)
+- 2026-06-30 00:35 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/558356.shtml)
+- 2026-06-30 00:33 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/324786320038.shtml)
+- 2026-06-30 00:47 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/15630.shtml)
+- 2026-06-30 00:36 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/1612796307.shtml)
+- 2026-06-30 00:32 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/7687926.shtml)
+- 2026-06-30 00:40 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/366384869695.shtml)
+- 2026-06-30 00:57 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/2597367683.shtml)
+- 2026-06-30 01:00 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/2839214993.shtml)

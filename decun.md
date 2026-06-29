@@ -1,57 +1,61 @@
-# 住建部：“十五五”时期将继续建设改造城市地下管网约77万公里
+# 英维克遭遇“黑天鹅”
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新网6月8日电 国务院新闻办公室6月8日举行国务院政策例行吹风会，介绍《城市更新“十五五”规划》有关情况，并答记者问。住房城乡建设部建筑节能与科技司司长陈少鹏表示，目前，我国城市地下管网总长度约390万公里，累计建成地下综合管廊约7700公里。“十五五”期间，将继续建设改造城市地下管网约77万公里。陈少鹏介绍，近期，党中央、国务院部署了加强水网、新型电网、算力网、新一代通信网
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：富凯财经 富凯摘要 一季度利润暴跌，业绩与股价“脱节”。 作者|川扇假 排版|十 一 4月20日晚，市值超千亿的液冷龙头英维克一季报如同一颗“惊雷”，公司股价不出意外地在21日开盘便遭遇跌停。 从大涨到惊魂 英维克是一家专注于精密温控节能解决方案与产品供应的企业，其主营业务广泛，涵盖数据中心温控、机柜
 
 ## 正文
 
-中新网6月8日电 国务院新闻办公室6月8日举行国务院政策例行吹风会，介绍《城市更新“十五五”规划》有关情况，并答记者问。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-住房城乡建设部建筑节能与科技司司长陈少鹏表示，目前，我国城市地下管网总长度约390万公里，累计建成地下综合管廊约7700公里。
+来源：富凯财经 富凯摘要 一季度利润暴跌，业绩与股价“脱节”。
 
-“十五五”期间，将继续建设改造城市地下管网约77万公里。
+作者|川扇假 排版|十 一 4月20日晚，市值超千亿的液冷龙头英维克一季报如同一颗“惊雷”，公司股价不出意外地在21日开盘便遭遇跌停。
 
-陈少鹏介绍，近期，党中央、国务院部署了加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等规划建设，城市地下管网是“六张网”之一，包括燃气、供水、排水、污水、热力市政管线和综合管廊。
+从大涨到惊魂 英维克是一家专注于精密温控节能解决方案与产品供应的企业，其主营业务广泛，涵盖数据中心温控、机柜温控、液冷散热、轨道交通空调、储能温控等多个领域。
 
-“十四五”以来，住房城乡建设部认真贯彻落实党中央、国务院决策部署，会同有关部门通过加强制度建设、完善技术标准、增加资金投入、做好示范引领，持续推进城市地下管网建设。
+在数据中心温控这一细分赛道上，英维克已连续多年稳坐国内市场占有率头把交椅，而且，它是国内唯一实现液冷全链条自主研发与生产的企业，从冷板、CDU（冷却分配单元）到管路、工质等核心环节，无一不凸显其强大的技术实力与创新能力。
 
-特别是2024年实施“两重”建设以来，中央每年安排超长期国债等资金重点支持了地下管网建设。
+随着AI概念炙手可热，英维克股价也仿佛搭上了高速飞驰的列车，从去年开始就一路飙升。
 
-目前，我国城市地下管网总长度约390万公里，累计建成地下综合管廊约7700公里。
+今年四月，英维克股价又迎来一波上涨浪潮，4月20日更是逼近涨停。
 
-“十五五”期间，将继续建设改造城市地下管网约77万公里，其中，燃气管网约20万公里、排水管网约17.5万公里、供水管网约17.5万公里、污水管网约10万公里、供热管网约12万公里。
+然而，就在当天晚上，英维克发布的2025年年度报告及2026年一季报，却给市场泼了一盆冷水，带来意想不到的“惊魂”时刻。
 
 ## 相关推荐
 
-- 2026-06-30 00:45 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 00:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 00:33 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 00:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 00:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 00:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-30 00:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 00:30 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 00:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 00:52 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 00:24 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 00:47 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 00:54 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 00:48 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 00:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 00:58 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 00:30 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 00:40 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 00:33 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 00:51 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 00:41 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 00:36 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 00:34 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 00:46 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 00:57 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 00:50 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:43 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/9389905.shtml)
-- 2026-06-30 00:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/39910474777.shtml)
-- 2026-06-30 00:51 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/93209357933.shtml)
-- 2026-06-30 00:35 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/556745.shtml)
-- 2026-06-30 00:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/229016.shtml)
-- 2026-06-30 00:24 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/3459605.shtml)
-- 2026-06-30 00:42 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/25953567652.shtml)
-- 2026-06-30 00:24 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/9228060492.shtml)
-- 2026-06-30 00:25 - [沙丘](http://www.share.minike.top/Article/details/07598.shtml)
-- 2026-06-30 00:28 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/627731418542.shtml)
-- 2026-06-30 00:29 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/3090831.shtml)
-- 2026-06-30 00:41 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/25842645062.shtml)
-- 2026-06-30 00:34 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/4552153.shtml)
-- 2026-06-30 00:42 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/42305134.shtml)
-- 2026-06-30 00:41 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/0782159748.shtml)
+- 2026-06-30 00:30 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/48617.shtml)
+- 2026-06-30 00:35 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/24655301.shtml)
+- 2026-06-30 00:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/1613117.shtml)
+- 2026-06-30 00:40 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/1220948.shtml)
+- 2026-06-30 00:54 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/15458075705.shtml)
+- 2026-06-30 00:59 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/77457.shtml)
+- 2026-06-30 00:34 - [新官上任三把火](https://www.blog.minike.top/Article/details/9766583.shtml)
+- 2026-06-30 00:35 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/34633757616.shtml)
+- 2026-06-30 00:31 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/755354980.shtml)
+- 2026-06-30 00:43 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/19963.shtml)
+- 2026-06-30 00:59 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/4202782577.shtml)
+- 2026-06-30 00:43 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/768850567.shtml)
+- 2026-06-30 00:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/18805467693.shtml)
+- 2026-06-30 00:37 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/755154.shtml)
+- 2026-06-30 00:48 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/96104426.shtml)

@@ -1,57 +1,45 @@
-# 2026年“文化中国·水立方杯”中文歌曲大赛北京赛区决赛落幕
+# 【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！
 
-> 更新时间：2026-06-30 00:54:02 UTC+8
+> 更新时间：2026-06-30 01:00:02 UTC+8
 
 ## 摘要
 
-中新社北京6月7日电 (记者 吴侃)2026年“文化中国·水立方杯”中文歌曲大赛北京赛区决赛7日落幕。 今年的比赛吸引了来自44个国家的150名在华留学生参赛，覆盖北京、天津、浙江、广东等地的51所高校。经过选拔赛、晋级赛的角逐，共有10名选手站上决赛舞台。 决赛现场，评委们从音准节奏、歌曲表达、舞台效果等维度对选手演唱评分，最终决出金、银、铜奖，以及最佳风采奖、中文新星奖、最
+【经营数据】华绿生物：一季度净利润1.1亿元 同比增长7014.32%广东明珠（600382）：2025年净利润同比增长3243.47% 拟10派2.13元光线传媒：2025年净利润同比增长472.62% 拟10派1.5元恒誉环保：一季度净利润同比增长414.07%科兴制药：2025年净利润同比增长394.17% 拟10派2.5元南都物业：2025年净利润同比增长353.09%
 
 ## 正文
 
-中新社北京6月7日电 (记者 吴侃)2026年“文化中国·水立方杯”中文歌曲大赛北京赛区决赛7日落幕。
-
-今年的比赛吸引了来自44个国家的150名在华留学生参赛，覆盖北京、天津、浙江、广东等地的51所高校。
-
-经过选拔赛、晋级赛的角逐，共有10名选手站上决赛舞台。
-
-决赛现场，评委们从音准节奏、歌曲表达、舞台效果等维度对选手演唱评分，最终决出金、银、铜奖，以及最佳风采奖、中文新星奖、最高人气奖3个单项奖。
-
-凭借颇具辨识度的音色和不凡唱功，来自墨西哥的选手黄文星获得金奖。
-
-他10岁开始学习中文，现在是清华大学的留学生。
-
-黄文星赛后接受中新社记者采访时说：“学习之余我喜欢唱中文歌，在歌声里我感受到中文的韵律和美感，对中华文化产生了更深的兴趣。
-
-” 马来西亚华裔女孩张宗娅收获银奖。
+【经营数据】华绿生物：一季度净利润1.1亿元 同比增长7014.32%广东明珠（600382）：2025年净利润同比增长3243.47% 拟10派2.13元光线传媒：2025年净利润同比增长472.62% 拟10派1.5元恒誉环保：一季度净利润同比增长414.07%科兴制药：2025年净利润同比增长394.17% 拟10派2.5元南都物业：2025年净利润同比增长353.09% 拟每股派现0.2141元杭电股份：子公司永特信息光纤量价齐升 一季度净利润同比增长279.96%巨一科技：2025年净利润同比增长279.77% 拟10派2元中孚实业：一季度净利润同比增长256.61%众兴菌业：一季度净利润1.63亿元 同比增长237.55%奥来德：蒸发源设备业务收入大幅增长 一季度净利润同比增长214.86%蠡湖股份：一季度净利润同比增长113.69%远东
 
 ## 相关推荐
 
-- 2026-06-30 00:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 00:41 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-30 00:50 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 00:52 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 00:54 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 00:24 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 00:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 00:43 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 00:43 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 00:25 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 00:42 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 00:44 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 00:43 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 00:58 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 00:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 00:55 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-30 00:33 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 00:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 00:54 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 00:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 00:45 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 00:38 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 00:54 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 00:38 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:47 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/2614105846.shtml)
-- 2026-06-30 00:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/054954.shtml)
-- 2026-06-30 00:40 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/993486.shtml)
-- 2026-06-30 00:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/557054735594.shtml)
-- 2026-06-30 00:45 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/4593721.shtml)
-- 2026-06-30 00:31 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/0516501169.shtml)
-- 2026-06-30 00:35 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/865683755.shtml)
-- 2026-06-30 00:52 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/1785234.shtml)
-- 2026-06-30 00:33 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/119105034.shtml)
-- 2026-06-30 00:42 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/54637.shtml)
-- 2026-06-30 00:32 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/17025461530.shtml)
-- 2026-06-30 00:28 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/638195834.shtml)
-- 2026-06-30 00:51 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/11418129319.shtml)
-- 2026-06-30 00:25 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/4643084199.shtml)
-- 2026-06-30 00:36 - [起风了](https://www.blog.kurohicncr.top/Article/details/982895.shtml)
+- 2026-06-30 00:57 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/638942048014.shtml)
+- 2026-06-30 00:44 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/580509721.shtml)
+- 2026-06-30 00:37 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/9322817.shtml)
+- 2026-06-30 00:47 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/3657252.shtml)
+- 2026-06-30 00:34 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/565964296465.shtml)
+- 2026-06-30 00:36 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/588902135604.shtml)
+- 2026-06-30 00:41 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/1883807.shtml)
+- 2026-06-30 00:31 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/6227293.shtml)
+- 2026-06-30 00:33 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/792722.shtml)
+- 2026-06-30 00:41 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/75906865.shtml)
+- 2026-06-30 00:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/556820623286.shtml)
+- 2026-06-30 00:31 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/6355318491.shtml)
+- 2026-06-30 00:59 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/80258.shtml)
+- 2026-06-30 00:39 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/2614773.shtml)
+- 2026-06-30 00:56 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/76343765.shtml)
