@@ -1,57 +1,58 @@
-# 中央气象台：南方大范围强降水持续 东部海域有大雾
+# 房地产平台Zillow报告：五分之二房源提供租房优惠，今春迎来“租户市场”
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电 据中央气象台网站消息，昨日，中东部地区出现大范围降雨，湖北、湖南、贵州和山东、海南等地部分地区出现大到暴雨，局地大暴雨。预计19日至20日南方仍将持续大范围降雨，江南北部和西部、贵州东部和南部、华南中西部等地部分地区有大雨或暴雨，局地大暴雨，关注对农业生产、交通运输、城市运行等影响，并加强防范局地山洪、地质灾害。 南方大范围强降水持续 19日至20日，南方仍
+房地产平台Zillow（纳斯达克代码：Z，ZG）今日发布春季租房市场分析报告。数据显示，今春全美约有39.8%的租赁房源提供优惠举措，创下该时节的最高纪录，标志着租户市场已经到来。 这份基于Zillow租房数据的最新报告指出，优惠政策的普及率较去年春季上升了5个百分点，较疫情前的水平更是增长了一倍多。Zillow高级经济学家Kara Ng表示：“今春租户无需将就。市场上的房源供
 
 ## 正文
 
-中新网5月19日电 据中央气象台网站消息，昨日，中东部地区出现大范围降雨，湖北、湖南、贵州和山东、海南等地部分地区出现大到暴雨，局地大暴雨。
+房地产平台Zillow（纳斯达克代码：Z，ZG）今日发布春季租房市场分析报告。
 
-预计19日至20日南方仍将持续大范围降雨，江南北部和西部、贵州东部和南部、华南中西部等地部分地区有大雨或暴雨，局地大暴雨，关注对农业生产、交通运输、城市运行等影响，并加强防范局地山洪、地质灾害。
+数据显示，今春全美约有39.8%的租赁房源提供优惠举措，创下该时节的最高纪录，标志着租户市场已经到来。
 
-南方大范围强降水持续 19日至20日，南方仍将持续大范围降雨，西南地区东南部、江汉东部、江淮南部、江南、华南及山东半岛南部等地部分地区有大雨或暴雨，局地大暴雨，并伴有雷暴大风、短时强降水等强对流天气。
+这份基于Zillow租房数据的最新报告指出，优惠政策的普及率较去年春季上升了5个百分点，较疫情前的水平更是增长了一倍多。
 
-预计，5月19日8时至20日8时，江南北部和西部、贵州东部和南部、华南中西部等地部分地区有大到暴雨，其中，湖南西南部、贵州南部、广西北部、广东中部等地部分地区有大暴雨(100～180毫米)。
+Zillow高级经济学家Kara Ng表示：“今春租户无需将就。
 
-上述部分地区伴有短时强降水(最大小时降雨量30～50毫米，局地可超过70毫米)，局地有雷暴大风等强对流天气。
+市场上的房源供应是几十年来最多的，租户不仅有真正的选择空间，还有充足的谈判余地来争取价格、额外优惠和租期条件”。
 
-中央气象台5月19日6时发布暴雨黄色预警。
+这些优惠措施正变得愈发普遍，主要得益于美国各地，特别是阳光地带的公寓建设热潮。
 
-此外，21-23日，西北地区东部、华北、黄淮及东北地区有小到中雨，局地大雨；江汉南部、江淮、江南北部等地持续有中到大雨，局地暴雨或大暴雨，并伴有雷暴大风、短时强降水等强对流天气。
+大规模的竣工推动了全美租赁空置率从2021年的5.6%上升至7.3%。
 
-东部海域有大雾 预计，5月19日8时至20日8时，渤海、黄海中西部部分海域、山东半岛南部沿岸海域、长江口、杭州湾有能见度不足1公里的大雾。
+优惠政策最普遍的市场主要集中在公寓建设蓬勃发展的地区，包括丹佛（68.3%）、夏洛特（66.6%）、达拉斯（64.2%）、奥斯汀（63.8%）和纳什维尔（62.6%）。
 
 ## 相关推荐
 
-- 2026-06-29 16:47 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 16:45 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 16:31 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 16:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 16:45 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 16:35 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 16:44 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 16:45 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 16:41 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 16:35 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 16:29 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 16:32 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 16:52 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 16:44 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 16:51 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 16:42 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 16:42 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 16:48 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 16:47 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 16:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 16:50 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 16:49 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 16:34 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/83399.shtml)
-- 2026-06-29 16:30 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/77732324274.shtml)
-- 2026-06-29 16:24 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/77882286.shtml)
-- 2026-06-29 16:33 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/581178.shtml)
-- 2026-06-29 16:32 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/1994100701.shtml)
-- 2026-06-29 16:49 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/95770842.shtml)
-- 2026-06-29 16:41 - [张雪机车杀向海外](http://www.blog.kurohicncr.top/Article/details/70491.shtml)
-- 2026-06-29 16:53 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/137050.shtml)
-- 2026-06-29 16:50 - [王楚钦开门红](https://www.blog.minike.top/Article/details/8787429188.shtml)
-- 2026-06-29 16:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/9992785285.shtml)
-- 2026-06-29 16:26 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/8069241218.shtml)
-- 2026-06-29 16:26 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/442711.shtml)
-- 2026-06-29 16:41 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/852700869.shtml)
-- 2026-06-29 16:42 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/498666333.shtml)
-- 2026-06-29 16:29 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/935263091.shtml)
+- 2026-06-29 16:31 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/8883405.shtml)
+- 2026-06-29 16:30 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/50762446.shtml)
+- 2026-06-29 16:57 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/9038789679.shtml)
+- 2026-06-29 16:33 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/344728363.shtml)
+- 2026-06-29 16:42 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/658919089817.shtml)
+- 2026-06-29 16:45 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/527152.shtml)
+- 2026-06-29 16:33 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.minike.top/Article/details/38782714.shtml)
+- 2026-06-29 16:48 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/613178336.shtml)
+- 2026-06-29 16:32 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/01289974195.shtml)
+- 2026-06-29 16:50 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/452691.shtml)
+- 2026-06-29 16:45 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/182931674668.shtml)
+- 2026-06-29 16:48 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/711431298497.shtml)
+- 2026-06-29 16:58 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/59908682340.shtml)
+- 2026-06-29 16:35 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/9476959.shtml)
+- 2026-06-29 16:49 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/84009.shtml)

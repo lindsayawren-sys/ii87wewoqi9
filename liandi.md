@@ -1,50 +1,60 @@
-# 汇丰预计高油价将不利于多数亚洲货币汇率
+# “泡沫预言家”：历史大顶之后，都是最糟糕的时期，美股或面临十年低迷，标普500指数真正崩盘时会腰斩
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-汇丰上调了美元兑多数亚洲货币的年末汇率预测，因预计油价将在第二季度及第三季度大部分时间维持高位。 外汇策略师Paul Mackel和Joey Chew等人在报告中表示，在伊朗问题达成协议前可能出现长期僵局，与此同时，经济增长面临的下行风险不断上升，将给顺周期的亚洲货币带来进一步压力。 报告指出，马来西亚林吉特、新加坡元和新台币将更具韧性，因为它们具备不同组合的支撑因素：包括较好
+来源：华尔街见闻 5月25日，知名投资研究与培训机构 Behind the Balance Sheet 发布了最新一期播客节目，传奇投资者 Jeremy Grantham 接受了机构创始人Stephen Clapham的深度专访。 在长达一个多小时的对话中，这位经历过1973年股灾、精准预测过2000年互联网泡沫和2008年次贷危机的“泡沫预言家”，对当前全球资本市场的估值逻辑
 
 ## 正文
 
-汇丰上调了美元兑多数亚洲货币的年末汇率预测，因预计油价将在第二季度及第三季度大部分时间维持高位。
+来源：华尔街见闻 5月25日，知名投资研究与培训机构 Behind the Balance Sheet 发布了最新一期播客节目，传奇投资者 Jeremy Grantham 接受了机构创始人Stephen Clapham的深度专访。
 
-外汇策略师Paul Mackel和Joey Chew等人在报告中表示，在伊朗问题达成协议前可能出现长期僵局，与此同时，经济增长面临的下行风险不断上升，将给顺周期的亚洲货币带来进一步压力。
+在长达一个多小时的对话中，这位经历过1973年股灾、精准预测过2000年互联网泡沫和2008年次贷危机的“泡沫预言家”，对当前全球资本市场的估值逻辑、AI带来的资本支出狂潮、以及未来资产配置的方向进行了深度剖析。
 
-报告指出，马来西亚林吉特、新加坡元和新台币将更具韧性，因为它们具备不同组合的支撑因素：包括较好的能源安全状况（林吉特）、替代增长来源（新台币）、财政空间（新加坡元）以及当局捍卫本币的意愿和能力。
+在Grantham看来，2022年的美股原本已经步入了典型的泡沫破裂轨道。
 
-责任编辑：江学思
+Grantham指出： 在2022年，形成重大泡沫的所有条件都已满足，随后泡沫破裂，标普500指数下跌了25%，‘七巨头’下跌了40%……债券市场经历了历史上最糟糕的一年。
+
+但随后，ChatGPT问世了。
+
+这是第一个被如此强大的事物所打断的泡沫。
+
+他坦言，AI的出现不仅改变了游戏规则，也彻底扭转了市场的下行趋势。
+
+Grantham表示： 我们原本正走向一场衰退，经济正在走弱，但巨量的AI投资打断了这一进程。
 
 ## 相关推荐
 
-- 2026-06-29 16:42 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 16:42 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 16:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 16:49 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 16:24 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 16:30 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 16:46 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 16:32 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 16:47 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 16:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 16:39 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 16:39 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 16:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 16:48 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 16:45 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 16:30 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 16:37 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 16:37 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 16:39 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 16:54 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 16:59 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 16:40 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 16:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 16:44 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 16:50 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 16:40 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:25 - [金牌调解](https://www.share.minike.top/Article/details/613791149531.shtml)
-- 2026-06-29 16:24 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/8879294.shtml)
-- 2026-06-29 16:46 - [叠纸](http://www.blog.kurohicncr.top/Article/details/088918.shtml)
-- 2026-06-29 16:40 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/98365791299.shtml)
-- 2026-06-29 16:33 - [德国VS巴拉圭前瞻](http://www.share.minike.top/Article/details/1853451.shtml)
-- 2026-06-29 16:39 - [毒液2](http://www.blog.minike.top/Article/details/1538740.shtml)
-- 2026-06-29 16:29 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/2129436628.shtml)
-- 2026-06-29 16:43 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/8925342423.shtml)
-- 2026-06-29 16:30 - [苹果ultra2阔折叠已开模测试](http://www.blog.minike.top/Article/details/83536972440.shtml)
-- 2026-06-29 16:39 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/752901.shtml)
-- 2026-06-29 16:28 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/33733338.shtml)
-- 2026-06-29 16:51 - [勇敢的心第二部](https://www.share.minike.top/Article/details/0042535737.shtml)
-- 2026-06-29 16:26 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/807547.shtml)
-- 2026-06-29 16:35 - [TFING全员黑西装](http://www.share.minike.top/Article/details/5791174.shtml)
-- 2026-06-29 16:44 - [恋与深空 731](https://www.blog.minike.top/Article/details/2719450146.shtml)
+- 2026-06-29 16:48 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/790838096641.shtml)
+- 2026-06-29 16:36 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/0387783.shtml)
+- 2026-06-29 16:40 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/120478421.shtml)
+- 2026-06-29 16:50 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/2775803.shtml)
+- 2026-06-29 16:51 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/752984875.shtml)
+- 2026-06-29 16:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/0705134414.shtml)
+- 2026-06-29 16:51 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/159557396.shtml)
+- 2026-06-29 16:34 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/741216744.shtml)
+- 2026-06-29 16:42 - [女心理师](https://www.share.minike.top/Article/details/3049205172.shtml)
+- 2026-06-29 16:52 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/76042062938.shtml)
+- 2026-06-29 16:35 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/77804499721.shtml)
+- 2026-06-29 16:52 - [疑似吴建豪老婆正脸照](http://www.share.minike.top/Article/details/13768981.shtml)
+- 2026-06-29 16:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/53714059995.shtml)
+- 2026-06-29 16:36 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/1522040134.shtml)
+- 2026-06-29 16:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/959213847.shtml)

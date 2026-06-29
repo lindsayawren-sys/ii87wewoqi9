@@ -1,58 +1,61 @@
-# 马来西亚中国东北总商会首访吉林探寻多领域合作商机
+# 拼多多推动生态治理常态化：上半年出台40余项举措 主动筑牢合规防线
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新网长春5月18日电 (李彦国 高龙安)马来西亚中国东北总商会考察团18日首次到访吉林，在省会城市长春参观企业，并围绕农业、畜牧业等产业开展交流。 马来西亚中国东北总商会于2025年成立，此番考察应吉林省侨办邀请，开展为期两天的参访活动。 马来西亚中国东北总商会总会长洪来喜表示，自己多次到访东北，与吉林省结缘近20年，对吉林省的汽车、农业、旅游等产业颇为了解，彼此间一直保持良
+AI技术应用越广泛，越要守住合规底线。近日，拼多多发布公告称，禁止平台商家发布及售卖AI押题、AI数据投毒、AI托管网络账号、AI起号、转售AI虚拟账号等相关服务、课程及工具。 以AI押题为例，治理范围不仅涵盖以AI押题工具为核心卖点的商品，更延伸至其他各类隐蔽化、变相化服务。比如，一些商家借语文、数学、英语等不同科目，售卖所谓的“押题卷”。此类商品一经发现，将从严处置。 这是
 
 ## 正文
 
-中新网长春5月18日电 (李彦国 高龙安)马来西亚中国东北总商会考察团18日首次到访吉林，在省会城市长春参观企业，并围绕农业、畜牧业等产业开展交流。
+AI技术应用越广泛，越要守住合规底线。
 
-马来西亚中国东北总商会于2025年成立，此番考察应吉林省侨办邀请，开展为期两天的参访活动。
+近日，拼多多发布公告称，禁止平台商家发布及售卖AI押题、AI数据投毒、AI托管网络账号、AI起号、转售AI虚拟账号等相关服务、课程及工具。
 
-马来西亚中国东北总商会总会长洪来喜表示，自己多次到访东北，与吉林省结缘近20年，对吉林省的汽车、农业、旅游等产业颇为了解，彼此间一直保持良好的关系。
+以AI押题为例，治理范围不仅涵盖以AI押题工具为核心卖点的商品，更延伸至其他各类隐蔽化、变相化服务。
 
-当天，考察团一行走进吉林省长春皓月清真肉业股份有限公司，实地参观示范养殖基地、饲料加工厂、生产加工中心、产品展示展销中心等，了解企业发展运营情况。
+比如，一些商家借语文、数学、英语等不同科目，售卖所谓的“押题卷”。
 
-据悉，“十五五”时期，吉林省将优质肉牛与长白山人参、吉林大米、鲜食玉米等作为优势特色产业培育壮大。
+此类商品一经发现，将从严处置。
 
-今年，吉林省还提出实施“千万头肉牛”全产业链提升工程和肉牛增量提质行动。
+这是拼多多本月第二次加码AI内容治理。
 
-洪来喜表示，通过此次考察，看到了吉林省肉牛产业的最新发展，双方在肉牛产品出口贸易等方面的合作潜力巨大。
+5月中旬发布的《关于去除AI生成标识专项治理公告》指出，从即日起对教授去除AI标识的教程信息、提供违规“去标识”工具服务等违规行为进行专项治理。
 
-马来西亚宗乡青联合总会副总会长洪嘉炜是一位“95后”，首次来吉林的他却不感陌生。
+平台强调，该项治理旨在全面落实《人工智能生成合成内容标识办法》及配套强制性标准要求，切实规范AI服务和应用，促进行业健康有序发展。
 
 ## 相关推荐
 
-- 2026-06-29 16:37 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 16:48 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 16:33 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 16:27 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 16:46 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 16:53 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 16:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 16:48 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 16:29 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 16:44 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 16:31 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 16:33 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 16:36 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 16:47 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 16:59 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 16:51 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 16:52 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 16:48 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 16:39 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 16:40 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 16:33 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 16:36 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 16:58 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 16:40 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 16:46 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 16:59 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 16:56 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:42 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/10240197.shtml)
-- 2026-06-29 16:26 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/19265980.shtml)
-- 2026-06-29 16:32 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/091598.shtml)
-- 2026-06-29 16:27 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/36267.shtml)
-- 2026-06-29 16:35 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/91416277219.shtml)
-- 2026-06-29 16:27 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.minike.top/Article/details/60743777397.shtml)
-- 2026-06-29 16:43 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.minike.top/Article/details/55803137172.shtml)
-- 2026-06-29 16:30 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/152960.shtml)
-- 2026-06-29 16:33 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/488719355.shtml)
-- 2026-06-29 16:29 - [王俊凯命名方式](https://www.share.minike.top/Article/details/449104091963.shtml)
-- 2026-06-29 16:37 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/249439187113.shtml)
-- 2026-06-29 16:47 - [央视起底直播诈骗连环套](http://www.blog.kurohicncr.top/Article/details/84628917729.shtml)
-- 2026-06-29 16:47 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/100729.shtml)
-- 2026-06-29 16:37 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/34539275.shtml)
-- 2026-06-29 16:41 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/22442603.shtml)
+- 2026-06-29 16:33 - [滾石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/56447529500.shtml)
+- 2026-06-29 16:39 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/251176820958.shtml)
+- 2026-06-29 16:59 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/90404.shtml)
+- 2026-06-29 16:44 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/99060829.shtml)
+- 2026-06-29 16:59 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/10307057495.shtml)
+- 2026-06-29 16:54 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/6873876.shtml)
+- 2026-06-29 16:39 - [起风了](http://www.share.kurohicncr.top/Article/details/611315673856.shtml)
+- 2026-06-29 16:30 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/741119.shtml)
+- 2026-06-29 16:52 - [极限挑战第一季](http://www.blog.minike.top/Article/details/109233.shtml)
+- 2026-06-29 16:32 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/508916958.shtml)
+- 2026-06-29 16:59 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/32648.shtml)
+- 2026-06-29 16:54 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/2133126150.shtml)
+- 2026-06-29 16:34 - [送你一朵小红花](https://www.blog.minike.top/Article/details/56311.shtml)
+- 2026-06-29 16:53 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/62384957.shtml)
+- 2026-06-29 16:41 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/8364958619.shtml)

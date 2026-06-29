@@ -1,58 +1,58 @@
-# 长江有色：多头资金增仓上行镍价红盘修复 19日镍价或小涨
+# 百万购车人群悄然流失，且短期内难以回流
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-镍期货市场：宏观鹰派突袭与产业链结构性分化，隔夜伦镍收跌0.13%；伦镍最新收盘报18555，比前一交易日下跌25美元/吨，跌幅为0.13%，成交量6173手，国内市场，夜盘沪镍最新收报142660元/吨，上涨600元，涨幅为0.42%。 伦敦金属交易所（LME）5月18日伦镍库存报275562吨，较前一日减少216吨。 长江镍业网讯：今日沪镍期货全线高开为主；主力月2606合
+高油价、利率攀升与顽固通胀抑制购车需求，新车持续积压 内容速览 进入 2026 年以来，受车价高企与各类经济因素影响，美国新车市场流失了约一百万潜在消费者。 美国汽车行业正面临严峻现实：自今年年初起，已有约一百万潜在买家退出新车市场，且业内预计这部分人群短期内不会回归。 此前，车企高管、行业分析师及经济学家普遍认为，美国新车销量将稳步回升至疫情前水平。新冠疫情曾导致工厂停工、全
 
 ## 正文
 
-镍期货市场：宏观鹰派突袭与产业链结构性分化，隔夜伦镍收跌0.13%；伦镍最新收盘报18555，比前一交易日下跌25美元/吨，跌幅为0.13%，成交量6173手，国内市场，夜盘沪镍最新收报142660元/吨，上涨600元，涨幅为0.42%。
+高油价、利率攀升与顽固通胀抑制购车需求，新车持续积压 内容速览 进入 2026 年以来，受车价高企与各类经济因素影响，美国新车市场流失了约一百万潜在消费者。
 
-伦敦金属交易所（LME）5月18日伦镍库存报275562吨，较前一日减少216吨。
+美国汽车行业正面临严峻现实：自今年年初起，已有约一百万潜在买家退出新车市场，且业内预计这部分人群短期内不会回归。
 
-长江镍业网讯：今日沪镍期货全线高开为主；主力月2606合约开盘报142590元/吨较此前收盘上涨530元/吨，9：10分沪镍主力2606合约报143360元/吨，上涨1300元，沪期镍开盘高开高走，盘面维持高位运行；宏观面，受美联储降息预期持续降温、前期获利盘集中兑现以及海外高库存压制，隔夜伦镍大幅走弱。
+此前，车企高管、行业分析师及经济学家普遍认为，美国新车销量将稳步回升至疫情前水平。
 
-与此同时，中东地缘风险缓和带动市场情绪修复，美元指数隔夜下跌为大宗商品提供支撑，推动沪镍开盘小幅上涨；但国内不锈钢行业进入传统消费淡季，下游需求疲软，最终限制了镍价的上行空间。
+新冠疫情曾导致工厂停工、全球供应链陷入混乱。
 
-镍产业链供需格局分化加剧 原材料端呈现明显分化格局，印尼大幅缩减镍矿开采配额，审批进度偏慢导致供应持续收紧；而菲律宾雨季结束后出矿量显著恢复，部分缓解了全球供应压力。
+如今形势已然生变。
 
-红土镍矿与硫化镍矿供应均存在结构性矛盾，高品位矿石资源日益稀缺。
+通用汽车、福特汽车、丰田等多家车企表示，在通胀居高不下、燃油价格上涨、贷款利率走高的多重压力下，消费者对均价已升至约 5 万美元的新车望而却步，因此今年新车销量或将下滑或陷入停滞。
 
-镍中间品市场供需双弱，氢氧化镍钴（MHP）受中东硫磺供应短缺影响，印尼多家湿法冶炼厂被迫减产；高冰镍相对经济性增强，但受下游产线匹配度限制，实际成交有限。
+2020 年之前，美国每年新车及皮卡销量约 1700 万辆。
 
-再生镍方面，回收成本持续抬升，电镀污泥、废旧电池等原料供应增量不及预期。
+行业分析师预判，市场销量要重回这一水平，至少要等到 2020 年代末甚至更晚。
 
 ## 相关推荐
 
-- 2026-06-29 16:51 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 16:53 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 16:41 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 16:45 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 16:49 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 16:25 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 16:32 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 16:52 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 16:30 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 16:51 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 16:31 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 16:48 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 16:36 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 16:45 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 16:30 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 16:50 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 16:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 16:47 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 16:51 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 16:44 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 16:51 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 16:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 16:44 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 16:55 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:34 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/99195966.shtml)
-- 2026-06-29 16:51 - [12所大学更正招生目录](https://www.blog.minike.top/Article/details/133906.shtml)
-- 2026-06-29 16:44 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/022626463833.shtml)
-- 2026-06-29 16:33 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/6042876.shtml)
-- 2026-06-29 16:38 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/21333.shtml)
-- 2026-06-29 16:28 - [光与夜之恋](https://www.share.minike.top/Article/details/8476227.shtml)
-- 2026-06-29 16:24 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/41356731672.shtml)
-- 2026-06-29 16:24 - [叠纸](http://www.blog.minike.top/Article/details/3846414.shtml)
-- 2026-06-29 16:34 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/87473090245.shtml)
-- 2026-06-29 16:32 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/44896426783.shtml)
-- 2026-06-29 16:35 - [啊啊啊](https://www.share.minike.top/Article/details/17181827.shtml)
-- 2026-06-29 16:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/551777867767.shtml)
-- 2026-06-29 16:26 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/1226768483.shtml)
-- 2026-06-29 16:35 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/80501980.shtml)
-- 2026-06-29 16:41 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/806240.shtml)
+- 2026-06-29 16:32 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/03182650.shtml)
+- 2026-06-29 16:56 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/276982869.shtml)
+- 2026-06-29 16:35 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/51196742146.shtml)
+- 2026-06-29 16:31 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/85362.shtml)
+- 2026-06-29 16:52 - [小鹏MONAL03预售定档7月2日](http://www.blog.kurohicncr.top/Article/details/7769452.shtml)
+- 2026-06-29 16:31 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/033834.shtml)
+- 2026-06-29 16:45 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/5080817150.shtml)
+- 2026-06-29 16:32 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/930785827632.shtml)
+- 2026-06-29 16:41 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/82257677.shtml)
+- 2026-06-29 16:47 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/51584.shtml)
+- 2026-06-29 16:32 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/60796.shtml)
+- 2026-06-29 16:42 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/905720.shtml)
+- 2026-06-29 16:39 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/1678957.shtml)
+- 2026-06-29 16:47 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/1935989.shtml)
+- 2026-06-29 16:43 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/9980555763.shtml)

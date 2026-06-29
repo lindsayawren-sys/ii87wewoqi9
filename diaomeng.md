@@ -1,55 +1,59 @@
-# 中国联通午后涨超3% 推出多元化算力服务、多档Token产品及融合套餐
+# 欧盟执委会主席冯德莱恩与泽连斯基讨论了乌克兰加入欧盟的进程
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中国联通（00762）午后涨超3%，截至发稿，股价上涨3.53%，现报7.92港元，成交额3.11亿港元。 5月17日，据联通上海产业互联网公司官微消息，2026中国联通·上海人工智能创新生态大会5月16日召开。在算力与安全生态建设方面，上海联通联合上海市算力网络协会、上海人工智能实验室及多家产业链企业，共同发布全栈国产化“国芯国模国云”安全基座。依托临港智算中心，已完成近百款
+欧盟执委会主席冯德莱恩周三表示，她已与乌克兰总统泽连斯基就乌克兰加入欧盟的进程进行了讨论。 她在社交媒体平台上发文称：“未来几周将是推进入盟进程并迈出决定性步伐的重要时期。” 德国总理默茨本月早些时候提议，可允许乌克兰以“准成员国”身份加入欧盟，使其能够参与欧盟会议和机构（但无投票权），作为迈向全面成员国资格的过渡安排。不过泽连斯基称这一提议不公平。 泽连斯基表示，乌克兰已推进
 
 ## 正文
 
-中国联通（00762）午后涨超3%，截至发稿，股价上涨3.53%，现报7.92港元，成交额3.11亿港元。
+欧盟执委会主席冯德莱恩周三表示，她已与乌克兰总统泽连斯基就乌克兰加入欧盟的进程进行了讨论。
 
-5月17日，据联通上海产业互联网公司官微消息，2026中国联通·上海人工智能创新生态大会5月16日召开。
+她在社交媒体平台上发文称：“未来几周将是推进入盟进程并迈出决定性步伐的重要时期。
 
-在算力与安全生态建设方面，上海联通联合上海市算力网络协会、上海人工智能实验室及多家产业链企业，共同发布全栈国产化“国芯国模国云”安全基座。
+” 德国总理默茨本月早些时候提议，可允许乌克兰以“准成员国”身份加入欧盟，使其能够参与欧盟会议和机构（但无投票权），作为迈向全面成员国资格的过渡安排。
 
-依托临港智算中心，已完成近百款行业大模型的国产化适配，旨在构建自主可控、安全可靠的人工智能基础设施体系，为上海人工智能产业高质量发展提供安全支撑。
+不过泽连斯基称这一提议不公平。
 
-值得一提的是，大会期间，上海联通同步发布政企全栈AI产品体系，推出多元化算力服务、多档Token产品及融合套餐，启动算力普惠行动，并升级模型服务、数据平台与智能体超市，覆盖数据治理、模型调用、应用开发全流程，助力企业轻量化、低成本实现数智化转型。
+泽连斯基表示，乌克兰已推进加入欧盟所需的改革，随着匈牙利总理欧尔班（乌克兰加入欧盟的坚定反对者）在选举中落败，谈判有望取得实质性进展。
 
-责任编辑：卢昱君
+冯德莱恩补充说，在俄乌冲突中，欧洲将继续支持乌克兰。
+
+“防空、无人机及反无人机能力是欧洲最紧迫的防务优先事项。
+
+乌克兰将全面融入这些工作中，”她表示。
 
 ## 相关推荐
 
-- 2026-06-29 16:26 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 16:47 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 16:38 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-29 16:51 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 16:50 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 16:36 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 16:46 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 16:31 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 16:28 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 16:32 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 16:45 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 16:34 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 16:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 16:55 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 16:33 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 16:51 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 16:57 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 16:42 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 16:56 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 16:41 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 16:58 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 16:46 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 16:46 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 16:31 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 16:44 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 16:35 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:45 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/810830570.shtml)
-- 2026-06-29 16:41 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/6870014.shtml)
-- 2026-06-29 16:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/6726385557.shtml)
-- 2026-06-29 16:42 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/82828423124.shtml)
-- 2026-06-29 16:49 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/85820708.shtml)
-- 2026-06-29 16:52 - [驻日美军航母沦为“毒窝”](https://www.share.minike.top/Article/details/72029.shtml)
-- 2026-06-29 16:50 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/775220.shtml)
-- 2026-06-29 16:51 - [徐昕暂不参加NBA夏季联赛](http://www.share.kurohicncr.top/Article/details/7524380736.shtml)
-- 2026-06-29 16:41 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/26255.shtml)
-- 2026-06-29 16:52 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/495883200.shtml)
-- 2026-06-29 16:36 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/776934.shtml)
-- 2026-06-29 16:44 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/95086.shtml)
-- 2026-06-29 16:41 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/24290581739.shtml)
-- 2026-06-29 16:24 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/10964.shtml)
-- 2026-06-29 16:30 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/861105699966.shtml)
+- 2026-06-29 16:54 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/5580305.shtml)
+- 2026-06-29 16:59 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/71166985546.shtml)
+- 2026-06-29 16:43 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/29594562938.shtml)
+- 2026-06-29 16:47 - [倪春青跨市履新苏州市委组织部部长](http://www.share.kurohicncr.top/Article/details/8752977.shtml)
+- 2026-06-29 16:58 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/196739913627.shtml)
+- 2026-06-29 16:47 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.kurohicncr.top/Article/details/4544518669.shtml)
+- 2026-06-29 16:57 - [医院大厅放钢琴是形式主义吗](https://www.share.minike.top/Article/details/50504951.shtml)
+- 2026-06-29 16:31 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/744758553.shtml)
+- 2026-06-29 16:54 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/967703.shtml)
+- 2026-06-29 16:42 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/36450.shtml)
+- 2026-06-29 16:45 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/15955.shtml)
+- 2026-06-29 16:37 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/13175778950.shtml)
+- 2026-06-29 16:30 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/335051105.shtml)
+- 2026-06-29 16:43 - [周生如故](http://www.blog.kurohicncr.top/Article/details/610712992.shtml)
+- 2026-06-29 16:56 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/92537299174.shtml)

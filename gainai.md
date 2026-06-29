@@ -1,57 +1,60 @@
-# 河北磁县“小兵马俑”出圈 小众博物馆的“引客”之道
+# 西藏芒康县举办现代生产生活技能县级复赛
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 11:42 来源：中国新闻网 坐落于河北省最南端的磁县，北朝考古博物馆是国家二级博物馆，以展示北朝墓群出土文物为主。相较于大中城市的知名博物馆，这座县级小众博物馆虽不显眼，却成功“出圈”，吸引很多游客慕名而来。据统计，该馆接待游客中，外地游客占比超60%。 与此同时，近年来，随着《太平年》等历史类剧集热播，大众对文博的热情更加高涨，其关注点开始
+中新网拉萨5月27日电 (李林)26日，西藏昌都市芒康县举办第二届“红色昌都·振兴奋进”比赛活动现代生产生活技能县级复赛。比赛设主赛场和5个分赛场，涵盖清洁能源施工、电焊等11项现代技艺工种。 比赛开始后，各参赛队伍通过现场抽签确定顺序，分赴各场地展开技能比拼。技能比赛同时，举办“技能人才专场招聘会”，邀请县内外多家企业到场设展，各企业负责人直接进入比赛区域观摩选手实操表现，与
 
 ## 正文
 
-发布时间：2026年05月18日 11:42 来源：中国新闻网 坐落于河北省最南端的磁县，北朝考古博物馆是国家二级博物馆，以展示北朝墓群出土文物为主。
+中新网拉萨5月27日电 (李林)26日，西藏昌都市芒康县举办第二届“红色昌都·振兴奋进”比赛活动现代生产生活技能县级复赛。
 
-相较于大中城市的知名博物馆，这座县级小众博物馆虽不显眼，却成功“出圈”，吸引很多游客慕名而来。
+比赛设主赛场和5个分赛场，涵盖清洁能源施工、电焊等11项现代技艺工种。
 
-据统计，该馆接待游客中，外地游客占比超60%。
+比赛开始后，各参赛队伍通过现场抽签确定顺序，分赴各场地展开技能比拼。
 
-与此同时，近年来，随着《太平年》等历史类剧集热播，大众对文博的热情更加高涨，其关注点开始向更多相对“冷门”的朝代延伸。
+技能比赛同时，举办“技能人才专场招聘会”，邀请县内外多家企业到场设展，各企业负责人直接进入比赛区域观摩选手实操表现，与优秀选手现场对接、双向选择。
 
-此外，短视频、VR、沉浸式表演等新媒介、新技术的迅速发展，也为小众博物馆带来了更多“能见度”。
+据统计，共16家企业提供岗位91个，涉及电焊、装载机操作、酒店服务等多个工种。
 
-善用社交媒体，也是该馆的“引客”之道。
+电工技能比赛参赛选手洛松群培激动地说：“没想到比赛还没结束，就有企业找我商量工作，这个比赛真是太好了！
 
-赵安源 王夏菲 河北邯郸报道 责任编辑：【罗攀】
+” 经过激烈角逐，各工种分别评选出一、二、三等奖及优秀奖，颁奖嘉宾为获奖选手颁发荣誉证书。
+
+本次县级复赛不仅展示了芒康县民众的现代技艺功底，更通过“比赛+招聘”模式，打通了技能人才从“赛场”到“职场”的快速通道，为全县稳就业、促增收注入了新动力。
 
 ## 相关推荐
 
-- 2026-06-29 16:34 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 16:31 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 16:51 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 16:26 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 16:24 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 16:43 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 16:34 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 16:51 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 16:30 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 16:42 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 16:53 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 16:47 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 16:34 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 16:53 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 16:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 16:48 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 16:58 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 16:32 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 16:46 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 16:47 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 16:34 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 16:50 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 16:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 16:34 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 16:43 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 16:51 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 16:48 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:46 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/222951628824.shtml)
-- 2026-06-29 16:41 - [世界杯看到肖战了](https://www.share.kurohicncr.top/Article/details/3220857593.shtml)
-- 2026-06-29 16:47 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/138259.shtml)
-- 2026-06-29 16:34 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/8972406631.shtml)
-- 2026-06-29 16:45 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/602858.shtml)
-- 2026-06-29 16:35 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/553877718.shtml)
-- 2026-06-29 16:39 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/60795058.shtml)
-- 2026-06-29 16:29 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/132240659.shtml)
-- 2026-06-29 16:36 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/902141947.shtml)
-- 2026-06-29 16:41 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/0574339742.shtml)
-- 2026-06-29 16:33 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.minike.top/Article/details/976970378.shtml)
-- 2026-06-29 16:50 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/132739135.shtml)
-- 2026-06-29 16:40 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/6459541166.shtml)
-- 2026-06-29 16:38 - [天道](http://www.blog.minike.top/Article/details/12295314.shtml)
-- 2026-06-29 16:47 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/187541567.shtml)
+- 2026-06-29 16:57 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/2605411.shtml)
+- 2026-06-29 16:32 - [博主：美航母沦为毒品集散窝点](http://www.share.minike.top/Article/details/90668190838.shtml)
+- 2026-06-29 16:38 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.kurohicncr.top/Article/details/000157386720.shtml)
+- 2026-06-29 16:39 - [拍到真的赛博朋克边缘行者了！](http://www.blog.kurohicncr.top/Article/details/39256092060.shtml)
+- 2026-06-29 16:45 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/284583182.shtml)
+- 2026-06-29 16:48 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/873361569.shtml)
+- 2026-06-29 16:38 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/1257075808.shtml)
+- 2026-06-29 16:34 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/5802941525.shtml)
+- 2026-06-29 16:43 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/65917.shtml)
+- 2026-06-29 16:31 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/78167568.shtml)
+- 2026-06-29 16:48 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/191125956.shtml)
+- 2026-06-29 16:54 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/662246349.shtml)
+- 2026-06-29 16:38 - [小娘惹](https://www.share.kurohicncr.top/Article/details/610250.shtml)
+- 2026-06-29 16:37 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/443356322720.shtml)
+- 2026-06-29 16:30 - [AG 宫斗](https://www.share.minike.top/Article/details/38196.shtml)

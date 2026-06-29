@@ -1,58 +1,60 @@
-# *ST正平年报被问询，投资者索赔已有一审胜诉判决
+# ADP报告：5月初美国私营部门就业增长放缓，周均新增3.58万岗位
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 日前，*ST正平（维权）公布，公司按照《上海证券交易所股票上市规则》的相关规定自查，公司触及的退市风险警示的情形已消除。公司已按照相关规定向上海证券交易所申请撤销退市风险警示。鉴于公司存在触及其他风险警示的情形，如本次撤销退市风险警示的申请获得上海证券交易所批准，公司股票将继续实施其他风险警示 此外*ST正平还因信息披露违法违规
+自动数据处理公司（纳斯达克代码：ADP）今日发布2026年5月就业报告初步预估。数据显示，截至5月9日的四周内，美国私营部门雇主平均每周新增35，750个就业岗位，较此前一周的40，750个有所放缓。 这一数据来自ADP Research与斯坦福数字经济实验室合作推出的周度就业追踪指标“NER Pulse”，旨在为市场提供比月度报告更为高频的就业市场动态。数据显示，此前四周的周
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 日前，*ST正平（维权）公布，公司按照《上海证券交易所股票上市规则》的相关规定自查，公司触及的退市风险警示的情形已消除。
+自动数据处理公司（纳斯达克代码：ADP）今日发布2026年5月就业报告初步预估。
 
-公司已按照相关规定向上海证券交易所申请撤销退市风险警示。
+数据显示，截至5月9日的四周内，美国私营部门雇主平均每周新增35，750个就业岗位，较此前一周的40，750个有所放缓。
 
-鉴于公司存在触及其他风险警示的情形，如本次撤销退市风险警示的申请获得上海证券交易所批准，公司股票将继续实施其他风险警示 此外*ST正平还因信息披露违法违规面临投资者的索赔诉讼。
+这一数据来自ADP Research与斯坦福数字经济实验室合作推出的周度就业追踪指标“NER Pulse”，旨在为市场提供比月度报告更为高频的就业市场动态。
 
-该案已有案件获得一审胜诉判决。
+数据显示，此前四周的周均新增岗位依次为：4月4日当周40，250个、4月11日当周39，250个、4月18日当周30，250个、4月25日当周33，000个、5月2日当周40，750个。
 
-其被投资者起诉源于公司收到的一则处罚决定。
+从更长时间维度看，3月就业市场表现更为低迷，3月7日当周仅新增10，000个岗位，3月14日当周为15，250个，3月21日当周为26，000个，随后在3月28日当周回升至40，250个。
 
-2024年3月29日，青海证监局下发的《行政处罚决定书》揭开了*ST正平的造假手段。
+ADP指出，这些数据为初步估计，后续可能随新数据的加入而调整。
 
-公司通过编造《清单预计量表》等方式，虚增金沙项目的供应商工程量及合同履约成本，进而虚增营业收入及利润。
+该周度数据采用四周移动平均值进行季节性调整，数据存在两周的滞后期，以确保更完整准确的实时就业趋势估算。
 
-通过上述操作，公司在2021年及2022年上半年合计虚增营收超过8500万元。
+NER Pulse每周二美国东部时间上午8：15发布，在ADP发布月度全国就业报告的周次除外。
 
 ## 相关推荐
 
-- 2026-06-29 16:43 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 16:39 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 16:37 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 16:40 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 16:41 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 16:36 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 16:24 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 16:46 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 16:26 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 16:48 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 16:47 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 16:42 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 16:41 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 16:40 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 16:53 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 16:31 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 16:39 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 16:38 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 16:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 16:53 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 16:35 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 16:48 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 16:33 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 16:49 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 16:43 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 16:54 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:25 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/721161253.shtml)
-- 2026-06-29 16:42 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/544558.shtml)
-- 2026-06-29 16:47 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/2125390.shtml)
-- 2026-06-29 16:35 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/938629196316.shtml)
-- 2026-06-29 16:51 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/363849201.shtml)
-- 2026-06-29 16:31 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/2459582466.shtml)
-- 2026-06-29 16:40 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/587897.shtml)
-- 2026-06-29 16:44 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/2517029.shtml)
-- 2026-06-29 16:26 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/7348838128.shtml)
-- 2026-06-29 16:42 - [流金岁月](https://www.share.minike.top/Article/details/11865111.shtml)
-- 2026-06-29 16:35 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/645190686815.shtml)
-- 2026-06-29 16:47 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/7460463727.shtml)
-- 2026-06-29 16:46 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.minike.top/Article/details/04337168.shtml)
-- 2026-06-29 16:30 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/967035277693.shtml)
-- 2026-06-29 16:30 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/018316968.shtml)
+- 2026-06-29 16:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/6906618131.shtml)
+- 2026-06-29 16:48 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/34772.shtml)
+- 2026-06-29 16:39 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/34099257.shtml)
+- 2026-06-29 16:42 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/24243280.shtml)
+- 2026-06-29 16:56 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/36109197804.shtml)
+- 2026-06-29 17:00 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/66490.shtml)
+- 2026-06-29 16:47 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/4933815005.shtml)
+- 2026-06-29 16:33 - [美的空调 卡bug](http://www.share.minike.top/Article/details/373802.shtml)
+- 2026-06-29 16:47 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/52834716885.shtml)
+- 2026-06-29 16:36 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/67472512172.shtml)
+- 2026-06-29 16:48 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/124258209.shtml)
+- 2026-06-29 16:42 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/810434.shtml)
+- 2026-06-29 16:32 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/1260657.shtml)
+- 2026-06-29 16:53 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/269743771088.shtml)
+- 2026-06-29 16:49 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/35208.shtml)

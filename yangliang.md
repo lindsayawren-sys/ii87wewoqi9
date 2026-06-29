@@ -1,59 +1,56 @@
-# 美国春末购房需求激增，住宅建筑商市场信心回暖
+# 国防部：“新型军国主义”大有成为东亚“祸乱”之势
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-核心要点 春末购房需求回暖提振住宅建筑商信心 尽管房贷利率走高、油价上涨，加之相关地缘局势带来的持续经济不确定性，依旧制约着潜在购房者的购房意愿，但住宅建筑商对行业经营形势的看法略有好转，预计春末楼市需求将迎来一波回暖。 全美住宅建筑商协会联合富国银行发布的住房市场指数显示，独栋住宅建筑商信心指数在 4 月大幅下跌后，5 月回升 3 点，升至 37 点。 此前楼市经济学家普遍预
+中新社北京5月28日电 (记者 郭超凯)中国国防部28日举行例行记者会。针对美日近期在西南诸岛开展联合军演，国防部新闻发言人蒋斌在会上表示，日本右翼势力在军事安全领域不断危险冒进、试探挑衅，“新型军国主义”大有成为东亚“祸乱”之势。会上有记者提问，据报道，美日近期在西南诸岛开展联合军演，距台湾仅110公里并设联合指挥中心。日防卫大臣直言此举意在强化区域威慑与应急作战能力。请问对
 
 ## 正文
 
-核心要点 春末购房需求回暖提振住宅建筑商信心 尽管房贷利率走高、油价上涨，加之相关地缘局势带来的持续经济不确定性，依旧制约着潜在购房者的购房意愿，但住宅建筑商对行业经营形势的看法略有好转，预计春末楼市需求将迎来一波回暖。
+中新社北京5月28日电 (记者 郭超凯)中国国防部28日举行例行记者会。
 
-全美住宅建筑商协会联合富国银行发布的住房市场指数显示，独栋住宅建筑商信心指数在 4 月大幅下跌后，5 月回升 3 点，升至 37 点。
+针对美日近期在西南诸岛开展联合军演，国防部新闻发言人蒋斌在会上表示，日本右翼势力在军事安全领域不断危险冒进、试探挑衅，“新型军国主义”大有成为东亚“祸乱”之势。
 
-此前楼市经济学家普遍预计该指数环比持平，而该指数数值低于 50，仍代表行业整体情绪偏向悲观。
+会上有记者提问，据报道，美日近期在西南诸岛开展联合军演，距台湾仅110公里并设联合指挥中心。
 
-2025 年 5 月该指数为 34 点，彼时房贷利率维持在 7% 左右；如今利率虽有所回落，但近几周再度上行。
+日防卫大臣直言此举意在强化区域威慑与应急作战能力。
 
-抵押贷款新闻日报数据显示，当前 30 年期固定住房贷款平均利率为 6.65%。
+请问对此有何评论？
 
-全美住宅建筑商协会首席经济学家罗伯特・迪茨在公告中表示：“长期利率近期持续上行，仍会持续抑制购房需求。
+蒋斌表示，中方一贯主张，有关国家间军事合作不应针对第三方或损害第三方利益，不应破坏地区和平稳定。
 
-尽管美国中西部部分区域楼市行情相对稳健，但整体住房市场依旧面临严峻的购房成本压力。
+日本右翼势力在军事安全领域不断危险冒进、试探挑衅，“新型军国主义”大有成为东亚“祸乱”之势。
 
-” 该指数三大分项指标均环比上涨 3 点：当前房屋销售状况指数升至 40 点，购房看房人流量指数升至 25 点，未来楼市销售预期指数达 45 点。
+所有爱好和平的人们都不应放任日本倒行逆施，让其破坏和平、为祸世界。
 
 ## 相关推荐
 
-- 2026-06-29 16:40 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 16:46 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 16:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 16:34 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 16:40 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 16:31 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 16:28 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 16:26 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 16:51 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 16:39 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 16:30 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 16:28 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 16:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 16:55 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 16:35 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 16:56 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 16:33 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 16:58 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 16:59 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 16:43 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 16:54 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 16:30 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 16:46 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/2394541.shtml)
-- 2026-06-29 16:47 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/85865562.shtml)
-- 2026-06-29 16:52 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/36898690.shtml)
-- 2026-06-29 16:43 - [青春环游记第三季](https://www.blog.minike.top/Article/details/47814.shtml)
-- 2026-06-29 16:27 - [女心理师](https://www.blog.minike.top/Article/details/8453311167.shtml)
-- 2026-06-29 16:24 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/51494.shtml)
-- 2026-06-29 16:40 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/72779777.shtml)
-- 2026-06-29 16:50 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/8580492.shtml)
-- 2026-06-29 16:47 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/993296644909.shtml)
-- 2026-06-29 16:32 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/137269523347.shtml)
-- 2026-06-29 16:50 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/131372.shtml)
-- 2026-06-29 16:38 - [一生一世](https://www.blog.kurohicncr.top/Article/details/3566638210.shtml)
-- 2026-06-29 16:34 - [王俊凯命名方式](http://www.share.minike.top/Article/details/18556.shtml)
-- 2026-06-29 16:24 - [起风了](https://www.blog.kurohicncr.top/Article/details/25693.shtml)
-- 2026-06-29 16:50 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/381484396272.shtml)
+- 2026-06-29 16:49 - [舒行钢任湖南省交通运输厅厅长](https://www.share.minike.top/Article/details/16384479097.shtml)
+- 2026-06-29 16:34 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/58056.shtml)
+- 2026-06-29 16:45 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/248747731747.shtml)
+- 2026-06-29 16:43 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/822217682431.shtml)
+- 2026-06-29 16:53 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/8088214.shtml)
+- 2026-06-29 16:35 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/2464868.shtml)
+- 2026-06-29 16:33 - [5万块的威力](http://www.blog.minike.top/Article/details/23720804.shtml)
+- 2026-06-29 16:45 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/364508207.shtml)
+- 2026-06-29 16:38 - [普京承认俄出现燃料危机](https://www.share.kurohicncr.top/Article/details/988193.shtml)
+- 2026-06-29 16:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/873289.shtml)
+- 2026-06-29 16:49 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/047109758.shtml)
+- 2026-06-29 16:59 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/198487109607.shtml)
+- 2026-06-29 16:56 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/69475579715.shtml)
+- 2026-06-29 16:36 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/8333285.shtml)
+- 2026-06-29 16:49 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/45028.shtml)

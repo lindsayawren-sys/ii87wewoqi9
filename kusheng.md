@@ -1,57 +1,59 @@
-# 实拍湖北省襄阳市博物馆“镇馆之宝”青铜马
+# Kaskela律所对Reservoir Media发起股东调查，凸显收购战中的信托责任争议
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 21:50 来源：中国新闻网 游览湖北襄阳市博物馆，一尊体态矫健的青铜马在展厅中央静静矗立，它肌肉结实，头小微昂。远远望去，便仿佛与它一同回到1800多年前三国群雄逐鹿的年代。 2008年10月，这尊青铜马出土于樊城区菜越三国一号墓。就其体量而言，迄今出土者无出其右，因此这尊青铜马被誉为“中华第一青铜立马”。 这尊青铜马通高、体长均为163厘米
+股东权益律师事务所Kaskela Law LLC今日宣布，已代表Reservoir Media， Inc．（纳斯达克代码：RSVR）的股东对公司展开调查，旨在确定公司或其代表是否因近期公司行动而违反证券法或信托责任。Kaskela Law特别鼓励RSVR股东主动联系律所，了解其合法权利及可采取的法律选项。 此项调查正值Reservoir Media陷入一场复杂的收购战之中。该公
 
 ## 正文
 
-发布时间：2026年05月18日 21:50 来源：中国新闻网 游览湖北襄阳市博物馆，一尊体态矫健的青铜马在展厅中央静静矗立，它肌肉结实，头小微昂。
+股东权益律师事务所Kaskela Law LLC今日宣布，已代表Reservoir Media， Inc．（纳斯达克代码：RSVR）的股东对公司展开调查，旨在确定公司或其代表是否因近期公司行动而违反证券法或信托责任。
 
-远远望去，便仿佛与它一同回到1800多年前三国群雄逐鹿的年代。
+Kaskela Law特别鼓励RSVR股东主动联系律所，了解其合法权利及可采取的法律选项。
 
-2008年10月，这尊青铜马出土于樊城区菜越三国一号墓。
+此项调查正值Reservoir Media陷入一场复杂的收购战之中。
 
-就其体量而言，迄今出土者无出其右，因此这尊青铜马被誉为“中华第一青铜立马”。
+该公司于2026年3月先后收到两份非约束性私有化提议：3月3日，持股近10%的激进对冲基金Irenic Capital Management出价每股10至11美元；次日，合计持股约65%的内部人财团Richmond Hill Investment与Wesbild则出价每股10.50美元。
 
-这尊青铜马通高、体长均为163厘米，重达720斤，按真实马匹形体等比例以青铜浇注而成，填补了长江中游地区三国时期大型青铜器研究的空白。
+鉴于内部人财团凭借65%的控股权足以单方面强制通过每股10.50美元的现金收购，从而将中小股东挤出公司，该交易的公平性引发了广泛质疑。
 
-(张倩龙) 责任编辑：【李季】
+Kaskela Law的调查重点正是这一价格是否公允地反映了公司的真实价值，以及董事会是否因内部人利益冲突而未能充分履行其信托责任。
+
+为应对这一局面，公司董事会已成立独立的特别委员会，并聘请摩根士丹利担任财务顾问、Wachtell， Lipton， Rosen & Katz律师事务所担任法律顾问，以评估各项提案及战略替代方案。
+
+此前，B． Riley已将RSVR评级从“买入”下调至“中性”，并将目标价从11.5美元下调至11美元。
 
 ## 相关推荐
 
-- 2026-06-29 16:38 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 16:29 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 16:37 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 16:36 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 16:41 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 16:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 16:27 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 16:47 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 16:52 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 16:24 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 16:40 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 16:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 16:37 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 16:34 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 16:42 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 16:46 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 16:40 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 16:42 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 16:57 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 16:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 16:54 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 16:30 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 16:56 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 16:34 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 16:31 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 16:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 16:48 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 16:40 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:41 - [重度抑郁女孩没钱去做心理咨询](https://www.share.kurohicncr.top/Article/details/864032.shtml)
-- 2026-06-29 16:43 - [斗破苍穹](http://www.blog.minike.top/Article/details/3073599509.shtml)
-- 2026-06-29 16:27 - [未成年少女长期吸毒导致卧床不起](http://www.share.minike.top/Article/details/867682.shtml)
-- 2026-06-29 16:33 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/455422031.shtml)
-- 2026-06-29 16:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/9600243424.shtml)
-- 2026-06-29 16:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/2324455.shtml)
-- 2026-06-29 16:29 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/39549107.shtml)
-- 2026-06-29 16:33 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/604516110.shtml)
-- 2026-06-29 16:26 - [《贺子珍》](http://www.share.minike.top/Article/details/921712.shtml)
-- 2026-06-29 16:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/30373474407.shtml)
-- 2026-06-29 16:31 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/27705.shtml)
-- 2026-06-29 16:26 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/093877906.shtml)
-- 2026-06-29 16:51 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/42513967.shtml)
-- 2026-06-29 16:33 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/476543009807.shtml)
-- 2026-06-29 16:36 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/6840412.shtml)
+- 2026-06-29 16:39 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/38057875204.shtml)
+- 2026-06-29 16:55 - [青春环游记第三季](https://www.blog.minike.top/Article/details/481372024.shtml)
+- 2026-06-29 16:34 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/006944.shtml)
+- 2026-06-29 16:34 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.kurohicncr.top/Article/details/9202610.shtml)
+- 2026-06-29 16:58 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/09717878209.shtml)
+- 2026-06-29 16:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/155475910.shtml)
+- 2026-06-29 16:46 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/7518467404.shtml)
+- 2026-06-29 16:36 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/4337397.shtml)
+- 2026-06-29 16:50 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/28987.shtml)
+- 2026-06-29 16:49 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/91968175006.shtml)
+- 2026-06-29 16:34 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/17930777399.shtml)
+- 2026-06-29 16:56 - [7款商保创新药“转道”](http://www.share.kurohicncr.top/Article/details/45599.shtml)
+- 2026-06-29 16:40 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/2462170149.shtml)
+- 2026-06-29 16:51 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/23063.shtml)
+- 2026-06-29 16:59 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/254424033777.shtml)

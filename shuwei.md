@@ -1,46 +1,56 @@
-# 开盘|国内期货主力合约涨跌不一 沪银涨近2%
+# 复旦大学肿瘤心脏病研究所（筹）正式揭牌
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-2026年5月19日，早盘开盘，国内期货主力合约涨跌不一，沪银涨近2%，鸡蛋、沪锡、豆二、豆粕涨超1%。跌幅方面，低硫燃料油（LU）跌近2%，焦炭、硅铁跌超1%。责任编辑：赵思远
+中新网上海5月28日电 (记者 陈静)中国首个肿瘤心脏病研究机构——复旦大学肿瘤心脏病研究所(筹)(下称：研究所)正式揭牌。这一机构旨在进一步推动中国肿瘤心脏病学向系统化、规范化方向发展。 研究所由复旦大学附属中山医院牵头，联合复旦大学附属肿瘤医院、华山医院、华东医院、眼耳鼻喉科医院以及复旦大学基础医学院、药学院、生物医学研究所、公共卫生学院等多家单位共同筹建。此次研究所的成立
 
 ## 正文
 
-2026年5月19日，早盘开盘，国内期货主力合约涨跌不一，沪银涨近2%，鸡蛋、沪锡、豆二、豆粕涨超1%。
+中新网上海5月28日电 (记者 陈静)中国首个肿瘤心脏病研究机构——复旦大学肿瘤心脏病研究所(筹)(下称：研究所)正式揭牌。
 
-跌幅方面，低硫燃料油（LU）跌近2%，焦炭、硅铁跌超1%。
+这一机构旨在进一步推动中国肿瘤心脏病学向系统化、规范化方向发展。
 
-责任编辑：赵思远
+研究所由复旦大学附属中山医院牵头，联合复旦大学附属肿瘤医院、华山医院、华东医院、眼耳鼻喉科医院以及复旦大学基础医学院、药学院、生物医学研究所、公共卫生学院等多家单位共同筹建。
+
+此次研究所的成立与系列临床成果的发布，将为肿瘤患者提供更可靠的“抗癌+护心”一体化保障，助力中国肿瘤心脏病学走向标准化、规模化发展，让精准抗癌与心脏保护协同推进。
+
+复旦大学附属中山医院副院长宋振举、该院心内科肿瘤心脏病亚专科主任程蕾蕾为研究所揭牌。
+
+该研究所通过整合临床、科研与教学的多方资源，未来将致力于推动基础研究向临床诊疗转化，提升肿瘤患者的长期生存质量，以应对肿瘤慢病管理的现实需求。
+
+同日举行的第五期“免疫检查点抑制剂相关心血管不良反应临床诊疗学习班”多项重要成果发布。
+
+其中包括《免疫检查点抑制剂相关心肌炎临床诊疗实施建议(2026版)》，学术专著《免疫检查点抑制剂相关泛血管病变——机制探索与诊疗实践》。
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 16:51 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 16:30 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 16:48 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 16:44 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 16:28 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 16:24 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 16:43 - [驻日美军航母沦为“毒窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 16:26 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 16:46 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 16:42 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 16:54 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 16:38 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 16:54 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 16:55 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 16:50 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 16:30 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 16:44 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 16:50 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 16:48 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - [央视起底直播诈骗连环套](http://www.blog.minike.top/Article/details/72590591472.shtml)
-- 2026-06-29 16:44 - [抓特务票房破亿](http://www.blog.minike.top/Article/details/1681457.shtml)
-- 2026-06-29 16:47 - [人类对空调和其他家电有多双标](http://www.blog.kurohicncr.top/Article/details/245520004160.shtml)
-- 2026-06-29 16:24 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/47478336.shtml)
-- 2026-06-29 16:48 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/55993.shtml)
-- 2026-06-29 16:52 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/4460638643.shtml)
-- 2026-06-29 16:38 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/805333.shtml)
-- 2026-06-29 16:26 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/7191364.shtml)
-- 2026-06-29 16:37 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/64180176163.shtml)
-- 2026-06-29 16:43 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/288155578.shtml)
-- 2026-06-29 16:51 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/39607.shtml)
-- 2026-06-29 16:39 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/013273057.shtml)
-- 2026-06-29 16:45 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/99158265.shtml)
-- 2026-06-29 16:24 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/9045169272.shtml)
-- 2026-06-29 16:38 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/518394278816.shtml)
+- 2026-06-29 16:37 - [高市早苗口齿不清被质疑醉酒](http://www.share.kurohicncr.top/Article/details/2025848.shtml)
+- 2026-06-29 16:38 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/20742842.shtml)
+- 2026-06-29 16:48 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/81375286036.shtml)
+- 2026-06-29 16:47 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/691421991353.shtml)
+- 2026-06-29 16:49 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/84609.shtml)
+- 2026-06-29 16:56 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/866382.shtml)
+- 2026-06-29 16:39 - [普京承认俄出现燃料危机](https://www.blog.kurohicncr.top/Article/details/362658682172.shtml)
+- 2026-06-29 16:38 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/63921347.shtml)
+- 2026-06-29 16:46 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/88809177.shtml)
+- 2026-06-29 16:45 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/8028627.shtml)
+- 2026-06-29 16:54 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/4703884353.shtml)
+- 2026-06-29 16:41 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.minike.top/Article/details/141542.shtml)
+- 2026-06-29 16:43 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/08954324.shtml)
+- 2026-06-29 16:39 - [德国VS巴拉圭前瞻](http://www.share.kurohicncr.top/Article/details/23598412048.shtml)
+- 2026-06-29 16:38 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/07751.shtml)

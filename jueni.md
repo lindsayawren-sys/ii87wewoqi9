@@ -1,56 +1,59 @@
-# 追觅俞浩：电动汽车早就有了，马斯克只是把铅酸电池换成了锂电池
+# 软件股新一轮牛市走向，取决于这份财报
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-做企业不是开故事会，发展才能解释问题，发展才能解决问题 文|《中国企业家》记者 李艳艳 见习编辑|李原编辑|何伊凡 头图摄影|邓攀 在成为世界首富之前，追觅科技创始人俞浩先打破了一项世界纪录：社交媒体上最活跃的CEO。从5月6日到5月12日，一周之内，他发了409条抖音、376条视频号、291条小红书、393条微博，平均每天12条朋友圈。 这还不包括追觅员工、高管发布的内容，他
+目前期权市场对软件板块整体转为看涨。 期权交易人士普遍认为，软件即服务（SaaS）板块的深度下跌行情已然落幕。而这一观点能否得到印证，很大程度上要看赛富时周三盘后发布的财报以及市场的后续反应。 进入本月，安硕拓展科技软件行业 ETF（IGV）的期权成交比例持续释放看涨信号，周二表现尤为突出：看涨期权成交量超看跌期权两倍，市场做多意愿十分强烈。 反观万埃克半导体 ETF（SMH）
 
 ## 正文
 
-做企业不是开故事会，发展才能解释问题，发展才能解决问题 文|《中国企业家》记者 李艳艳 见习编辑|李原编辑|何伊凡 头图摄影|邓攀 在成为世界首富之前，追觅科技创始人俞浩先打破了一项世界纪录：社交媒体上最活跃的CEO。
+目前期权市场对软件板块整体转为看涨。
 
-从5月6日到5月12日，一周之内，他发了409条抖音、376条视频号、291条小红书、393条微博，平均每天12条朋友圈。
+期权交易人士普遍认为，软件即服务（SaaS）板块的深度下跌行情已然落幕。
 
-这还不包括追觅员工、高管发布的内容，他要求所有员工开通所有社交媒体的账号，每天至少发3条视频。
+而这一观点能否得到印证，很大程度上要看赛富时周三盘后发布的财报以及市场的后续反应。
 
-视频中的俞浩，情绪起伏极大，几乎每句话都用叹号收尾。
+进入本月，安硕拓展科技软件行业 ETF（IGV）的期权成交比例持续释放看涨信号，周二表现尤为突出：看涨期权成交量超看跌期权两倍，市场做多意愿十分强烈。
 
-有时快意恩仇：“夸我们的人，都长得比较帅！
+反观万埃克半导体 ETF（SMH），其二日看跌期权成交量则达到看涨期权的五倍。
 
-骂我们的人，都长得比较丑！
+云计算龙头赛富时的股价，较 18 个多月前创下的历史高点累计跌幅超 50%，其走势对整个软件板块有着举足轻重的影响。
 
-”有时咬牙切齿：“反正谁都不要随便招惹老子！
+目前软件板块自 4 月低点反弹以来，累计涨幅已超 25%，按照技术面标准，板块正式开启新一轮牛市。
 
-我有仇必报！
+期权数据平台斯波特伽马（SpotGamma）统计显示，周二赛富时单只个股的期权成交量就超过了 IGV 整只 ETF，期权总权利金更是接近后者的三倍；其中 61% 的权利金流向看涨期权。
 
 ## 相关推荐
 
-- 2026-06-29 16:27 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 16:34 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 16:41 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 16:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 16:36 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 16:34 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 16:33 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 16:47 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 16:33 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 16:30 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 16:44 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 16:46 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 16:57 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 16:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 16:48 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 16:37 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 16:53 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 16:33 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 16:43 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 16:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 16:47 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 16:58 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 16:45 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:36 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/722698114.shtml)
-- 2026-06-29 16:53 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/26239501552.shtml)
-- 2026-06-29 16:49 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/4832810.shtml)
-- 2026-06-29 16:32 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/23153267777.shtml)
-- 2026-06-29 16:42 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/298733454629.shtml)
-- 2026-06-29 16:31 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/25496751.shtml)
-- 2026-06-29 16:46 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.minike.top/Article/details/51974825159.shtml)
-- 2026-06-29 16:43 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/687192.shtml)
-- 2026-06-29 16:49 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.kurohicncr.top/Article/details/13405.shtml)
-- 2026-06-29 16:49 - [专家建议城乡居民养老金增至每月千元](https://www.share.minike.top/Article/details/35406.shtml)
-- 2026-06-29 16:36 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/70415.shtml)
-- 2026-06-29 16:48 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/917557.shtml)
-- 2026-06-29 16:42 - [网友飞机上偶遇肖战](http://www.blog.kurohicncr.top/Article/details/55735753575.shtml)
-- 2026-06-29 16:24 - [三星与SK集团或将投资2000万亿韩元](https://www.share.kurohicncr.top/Article/details/3188310880.shtml)
-- 2026-06-29 16:25 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.kurohicncr.top/Article/details/838985447.shtml)
+- 2026-06-29 16:39 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/88862119221.shtml)
+- 2026-06-29 16:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/155532.shtml)
+- 2026-06-29 16:58 - [把古诗里的动作换成加班](http://www.blog.minike.top/Article/details/3987275.shtml)
+- 2026-06-29 16:39 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/9301872.shtml)
+- 2026-06-29 16:55 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/2738186401.shtml)
+- 2026-06-29 16:49 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/144765.shtml)
+- 2026-06-29 16:44 - [博主：黄金和原油回落不等于风险消失](http://www.share.kurohicncr.top/Article/details/4414077.shtml)
+- 2026-06-29 16:56 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/34673040.shtml)
+- 2026-06-29 16:56 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/9949005.shtml)
+- 2026-06-29 16:47 - [把古诗里的动作换成加班](http://www.blog.kurohicncr.top/Article/details/299436612.shtml)
+- 2026-06-29 16:43 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.minike.top/Article/details/73226.shtml)
+- 2026-06-29 16:47 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.minike.top/Article/details/17319266497.shtml)
+- 2026-06-29 16:34 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/7987739464.shtml)
+- 2026-06-29 16:32 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/29811282197.shtml)
+- 2026-06-29 16:48 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/28654209192.shtml)

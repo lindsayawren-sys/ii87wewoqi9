@@ -1,56 +1,57 @@
-# 美元小幅上涨，投资者权衡伊朗和平希望与美联储利率前景
+# 美伊据报道达成协议 华尔街交易员推动美股迈向纪录新高
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-周二美元小幅走高。投资者一方面对中东和平协议持谨慎乐观态度，另一方面担忧美联储或为遏制能源驱动的通胀而加息，市场在两者之间权衡。 美国总统唐纳德・特朗普周一表示，目前 “极有可能” 达成一项限制伊朗核计划的协议。 3 月，伊朗实际封锁霍尔木兹海峡后油价飙升，美元应声大涨。此举打压了日本、欧元区等依赖石油进口的经济体，同时提升了美元的避险需求。 受特朗普表态影响，周二油价下跌 2
+在市场猜测美国和伊朗接近取得外交突破之际，华尔街交易员推动股市迈向纪录高点，债市走高，油价回吐涨幅。 纽约时间10：56，标普500指数上涨0.3%，纳斯达克100指数上涨0.4%，道指基本持平。 Axios报道称，伊朗与美国已达成协议，正在等待特朗普的批准，美股闻讯快速收复失地。标普500指数迈向连续第六个交易日上涨，美国国债收益率全线下跌。 此前，波斯湾再度爆发冲突，凸显推
 
 ## 正文
 
-周二美元小幅走高。
+在市场猜测美国和伊朗接近取得外交突破之际，华尔街交易员推动股市迈向纪录高点，债市走高，油价回吐涨幅。
 
-投资者一方面对中东和平协议持谨慎乐观态度，另一方面担忧美联储或为遏制能源驱动的通胀而加息，市场在两者之间权衡。
+纽约时间10：56，标普500指数上涨0.3%，纳斯达克100指数上涨0.4%，道指基本持平。
 
-美国总统唐纳德・特朗普周一表示，目前 “极有可能” 达成一项限制伊朗核计划的协议。
+Axios报道称，伊朗与美国已达成协议，正在等待特朗普的批准，美股闻讯快速收复失地。
 
-3 月，伊朗实际封锁霍尔木兹海峡后油价飙升，美元应声大涨。
+标普500指数迈向连续第六个交易日上涨，美国国债收益率全线下跌。
 
-此举打压了日本、欧元区等依赖石油进口的经济体，同时提升了美元的避险需求。
+此前，波斯湾再度爆发冲突，凸显推动和平协议、恢复全球能源流动所面临的挑战。
 
-受特朗普表态影响，周二油价下跌 2%。
+自这场战争于2月底爆发以来，霍尔木兹海峡实际上处于关闭状态，扰乱了能源供应，推动燃料价格飙升并加剧通胀。
 
-汇丰银行全球外汇研究主管保罗・麦克尔表示：“美元未能回升至 3 月高点，原因有几点。
+Brown Brothers Harriman & Co．的Elias Haddad表示：“市场仍在随着伊朗战争相关情绪的变化而剧烈震荡。
 
-” 他补充称：“值得注意的是，全球风险情绪已强劲复苏；美元隔夜指数掉期（OIS）市场仍存紧张，但尚未完全定价美联储激进加息周期；此外，全球月度增长动能仍为正。
+尽管如此，风险偏好料将继续获得支撑，因为双方仍在谈判以敲定协议，而这最终将推动霍尔木兹海峡的重开。
 
 ## 相关推荐
 
-- 2026-06-29 16:48 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 16:36 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 16:44 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 16:47 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 16:35 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 16:27 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 16:39 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 16:25 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 16:24 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 16:30 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 16:54 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 16:45 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 16:45 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 16:31 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 16:46 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 16:59 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 16:47 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 16:58 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 16:30 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 16:57 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 16:41 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:34 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/107858677.shtml)
-- 2026-06-29 16:28 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/40612967.shtml)
-- 2026-06-29 16:48 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/52678.shtml)
-- 2026-06-29 16:34 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/0378866298.shtml)
-- 2026-06-29 16:43 - [金刚川](https://www.share.kurohicncr.top/Article/details/282453871274.shtml)
-- 2026-06-29 16:52 - [王楚钦开门红](https://www.share.minike.top/Article/details/98484279471.shtml)
-- 2026-06-29 16:48 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/48924649633.shtml)
-- 2026-06-29 16:51 - [省市招考专家解读山西高考志愿政策](https://www.share.kurohicncr.top/Article/details/04086706.shtml)
-- 2026-06-29 16:44 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/49903041.shtml)
-- 2026-06-29 16:37 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.minike.top/Article/details/859195431913.shtml)
-- 2026-06-29 16:25 - [乔家的儿女](https://www.share.minike.top/Article/details/5649278.shtml)
-- 2026-06-29 16:24 - [王楚钦开门红](https://www.blog.minike.top/Article/details/23512.shtml)
-- 2026-06-29 16:24 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/32185.shtml)
-- 2026-06-29 16:25 - [众星恭喜吴建豪](http://www.blog.kurohicncr.top/Article/details/895801608519.shtml)
-- 2026-06-29 16:27 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/298290023755.shtml)
+- 2026-06-29 16:31 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.minike.top/Article/details/456641906687.shtml)
+- 2026-06-29 16:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/3310514809.shtml)
+- 2026-06-29 16:31 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/74730.shtml)
+- 2026-06-29 16:30 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/12968706.shtml)
+- 2026-06-29 16:31 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.minike.top/Article/details/73629638.shtml)
+- 2026-06-29 16:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/19418.shtml)
+- 2026-06-29 16:57 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/12710084338.shtml)
+- 2026-06-29 16:36 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/504332280.shtml)
+- 2026-06-29 16:45 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/536779072.shtml)
+- 2026-06-29 16:34 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.kurohicncr.top/Article/details/0372364.shtml)
+- 2026-06-29 16:41 - [世界杯看到肖战了](http://www.share.minike.top/Article/details/9955390297.shtml)
+- 2026-06-29 16:34 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/37588877779.shtml)
+- 2026-06-29 16:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/046737264617.shtml)
+- 2026-06-29 16:44 - [金牌调解](https://www.blog.minike.top/Article/details/071448.shtml)
+- 2026-06-29 16:53 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/6529720.shtml)

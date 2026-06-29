@@ -1,45 +1,58 @@
-# 单冰获批担任承德银行首席风险官
+# 中信建投期货：5月29日能化早报
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-5月18日金融一线消息，承德金融监管分局发布关于单冰承德银行首席风险官任职资格的批复，核准单冰承德银行首席风险官任职资格。 责任编辑：王馨茹
+橡胶：预期反转，短期反弹 周四，国产全乳胶 17550/吨，环比上日上涨 150 元/吨；泰国 20 号混合胶 17400 元/吨，环比上日上涨 450 元/吨。 原料端：泰国胶水报收 83.7 泰铢/公斤，环比上日持平；泰国杯胶报收 69.0 泰铢/公斤，环比上日持平；云南胶水报收 16.5 元/公斤，环比上日上涨 0.4 元/公斤；海南胶水报收 16.4元/公斤，环比上日下
 
 ## 正文
 
-5月18日金融一线消息，承德金融监管分局发布关于单冰承德银行首席风险官任职资格的批复，核准单冰承德银行首席风险官任职资格。
+橡胶：预期反转，短期反弹 周四，国产全乳胶 17550/吨，环比上日上涨 150 元/吨；泰国 20 号混合胶 17400 元/吨，环比上日上涨 450 元/吨。
 
-责任编辑：王馨茹
+原料端：泰国胶水报收 83.7 泰铢/公斤，环比上日持平；泰国杯胶报收 69.0 泰铢/公斤，环比上日持平；云南胶水报收 16.5 元/公斤，环比上日上涨 0.4 元/公斤；海南胶水报收 16.4元/公斤，环比上日下跌 0.1 元/公斤。
+
+截至 2026 年 5 月 24 日，中国天然橡胶社会库存 129.48 万吨，环比下降 2.16 万吨，降幅 1.64%。
+
+中国深色胶社会总库存为 89.35 万吨，环比降 1.37%。
+
+其中青岛现货库存降0.84%；云南降 1.5%；越南 10 降 4.62%；NR 库存小计降 10.49%。
+
+中国浅色胶社会总库存为 40.13 万吨，环比降 2.24%。
+
+其中老全乳胶环比降 2.15%，3L 环比降 11.88%，RU 库存小计增加 0.81%。
+
+观点：近期，泰国等东南亚主产区迎来较为持续的降水，预计前期高温少雨对胶树的影响逐步缓解，预计全球产量上量的时间点不会出现超预期的延后。
 
 ## 相关推荐
 
-- 2026-06-29 16:42 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 16:52 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 16:53 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 16:30 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 16:33 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 16:42 - [7款商保创新药“转道”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 16:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 16:52 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 16:52 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 16:24 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 16:41 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 16:32 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 16:53 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 16:50 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 16:41 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 16:54 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 16:36 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 16:33 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 16:47 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 16:46 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 16:43 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 16:37 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 16:59 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/959334880357.shtml)
-- 2026-06-29 16:53 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/646947628691.shtml)
-- 2026-06-29 16:43 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/81885407.shtml)
-- 2026-06-29 16:40 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/8581964.shtml)
-- 2026-06-29 16:33 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/5348172102.shtml)
-- 2026-06-29 16:47 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/23940.shtml)
-- 2026-06-29 16:30 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/560913.shtml)
-- 2026-06-29 16:47 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/638660901.shtml)
-- 2026-06-29 16:54 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/341422838.shtml)
-- 2026-06-29 16:45 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/1791737.shtml)
-- 2026-06-29 16:36 - [日本偶像龟梨和也宣布结婚](http://www.blog.kurohicncr.top/Article/details/580697605.shtml)
-- 2026-06-29 16:30 - [舒行钢任湖南省交通运输厅厅长](http://www.share.kurohicncr.top/Article/details/576546357.shtml)
-- 2026-06-29 16:39 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/78739647.shtml)
-- 2026-06-29 16:43 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/10998141827.shtml)
-- 2026-06-29 16:29 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/4000759.shtml)
+- 2026-06-29 16:47 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/49687158.shtml)
+- 2026-06-29 16:55 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/627769237358.shtml)
+- 2026-06-29 16:50 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/5344426501.shtml)
+- 2026-06-29 16:35 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/8502474965.shtml)
+- 2026-06-29 16:45 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/240297143.shtml)
+- 2026-06-29 16:39 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/844359479400.shtml)
+- 2026-06-29 16:39 - [大范围炎热天气将至](https://www.share.kurohicncr.top/Article/details/71248.shtml)
+- 2026-06-29 16:56 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/389226131748.shtml)
+- 2026-06-29 16:36 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/58405.shtml)
+- 2026-06-29 16:56 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/1768620.shtml)
+- 2026-06-29 16:52 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/5401821.shtml)
+- 2026-06-29 16:31 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/76069942.shtml)
+- 2026-06-29 16:57 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/86986342.shtml)
+- 2026-06-29 16:56 - [博主：全球股市进入“AI极端共振”](http://www.blog.kurohicncr.top/Article/details/23100.shtml)
+- 2026-06-29 16:41 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/925395615.shtml)

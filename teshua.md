@@ -1,60 +1,59 @@
-# 10年期美债收益率触及一年来最高，日本30年期国债收益率升至纪录新高
+# 厦门银行中层大调整 涉及多家分行行长
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-美国国债收益率周一变动不大，在上周全球债券抛售潮导致收益率大幅走高后稍作喘息。 10年期美国国债收益率——美国政府借贷的关键基准——下跌不到1个基点，报4.591%。当日早些时候，该收益率曾触及15个月来的最高水平。 对政治风险更为敏感的30年期美国国债收益率同样下跌不到1个基点，报5.123%。该收益率上周曾触及近一年来的最高水平。2年期美国国债收益率通常与美联储短期利率决策
+来源：金融人事mini 上期，银行人事介绍了厦门银行总行架构调整。本期，继续分享厦门银行分支机构人事变动，涉及多家分行行长、副行长；其中，有多位分行行长助理获提任。 总行行长助理周迪祥，不再兼任重庆分行行长。 周迪祥，现年53岁，历任中国银行厦门分行职员、招商银行厦门分行职员，厦门银行国际业务部总经理、仙岳支行行长、公司业务部总经理、福州分行行长、重庆分行行长，2020年9月起
 
 ## 正文
 
-美国国债收益率周一变动不大，在上周全球债券抛售潮导致收益率大幅走高后稍作喘息。
+来源：金融人事mini 上期，银行人事介绍了厦门银行总行架构调整。
 
-10年期美国国债收益率——美国政府借贷的关键基准——下跌不到1个基点，报4.591%。
+本期，继续分享厦门银行分支机构人事变动，涉及多家分行行长、副行长；其中，有多位分行行长助理获提任。
 
-当日早些时候，该收益率曾触及15个月来的最高水平。
+总行行长助理周迪祥，不再兼任重庆分行行长。
 
-对政治风险更为敏感的30年期美国国债收益率同样下跌不到1个基点，报5.123%。
+周迪祥，现年53岁，历任中国银行厦门分行职员、招商银行厦门分行职员，厦门银行国际业务部总经理、仙岳支行行长、公司业务部总经理、福州分行行长、重庆分行行长，2020年9月起任厦门银行行长助理。
 
-该收益率上周曾触及近一年来的最高水平。
+年报显示，2025年其税前薪酬总额为127.74万元。
 
-2年期美国国债收益率通常与美联储短期利率决策同步变动，下跌不到1个基点，报4.075%。
+漳州分行行长于浩，任重庆分行行长。
 
-上周美国国债收益率飙升，原因是美国与伊朗谈判前景恶化，在油价持续高企的背景下加剧了通胀担忧。
+公开履历显示，于浩是国家一级职业篮球运动员，曾代表家乡黑龙江男子篮球队参赛。
 
-此外，美国最新数据也显示，上游物价上涨压力正开始传导至消费者端。
+2009年厦门大学毕业后加入厦门银行，从柜员、客户经理迅速成长为分支行行长，曾任厦门银行同安支行行长，2018年12月起历任漳州分行行长助理、副行长、行长。
 
 ## 相关推荐
 
-- 2026-06-29 16:43 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 16:45 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 16:50 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 16:30 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 16:34 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 16:26 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 16:47 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 16:32 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 16:27 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 16:38 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 16:37 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 16:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 16:25 - [人形机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 16:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 16:40 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 16:51 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 16:40 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 16:53 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 16:41 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 16:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 16:56 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 16:57 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 16:38 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 16:53 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 16:31 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 16:44 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 16:46 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:26 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/03489948142.shtml)
-- 2026-06-29 16:53 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/11682.shtml)
-- 2026-06-29 16:28 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/284069.shtml)
-- 2026-06-29 16:33 - [高市早苗口齿不清被质疑醉酒](https://www.blog.minike.top/Article/details/7835496924.shtml)
-- 2026-06-29 16:48 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/024013427684.shtml)
-- 2026-06-29 16:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/82940052.shtml)
-- 2026-06-29 16:28 - [乔家的儿女](http://www.share.minike.top/Article/details/45474.shtml)
-- 2026-06-29 16:43 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/43498076617.shtml)
-- 2026-06-29 16:43 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/84443808338.shtml)
-- 2026-06-29 16:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/16544.shtml)
-- 2026-06-29 16:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/445498.shtml)
-- 2026-06-29 16:33 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/2193185000.shtml)
-- 2026-06-29 16:31 - [和周杰伦在演唱会合唱了](http://www.blog.minike.top/Article/details/756347288.shtml)
-- 2026-06-29 16:50 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/58517163.shtml)
-- 2026-06-29 16:40 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/2185576.shtml)
+- 2026-06-29 16:31 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.kurohicncr.top/Article/details/02381534.shtml)
+- 2026-06-29 16:56 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.kurohicncr.top/Article/details/0459582.shtml)
+- 2026-06-29 16:51 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/08330.shtml)
+- 2026-06-29 16:45 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/1612379.shtml)
+- 2026-06-29 16:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/51101871383.shtml)
+- 2026-06-29 16:41 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/80521921018.shtml)
+- 2026-06-29 16:33 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/2476002257.shtml)
+- 2026-06-29 16:48 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/1391473857.shtml)
+- 2026-06-29 16:53 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/03154823.shtml)
+- 2026-06-29 16:43 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/11801724007.shtml)
+- 2026-06-29 16:48 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/013266402000.shtml)
+- 2026-06-29 16:32 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/39930.shtml)
+- 2026-06-29 16:54 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/86317665.shtml)
+- 2026-06-29 16:57 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/007356.shtml)
+- 2026-06-29 16:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/858346034.shtml)

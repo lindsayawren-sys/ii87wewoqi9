@@ -1,56 +1,52 @@
-# 北部湾地区地下水保护治理显成效
+# 长风药业：CF017于东南亚市场递交上市许可申请
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新网广州5月18日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)18日消息，近年来，该委认真落实水资源刚性约束制度，联合广西、广东两省(自治区)水利部门，统筹推进北部湾地区地下水保护治理，实现广西北海市3个超采区全部销号、广东湛江市严重超采区清零，北部湾地区重点区域“十四五”地下水保护治理取得成效。珠江委介绍，北部湾地区重点区域涵盖广西北海市及广东湛江市平原区，总
+长风药业（02652）发布公告，本集团近期已向东南亚相关药品监管机构，递交CF017吸入用布地奈德混悬液的上市许可申请。 CF017已于2021年5月获中国国家药品监督管理局批准上市，其后在国内实现商业化销售。东南亚地区人口基数庞大且不断增长，医疗需求持续增长，呼吸疾病发病率不断攀升，是高品质吸入制剂极具发展潜力的市场。本公司认为，CF017于东南亚市场递交上市许可申请，标志本
 
 ## 正文
 
-中新网广州5月18日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)18日消息，近年来，该委认真落实水资源刚性约束制度，联合广西、广东两省(自治区)水利部门，统筹推进北部湾地区地下水保护治理，实现广西北海市3个超采区全部销号、广东湛江市严重超采区清零，北部湾地区重点区域“十四五”地下水保护治理取得成效。
+长风药业（02652）发布公告，本集团近期已向东南亚相关药品监管机构，递交CF017吸入用布地奈德混悬液的上市许可申请。
 
-珠江委介绍，北部湾地区重点区域涵盖广西北海市及广东湛江市平原区，总面积约1.1万平方公里，是华南沿海重要的生态屏障与经济发展带。
+CF017已于2021年5月获中国国家药品监督管理局批准上市，其后在国内实现商业化销售。
 
-“十四五”时期，珠江委联合地方深入推进北部湾地区重点区域节水型社会建设，强化地下水取水总量控制指标落实监管，加快推进北海市牛尾岭水库水源地流域综合治理工程、北海市备用(第二)水源建设工程及湛江市引调水工程建成通水，从根本上结束了重点区域长期依赖地下水供水的历史，为地下水休养生息提供了坚实保障。
+东南亚地区人口基数庞大且不断增长，医疗需求持续增长，呼吸疾病发病率不断攀升，是高品质吸入制剂极具发展潜力的市场。
 
-珠江委表示，根据地下水动态评价及超采治理成效评估，“十四五”时期北部湾地区地下水取水总量实现大幅压减，重点区域6个地下水超采区超额完成治理任务，累计压减地下水超采量0.52亿立方米。
+本公司认为，CF017于东南亚市场递交上市许可申请，标志本集团拓展国际商业化版图佈局的全球化战略再迈新台阶。
 
-随着开采量持续压减，地下水位呈现全面回升态势。
-
-据介绍，2025年末，北部湾地区浅层地下水平均埋深较2018年末上升1.65米，深层承压水平均埋深较2018年末上升3.01米，重点区域地下水降落漏斗已基本消失，漏斗中心水位较2018年大幅上升。
-
-2025年珠江委首次组织开展海(咸)水入侵调查，结果显示，与历史入侵区相比，北部湾地区人为因素引发的海(咸)水入侵得到遏制，重点区域海(咸)水入侵面积和程度均呈显著减小趋势。
-
-珠江委表示，下一步，该委将持续强化地下水取水总量和水位管控指标监管，以北部湾及海南岛地下水保护治理为重点，加快推进新一轮地下水超采综合治理，深化运用重力卫星遥感等先进技术开展长时空尺度地下水储量变化监测分析，全力保障流域地下水资源安全与可持续利用。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:41 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 16:34 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 16:45 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 16:25 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 16:39 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 16:43 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 16:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 16:27 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 16:24 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 16:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 16:50 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 16:57 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 16:59 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 16:56 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 16:39 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 16:33 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 16:46 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 16:56 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 16:49 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 16:51 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 16:48 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 16:39 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:32 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/162563.shtml)
-- 2026-06-29 16:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/804198.shtml)
-- 2026-06-29 16:29 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/9994964.shtml)
-- 2026-06-29 16:29 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/10744894888.shtml)
-- 2026-06-29 16:46 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/2261500283.shtml)
-- 2026-06-29 16:24 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/743334740.shtml)
-- 2026-06-29 16:26 - [差点没看懂白鹿丞磊这段意识流](http://www.share.minike.top/Article/details/101385102476.shtml)
-- 2026-06-29 16:34 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/48492660537.shtml)
-- 2026-06-29 16:30 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/773923.shtml)
-- 2026-06-29 16:51 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/53254548787.shtml)
-- 2026-06-29 16:37 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/8185417.shtml)
-- 2026-06-29 16:38 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/24857246062.shtml)
-- 2026-06-29 16:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/55043.shtml)
-- 2026-06-29 16:43 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/5187764.shtml)
-- 2026-06-29 16:39 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/457208871.shtml)
+- 2026-06-29 16:55 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/1036360.shtml)
+- 2026-06-29 16:34 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/9438639.shtml)
+- 2026-06-29 16:42 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/91567223.shtml)
+- 2026-06-29 16:54 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/802488549.shtml)
+- 2026-06-29 16:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/794628.shtml)
+- 2026-06-29 16:59 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/0151643934.shtml)
+- 2026-06-29 16:36 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/219726055137.shtml)
+- 2026-06-29 16:39 - [网友飞机上偶遇肖战](https://www.share.minike.top/Article/details/73483726.shtml)
+- 2026-06-29 16:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/975531.shtml)
+- 2026-06-29 16:51 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.kurohicncr.top/Article/details/82847161262.shtml)
+- 2026-06-29 16:35 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/030469385684.shtml)
+- 2026-06-29 16:31 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/88458734828.shtml)
+- 2026-06-29 16:31 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/5378242627.shtml)
+- 2026-06-29 16:38 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/16268514269.shtml)
+- 2026-06-29 16:36 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.kurohicncr.top/Article/details/92637688.shtml)

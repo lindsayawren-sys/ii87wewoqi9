@@ -1,60 +1,60 @@
-# 白银为何比黄金跌得更惨？机构揭开背后“元凶”
+# 中性原子量子技术公司Infleqtion将出席Evercore TMT会议，展现量子技术商业化前景
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 华侨银行策略师克里斯托弗·黄指出，白银近期一度暴跌约9%，一度跌破76美元/盎司关口，回调幅度远超黄金。他将此前白银的上涨归因于工业金属走强以及AI驱动的股市上涨，但表示美债收益率攀升和美元走强已逆转了这一支撑。 黄目前强调，白银市场情绪脆弱，下行风险持续积聚。 白银暴跌，跌幅远超黄金 黄在报告中指出，白银跌幅更为剧烈。此前白银的上涨得益于多重因素：工业金属
+中性原子量子技术公司Infleqtion（纽约证券交易所代码：INFQ）今日宣布，公司首席执行官Matt Kinsella将于2026年6月2日美国东部时间下午1时出席在旧金山举行的Evercore技术、媒体与电信会议，参与一场炉边谈话。本次会议演讲将通过网络直播，投资者可通过公司官网投资者关系栏目访问。 Infleqtion是一家专注于量子计算、量子网络、量子传感和量子安全的
 
 ## 正文
 
-文章来源：汇通财经 华侨银行策略师克里斯托弗·黄指出，白银近期一度暴跌约9%，一度跌破76美元/盎司关口，回调幅度远超黄金。
+中性原子量子技术公司Infleqtion（纽约证券交易所代码：INFQ）今日宣布，公司首席执行官Matt Kinsella将于2026年6月2日美国东部时间下午1时出席在旧金山举行的Evercore技术、媒体与电信会议，参与一场炉边谈话。
 
-他将此前白银的上涨归因于工业金属走强以及AI驱动的股市上涨，但表示美债收益率攀升和美元走强已逆转了这一支撑。
+本次会议演讲将通过网络直播，投资者可通过公司官网投资者关系栏目访问。
 
-黄目前强调，白银市场情绪脆弱，下行风险持续积聚。
+Infleqtion是一家专注于量子计算、量子网络、量子传感和量子安全的全球技术领导者。
 
-白银暴跌，跌幅远超黄金 黄在报告中指出，白银跌幅更为剧烈。
+公司采用中性原子技术路线，产品组合涵盖量子计算机、量子光钟、射频接收器和惯性传感器，并拥有专有的Superstaq量子计算软件平台。
 
-此前白银的上涨得益于多重因素：工业金属走强，以及AI驱动股市上涨的溢出效应——风险资产的涨势由AI相关个股引领。
+与需要接近绝对零度运行的超导量子比特不同，中性原子在室温环境下即可运行，在扩展性方面具有显著优势。
 
-黄解释称，这种AI关联并非直接的需求故事，而是一个更广泛的风险偏好传导渠道：白银作为一种具备工业属性的贵金属，从中受益。
+公司近期获得了一系列重要政府合同与资金支持。
 
-然而，这也恰恰是白银脆弱性的根源。
+2026年5月，Infleqtion与美国商务部签署意向书，拟根据《CHIPS法案》获得1亿美元资金，用于推进中性原子量子系统在美国境内的研发工作。
 
-当美债收益率攀升、美元走强时，白银面临来自两个方向的压力：一方面，利率上升削弱了无息资产的吸引力；另一方面，对经济前景的担忧直接打击了工业金属需求预期。
+此前，公司还获得了DARPA价值200万美元的合同，用于开发混合量子网络软件，并向国际空间站交付了升级版量子硬件。
 
 ## 相关推荐
 
-- 2026-06-29 16:49 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 16:46 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 16:33 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 16:43 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 16:38 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 16:45 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 16:25 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 16:51 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 16:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 16:52 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 16:25 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 16:45 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 16:30 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 16:41 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 16:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 16:51 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 16:30 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 16:56 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 16:38 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 16:53 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 16:47 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 16:49 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 16:32 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 16:45 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 16:48 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 16:57 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 16:38 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 16:56 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:32 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/079167614.shtml)
-- 2026-06-29 16:33 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/42017386903.shtml)
-- 2026-06-29 16:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/991066755.shtml)
-- 2026-06-29 16:51 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/17633646.shtml)
-- 2026-06-29 16:46 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/834190817.shtml)
-- 2026-06-29 16:48 - [周生如故](http://www.blog.kurohicncr.top/Article/details/0576311298.shtml)
-- 2026-06-29 16:32 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/068154.shtml)
-- 2026-06-29 16:52 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/72597.shtml)
-- 2026-06-29 16:51 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/0993395.shtml)
-- 2026-06-29 16:31 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/89144460.shtml)
-- 2026-06-29 16:30 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/7672438038.shtml)
-- 2026-06-29 16:27 - [博主：黄金和原油回落不等于风险消失](https://www.share.minike.top/Article/details/9895268445.shtml)
-- 2026-06-29 16:47 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/4139080.shtml)
-- 2026-06-29 16:38 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/042628838868.shtml)
-- 2026-06-29 16:35 - [未成年少女长期吸毒导致卧床不起](http://www.share.kurohicncr.top/Article/details/679811926222.shtml)
+- 2026-06-29 16:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/1752390448.shtml)
+- 2026-06-29 16:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/76940902520.shtml)
+- 2026-06-29 16:58 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/971808311289.shtml)
+- 2026-06-29 16:30 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/3471360745.shtml)
+- 2026-06-29 16:42 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/380732549731.shtml)
+- 2026-06-29 16:46 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.minike.top/Article/details/09865361.shtml)
+- 2026-06-29 16:42 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/2021156.shtml)
+- 2026-06-29 16:49 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/6912969817.shtml)
+- 2026-06-29 16:43 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/4684044.shtml)
+- 2026-06-29 16:41 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/5073771.shtml)
+- 2026-06-29 16:59 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.minike.top/Article/details/72812557.shtml)
+- 2026-06-29 16:31 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/716287.shtml)
+- 2026-06-29 16:41 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/102482917322.shtml)
+- 2026-06-29 16:46 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/85154.shtml)
+- 2026-06-29 16:32 - [叠纸](https://www.blog.kurohicncr.top/Article/details/6245985958.shtml)

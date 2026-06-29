@@ -1,61 +1,61 @@
-# 信维通信半年飙涨300%，实控人彭浩高位“开溜”
+# 美伊据悉商定延长休战等待特朗普批准 两国早前互指违反停火
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：环球老虎财经app 过去半年，信维通信凭借商业航天概念和逐步兑现的业绩，股价从30元附近一路冲破111元，市值站上千亿。然而，就在股价一路狂飙、市场情绪持续升温之际，实控人彭浩却抛出了一份近千万股的减持计划。 5月18日，信维通信大涨12.19%，总市值达1081亿元。若把时间拨回2025年11月，这
+一位美国知情人士透露，伊朗和美国已达成一项临时协议，将延长停火并推动达成结束战争的最终协议。这提升了市场对这场持续三个月的冲突可能接近解决的希望。 这名因涉及私下谈判而要求匿名的消息人士证实了Axios稍早的报道。Axios周四早些时候援引两名未具名美国官员的话报道称，相关协议内容包括将自4月初实施的停火延长60天，并重启围绕伊朗核计划的谈判。 报道称，美国总统唐纳德·特朗普仍
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+一位美国知情人士透露，伊朗和美国已达成一项临时协议，将延长停火并推动达成结束战争的最终协议。
 
-来源：环球老虎财经app 过去半年，信维通信凭借商业航天概念和逐步兑现的业绩，股价从30元附近一路冲破111元，市值站上千亿。
+这提升了市场对这场持续三个月的冲突可能接近解决的希望。
 
-然而，就在股价一路狂飙、市场情绪持续升温之际，实控人彭浩却抛出了一份近千万股的减持计划。
+这名因涉及私下谈判而要求匿名的消息人士证实了Axios稍早的报道。
 
-5月18日，信维通信大涨12.19%，总市值达1081亿元。
+Axios周四早些时候援引两名未具名美国官员的话报道称，相关协议内容包括将自4月初实施的停火延长60天，并重启围绕伊朗核计划的谈判。
 
-若把时间拨回2025年11月，这家公司的股价仅在30元左右，而半年累计涨幅近300%，在商业航天板块中一骑绝尘。
+报道称，美国总统唐纳德·特朗普仍需批准相关条款。
 
-股价的大涨或与公司搭上商业航天概念有关，而进入北美大客户供应链则带来了订单放量，公司一季度扣非净利润同比翻倍。
+Axios称，特朗普已要求“几天时间”考虑这项协议。
 
-值得注意的是，在公司股价大涨之际，实控人彭浩便在2026年1月12日披露减持计划，拟减持不超过963.76万股。
+此前，双方也曾多次称谈判取得进展，特朗普也多次表示相信美国接近达成协议，但僵局随后仍一再延续。
 
-到4月22日，这轮减持计划全部完成，套现约7.5亿元。
+据半官方的伊朗学生通讯社报道，伊朗议员、议会国家安全委员会成员Fada-Hossein Maleki表示，谈判已取得“重大进展”，美方已接受伊朗提出的大部分要求。
 
 ## 相关推荐
 
-- 2026-06-29 16:40 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 16:37 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 16:52 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 16:37 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 16:29 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 16:46 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 16:39 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 16:24 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 16:25 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 16:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 16:24 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 16:49 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 16:53 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 16:47 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 16:40 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 16:38 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 16:56 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 16:50 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 16:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 16:37 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 16:56 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 16:43 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 16:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 16:53 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 16:39 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 16:31 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 16:35 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 16:38 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 16:45 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 16:48 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/97632772.shtml)
-- 2026-06-29 16:39 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/37089458073.shtml)
-- 2026-06-29 16:29 - [金刚川](http://www.blog.minike.top/Article/details/488763142.shtml)
-- 2026-06-29 16:41 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/268076.shtml)
-- 2026-06-29 16:37 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/15424676270.shtml)
-- 2026-06-29 16:29 - [央视曝光涉黄App诈骗陷阱](http://www.blog.minike.top/Article/details/72191131.shtml)
-- 2026-06-29 16:38 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/79864000.shtml)
-- 2026-06-29 16:32 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/06260408.shtml)
-- 2026-06-29 16:31 - [天道](https://www.share.kurohicncr.top/Article/details/15434681.shtml)
-- 2026-06-29 16:53 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/49173693.shtml)
-- 2026-06-29 16:30 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/54200699740.shtml)
-- 2026-06-29 16:30 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/53767117062.shtml)
-- 2026-06-29 16:39 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/0191934.shtml)
-- 2026-06-29 16:24 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/268425247.shtml)
-- 2026-06-29 16:49 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/7873583359.shtml)
+- 2026-06-29 16:57 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/30867.shtml)
+- 2026-06-29 16:55 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/72110127.shtml)
+- 2026-06-29 16:57 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/80464395.shtml)
+- 2026-06-29 16:39 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/985422275.shtml)
+- 2026-06-29 16:55 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.minike.top/Article/details/48211695453.shtml)
+- 2026-06-29 16:33 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/7574857235.shtml)
+- 2026-06-29 16:48 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/6673356954.shtml)
+- 2026-06-29 16:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/6542276824.shtml)
+- 2026-06-29 16:42 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/6713512.shtml)
+- 2026-06-29 16:43 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/59127942461.shtml)
+- 2026-06-29 16:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/877829924.shtml)
+- 2026-06-29 16:55 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/322819.shtml)
+- 2026-06-29 16:30 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/045684765.shtml)
+- 2026-06-29 16:37 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/248167.shtml)
+- 2026-06-29 16:44 - [葛军谈AI时代理科生出路](http://www.share.kurohicncr.top/Article/details/136550.shtml)

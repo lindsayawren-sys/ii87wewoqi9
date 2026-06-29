@@ -1,59 +1,60 @@
-# 这场越野跑比赛，助力莫干山体育产业发展
+# FTC对化肥价格飙升展开大规模调查，美国农场主高呼“受够了”
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新网5月18日电 5月17日，2026传奇首野莫干山越野赛在浙江省德清县莫干山镇庾村广场鸣枪起跑。本届赛事以“首野启程，传奇新生”为主题，设置25km、10km、5km组别，吸引了来自全国各地的1000名跑者参赛。 经过角逐，吴勇以2小时29分44秒的成绩夺得25km男子组冠军，女子组冠军则由杨世芹以3小时28分42秒收入囊中。10km“趣野新势力”组男女冠军分别被俞平国和胡
+美国联邦贸易委员会本周正式启动了一项针对化肥行业的反垄断调查，聚焦于化肥价格持续高企和市场集中度问题。这一行动被视为联邦政府对美国农场主长期不满的最有力回应。 FTC主席安德鲁·弗格森周四在德克萨斯州北部的一个农场宣布了这一消息，现场来自18个州的美国农场主代表起立鼓掌。弗格森表示，FTC已发起“重大的全行业调查”，理由是美国农业部数据显示化肥是美国农场主自2020年以来生产成
 
 ## 正文
 
-中新网5月18日电 5月17日，2026传奇首野莫干山越野赛在浙江省德清县莫干山镇庾村广场鸣枪起跑。
+美国联邦贸易委员会本周正式启动了一项针对化肥行业的反垄断调查，聚焦于化肥价格持续高企和市场集中度问题。
 
-本届赛事以“首野启程，传奇新生”为主题，设置25km、10km、5km组别，吸引了来自全国各地的1000名跑者参赛。
+这一行动被视为联邦政府对美国农场主长期不满的最有力回应。
 
-经过角逐，吴勇以2小时29分44秒的成绩夺得25km男子组冠军，女子组冠军则由杨世芹以3小时28分42秒收入囊中。
+FTC主席安德鲁·弗格森周四在德克萨斯州北部的一个农场宣布了这一消息，现场来自18个州的美国农场主代表起立鼓掌。
 
-10km“趣野新势力”组男女冠军分别被俞平国和胡索获得。
+弗格森表示，FTC已发起“重大的全行业调查”，理由是美国农业部数据显示化肥是美国农场主自2020年以来生产成本增幅最大的项目。
 
-5km“山野轻体验”组不计排名，所有完赛选手均获得专属完赛奖牌。
+自2020年以来，化肥价格涨幅超过150%，而农场净收入却从近年高点大幅下滑。
 
-据了解，本次赛事完赛奖牌贴合莫干山竹、山、石特色，以本地温润山石、粗犷山岩及连绵起伏山峦轮廓为基底，镌刻苍劲竹纹，将江南隐逸诗意、跑者逐野勇气与“传奇首野”金芒荣耀相融。
+南达科他州第四代美国农场主特伦特·库比克在现场表示：“2020年我们每吨尿素支付200到300美元，2022年飙升至每吨900美元以上。
 
-作为专为“首次出发”打造的赛事，本次莫干山越野赛推出了精英跑者领衔的“导师阵营”机制，打破新手跑者“独自越野”的壁垒。
+现在玉米价格没有上涨，而我们仍然面临每吨700到800美元的化肥价格，两者之间已没有任何关联性。
 
-导师是跑者身边的“陪跑者”与“引路人”，解决了新手技术不足、经验欠缺的难题，也搭建起选手间的交流桥梁，让选手的首野之旅在精英导师的专业指导下，科学备战、从容参赛、安全完赛、快乐“玩”赛。
+” 调查重点关注化肥市场集中度以及主要制造商的定价行为，涉及美盛、Nutrien、CF Industries和Koch等巨头。
 
 ## 相关推荐
 
-- 2026-06-29 16:33 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 16:48 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 16:33 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 16:32 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 16:30 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 16:34 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 16:28 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 16:25 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 16:49 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 16:41 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 16:42 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 16:49 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 16:51 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 16:44 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 16:46 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 16:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 16:34 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 16:55 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 16:45 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 16:39 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 16:59 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 16:46 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 16:31 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 16:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 16:34 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 16:48 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 16:40 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:25 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/7185277550.shtml)
-- 2026-06-29 16:41 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/733309582618.shtml)
-- 2026-06-29 16:53 - [周生如故](http://www.share.minike.top/Article/details/58502.shtml)
-- 2026-06-29 16:39 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.kurohicncr.top/Article/details/00238.shtml)
-- 2026-06-29 16:47 - [流金岁月](https://www.share.minike.top/Article/details/17447881.shtml)
-- 2026-06-29 16:40 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/0428099939.shtml)
-- 2026-06-29 16:51 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/718747281516.shtml)
-- 2026-06-29 16:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/67218389.shtml)
-- 2026-06-29 16:47 - [千与千寻](http://www.share.minike.top/Article/details/379329290357.shtml)
-- 2026-06-29 16:24 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/657741.shtml)
-- 2026-06-29 16:37 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/467409827.shtml)
-- 2026-06-29 16:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/715455.shtml)
-- 2026-06-29 16:43 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/553369047.shtml)
-- 2026-06-29 16:50 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/04822.shtml)
-- 2026-06-29 16:29 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/7539855717.shtml)
+- 2026-06-29 16:30 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/7338177730.shtml)
+- 2026-06-29 16:40 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/1095978363.shtml)
+- 2026-06-29 16:33 - [税务总局披露5起合规申报个税案例](http://www.share.minike.top/Article/details/2367258.shtml)
+- 2026-06-29 16:42 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/86659.shtml)
+- 2026-06-29 16:55 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/7692900537.shtml)
+- 2026-06-29 16:49 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/946258.shtml)
+- 2026-06-29 16:44 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/361869.shtml)
+- 2026-06-29 16:33 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/376898701833.shtml)
+- 2026-06-29 16:34 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/606160378.shtml)
+- 2026-06-29 16:43 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/58795.shtml)
+- 2026-06-29 16:41 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/114839209.shtml)
+- 2026-06-29 16:58 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/66530873.shtml)
+- 2026-06-29 16:46 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/4218288062.shtml)
+- 2026-06-29 16:45 - [一见倾心](http://www.share.minike.top/Article/details/2692763.shtml)
+- 2026-06-29 16:42 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/983592.shtml)

@@ -1,58 +1,58 @@
-# 涉汉坦病毒疫情邮轮抵达荷兰鹿特丹港
+# 美石油巨头：未来数周原油库存将跌至低位 油价或暴涨
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-总台现场直击丨涉汉坦病毒疫情邮轮抵达荷兰鹿特丹港 因一场横跨大西洋的汉坦病毒疫情而成为国际新闻热点的“洪迪厄斯”号邮轮，于当地时间18日上午驶入此次航线的终点——荷兰鹿特丹港。船只如何安全平稳地归港？船上包括船员与医务人员在内的27名“留守者”，又将面临怎样的隔离和检测？ 总台记者 宋亮：我身后就是刚刚抵达鹿特丹港口的“洪迪厄斯”号邮轮，我们的新闻采访船现在正在跟它齐头并进，全
+埃克森美孚周四预警，未来数周原油库存将跌至历史低位，进而推动油价暴涨、抑制市场需求。 埃克森美孚高级副总裁尼尔・查普曼在伯恩斯坦公司于纽约举办的会议上表示：“原油库存正逼近前所未有的水平。” 他警示道：“库存会降到极低的位置。至于这一极端低位会在两周还是三周到来，尚存讨论空间。但一旦抵达该节点，油价就会大幅飙升。” 这位高管称，待未来几周库存触顶历史新低，现货布伦特原油价格将涨
 
 ## 正文
 
-总台现场直击丨涉汉坦病毒疫情邮轮抵达荷兰鹿特丹港 因一场横跨大西洋的汉坦病毒疫情而成为国际新闻热点的“洪迪厄斯”号邮轮，于当地时间18日上午驶入此次航线的终点——荷兰鹿特丹港。
+埃克森美孚周四预警，未来数周原油库存将跌至历史低位，进而推动油价暴涨、抑制市场需求。
 
-船只如何安全平稳地归港？
+埃克森美孚高级副总裁尼尔・查普曼在伯恩斯坦公司于纽约举办的会议上表示：“原油库存正逼近前所未有的水平。
 
-船上包括船员与医务人员在内的27名“留守者”，又将面临怎样的隔离和检测？
+” 他警示道：“库存会降到极低的位置。
 
-总台记者 宋亮：我身后就是刚刚抵达鹿特丹港口的“洪迪厄斯”号邮轮，我们的新闻采访船现在正在跟它齐头并进，全程跟随它，进入鹿特丹港口的码头进行停靠。
+至于这一极端低位会在两周还是三周到来，尚存讨论空间。
 
-停靠之后，船上的船员将会陆续下船进到隔离区，整条船也将进行彻底的消毒防疫。
+但一旦抵达该节点，油价就会大幅飙升。
 
-船员再次接受检测 目前无人出现症状 公开资料显示，“洪迪厄斯”号是一艘荷兰籍极地探险邮轮，由荷兰“泛海探险”公司运营，主营南北极旅游。
+” 这位高管称，待未来几周库存触顶历史新低，现货布伦特原油价格将涨至每桶150至160美元。
 
-此次在从阿根廷横渡大西洋途中暴发汉坦病毒疫情，成为国际卫生救援焦点。
+“当油价攀升至一定水平，需求回落会重新让市场回归平衡。
 
-当地时间18日大约10时30分左右，“洪迪厄斯”号邮轮正式靠岸，船员抵达后再次接受检测。
+” 周四，近月交割的7月布伦特原油期货收于每桶94美元下方。
 
 ## 相关推荐
 
-- 2026-06-29 16:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 16:31 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 16:35 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 16:31 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 16:42 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 16:28 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 16:53 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 16:32 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 16:28 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 16:27 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 16:45 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 16:34 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 16:31 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 16:58 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 16:35 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 16:52 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 16:47 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 16:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 16:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 16:56 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 16:30 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 16:37 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 16:51 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 16:46 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:29 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/8460610.shtml)
-- 2026-06-29 16:40 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/861479000819.shtml)
-- 2026-06-29 16:39 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/62422.shtml)
-- 2026-06-29 16:28 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/0790673.shtml)
-- 2026-06-29 16:43 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/432172201859.shtml)
-- 2026-06-29 16:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/96014429.shtml)
-- 2026-06-29 16:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/471536687.shtml)
-- 2026-06-29 16:33 - [20年前的周杰伦](http://www.blog.kurohicncr.top/Article/details/68762.shtml)
-- 2026-06-29 16:47 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/8549977459.shtml)
-- 2026-06-29 16:31 - [唐艺昕告别浪姐千字长文](https://www.share.kurohicncr.top/Article/details/09645486506.shtml)
-- 2026-06-29 16:37 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/2105697859.shtml)
-- 2026-06-29 16:29 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/5765796.shtml)
-- 2026-06-29 16:37 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/77579561.shtml)
-- 2026-06-29 16:25 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/77978.shtml)
-- 2026-06-29 16:30 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/9791069745.shtml)
+- 2026-06-29 16:37 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/6933461620.shtml)
+- 2026-06-29 16:55 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/1455039658.shtml)
+- 2026-06-29 16:53 - [T1 KC](http://www.blog.minike.top/Article/details/4077930.shtml)
+- 2026-06-29 16:45 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/06869796.shtml)
+- 2026-06-29 16:48 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/043952096.shtml)
+- 2026-06-29 16:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/4372528.shtml)
+- 2026-06-29 16:42 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/1341743.shtml)
+- 2026-06-29 16:51 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/969762670.shtml)
+- 2026-06-29 16:58 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/409981866073.shtml)
+- 2026-06-29 16:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/62411538366.shtml)
+- 2026-06-29 16:52 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/4143432.shtml)
+- 2026-06-29 16:31 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/46354.shtml)
+- 2026-06-29 16:42 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/57455327940.shtml)
+- 2026-06-29 16:50 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/515511.shtml)
+- 2026-06-29 16:50 - [首尔商铺禁止洪明甫入内](https://www.share.kurohicncr.top/Article/details/56075409199.shtml)

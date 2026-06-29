@@ -1,59 +1,60 @@
-# 广西柳州发生5.2级地震 专家分析解读原因与特征
+# 监管“亮剑”强化“报行合一” 5家险企分支机构车险业务被暂停
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新网柳州5月18日电 (林馨)5月18日0时21分，广西柳州市柳南区发生5.2级地震，震源深度8公里。此次地震震感强烈，广西多地均有明显震感。 据广西地震专家解读，柳州有两条主要的断裂，一条近东西向弧形的河池—宜州断裂带，从柳州市的城边通过；另外一条是北东向桂林—南宁断裂带，本次地震震中位于这两条断裂的交会部位。距离震中最近的断裂为百朋断裂，相距约3公里，初步判定为本次地震发
+上证报中国证券网讯（记者 何奎）近日，吉林金融监管局一次性叫停五家保险公司分支机构的车险业务，被采取措施的机构分别是中国人寿财险长春中心支公司、华泰财险吉林分公司、平安产险长春中心支公司、申能财险长春中心支公司、华安保险长春中心支公司。 从处罚理由来看，五家险企的分支机构均存在“未按规定使用经报备的商业车险费率”问题，这是典型的违反“报行合一”行为。“报行合一”是指保险公司报备
 
 ## 正文
 
-中新网柳州5月18日电 (林馨)5月18日0时21分，广西柳州市柳南区发生5.2级地震，震源深度8公里。
+上证报中国证券网讯（记者 何奎）近日，吉林金融监管局一次性叫停五家保险公司分支机构的车险业务，被采取措施的机构分别是中国人寿财险长春中心支公司、华泰财险吉林分公司、平安产险长春中心支公司、申能财险长春中心支公司、华安保险长春中心支公司。
 
-此次地震震感强烈，广西多地均有明显震感。
+从处罚理由来看，五家险企的分支机构均存在“未按规定使用经报备的商业车险费率”问题，这是典型的违反“报行合一”行为。
 
-据广西地震专家解读，柳州有两条主要的断裂，一条近东西向弧形的河池—宜州断裂带，从柳州市的城边通过；另外一条是北东向桂林—南宁断裂带，本次地震震中位于这两条断裂的交会部位。
+“报行合一”是指保险公司报备给监管部门的条款、费率及费用假设，必须与实际经营行为完全一致。
 
-距离震中最近的断裂为百朋断裂，相距约3公里，初步判定为本次地震发震断裂。
+在五家险企中，华安保险、平安产险、华泰财险三家险企突破报备费率的幅度较大。
 
-本次地震具有明显的浅源特征。
+例如，华安保险长春中心支公司报备燃油商业车险手续费上限为15%，实际支付手续费率为15.24%至22.41%；平安产险长春中心支公司报备的燃油商业车险手续费上限为14%，实际支付手续费率达到18.6%至19%；华泰财险吉林分公司报备的燃油商业车险手续费上限为16%，实际支付手续费率达到20%。
 
-震源深度仅8公里，属于浅源地震，能量损耗小、直接传递至地表，同等震级下破坏力更强。
+‌‌ 基于上述违规事实，监管部门责令五家险企的分支机构在长春地区停止使用燃油商业车险条款、费率10个自然日。
 
-由于浅源地震产生长周期波动，加之高层建筑自身振动周期与地震波形成共振放大效应，以及鞭梢效应的影响，使高层住户感受到强烈且持久的摇晃。
+这意味着，五家险企分支机构的商业车险业务停业，在行业内属于较严厉的监管措施。
 
-柳州的特殊地质条件也加剧了地震影响。
+据记者了解，因违反“报行合一”政策，五家险企分支机构同时被监管做出停业处罚，这在近年较为少见。
 
 ## 相关推荐
 
-- 2026-06-29 16:26 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 16:49 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 16:50 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 16:30 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 16:31 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 16:51 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 16:27 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 16:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 16:34 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 16:26 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 16:34 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 16:25 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 16:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 16:54 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 16:50 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 16:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 17:00 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 16:38 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 16:38 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 16:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 16:31 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 16:34 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 16:53 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 16:36 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 16:44 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 16:48 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 16:55 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:42 - [王楚钦首轮赢下国乒德比](http://www.blog.minike.top/Article/details/7593938.shtml)
-- 2026-06-29 16:45 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/43450.shtml)
-- 2026-06-29 16:27 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/0856375750.shtml)
-- 2026-06-29 16:24 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/864983.shtml)
-- 2026-06-29 16:43 - [李在镕：计划将光州作为芯片生产基地](http://www.share.kurohicncr.top/Article/details/80819.shtml)
-- 2026-06-29 16:28 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/23808483581.shtml)
-- 2026-06-29 16:38 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/06204227.shtml)
-- 2026-06-29 16:52 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/36086597617.shtml)
-- 2026-06-29 16:50 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/388435737.shtml)
-- 2026-06-29 16:44 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/0101328765.shtml)
-- 2026-06-29 16:40 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/791610622.shtml)
-- 2026-06-29 16:27 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/87095814.shtml)
-- 2026-06-29 16:34 - [范志毅看好日本淘汰巴西](https://www.blog.minike.top/Article/details/1631778021.shtml)
-- 2026-06-29 16:39 - [博主：全球股市进入“AI极端共振”](http://www.share.kurohicncr.top/Article/details/25625674.shtml)
-- 2026-06-29 16:25 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/962677949.shtml)
+- 2026-06-29 16:31 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/10317808386.shtml)
+- 2026-06-29 16:34 - [12所大学更正招生目录](http://www.blog.minike.top/Article/details/4350813.shtml)
+- 2026-06-29 16:41 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/027079548.shtml)
+- 2026-06-29 16:49 - [波兰创该国高温纪录](http://www.blog.minike.top/Article/details/16520567775.shtml)
+- 2026-06-29 16:48 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/5153167.shtml)
+- 2026-06-29 16:30 - [青春环游记第三季](https://www.share.minike.top/Article/details/331976620157.shtml)
+- 2026-06-29 16:40 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/31918898.shtml)
+- 2026-06-29 16:52 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.minike.top/Article/details/5373470.shtml)
+- 2026-06-29 16:55 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/346161517495.shtml)
+- 2026-06-29 16:45 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/49115096.shtml)
+- 2026-06-29 16:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/2444152479.shtml)
+- 2026-06-29 16:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/26390.shtml)
+- 2026-06-29 16:48 - [世界杯十大帅哥必吃榜](http://www.blog.minike.top/Article/details/248333634.shtml)
+- 2026-06-29 16:40 - [第一炉香](http://www.share.kurohicncr.top/Article/details/25921510.shtml)
+- 2026-06-29 16:38 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/59910451974.shtml)

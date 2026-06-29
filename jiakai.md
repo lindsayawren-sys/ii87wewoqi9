@@ -1,60 +1,58 @@
-# 上海体育博物馆双展上新 展现“体育+文博+城市”融合共生魅力
+# 天更蓝、水更清、土壤更安全 未来五年美丽河南建设更出彩
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新网上海5月18日电 (记者 缪璐)5月18日“国际博物馆日”如约而至，上海体育博物馆策划的“轮转上海 破风前行”上海自行车运动主题展与“人马一心 城市共生”上海马术文化主题展双展上新，在城市与世界之间架起一座“体育之桥”，展现“体育+文博+城市”融合共生的魅力。 今年国际博物馆日的主题为“博物馆：联结世界的桥梁”，这一主题强调在全球化和多元文明共存背景下，博物馆应打破隔阂、
+中新网郑州5月28日(记者 韩章云 阚力)“生态环境好不好，鸟儿会用翅膀来投票。”5月28日，河南省政府新闻办举行“开局起步‘十五五’——奋力谱写中原大地推进中国式现代化新篇章”专题新闻发布会，河南省政府常务副省长张敏在回答中新社、中新网记者提问时介绍，“十五五”时期，河南将以更高标准改善大气、水、土壤质量，全面推进美丽河南建设。 “十四五”期间，河南持续加强生态环境保护，生态
 
 ## 正文
 
-中新网上海5月18日电 (记者 缪璐)5月18日“国际博物馆日”如约而至，上海体育博物馆策划的“轮转上海 破风前行”上海自行车运动主题展与“人马一心 城市共生”上海马术文化主题展双展上新，在城市与世界之间架起一座“体育之桥”，展现“体育+文博+城市”融合共生的魅力。
+中新网郑州5月28日(记者 韩章云 阚力)“生态环境好不好，鸟儿会用翅膀来投票。
 
-今年国际博物馆日的主题为“博物馆：联结世界的桥梁”，这一主题强调在全球化和多元文明共存背景下，博物馆应打破隔阂、凝聚共识，促进不同地区、民族和文化间的相互理解与包容。
+”5月28日，河南省政府新闻办举行“开局起步‘十五五’——奋力谱写中原大地推进中国式现代化新篇章”专题新闻发布会，河南省政府常务副省长张敏在回答中新社、中新网记者提问时介绍，“十五五”时期，河南将以更高标准改善大气、水、土壤质量，全面推进美丽河南建设。
 
-而体育是超越国界的通用语言，也是涵养城市品格、培育时代风尚的重要力量。
+“十四五”期间，河南持续加强生态环境保护，生态环境质量显著改善。
 
-作为上海体育的文化主阵地和宣传窗口，上海体育博物馆自2021年开馆以来，持续策划不同内容与形式的主题展与合作展，突破时空限制，传承体育文化、弘扬体育精神。
+过去五年，河南全省PM2.5浓度下降22.6%，优良天数比例提高8个百分点；黄河干流出境水质持续保持Ⅱ类，南水北调中线工程出境水质持续稳定在Ⅱ类及以上标准；土壤污染和固废治理成效显著，土壤环境质量保持稳定。
 
-为迎接10月即将在上海崇明举行的2026国际自行车联盟场地自行车世锦赛，展现自行车运动联结上海城市的活力，上海体育博物馆携手上海汽车博物馆联合推出“轮转上海 破风前行”上海自行车运动主题展，共计展出46套56件藏品。
+生态环境好不好，鸟儿是“评判员”。
 
-其中包括奥运冠军钟天使在上海队训练时使用的场地自行车，以及她在里约奥运会与东京奥运会获得的中国女子团体竞速赛金牌等珍贵实物。
+以河南省会郑州为例，孟夏时节，在郑州北龙湖，一群天鹅雏鸟常跟随天鹅成鸟戏水觅食，吸引众多市民观天鹅、赏湿地风光。
 
-“轮转上海 破风前行”上海自行车运动主题展分为三个单元：“踏板划过的时光·自行车起源与发展”“破风而过的掠影·上海自行车运动”与“追逐彩虹的轮迹·国际自盟场地自行车世锦赛”。
+数年前，几只天鹅从外地飞临此处落脚安家，经过几年繁殖，北龙湖的天鹅种群不断壮大，已成为郑州一景。
 
-展览通过回顾自行车运动的发展轨迹，展现自行车运动的速度美学与竞技魅力，并为即将到来的顶级赛事奏响精彩序曲。
+张敏介绍，除了郑州北龙湖的天鹅，每年来到三门峡市栖息越冬的白天鹅已超过1.6万只，“这些都是美丽河南建设的生动画面”。
 
 ## 相关推荐
 
-- 2026-06-29 16:35 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 16:49 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 16:27 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 16:33 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 16:39 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 16:42 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 16:53 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 16:53 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 16:42 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 16:31 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 16:52 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 16:36 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 16:53 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 16:49 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 16:37 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 16:43 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 16:47 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 16:41 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 16:33 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 16:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 16:59 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 16:53 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 16:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 16:38 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 16:34 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 16:41 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:31 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/6899901969.shtml)
-- 2026-06-29 16:29 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/499001566177.shtml)
-- 2026-06-29 16:31 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/506053032.shtml)
-- 2026-06-29 16:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/089550.shtml)
-- 2026-06-29 16:33 - [人形机器人](http://www.blog.minike.top/Article/details/0911544871.shtml)
-- 2026-06-29 16:47 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/9707948578.shtml)
-- 2026-06-29 16:44 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/22935.shtml)
-- 2026-06-29 16:27 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/7148512902.shtml)
-- 2026-06-29 16:42 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/378471645.shtml)
-- 2026-06-29 16:33 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/7493355.shtml)
-- 2026-06-29 16:45 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/19238893824.shtml)
-- 2026-06-29 16:36 - [滾石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/607612686347.shtml)
-- 2026-06-29 16:31 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/214702478.shtml)
-- 2026-06-29 16:32 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/375909579.shtml)
-- 2026-06-29 16:27 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/11790.shtml)
+- 2026-06-29 16:43 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/51008.shtml)
+- 2026-06-29 16:54 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/8552075533.shtml)
+- 2026-06-29 16:36 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/56540872.shtml)
+- 2026-06-29 16:40 - [舒行钢任湖南省交通运输厅厅长](http://www.share.kurohicncr.top/Article/details/61391289.shtml)
+- 2026-06-29 16:31 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/0837585.shtml)
+- 2026-06-29 16:37 - [工作靠AI算不算职场作弊](https://www.share.minike.top/Article/details/014294352641.shtml)
+- 2026-06-29 16:57 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/8389862641.shtml)
+- 2026-06-29 16:33 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/48136.shtml)
+- 2026-06-29 16:55 - [毒液2](https://www.blog.kurohicncr.top/Article/details/7970184.shtml)
+- 2026-06-29 16:40 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/8283059.shtml)
+- 2026-06-29 16:32 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/703230195152.shtml)
+- 2026-06-29 16:34 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/233754547948.shtml)
+- 2026-06-29 16:45 - [7款商保创新药“转道”](http://www.share.minike.top/Article/details/381726013528.shtml)
+- 2026-06-29 16:42 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/5753067459.shtml)
+- 2026-06-29 16:32 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/83503.shtml)

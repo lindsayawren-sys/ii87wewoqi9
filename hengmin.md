@@ -1,59 +1,52 @@
-# 追觅造车主体公司股权被冻结，此前俞浩称星空计划正以640亿估值融资
+# 野村上调2030至2031财年利润目标至7500亿日元
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：新浪Insights 《热点Views》栏目出品 追觅的造车之路，再起波澜。 近日，天眼查显示，星空计划（上海）汽车科技有限责任公司近日新增一则股权冻结信息。股权冻结信息显示，股权数额达232.25万元，冻结期限自2026年5月7日至2029年5月6日，股权所在企业为上海星空计划进出口贸易有限责任公司
+日本最大投行及券商野村控股在连续两年实现创纪录年度净利润后，上调了盈利及盈利能力目标。 野村在周五投资者活动前发布的演示材料中表示，截至2031年3月的财年，目标为税前利润至少达到7500亿日元（约47.0亿美元），股本回报率（衡量盈利能力的指标）达到10%至12%及以上。 此次目标上调，彰显野村在历经多年业绩随市场行情波动后，对实现可持续盈利充满信心。责任编辑：何云
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+日本最大投行及券商野村控股在连续两年实现创纪录年度净利润后，上调了盈利及盈利能力目标。
 
-来源：新浪Insights 《热点Views》栏目出品 追觅的造车之路，再起波澜。
+野村在周五投资者活动前发布的演示材料中表示，截至2031年3月的财年，目标为税前利润至少达到7500亿日元（约47.0亿美元），股本回报率（衡量盈利能力的指标）达到10%至12%及以上。
 
-近日，天眼查显示，星空计划（上海）汽车科技有限责任公司近日新增一则股权冻结信息。
+此次目标上调，彰显野村在历经多年业绩随市场行情波动后，对实现可持续盈利充满信心。
 
-股权冻结信息显示，股权数额达232.25万元，冻结期限自2026年5月7日至2029年5月6日，股权所在企业为上海星空计划进出口贸易有限责任公司。
-
-值得一提的是，星空计划（上海）汽车科技有限责任公司的实控人为俞浩，总持股比例高达96.652%。
-
-俞浩为追觅科技创始人兼CEO，毕业于清华大学航空航天专业，是中国最早的四旋翼开发者、三旋翼飞行器发明者。
-
-今年以来，俞浩在微博上也多次提及星空计划及星空计划汽车。
-
-4月29日，俞浩表示，“追觅旗下星空计划智能汽车正在按照640亿（约100亿美元），推进新一轮融资。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 16:33 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 16:32 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 16:45 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 16:35 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 16:50 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 16:46 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 16:53 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 16:42 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 16:31 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 16:45 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 16:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 16:52 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 16:31 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 16:42 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 16:52 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 16:43 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 16:34 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 16:53 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 16:48 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 16:58 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 16:54 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 16:39 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-29 16:39 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 16:50 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 16:37 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 16:30 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 16:48 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:42 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/17245229.shtml)
-- 2026-06-29 16:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/5067420.shtml)
-- 2026-06-29 16:25 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/28294.shtml)
-- 2026-06-29 16:31 - [博主：黄金和原油回落不等于风险消失](https://www.blog.minike.top/Article/details/511834745.shtml)
-- 2026-06-29 16:51 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/756650.shtml)
-- 2026-06-29 16:41 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/65586573.shtml)
-- 2026-06-29 16:28 - [王安宇尊重田曦薇的一切选择](http://www.share.kurohicncr.top/Article/details/7342619.shtml)
-- 2026-06-29 16:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/378931566.shtml)
-- 2026-06-29 16:28 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/56893318275.shtml)
-- 2026-06-29 16:48 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/9037011.shtml)
-- 2026-06-29 16:32 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/57396576.shtml)
-- 2026-06-29 16:46 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/05569.shtml)
-- 2026-06-29 16:26 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/6813320459.shtml)
-- 2026-06-29 16:37 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/13644.shtml)
-- 2026-06-29 16:50 - [教育部发布高考志愿填报预警](https://www.share.kurohicncr.top/Article/details/8853421.shtml)
+- 2026-06-29 16:58 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/07019407.shtml)
+- 2026-06-29 16:46 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/72988.shtml)
+- 2026-06-29 16:39 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/634114.shtml)
+- 2026-06-29 16:50 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/40483.shtml)
+- 2026-06-29 16:55 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/275594242.shtml)
+- 2026-06-29 16:56 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/42603677.shtml)
+- 2026-06-29 16:51 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/247992.shtml)
+- 2026-06-29 16:30 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/694104986559.shtml)
+- 2026-06-29 16:44 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/7925367870.shtml)
+- 2026-06-29 16:59 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/496153530.shtml)
+- 2026-06-29 16:49 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/8036213.shtml)
+- 2026-06-29 16:37 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/231298789.shtml)
+- 2026-06-29 16:31 - [省市招考专家解读山西高考志愿政策](http://www.blog.kurohicncr.top/Article/details/38833032.shtml)
+- 2026-06-29 16:47 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/6002677.shtml)
+- 2026-06-29 16:47 - [金刚川](http://www.share.kurohicncr.top/Article/details/0000341.shtml)

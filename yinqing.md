@@ -1,59 +1,56 @@
-# 大连今年前4个月出口大幅增长 外贸进出口总值创历史同期新高
+# 中东局势推高运费，美国液化气买家取消船货订单
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新网大连5月18日电 (记者 杨毅)大连海关18日发布消息称，今年前4个月大连市出口882.1亿元，同比增长18.9%，增速高于全国平均水平，展现出强劲韧性。 据统计，今年前4个月大连市外贸进出口增长22.5%，增速高于全国8.3个百分点，高于全省17.3个百分点。前4个月大连市实现外贸进出口总值1662.1亿元，增长8.3%，创历史同期新高，外贸规模占辽宁省63.9%。 加
+受中东冲突影响，海运运费大幅飙升，部分美国液化石油气买家取消了原本发往亚洲的货运订单。 据不愿具名的知情人士透露，已有至少两批原定下月从美国墨西哥湾沿岸出口码头装船的货物被取消，还有部分买家正商议取消更多订单。这些人士因无权对外发声，故而选择匿名。 中东局势导致霍尔木兹海峡近乎停运，波斯湾地区的供气通道受阻，亚洲液化石油气买家此前不得不紧急增购美国货源。衡量美国液化气出口东亚利
 
 ## 正文
 
-中新网大连5月18日电 (记者 杨毅)大连海关18日发布消息称，今年前4个月大连市出口882.1亿元，同比增长18.9%，增速高于全国平均水平，展现出强劲韧性。
+受中东冲突影响，海运运费大幅飙升，部分美国液化石油气买家取消了原本发往亚洲的货运订单。
 
-据统计，今年前4个月大连市外贸进出口增长22.5%，增速高于全国8.3个百分点，高于全省17.3个百分点。
+据不愿具名的知情人士透露，已有至少两批原定下月从美国墨西哥湾沿岸出口码头装船的货物被取消，还有部分买家正商议取消更多订单。
 
-前4个月大连市实现外贸进出口总值1662.1亿元，增长8.3%，创历史同期新高，外贸规模占辽宁省63.9%。
+这些人士因无权对外发声，故而选择匿名。
 
-加工贸易提质增速，增长动能持续增强。
+中东局势导致霍尔木兹海峡近乎停运，波斯湾地区的供气通道受阻，亚洲液化石油气买家此前不得不紧急增购美国货源。
 
-加工贸易进出口464.9亿元，增长38.6%，占同期全市进出口总值的(下同)28%。
+衡量美国液化气出口东亚利润的核心指标 —— 远东指数 - 蒙特贝尔维尤价差持续收窄，叠加运费大涨，贸易商原本可观的收益已被完全吞噬。
 
-民营企业强劲增长，赋能经济高质量发展。
+印度是液化石油气主要进口国，战前该国 90% 的液化石油气均从中东采购。
 
-大连市民营企业进出口1012.3亿元，增长17.5%，占60.9%；外资企业进出口485亿元，增长0.3%，占29.2%。
+如今印度转而从美国进口以弥补供应缺口，但运费暴涨推高了采购成本，令该国国有炼油企业承压。
 
-今年前4个月，大连市对东盟进出口468.3亿元，增长101.3%，占28.2%。
+对于亚洲一众采购方而言，运费高企的困境暂无缓解迹象。
 
 ## 相关推荐
 
-- 2026-06-29 16:48 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 16:41 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 16:45 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 16:48 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 16:50 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 16:28 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 16:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 16:48 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 16:45 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 16:30 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 16:43 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 16:41 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 16:45 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 16:31 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 16:40 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 16:34 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 16:54 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 16:34 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 16:54 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 16:32 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 16:51 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 16:57 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 16:51 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:35 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/5889721.shtml)
-- 2026-06-29 16:36 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/8164571985.shtml)
-- 2026-06-29 16:39 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/487897.shtml)
-- 2026-06-29 16:44 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/2150553.shtml)
-- 2026-06-29 16:53 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/45178453208.shtml)
-- 2026-06-29 16:28 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/9595833.shtml)
-- 2026-06-29 16:45 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/595449065.shtml)
-- 2026-06-29 16:27 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.kurohicncr.top/Article/details/4608076.shtml)
-- 2026-06-29 16:46 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/451974739027.shtml)
-- 2026-06-29 16:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/55480.shtml)
-- 2026-06-29 16:53 - [评论员：日菲勾连各有盘算](http://www.share.minike.top/Article/details/763501536.shtml)
-- 2026-06-29 16:30 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/057413.shtml)
-- 2026-06-29 16:34 - [广东一地发现极危植物新物种](http://www.share.kurohicncr.top/Article/details/693572093242.shtml)
-- 2026-06-29 16:49 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/072612769.shtml)
-- 2026-06-29 16:45 - [普京介绍前线战事](http://www.blog.minike.top/Article/details/493649182720.shtml)
+- 2026-06-29 16:40 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/3918973.shtml)
+- 2026-06-29 16:55 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/8164931.shtml)
+- 2026-06-29 16:34 - [沙丘](https://www.blog.minike.top/Article/details/307408.shtml)
+- 2026-06-29 16:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/3954677.shtml)
+- 2026-06-29 16:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/066518301.shtml)
+- 2026-06-29 16:35 - [首尔商铺禁止洪明甫入内](http://www.share.kurohicncr.top/Article/details/673446184.shtml)
+- 2026-06-29 16:47 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/324478478903.shtml)
+- 2026-06-29 16:34 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/82080021355.shtml)
+- 2026-06-29 16:44 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/026510.shtml)
+- 2026-06-29 16:59 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/7930294.shtml)
+- 2026-06-29 16:45 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/54064924.shtml)
+- 2026-06-29 16:52 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/05169372.shtml)
+- 2026-06-29 16:54 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/81149404.shtml)
+- 2026-06-29 16:31 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/93284.shtml)
+- 2026-06-29 16:59 - [东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/14218229.shtml)

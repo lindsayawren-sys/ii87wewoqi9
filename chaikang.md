@@ -1,60 +1,57 @@
-# 博时基金王祥：黄金市场再度受到美元与利率端走高压制
+# 戴尔股价盘后飙升 公司上调AI服务器销售额展望至600亿美元
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-上周（5月11日-15日），黄金市场再度受到美元与利率端走高的压制，难以突破前期震荡范围。市场开始忧虑高通胀-高利率传导路径。 市场观点方面，上周（5.11~5.15）国际黄金市场再次测试了接近4800美元附近的压力后折戟而返，伊朗战争未出现实质性缓和迹象，霍尔木兹海峡也迟迟未恢复正常通航，油价持续上涨并进一步推升全球通胀担忧，黄金市场情绪在周末前明显恶化。 最新公布的4月通胀
+戴尔科技股价盘后涨逾30%，此前这家硬件制造商给出的年度销售展望远超分析师预期，得益于人工智能（AI）服务器需求推动。 这家总部位于德克萨斯州的公司周四在声明中表示，截至2027年1月的财年营收将在约1，670亿美元，其中600亿美元来自AI服务器销售。这高于此前约1，400亿美元的营收展望，也超过彭博汇编数据显示的分析师平均预期1，421亿美元。 首席运营官Jeff Clar
 
 ## 正文
 
-上周（5月11日-15日），黄金市场再度受到美元与利率端走高的压制，难以突破前期震荡范围。
+戴尔科技股价盘后涨逾30%，此前这家硬件制造商给出的年度销售展望远超分析师预期，得益于人工智能（AI）服务器需求推动。
 
-市场开始忧虑高通胀-高利率传导路径。
+这家总部位于德克萨斯州的公司周四在声明中表示，截至2027年1月的财年营收将在约1，670亿美元，其中600亿美元来自AI服务器销售。
 
-市场观点方面，上周（5.11~5.15）国际黄金市场再次测试了接近4800美元附近的压力后折戟而返，伊朗战争未出现实质性缓和迹象，霍尔木兹海峡也迟迟未恢复正常通航，油价持续上涨并进一步推升全球通胀担忧，黄金市场情绪在周末前明显恶化。
+这高于此前约1，400亿美元的营收展望，也超过彭博汇编数据显示的分析师平均预期1，421亿美元。
 
-最新公布的4月通胀数据确认了海峡封锁对通胀的传导，美国CPI与PPI均刷新近3年以来最高值。
+首席运营官Jeff Clarke在声明中表示，在截至5月1日的季度，该公司获得244亿美元AI订单，实现161亿美元AI服务器销售额。
 
-叠加沃什确认出任美联储理事后，其对缩表的坚持，预期将进一步恶化债券市场的供求结构。
+“AI机遇未见放缓迹象。
 
-上周250亿美元30Y美债拍卖中标收益率高达5.046%，为2007年以来首次站上5%，此前3Y和10Y拍卖需求亦均低于预期，反映出市场对通胀、地缘和美联储换帅三重不确定性的担忧。
+” 该股盘后涨逾30%，此前收于317.05美元。
 
-这种全球债券收益率在周内的联动蹿升，压制了实际利率框架下的黄金表现。
+戴尔的服务器业务今年被视为AI赢家，推动该股截至周四收盘累计上涨逾150%。
 
-后续宏观走向仍明显依赖于地缘演进，若霍尔木兹海峡受阻时间进一步拉长，油价风险溢价可能不再是阶段性冲高，而会逐步传导为更具持续性的通胀担忧，并强化“高油价—高通胀—高利率”的宏观交易链条。
+第一财季销售额跃升88%，至438亿美元，分析师平均预期为355亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 16:39 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 16:42 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 16:33 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 16:25 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 16:34 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 16:28 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 16:35 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 16:43 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 16:34 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 16:51 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 16:24 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 16:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 16:32 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 16:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 16:54 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 16:57 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 16:57 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 16:56 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 16:32 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 16:42 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 16:58 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 16:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 16:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 16:37 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 16:43 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:25 - [叠纸](http://www.blog.kurohicncr.top/Article/details/59678161.shtml)
-- 2026-06-29 16:37 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/8399456708.shtml)
-- 2026-06-29 16:43 - [滾石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/30942179.shtml)
-- 2026-06-29 16:53 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/093354.shtml)
-- 2026-06-29 16:35 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/67681395.shtml)
-- 2026-06-29 16:24 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/9154629.shtml)
-- 2026-06-29 16:36 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/1747363.shtml)
-- 2026-06-29 16:31 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/56902.shtml)
-- 2026-06-29 16:37 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/42941271.shtml)
-- 2026-06-29 16:49 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/189689.shtml)
-- 2026-06-29 16:30 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/539449304.shtml)
-- 2026-06-29 16:53 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/51066622993.shtml)
-- 2026-06-29 16:33 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.minike.top/Article/details/054481335.shtml)
-- 2026-06-29 16:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/078672562611.shtml)
-- 2026-06-29 16:43 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/5888534.shtml)
+- 2026-06-29 16:39 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/163320033.shtml)
+- 2026-06-29 16:38 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/83499.shtml)
+- 2026-06-29 16:53 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/3249734580.shtml)
+- 2026-06-29 16:59 - [7款商保创新药“转道”](http://www.share.kurohicncr.top/Article/details/50338816814.shtml)
+- 2026-06-29 16:55 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/04927.shtml)
+- 2026-06-29 16:54 - [普京介绍前线战事](https://www.blog.minike.top/Article/details/21623.shtml)
+- 2026-06-29 16:53 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/799553121700.shtml)
+- 2026-06-29 16:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/5546052871.shtml)
+- 2026-06-29 16:46 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/0833234.shtml)
+- 2026-06-29 16:43 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/79474.shtml)
+- 2026-06-29 16:57 - [女心理师](http://www.blog.kurohicncr.top/Article/details/322888033345.shtml)
+- 2026-06-29 16:42 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/9881110021.shtml)
+- 2026-06-29 16:53 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.kurohicncr.top/Article/details/98508.shtml)
+- 2026-06-29 16:56 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/45903942.shtml)
+- 2026-06-29 16:45 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/1790906235.shtml)

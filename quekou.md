@@ -1,52 +1,47 @@
-# “AI与人类未来”主题论坛在港举办 聚力京港科创合作发展
+# 外交部：“天宫”迎来首位中国香港航天员是“一国两制”实践结出的硕果
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新网香港5月18日电 北京大学香港校友会17日在港举办“AI与人类未来”主题论坛活动。近350名来自京港两地的科技界领袖、学术专家及校友代表参与活动，共议人工智能(AI)技术前沿发展，共谋推动京港科创合作。 北京大学香港校友会会长刘祖繁在活动致辞中表示，北部都会区建设、科技创新人才引进与培养是香港未来发展的重要引擎和支柱，北京大学香港校友会将更好地从科技创新、青年交流和人才发
+新华社北京5月27日电(记者温馨、万倩仪)外交部发言人毛宁27日在例行记者会上答问时表示，神舟二十三号载人飞船成功发射，“天宫”迎来了首位中国香港航天员，这不仅是中国载人航天事业的又一里程碑，也是全体香港同胞的共同荣耀，是“一国两制”实践结出的硕果，显示了“一国两制”的强大生命力和显著优越性。 毛宁说，香港正在加快推进国际创科中心建设，相信此次航天任务将激励更多的香港青年为国家
 
 ## 正文
 
-中新网香港5月18日电 北京大学香港校友会17日在港举办“AI与人类未来”主题论坛活动。
+新华社北京5月27日电(记者温馨、万倩仪)外交部发言人毛宁27日在例行记者会上答问时表示，神舟二十三号载人飞船成功发射，“天宫”迎来了首位中国香港航天员，这不仅是中国载人航天事业的又一里程碑，也是全体香港同胞的共同荣耀，是“一国两制”实践结出的硕果，显示了“一国两制”的强大生命力和显著优越性。
 
-近350名来自京港两地的科技界领袖、学术专家及校友代表参与活动，共议人工智能(AI)技术前沿发展，共谋推动京港科创合作。
-
-北京大学香港校友会会长刘祖繁在活动致辞中表示，北部都会区建设、科技创新人才引进与培养是香港未来发展的重要引擎和支柱，北京大学香港校友会将更好地从科技创新、青年交流和人才发展等方面发挥香港和内地之间的平台与纽带作用。
-
-香港特区政府立法会主席李慧琼出席活动并表示，将来会积极推动北部都会区大学城建设、京港两地青年交流及科技创新人才引进与培养等方面合作，为国家发展和香港繁荣稳定培育更多优秀人才。
-
-此次论坛邀请京港两地科创科研人才作主题演讲，同时举办圆桌论坛，多位专家学者共同探讨技术将把人类文明带向何处、人与机器如何共处、创新与人文关怀如何统一等深层次问题，聚焦京港协同科技创新与科技合作的未来愿景。
-
-(完)
+毛宁说，香港正在加快推进国际创科中心建设，相信此次航天任务将激励更多的香港青年为国家的科技发展贡献力量。
 
 ## 相关推荐
 
-- 2026-06-29 16:41 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 16:53 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 16:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 16:43 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 16:45 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 16:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 16:34 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 16:48 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 16:53 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 16:28 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 16:39 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 16:53 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 16:46 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 16:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 16:37 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 16:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 16:35 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 16:31 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 16:57 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 16:40 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 16:30 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 16:40 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 16:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:30 - [美的空调 卡bug](http://www.share.minike.top/Article/details/543900.shtml)
-- 2026-06-29 16:31 - [人形机器人](https://www.blog.minike.top/Article/details/88047691.shtml)
-- 2026-06-29 16:31 - [逆天祖国人](http://www.share.minike.top/Article/details/62994464.shtml)
-- 2026-06-29 16:52 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/99764.shtml)
-- 2026-06-29 16:39 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/69249135.shtml)
-- 2026-06-29 16:40 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/29358.shtml)
-- 2026-06-29 16:49 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/57558264.shtml)
-- 2026-06-29 16:24 - [斛珠夫人](https://www.share.minike.top/Article/details/914125.shtml)
-- 2026-06-29 16:28 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/28004974.shtml)
-- 2026-06-29 16:37 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/0688744374.shtml)
-- 2026-06-29 16:30 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/550831968747.shtml)
-- 2026-06-29 16:36 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/548383.shtml)
-- 2026-06-29 16:33 - [一生一世](https://www.share.kurohicncr.top/Article/details/546743.shtml)
-- 2026-06-29 16:39 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/601223874334.shtml)
-- 2026-06-29 16:25 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/7522911241.shtml)
+- 2026-06-29 16:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/563407.shtml)
+- 2026-06-29 16:31 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/234457577207.shtml)
+- 2026-06-29 16:51 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/0330854.shtml)
+- 2026-06-29 16:59 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/0027585.shtml)
+- 2026-06-29 16:51 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/2102046.shtml)
+- 2026-06-29 16:38 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/46576546126.shtml)
+- 2026-06-29 16:54 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/079795.shtml)
+- 2026-06-29 16:59 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/8723472.shtml)
+- 2026-06-29 16:50 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.kurohicncr.top/Article/details/1607029398.shtml)
+- 2026-06-29 16:48 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/20946493941.shtml)
+- 2026-06-29 16:31 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/71753576504.shtml)
+- 2026-06-29 16:41 - [极限挑战第一季](http://www.blog.minike.top/Article/details/880545809390.shtml)
+- 2026-06-29 16:52 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/8301628116.shtml)
+- 2026-06-29 16:58 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/96762.shtml)
+- 2026-06-29 16:41 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/67659.shtml)

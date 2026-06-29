@@ -1,57 +1,56 @@
-# 以色列央行前行长雅各布·弗兰克尔：应对全球金融碎片化，防范危机远比“救火”更重要
+# 创业板指收涨近2% CPO概念掀涨停潮
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 原标题：每经专访以色列央行前行长雅各布·弗兰克尔：应对全球金融碎片化，防范危机远比“救火”更重要 每经记者|蔡鼎 每经编辑|杨军 5月18日，“2026清华五道口全球金融论坛”在四川成都开幕。本届论坛以“变局下的全球金融治理：新挑战、新机遇、新发展”为核心主题 。在论坛首日举行的“国际货币体系的重构”主题论坛中
+中新经纬5月28日电 周四，A股三大指数低开高走，创业板指盘中涨超2%。截至收盘，上证指数涨0.12%，报4098.64点；深证成指涨0.80%，报15861.89点；创业板指涨1.96%，报4125.07点。 沪深两市成交额2.97万亿，较上一个交易日缩量2704亿。个股涨多跌少，全市场超3000只个股上涨。 来源：同花顺 盘面上，行业板块中，非金属材料、元件、其他电子、金属
 
 ## 正文
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 原标题：每经专访以色列央行前行长雅各布·弗兰克尔：应对全球金融碎片化，防范危机远比“救火”更重要 每经记者|蔡鼎 每经编辑|杨军 5月18日，“2026清华五道口全球金融论坛”在四川成都开幕。
+中新经纬5月28日电 周四，A股三大指数低开高走，创业板指盘中涨超2%。
 
-本届论坛以“变局下的全球金融治理：新挑战、新机遇、新发展”为核心主题 。
+截至收盘，上证指数涨0.12%，报4098.64点；深证成指涨0.80%，报15861.89点；创业板指涨1.96%，报4125.07点。
 
-在论坛首日举行的“国际货币体系的重构”主题论坛中，三十人小组（G-30）董事会名誉主席、以色列央行前行长雅各布·弗兰克尔（Jacob A． Frenkel）出席并参与深度讨论。
+沪深两市成交额2.97万亿，较上一个交易日缩量2704亿。
 
-作为横跨顶尖学术界、国际多边组织与全球核心金融市场的资深专家，弗兰克尔曾于1991年至2000年期间连续两届出任以色列央行行长，并曾长期担任芝加哥大学国际经济学教授、国际货币基金组织（IMF）经济顾问兼研究部主任。
+个股涨多跌少，全市场超3000只个股上涨。
 
-在论坛间隙，弗兰克尔接受了《每日经济新闻》记者的独家专访。
+来源：同花顺 盘面上，行业板块中，非金属材料、元件、其他电子、金属新材料、通信设备等板块领涨，白酒、贵金属、证券、影视院线、保险等板块跌幅居前。
 
-面对当前发达经济体政策路径的分歧以及地缘局势带来的金融“碎片化”隐忧，弗兰克尔对全球多边协作和防范系统性风险提出了新的治理思考。
+概念板块中，培育钻石、超级电容、PET铜箔、PCB概念、CPO概念等板块涨幅居前，免税店、养鸡、超级品牌、减肥药等板块领跌。
 
-他表示，国际货币体系已转变为由私营部门和资本市场主导的新现实，要求决策者必须提供更加清晰、透明的前瞻性指引，并通过国际清算银行（BIS）等平台强化跨国政策沟通。
+CPO概念集体大涨，本川智能、奕东电子、联特科技、安孚科技、合锻智能、鸿远电子、沃格光电等涨停，中际旭创涨超7%。
 
-同时，针对许多新兴市场面临的潜在债务与流动性压力，他认为全球宏观治理亟需打破惯常的“背水一战”救火模式，应当将更多机制化精力和资源倾注于危机前的系统性防范，以长远视野推动包容性与可持续的经济增长。
+此外，今日其他涨停股部分如下：再升科技(10.00%)、中兴通讯(9.99%)、中京电子(9.98%)、中国巨石(9.99%)、风华高科(10.00%)。
 
 ## 相关推荐
 
-- 2026-06-29 16:49 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 16:29 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 16:51 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 16:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 16:30 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 16:35 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 16:51 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 16:35 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 16:37 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 16:52 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 16:31 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 16:52 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 16:30 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 16:45 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 16:39 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 16:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 16:42 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 16:31 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 16:48 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 16:35 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 16:47 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:52 - [恋与深空 731](https://www.share.minike.top/Article/details/81093292.shtml)
-- 2026-06-29 16:52 - [7款商保创新药“转道”](https://www.share.kurohicncr.top/Article/details/143658968.shtml)
-- 2026-06-29 16:49 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/210990.shtml)
-- 2026-06-29 16:47 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/556467590.shtml)
-- 2026-06-29 16:52 - [永远有话聊的原因](https://www.share.minike.top/Article/details/1993687.shtml)
-- 2026-06-29 16:32 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/3612548159.shtml)
-- 2026-06-29 16:38 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/46530495.shtml)
-- 2026-06-29 16:26 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/3697788255.shtml)
-- 2026-06-29 16:30 - [急先锋](http://www.blog.kurohicncr.top/Article/details/222489150.shtml)
-- 2026-06-29 16:30 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/42492.shtml)
-- 2026-06-29 16:51 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/400107953.shtml)
-- 2026-06-29 16:24 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/75454599.shtml)
-- 2026-06-29 16:35 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/4167305107.shtml)
-- 2026-06-29 16:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/143049053233.shtml)
-- 2026-06-29 16:25 - [网警提醒4类高考查分陷阱考生速看](http://www.share.minike.top/Article/details/29070623005.shtml)
+- 2026-06-29 16:59 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/34133535215.shtml)
+- 2026-06-29 16:33 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.kurohicncr.top/Article/details/32565259026.shtml)
+- 2026-06-29 16:39 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/55285.shtml)
+- 2026-06-29 16:40 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/46710.shtml)
+- 2026-06-29 16:46 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/1571140.shtml)
+- 2026-06-29 16:56 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/76445.shtml)
+- 2026-06-29 16:35 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/53816440.shtml)
+- 2026-06-29 16:57 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/44762139583.shtml)
+- 2026-06-29 16:38 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/737825343381.shtml)
+- 2026-06-29 16:39 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/069212123.shtml)
+- 2026-06-29 16:31 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/56289744527.shtml)
+- 2026-06-29 16:44 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/407281393958.shtml)
+- 2026-06-29 16:30 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/854117.shtml)
+- 2026-06-29 16:46 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/34897207672.shtml)
+- 2026-06-29 16:42 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/5790940265.shtml)

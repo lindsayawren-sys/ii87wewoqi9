@@ -1,59 +1,51 @@
-# 短剧柔性叙事，让反诈宣传入耳入心
+# 5月28日“农产品批发价格200指数”比昨天下降0.02个点
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-“娘，我来了！”一声声亲热呼唤，却藏着步步惊心的圈套——据金陵广播电台公众号报道，近日，江苏扬州公安推出短剧《红楼说经侦——当贾母遇上四个“好儿子”》，该剧借大众熟知的红楼IP，演绎贾母深陷养老骗局、宝玉巧妙点醒的剧情，将反诈知识融入趣味故事，打破传统反诈宣传生硬说教的困局，为养老反诈科普提供了极具温度与巧思的创新范本。长期以来，养老诈骗乱象频发。骗子精准拿捏老年群体孤独缺陪伴
+中新网5月28日电 据农业农村部网站消息，据农业农村部监测，5月28日“农产品批发价格200指数”为113.22，比昨天下降0.02个点，“菜篮子”产品批发价格指数为113.28，比昨天下降0.03个点。 截至今日14:00时，全国农产品批发市场猪肉平均价格为14.88元/公斤，比昨天上升0.9%；牛肉66.63元/公斤，比昨天上升0.3%；羊肉64.12元/公斤，比昨天上升0
 
 ## 正文
 
-“娘，我来了！
+中新网5月28日电 据农业农村部网站消息，据农业农村部监测，5月28日“农产品批发价格200指数”为113.22，比昨天下降0.02个点，“菜篮子”产品批发价格指数为113.28，比昨天下降0.03个点。
 
-”一声声亲热呼唤，却藏着步步惊心的圈套——据金陵广播电台公众号报道，近日，江苏扬州公安推出短剧《红楼说经侦——当贾母遇上四个“好儿子”》，该剧借大众熟知的红楼IP，演绎贾母深陷养老骗局、宝玉巧妙点醒的剧情，将反诈知识融入趣味故事，打破传统反诈宣传生硬说教的困局，为养老反诈科普提供了极具温度与巧思的创新范本。
+截至今日14:00时，全国农产品批发市场猪肉平均价格为14.88元/公斤，比昨天上升0.9%；牛肉66.63元/公斤，比昨天上升0.3%；羊肉64.12元/公斤，比昨天上升0.5%；鸡蛋9.77元/公斤，比昨天上升1.1%；白条鸡17.04元/公斤，与昨天持平。
 
-长期以来，养老诈骗乱象频发。
+重点监测的28种蔬菜平均价格为4.12元/公斤，比昨天下降0.5%；重点监测的6种水果平均价格为7.75元/公斤，比昨天上升1.0%。
 
-骗子精准拿捏老年群体孤独缺陪伴、健康有焦虑、渴望资产保值等心理，以高息理财、预售养老床位、虚假保健品为诱饵，用甜言蜜语、温情陪伴降低老人警惕，一步步诱导其掏空积蓄。
+鲫鱼20.07元/公斤，比昨天下降0.7%；鲤鱼14.95元/公斤，比昨天上升0.1%；白鲢鱼10.44元/公斤，比昨天下降1.2%；大带鱼40.58元/公斤，与昨天持平。
 
-这类骗局套路并不复杂，却能屡屡得手，除了骗子深谙“共情攻心”之道，传统反诈宣传存在短板也不容忽视。
-
-以往一些反诈宣传难免陷入单向灌输、口号式说教的误区，比如有的街头海报“谨防诈骗”的警示内容缺少生活气息；有的社区讲座多是照本宣科念法条、罗列案例，内容较为枯燥；有的宣传话术相对固化，缺乏对老年群体心理的理解与体恤等。
-
-老年人需要的不是冷冰冰的告诫，而是被理解、被共情，生硬说教的反诈宣传方式，往往难以走进人心。
-
-红楼系列反诈短剧之所以走红，关键在于找准了符合传播规律的反诈宣传破局之道——用讲故事的方式让养老防骗入脑入心。
+今日，国内鲜活农产品批发市场重点监测的46个品种中，与昨天相比价格升幅前五名的是巨峰葡萄、洋白菜、葱头、大葱和菠菜，幅度分别为4.6%、3.0%、2.7%、2.3%和2.0%；价格降幅前五名的是西瓜、莴笋、菠萝、芹菜和西红柿，幅度分别为5.6%、4.5%、3.8%、2.7%和2.6%。
 
 ## 相关推荐
 
-- 2026-06-29 16:53 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 16:51 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 16:44 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 16:31 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 16:45 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 16:36 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 16:33 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 16:52 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 16:42 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 16:41 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 16:52 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 16:39 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 16:37 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 16:40 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 16:31 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 16:54 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 16:42 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 16:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 16:35 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 16:34 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 16:34 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 16:35 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 16:43 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 16:32 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:45 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/469985642251.shtml)
-- 2026-06-29 16:45 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/5670357.shtml)
-- 2026-06-29 16:44 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/34409957863.shtml)
-- 2026-06-29 16:32 - [一见倾心](https://www.share.kurohicncr.top/Article/details/61472.shtml)
-- 2026-06-29 16:48 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/64824.shtml)
-- 2026-06-29 16:26 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/247771.shtml)
-- 2026-06-29 16:28 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/1622974.shtml)
-- 2026-06-29 16:44 - [起风了](http://www.share.minike.top/Article/details/661819954852.shtml)
-- 2026-06-29 16:48 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/86972765.shtml)
-- 2026-06-29 16:27 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/58179133110.shtml)
-- 2026-06-29 16:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/7705809375.shtml)
-- 2026-06-29 16:31 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/53100908.shtml)
-- 2026-06-29 16:30 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/890131683824.shtml)
-- 2026-06-29 16:32 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.kurohicncr.top/Article/details/575246271595.shtml)
-- 2026-06-29 16:36 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/328590545518.shtml)
+- 2026-06-29 16:34 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/59558219517.shtml)
+- 2026-06-29 16:45 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.kurohicncr.top/Article/details/119268900335.shtml)
+- 2026-06-29 16:39 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/39420116701.shtml)
+- 2026-06-29 16:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/63828598.shtml)
+- 2026-06-29 16:35 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/38830207594.shtml)
+- 2026-06-29 16:49 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/12046.shtml)
+- 2026-06-29 16:31 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/30125737.shtml)
+- 2026-06-29 16:51 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/213349579.shtml)
+- 2026-06-29 16:37 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/03877364.shtml)
+- 2026-06-29 16:41 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/963327142399.shtml)
+- 2026-06-29 16:53 - [流金岁月](http://www.share.kurohicncr.top/Article/details/961139905.shtml)
+- 2026-06-29 16:42 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/049421917.shtml)
+- 2026-06-29 16:54 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/455264785.shtml)
+- 2026-06-29 16:52 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/87428.shtml)
+- 2026-06-29 16:36 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/7728574001.shtml)

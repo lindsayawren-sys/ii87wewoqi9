@@ -1,59 +1,56 @@
-# OneStream发布“前瞻财务”蓝图，助CFO领航企业AI战略
+# 刚果（金）埃博拉疫情疑似病例数破千
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-应对角色转变，推出全新运营模式 企业财务与绩效管理平台OneStream近日在其Splash用户大会上发布了名为“前瞻财务”的全新运营模式框架。该蓝图旨在帮助首席财务官及其财务团队应对角色转变——从传统的财务记录者，转向企业战略与AI执行的核心驱动力。OneStream将自己定位为“现代财务的AI操作系统”，此次蓝图发布是其帮助客户从AI实验中获取可衡量价值的关键一步。 五大领
+中新网5月28日电 综合外媒报道，埃博拉疫情仍在刚果(金)蔓延，病例和死亡人数持续增加。 刚果(金)卫生部26日报告称，伊图里省、北基伍省和南基伍省累计报告121例确诊病例，其中17例死亡；另有1077例疑似病例，其中238例死亡。 报道称，当地的疫情防控面临一系列挑战，包括物资短缺、国际援助削减以及一些民众抵触安全埋葬措施等。 世界卫生组织总干事谭德塞表示，刚果(金)东部正面
 
 ## 正文
 
-应对角色转变，推出全新运营模式 企业财务与绩效管理平台OneStream近日在其Splash用户大会上发布了名为“前瞻财务”的全新运营模式框架。
+中新网5月28日电 综合外媒报道，埃博拉疫情仍在刚果(金)蔓延，病例和死亡人数持续增加。
 
-该蓝图旨在帮助首席财务官及其财务团队应对角色转变——从传统的财务记录者，转向企业战略与AI执行的核心驱动力。
+刚果(金)卫生部26日报告称，伊图里省、北基伍省和南基伍省累计报告121例确诊病例，其中17例死亡；另有1077例疑似病例，其中238例死亡。
 
-OneStream将自己定位为“现代财务的AI操作系统”，此次蓝图发布是其帮助客户从AI实验中获取可衡量价值的关键一步。
+报道称，当地的疫情防控面临一系列挑战，包括物资短缺、国际援助削减以及一些民众抵触安全埋葬措施等。
 
-五大领导力维度定义AI就绪团队 OneStream首席战略官Tim Minahan表示，财务团队不再被要求仅仅快速关账，而是越来越多地被期望帮助引领业务。
+世界卫生组织总干事谭德塞表示，刚果(金)东部正面临疾病与冲突叠加的严峻局面，伊图里省埃博拉疫情蔓延速度已超过应对能力。
 
-“前瞻财务”模式正是为此而生，它围绕五个核心领导力维度构建：数据管家、AI战略师、首席运营官、IT协作者和劳动力架构师。
+援助组织“救助儿童会”27日表示，确诊死亡病例中有四分之一为儿童，并呼吁扩大感染预防措施。
 
-这些角色旨在确保AI的部署基于可信数据，并与IT部门深度协同，同时重塑团队技能以迎接人机协作的未来。
+世界卫生组织17日认定，刚果(金)和乌干达由埃博拉病毒引发的疫情已构成“国际关注的突发公共卫生事件”。
 
-直面数据挑战，弥合AI投资与价值差距 OneStream的研究显示，尽管96%的高管认为可信数据对成功至关重要，但仍有47%的人承认在过去一年中曾基于错误数据做出重大业务决策，数据错误导致72%的组织损失超过50万美元。
-
-随着Gartner预测全球AI支出将超过2万亿美元，CFO在确保AI投资回报方面面临巨大压力。
+其22日进一步表示，刚果(金)本轮疫情扩散较快，目前在该国国内的风险等级已升至“非常高”，地区层面风险为“高”，全球层面风险为“低”。
 
 ## 相关推荐
 
-- 2026-06-29 16:32 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 16:27 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 16:53 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 16:44 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 16:49 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 16:28 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 16:24 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 16:52 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 16:51 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 16:51 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 16:45 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 16:37 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 16:28 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 16:36 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 16:45 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 16:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 16:33 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 16:39 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 16:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 16:56 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 16:58 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 16:54 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 16:51 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 16:37 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 16:35 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:53 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.kurohicncr.top/Article/details/72815277.shtml)
-- 2026-06-29 16:52 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/6936699786.shtml)
-- 2026-06-29 16:36 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/65476.shtml)
-- 2026-06-29 16:50 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/00200.shtml)
-- 2026-06-29 16:27 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/68191975591.shtml)
-- 2026-06-29 16:31 - [未成年少女长期吸毒导致卧床不起](http://www.share.kurohicncr.top/Article/details/60803.shtml)
-- 2026-06-29 16:24 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/67201213.shtml)
-- 2026-06-29 16:26 - [博主：黄金和原油回落不等于风险消失](https://www.share.kurohicncr.top/Article/details/738502717.shtml)
-- 2026-06-29 16:50 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/12384481.shtml)
-- 2026-06-29 16:41 - [TLAW vs DCG MSI](https://www.blog.minike.top/Article/details/31021172.shtml)
-- 2026-06-29 16:37 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/8906071.shtml)
-- 2026-06-29 16:33 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/7766356.shtml)
-- 2026-06-29 16:36 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/524361130.shtml)
-- 2026-06-29 16:40 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/633491871.shtml)
-- 2026-06-29 16:42 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/95853.shtml)
+- 2026-06-29 16:41 - [叠纸](http://www.share.minike.top/Article/details/408453565.shtml)
+- 2026-06-29 16:34 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/0969126707.shtml)
+- 2026-06-29 16:35 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/902837086761.shtml)
+- 2026-06-29 16:41 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/735619974.shtml)
+- 2026-06-29 16:45 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/63839819099.shtml)
+- 2026-06-29 16:53 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/122096.shtml)
+- 2026-06-29 16:31 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/1826385117.shtml)
+- 2026-06-29 16:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/25106191379.shtml)
+- 2026-06-29 16:34 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.minike.top/Article/details/327090156780.shtml)
+- 2026-06-29 16:54 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/804277.shtml)
+- 2026-06-29 16:30 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/906946803615.shtml)
+- 2026-06-29 16:44 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/739680.shtml)
+- 2026-06-29 16:33 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/91441077.shtml)
+- 2026-06-29 16:52 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/257236752667.shtml)
+- 2026-06-29 16:56 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/68703787.shtml)

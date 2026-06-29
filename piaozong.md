@@ -1,58 +1,53 @@
-# 柴可夫斯基生平成就展在哈尔滨启幕
+# 马斯克：SpaceX并未与Anthropic就Colossus项目达成长期租赁协议
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月19日电(记者 王妮娜)19日，柴可夫斯基生平成就展在哈尔滨音乐博物馆开幕。展览以珍贵手稿、原版乐谱、历史照片与文献资料为载体，全景式呈现这位俄罗斯音乐巨匠的艺术人生与创作巅峰，吸引众多音乐爱好者前来观展。 作为享誉世界的音乐大师，柴可夫斯基的作品兼具民族情怀与人文温度，旋律优美、情感真挚、影响深远。其创作跨越国界、打动人心，早已成为世界古典音乐宝库中的璀璨明珠
+SpaceX首席执行官埃隆·马斯克周四表示，这家即将上市的公司仅同意将“巨像”（Colossus）人工智能训练数据中心集群租赁给Anthropic六个月，而非此前暗示的数年。 “SpaceX并未承诺将Colossus出租多年，尽管未来可能会有这种可能性，”马斯克在X平台的一篇帖子中写道。 他补充称，该协议为期180天，此后双方均可提前90天通知终止合同。 “短期租赁是我们提出的
 
 ## 正文
 
-中新网哈尔滨5月19日电(记者 王妮娜)19日，柴可夫斯基生平成就展在哈尔滨音乐博物馆开幕。
+SpaceX首席执行官埃隆·马斯克周四表示，这家即将上市的公司仅同意将“巨像”（Colossus）人工智能训练数据中心集群租赁给Anthropic六个月，而非此前暗示的数年。
 
-展览以珍贵手稿、原版乐谱、历史照片与文献资料为载体，全景式呈现这位俄罗斯音乐巨匠的艺术人生与创作巅峰，吸引众多音乐爱好者前来观展。
+“SpaceX并未承诺将Colossus出租多年，尽管未来可能会有这种可能性，”马斯克在X平台的一篇帖子中写道。
 
-作为享誉世界的音乐大师，柴可夫斯基的作品兼具民族情怀与人文温度，旋律优美、情感真挚、影响深远。
+他补充称，该协议为期180天，此后双方均可提前90天通知终止合同。
 
-其创作跨越国界、打动人心，早已成为世界古典音乐宝库中的璀璨明珠。
+“短期租赁是我们提出的，而非Anthropic的要求。
 
-展览的举办，既是对其艺术成就的崇高致敬，也为哈尔滨市民众架起了理解俄罗斯古典音乐、感受俄罗斯文化魅力的桥梁，成为中俄文化交流的生动载体与友好情谊的美好见证。
+我们不会让他们陷入困境，并将提供合理的退出机制，但如果计算资源变得极其紧张，我曾表示我们可能需要在某个时候收回这些资源，”他说。
 
-哈尔滨市与莫斯科市于2023年签署两市合作计划，此后在政府、议会、经贸、交通、文化等多个领域持续深化交流，取得积极成效。
-
-第十届中俄博览会期间，两市联合举办哈尔滨“莫斯科日”活动，进一步拓展合作领域、丰富交流内涵。
-
-本次展览由俄罗斯国家音乐博物馆与国家彼得·伊里奇·柴可夫斯基音乐纪念故居博物馆联合举办，是哈尔滨“莫斯科日”框架下的重要文化活动之一。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 16:42 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 16:32 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 16:30 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 16:26 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 16:42 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 16:31 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 16:52 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 16:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 16:37 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 16:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 16:40 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 16:25 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 16:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 16:52 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 16:49 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 16:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 16:56 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 16:38 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 16:55 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 16:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 16:48 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 16:44 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 16:41 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:28 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.kurohicncr.top/Article/details/68591985.shtml)
-- 2026-06-29 16:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/79808023978.shtml)
-- 2026-06-29 16:41 - [驻日美军航母沦为“毒窝”](http://www.blog.minike.top/Article/details/514069886664.shtml)
-- 2026-06-29 16:30 - [明星大侦探第四季](https://www.share.minike.top/Article/details/222515101443.shtml)
-- 2026-06-29 16:52 - [差点没看懂白鹿丞磊这段意识流](http://www.share.minike.top/Article/details/3493736.shtml)
-- 2026-06-29 16:37 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/784649096223.shtml)
-- 2026-06-29 16:39 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/288462987777.shtml)
-- 2026-06-29 16:39 - [韩国队出局是因为内讧吗](https://www.blog.minike.top/Article/details/9707891.shtml)
-- 2026-06-29 16:33 - [T1 KC](https://www.share.kurohicncr.top/Article/details/14714622.shtml)
-- 2026-06-29 16:26 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/17336524361.shtml)
-- 2026-06-29 16:32 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/55982495351.shtml)
-- 2026-06-29 16:37 - [光与夜之恋](http://www.blog.minike.top/Article/details/049560.shtml)
-- 2026-06-29 16:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/62560.shtml)
-- 2026-06-29 16:29 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.minike.top/Article/details/073432.shtml)
-- 2026-06-29 16:46 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/188444162359.shtml)
+- 2026-06-29 16:50 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/49935334.shtml)
+- 2026-06-29 16:55 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/532549016163.shtml)
+- 2026-06-29 16:42 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/82231.shtml)
+- 2026-06-29 16:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/4587429.shtml)
+- 2026-06-29 16:43 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/336973564.shtml)
+- 2026-06-29 16:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/06828.shtml)
+- 2026-06-29 16:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/6199213282.shtml)
+- 2026-06-29 16:56 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/37948434.shtml)
+- 2026-06-29 16:32 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/50078308680.shtml)
+- 2026-06-29 16:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/73366930.shtml)
+- 2026-06-29 16:41 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.kurohicncr.top/Article/details/573932503.shtml)
+- 2026-06-29 16:44 - [绘画区你赢了](https://www.share.minike.top/Article/details/671976.shtml)
+- 2026-06-29 16:36 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/4271965995.shtml)
+- 2026-06-29 16:48 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/63142339.shtml)
+- 2026-06-29 16:31 - [金牌调解](http://www.share.minike.top/Article/details/253669458251.shtml)

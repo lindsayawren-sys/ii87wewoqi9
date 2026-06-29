@@ -1,57 +1,57 @@
-# 特斯拉计划年内在全美推广完全自动驾驶
+# 中联发展控股就于东南亚发展人工智能数据中心业务订立合营协议
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-特斯拉首席执行官马斯克18日通过视频连线出席在特拉维夫举行的智能出行峰会时表示，继在德克萨斯州落地之后，特斯拉计划于今年晚些时候在全美范围内扩大取消人类安全监护员的完全自动驾驶汽车的运营规模。 目前，特斯拉已在德克萨斯州的奥斯汀、达拉斯和休斯敦等地投入运营无人驾驶出租车（Robotaxi）。马斯克透露，目前在德克萨斯州运行的自动驾驶车辆已实现无人类安全监护员运转，这一模式今年内
+中联发展控股（00264）发布公告，于2026年5月28日，本公司一间全资附属公司与Nexelon Limited（合营伙伴）订立合营协议（合营协议）。根据合营协议，该附属公司已同意出售，而合营伙伴已同意以名义代价购买该附属公司一间全资附属公司（合营公司）的40%股权，以使合营协议项下所拟合营公司的股权结构更为合理。 合营协议完成后，合营公司将由该附属公司拥有60%权益及由合营
 
 ## 正文
 
-特斯拉首席执行官马斯克18日通过视频连线出席在特拉维夫举行的智能出行峰会时表示，继在德克萨斯州落地之后，特斯拉计划于今年晚些时候在全美范围内扩大取消人类安全监护员的完全自动驾驶汽车的运营规模。
+中联发展控股（00264）发布公告，于2026年5月28日，本公司一间全资附属公司与Nexelon Limited（合营伙伴）订立合营协议（合营协议）。
 
-目前，特斯拉已在德克萨斯州的奥斯汀、达拉斯和休斯敦等地投入运营无人驾驶出租车（Robotaxi）。
+根据合营协议，该附属公司已同意出售，而合营伙伴已同意以名义代价购买该附属公司一间全资附属公司（合营公司）的40%股权，以使合营协议项下所拟合营公司的股权结构更为合理。
 
-马斯克透露，目前在德克萨斯州运行的自动驾驶车辆已实现无人类安全监护员运转，这一模式今年内将推广至全美。
+合营协议完成后，合营公司将由该附属公司拥有60%权益及由合营伙伴拥有40%权益，而合营公司将仍为本公司的附属公司。
 
-去年11月，特斯拉已获得在亚利桑那州运营网约车服务的许可。
+订约各方有意透过合营公司共同于东南亚发展人工智能数据中心业务（AIDC）。
 
-马斯克对自动驾驶技术的长期普及仍保持乐观。
+全球人工智能浪潮及数位化进程的加速发展，促使作为人工智能及数位化基础设施的智能算力中心市场规模持续扩大，并把握周边地区的发展机遇，尤其于亚太地区增长显著。
 
-他预测，未来5到10年内，全球约90%的行驶里程将由自动驾驶汽车的人工智能系统完成；10年之后，由人类亲自驾驶汽车将成为极少数的“小众行为”。
+透过订立合营协议，本公司有望把握该等机遇，并提升其长远增长前景。
 
-他还进一步表示，未来10年左右，人形机器人将无处不在，其高生产力有望推动经济增长并实现“普遍高收入”。
+董事会认为，订立合营协议为一项策略性举措，将使本公司能够（其中包括）于快速增长的东南亚数位基础设施市场扩展其业务版图、善用合营伙伴的本地专业知识及网络，以及实现其收益来源多元化。
 
-责任编辑：龙运翔
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:24 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 16:34 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 16:27 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 16:24 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 16:52 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 16:29 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 16:35 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 16:51 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 16:36 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 16:52 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 16:50 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 16:32 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 16:54 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 16:40 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 16:35 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 16:59 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 16:50 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 16:56 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 16:58 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 16:50 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 16:33 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 16:49 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:39 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/30351815.shtml)
-- 2026-06-29 16:36 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/7254159.shtml)
-- 2026-06-29 16:32 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/29262446066.shtml)
-- 2026-06-29 16:29 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/224816441209.shtml)
-- 2026-06-29 16:44 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/6762063556.shtml)
-- 2026-06-29 16:41 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/881801848.shtml)
-- 2026-06-29 16:47 - [一见倾心](https://www.share.kurohicncr.top/Article/details/96922859228.shtml)
-- 2026-06-29 16:41 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/27423.shtml)
-- 2026-06-29 16:48 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/6781925412.shtml)
-- 2026-06-29 16:50 - [叠纸](http://www.share.kurohicncr.top/Article/details/762818.shtml)
-- 2026-06-29 16:44 - [12所大学更正招生目录](https://www.share.minike.top/Article/details/029488177.shtml)
-- 2026-06-29 16:51 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/244968.shtml)
-- 2026-06-29 16:50 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/4267414723.shtml)
-- 2026-06-29 16:31 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/465992.shtml)
-- 2026-06-29 16:39 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.kurohicncr.top/Article/details/75523033.shtml)
+- 2026-06-29 16:59 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/00593511.shtml)
+- 2026-06-29 16:47 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/757774.shtml)
+- 2026-06-29 16:49 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/5049603.shtml)
+- 2026-06-29 16:58 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/81342057591.shtml)
+- 2026-06-29 16:42 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/1776063.shtml)
+- 2026-06-29 16:42 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/36706.shtml)
+- 2026-06-29 16:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/85962151578.shtml)
+- 2026-06-29 16:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/83749908246.shtml)
+- 2026-06-29 16:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/679975270861.shtml)
+- 2026-06-29 16:58 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/1578488.shtml)
+- 2026-06-29 16:52 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/590844706.shtml)
+- 2026-06-29 16:40 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/50511.shtml)
+- 2026-06-29 16:49 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/4796067.shtml)
+- 2026-06-29 16:40 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/38805.shtml)
+- 2026-06-29 16:43 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/04115.shtml)

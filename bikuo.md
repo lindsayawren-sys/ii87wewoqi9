@@ -1,49 +1,58 @@
-# 中国银行董事长葛海蛟会见友邦保险集团董事会主席杜嘉祺爵士
+# 美财长：美伊能否达成协议取决于“总统想要怎么做”
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-原标题：葛海蛟会见友邦保险集团董事会主席杜嘉祺爵士 来源：中国银行 5月18日，中国银行董事长葛海蛟在中国银行总行大厦会见友邦保险集团董事会主席杜嘉祺爵士，双方就国内外宏观经济形势交换意见，并围绕代理保险、托管、香港及东南亚地区合作等话题进行交流。中国银行副行长黄学玲、友邦保险集团首席执行官兼总裁李源祥参加会见。 双方一致表示，将以此次会见为契机，依托各自境内外、多领域业务布局
+中新网5月29日电 据美媒报道，美国财政部长贝森特当地时间28日在白宫记者会上表示，美国与伊朗能否达成潜在的协议，取决于总统特朗普是否支持该协议。 美国媒体当天早些时候援引美官员的话报道，美伊谈判代表已就谅解备忘录条款基本达成一致，有待特朗普最终批准。 据美国《国会山报》报道，贝森特对此表示，“双方团队一直在反复磋商，特朗普总统已经非常明确地表示——他在内阁会议上谈到了这一点—
 
 ## 正文
 
-原标题：葛海蛟会见友邦保险集团董事会主席杜嘉祺爵士 来源：中国银行 5月18日，中国银行董事长葛海蛟在中国银行总行大厦会见友邦保险集团董事会主席杜嘉祺爵士，双方就国内外宏观经济形势交换意见，并围绕代理保险、托管、香港及东南亚地区合作等话题进行交流。
+中新网5月29日电 据美媒报道，美国财政部长贝森特当地时间28日在白宫记者会上表示，美国与伊朗能否达成潜在的协议，取决于总统特朗普是否支持该协议。
 
-中国银行副行长黄学玲、友邦保险集团首席执行官兼总裁李源祥参加会见。
+美国媒体当天早些时候援引美官员的话报道，美伊谈判代表已就谅解备忘录条款基本达成一致，有待特朗普最终批准。
 
-双方一致表示，将以此次会见为契机，依托各自境内外、多领域业务布局，持续拓宽合作维度，深化银保协同，携手打造国内深耕、亚太联动、互利共赢的银保合作新标杆。
+据美国《国会山报》报道，贝森特对此表示，“双方团队一直在反复磋商，特朗普总统已经非常明确地表示——他在内阁会议上谈到了这一点——他有几条红线。
 
-Ge Haijiao Meets with Sir Mark Tucker， Chairman of AIA Group On May 18， Ge Haijiao， Chairman of Bank of China Limited， met with Sir Mark Tucker， Chairman of AIA Group， at the Bank’s Head Office in Beijing． The two sides exchanged views on macroeconomic conditions in China and around the world， and discussed cooperation opportunities in bancassurance， asset custody， as well as i
+” 贝森特重申了美方的立场，即伊朗必须交出其高浓缩铀、伊朗不能发展核武器，以及霍尔木兹海峡必须保持开放。
+
+“他(特朗普)不会接受糟糕的协议。
+
+”贝森特说。
+
+当被再次问及是否已达成初步协议时，贝森特说，“一切都取决于总统想要怎么做。
+
+”
 
 ## 相关推荐
 
-- 2026-06-29 16:28 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 16:37 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 16:50 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 16:51 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 16:28 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 16:38 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 16:37 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 16:26 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 16:47 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 16:44 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 16:35 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 16:57 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 16:49 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 16:53 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 16:56 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 16:31 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 16:45 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 16:39 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 16:41 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 16:40 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 16:35 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 16:32 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 16:35 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:44 - [河南考699分女生已接到清华大学电话](http://www.share.minike.top/Article/details/352713.shtml)
-- 2026-06-29 16:30 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/4235037937.shtml)
-- 2026-06-29 16:44 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.minike.top/Article/details/20298.shtml)
-- 2026-06-29 16:47 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/38427469684.shtml)
-- 2026-06-29 16:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/437972819.shtml)
-- 2026-06-29 16:43 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/78407.shtml)
-- 2026-06-29 16:35 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/8668215117.shtml)
-- 2026-06-29 16:32 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/63760153.shtml)
-- 2026-06-29 16:41 - [绘画区你赢了](http://www.blog.minike.top/Article/details/69437092.shtml)
-- 2026-06-29 16:26 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/90896298.shtml)
-- 2026-06-29 16:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/45855509.shtml)
-- 2026-06-29 16:52 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/21389745.shtml)
-- 2026-06-29 16:29 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/5646143192.shtml)
-- 2026-06-29 16:32 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/51620840.shtml)
-- 2026-06-29 16:48 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/20315.shtml)
+- 2026-06-29 16:50 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/31873.shtml)
+- 2026-06-29 16:31 - [NBA交易](https://www.share.kurohicncr.top/Article/details/144919859.shtml)
+- 2026-06-29 16:30 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/69797.shtml)
+- 2026-06-29 16:31 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/859389422859.shtml)
+- 2026-06-29 16:40 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/946828442.shtml)
+- 2026-06-29 16:51 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/8349169870.shtml)
+- 2026-06-29 16:52 - [一见倾心](http://www.share.minike.top/Article/details/108803229.shtml)
+- 2026-06-29 16:38 - [T1零封KC MSI](https://www.share.minike.top/Article/details/31309876160.shtml)
+- 2026-06-29 16:30 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.minike.top/Article/details/906522839.shtml)
+- 2026-06-29 16:33 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/08504.shtml)
+- 2026-06-29 16:54 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/454302.shtml)
+- 2026-06-29 16:58 - [爸爸当家](http://www.blog.minike.top/Article/details/2454322.shtml)
+- 2026-06-29 16:49 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/010946576.shtml)
+- 2026-06-29 16:57 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/57920903735.shtml)
+- 2026-06-29 16:52 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/24355029.shtml)

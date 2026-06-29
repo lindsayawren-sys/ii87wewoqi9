@@ -1,58 +1,56 @@
-# 陪审团裁决马斯克起诉OpenAI案：起诉太晚，驳回所有指控
+# 长鑫过会，五种力量奔涌而来
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-关键裁决：诉讼时效为致命伤 经过不到两小时的审议，加利福尼亚州奥克兰市联邦法院的陪审团于周一做出裁决，一致认定埃隆·马斯克对OpenAI及其首席执行官萨姆·奥特曼的诉讼因已超出诉讼时效而被驳回。主审法官伊冯·冈萨雷斯·罗杰斯接受了陪审团的建议，并当庭指出：“有大量证据支持陪审团的裁决，我本就准备当场驳回此案”。 这场为期三周的庭审被视为硅谷关于AI未来的决定性战役之一。马斯克在
+来源：半导体产业纵横 今日，长鑫科技科创板IPO成功过会！ 同一天，全球存储芯片三巨头：SK海力士、三星、美光，市值全部突破万亿美元。全球存储芯片三巨头，正在见证一个新玩家的崛起。 几个数字：2026年长鑫预计上半年营收1100亿至1200亿元，归母净利润500亿至570亿元。这意味着，全年净利润可能超过1000亿元。这个数字，已经超越拼多多（307亿），超越宁德时代（304亿
 
 ## 正文
 
-关键裁决：诉讼时效为致命伤 经过不到两小时的审议，加利福尼亚州奥克兰市联邦法院的陪审团于周一做出裁决，一致认定埃隆·马斯克对OpenAI及其首席执行官萨姆·奥特曼的诉讼因已超出诉讼时效而被驳回。
+来源：半导体产业纵横 今日，长鑫科技科创板IPO成功过会！
 
-主审法官伊冯·冈萨雷斯·罗杰斯接受了陪审团的建议，并当庭指出：“有大量证据支持陪审团的裁决，我本就准备当场驳回此案”。
+同一天，全球存储芯片三巨头：SK海力士、三星、美光，市值全部突破万亿美元。
 
-这场为期三周的庭审被视为硅谷关于AI未来的决定性战役之一。
+全球存储芯片三巨头，正在见证一个新玩家的崛起。
 
-马斯克在2024年的诉讼中指控奥特曼等人违背了OpenAI创立时“为人类福祉开发AI”的非营利承诺，相当于“偷走了一个慈善机构”。
+几个数字：2026年长鑫预计上半年营收1100亿至1200亿元，归母净利润500亿至570亿元。
 
-马斯克声称，他基于这一承诺捐赠了约3800万美元的早期资金。
+这意味着，全年净利润可能超过1000亿元。
 
-庭审攻防：诚信与野心 在11天的证词中，马斯克与奥特曼的信誉均受到严厉拷问。
+这个数字，已经超越拼多多（307亿），超越宁德时代（304亿元）。
 
-马斯克的律师将矛头直指奥特曼的诚信，称“如果你不相信他，他们就无法获胜”。
+长鑫过会，不是中国半导体的一小步，是中国工业体系证明自己的一大步。
 
-而OpenAI的律师则将马斯克描绘成一个因失去控制权而心生不满的前合伙人的形象，辩称他的起诉实为打压竞争对手，因为他在提起诉讼的一年半前创办了自己的人工智能公司xAI。
+01 资本力量：为中国硬科技定价 2019年7月，科创板开市，首批25家公司上市。
 
 ## 相关推荐
 
-- 2026-06-29 16:38 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 16:30 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 16:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 16:28 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 16:31 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 16:31 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 16:34 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 16:27 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 16:28 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 16:53 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 16:36 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 16:44 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 16:44 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 16:48 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 16:45 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 16:45 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 16:41 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 16:51 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 16:39 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 16:58 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 16:42 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 16:41 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:45 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/55468.shtml)
-- 2026-06-29 16:41 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/94437.shtml)
-- 2026-06-29 16:48 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/109680287.shtml)
-- 2026-06-29 16:51 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/0937274.shtml)
-- 2026-06-29 16:27 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/66834722931.shtml)
-- 2026-06-29 16:51 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/27028948004.shtml)
-- 2026-06-29 16:51 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/84659522283.shtml)
-- 2026-06-29 16:30 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/20574841.shtml)
-- 2026-06-29 16:43 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/07666.shtml)
-- 2026-06-29 16:31 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/313998646906.shtml)
-- 2026-06-29 16:38 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/3610789.shtml)
-- 2026-06-29 16:48 - [第一炉香](http://www.share.kurohicncr.top/Article/details/043731670988.shtml)
-- 2026-06-29 16:47 - [业内：全球市场迎来结构性投资窗口](https://www.blog.kurohicncr.top/Article/details/913032.shtml)
-- 2026-06-29 16:52 - [沙丘](https://www.share.kurohicncr.top/Article/details/68546284.shtml)
-- 2026-06-29 16:47 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/25808.shtml)
+- 2026-06-29 16:58 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/887172.shtml)
+- 2026-06-29 16:45 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/606950.shtml)
+- 2026-06-29 16:34 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.share.kurohicncr.top/Article/details/654112500794.shtml)
+- 2026-06-29 16:39 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/3156158707.shtml)
+- 2026-06-29 16:55 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/107475465.shtml)
+- 2026-06-29 16:41 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/63694310876.shtml)
+- 2026-06-29 16:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/143524672740.shtml)
+- 2026-06-29 16:46 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/6361850.shtml)
+- 2026-06-29 16:33 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/6802496.shtml)
+- 2026-06-29 16:33 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/62290065661.shtml)
+- 2026-06-29 16:53 - [当我回母校教书](https://www.share.minike.top/Article/details/525450689.shtml)
+- 2026-06-29 16:53 - [起风了](https://www.blog.minike.top/Article/details/897036562358.shtml)
+- 2026-06-29 16:59 - [恋与深空发放补偿未得到玩家认可](http://www.blog.minike.top/Article/details/2381414.shtml)
+- 2026-06-29 16:58 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/571427921.shtml)
+- 2026-06-29 16:43 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/9511556115.shtml)

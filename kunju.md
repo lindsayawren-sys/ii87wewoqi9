@@ -1,56 +1,61 @@
-# 第八届两岸（湖北）青年东湖交流季启幕
+# 智谱站上1500港元股价再创历史新高 总市值突破6600亿港元
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新网武汉5月19日电 (马芙蓉 杨凯)第八届两岸(湖北)青年东湖交流季启动仪式暨主旨活动19日在中南民族大学举行，两岸有关方面嘉宾、青年约700人共聚，在交流互动中增进心灵契合。 当天，来自两岸人工智能、文化、医疗、餐饮、教育等领域的17名青年，登台分享了求学生活、创业就业经验及感悟。歌舞、机器人表演、情景演绎等节目穿插其中，展现青年创造力与活力。 台湾青年歌手赖煜哲与中南民
+智谱盘中拉升，涨超4%，最高触及1500港元，股价创历史新高，总市值突破6600亿港元。截至发稿，智谱仍是港股市场唯一一只千元股。 5月22日港股收市后，恒生指数公司公布恒生指数系列季度检讨结果（截至2026年3月31日），所有变动将于2026年6月5日收市后实施，6月8日起正式生效。 本次调整涉及恒生指数、恒生科技指数、恒生中国企业指数、恒生生物科技指数、恒生综合指数等，其中
 
 ## 正文
 
-中新网武汉5月19日电 (马芙蓉 杨凯)第八届两岸(湖北)青年东湖交流季启动仪式暨主旨活动19日在中南民族大学举行，两岸有关方面嘉宾、青年约700人共聚，在交流互动中增进心灵契合。
+智谱盘中拉升，涨超4%，最高触及1500港元，股价创历史新高，总市值突破6600亿港元。
 
-当天，来自两岸人工智能、文化、医疗、餐饮、教育等领域的17名青年，登台分享了求学生活、创业就业经验及感悟。
+截至发稿，智谱仍是港股市场唯一一只千元股。
 
-歌舞、机器人表演、情景演绎等节目穿插其中，展现青年创造力与活力。
+5月22日港股收市后，恒生指数公司公布恒生指数系列季度检讨结果（截至2026年3月31日），所有变动将于2026年6月5日收市后实施，6月8日起正式生效。
 
-台湾青年歌手赖煜哲与中南民族大学学生合作，表演了融合演唱与说唱的节目《楚歌行》。
+本次调整涉及恒生指数、恒生科技指数、恒生中国企业指数、恒生生物科技指数、恒生综合指数等，其中恒生科技指数首次纳入国产AI大模型龙头（MINIMAX和智谱），成为本次季检最受市场关注的亮点。
 
-“音乐是一座桥梁，把我们连接在一起，不同思想碰撞出来的作品反而更有生命力。
+华创证券发布研报称，智谱（02513）凭借清华技术底座与领先的MaaS生态，在AI通用化及智能体浪潮中卡位核心赛道，有望持续受益于商业化加速与Token消耗爆发。
 
-”赖煜哲说，“期待与大陆青年一起‘玩’音乐，创作出属于我们这代人的好作品。
+该行预计公司2026-2028年营业收入为30.20亿元、71.08亿元、122.78亿元，对应增速316.9%、135.4%、72.7%。
 
-” 在湖北襄阳开咖啡店的台青陈郁婷与其邻居刘青，一起骑着自行车来到舞台。
+首次覆盖，给予“推荐”评级。
 
-陈郁婷与开自行车店的刘青因骑行结缘，在创业中互相成就。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-29 16:39 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 16:36 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 16:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 16:27 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 16:51 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 16:49 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 16:52 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 16:29 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 16:47 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 16:53 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 16:55 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 16:40 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 16:51 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 16:45 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 16:35 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 16:53 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 16:58 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 16:54 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 16:59 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 16:33 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 16:45 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 16:39 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 16:41 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 17:00 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 16:53 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/7062926541.shtml)
-- 2026-06-29 16:33 - [德国VS巴拉圭前瞻](http://www.share.kurohicncr.top/Article/details/2923511865.shtml)
-- 2026-06-29 16:39 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/5083360863.shtml)
-- 2026-06-29 16:35 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/163125377123.shtml)
-- 2026-06-29 16:47 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/142786153978.shtml)
-- 2026-06-29 16:31 - [A股收评：科创50指数大涨4.61%](http://www.share.kurohicncr.top/Article/details/198322.shtml)
-- 2026-06-29 16:31 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/077952394.shtml)
-- 2026-06-29 16:27 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.kurohicncr.top/Article/details/959736.shtml)
-- 2026-06-29 16:42 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/015408423987.shtml)
-- 2026-06-29 16:31 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/16055.shtml)
-- 2026-06-29 16:52 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/34590.shtml)
-- 2026-06-29 16:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/35051807396.shtml)
-- 2026-06-29 16:42 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/100900047775.shtml)
-- 2026-06-29 16:41 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/93855314.shtml)
-- 2026-06-29 16:52 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/29832552856.shtml)
+- 2026-06-29 16:53 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/99650.shtml)
+- 2026-06-29 16:40 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/39944.shtml)
+- 2026-06-29 16:35 - [我和我的家乡](http://www.blog.minike.top/Article/details/46049555.shtml)
+- 2026-06-29 16:47 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/29918146.shtml)
+- 2026-06-29 16:44 - [挪威王储妃长子2次强奸被判4年](http://www.blog.minike.top/Article/details/3697792200.shtml)
+- 2026-06-29 16:50 - [第一炉香](https://www.share.minike.top/Article/details/708513866660.shtml)
+- 2026-06-29 16:31 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/947411524.shtml)
+- 2026-06-29 16:50 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/1769731332.shtml)
+- 2026-06-29 16:30 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/846006111.shtml)
+- 2026-06-29 16:49 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/830952893313.shtml)
+- 2026-06-29 16:57 - [网警提醒4类高考查分陷阱考生速看](https://www.share.minike.top/Article/details/8552072150.shtml)
+- 2026-06-29 16:52 - [美国大满贯首日国乒主力均取胜](https://www.share.minike.top/Article/details/362203.shtml)
+- 2026-06-29 16:42 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.minike.top/Article/details/242658834990.shtml)
+- 2026-06-29 16:56 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/14979551266.shtml)
+- 2026-06-29 16:41 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/753453833077.shtml)

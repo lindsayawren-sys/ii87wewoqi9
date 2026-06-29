@@ -1,58 +1,57 @@
-# 工业遗产焕新 活化利用释放新活力
+# 国务院成立山西长治山西通洲集团留神峪煤业有限公司“5·22”特别重大瓦斯爆炸事故调查组
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：今年以来，全国多地城市更新提速推进，一大批闲置、废弃的老厂房、矿区遗址，经改造提升后，变身热门打卡地、便民空间与创业园区。在留住城市工业记忆的同时，让老空间长出了新生活、新消费、新产业。 正在演出的，是湖北大冶铜绿山古铜矿遗址推出的沉浸式戏剧。演出不在传统舞台，而是在废弃千年的露天老矿场里。经过生态修复与场景再造，这里成为文旅打卡地。 不仅是大冶，如今很
+5月22日19时29分许，山西省长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。为认真贯彻落实习近平总书记重要指示精神，按照李强总理等中央领导同志批示要求，根据国家有关法律法规规定，国务院成立事故调查组，由应急管理部牵头，公安部、自然资源部、全国总工会、国家能源局、国家矿山安监局和山西省人民政府等相关方面参加，对山西长治山西通洲集团留神峪煤业有
 
 ## 正文
 
-央视网消息(新闻联播)：今年以来，全国多地城市更新提速推进，一大批闲置、废弃的老厂房、矿区遗址，经改造提升后，变身热门打卡地、便民空间与创业园区。
+5月22日19时29分许，山西省长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。
 
-在留住城市工业记忆的同时，让老空间长出了新生活、新消费、新产业。
+为认真贯彻落实习近平总书记重要指示精神，按照李强总理等中央领导同志批示要求，根据国家有关法律法规规定，国务院成立事故调查组，由应急管理部牵头，公安部、自然资源部、全国总工会、国家能源局、国家矿山安监局和山西省人民政府等相关方面参加，对山西长治山西通洲集团留神峪煤业有限公司“5·22”特别重大瓦斯爆炸事故进行调查。
 
-正在演出的，是湖北大冶铜绿山古铜矿遗址推出的沉浸式戏剧。
+5月27日晚，国务院山西长治山西通洲集团留神峪煤业有限公司“5·22”特别重大瓦斯爆炸事故调查组召开第一次全体会议。
 
-演出不在传统舞台，而是在废弃千年的露天老矿场里。
+国务院事故调查组组长、应急管理部部长张成中主持会议，通报调查安排、提出工作要求。
 
-经过生态修复与场景再造，这里成为文旅打卡地。
+会议开始前，与会同志全体肃立，向山西长治山西通洲集团留神峪煤业有限公司“5·22”特别重大瓦斯爆炸事故遇难者默哀。
 
-不仅是大冶，如今很多地方都把工业遗址改造成文旅景点，有的直接变成了百姓身边的休闲公园、便民空间。
+会议强调，事故调查组要认真贯彻落实习近平总书记重要指示精神和党中央、国务院决策部署，较真碰硬开展事故调查，按照“科学严谨、依法依规、实事求是、注重实效”和“四不放过”的原则，查清查透事故原因和属地管理、行业监管和企业责任，依法依规严厉惩处。
 
-在山东济南，数十年历史的老模具厂通过精细化“微更新”，变身潮流文创园，年客流量超290万人次；在湖南长沙，闲置老旧车间直接改成便民健身乐园。
+同时，会议要求深刻汲取教训，全面检视矿山安全“八条硬措施”落实情况，重拳出击重点行业领域安全生产“打非治违”，举一反三全面排查整治安全风险隐患，坚决防范遏制重特大事故。
 
-除了打造文旅项目和公共空间，不少老厂房还被改造成年轻人创业创新的活力园区。
+国务院事故调查组全体成员，中央纪委国家监委有关部门负责同志出席会议。
 
 ## 相关推荐
 
-- 2026-06-29 16:38 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 16:36 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 16:47 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 16:53 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 16:29 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 16:53 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 16:41 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 16:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 16:45 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 16:40 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 16:31 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 16:29 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 16:34 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 16:59 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 16:43 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 16:34 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 16:52 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 16:36 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 16:30 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 16:52 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 16:42 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 16:57 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 16:52 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:53 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/5690989.shtml)
-- 2026-06-29 16:53 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/10274287185.shtml)
-- 2026-06-29 16:38 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/890999.shtml)
-- 2026-06-29 16:51 - [世界杯十大帅哥必吃榜](https://www.blog.kurohicncr.top/Article/details/98149189.shtml)
-- 2026-06-29 16:50 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.kurohicncr.top/Article/details/214183742484.shtml)
-- 2026-06-29 16:31 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/958634907.shtml)
-- 2026-06-29 16:32 - [和周杰伦在演唱会合唱了](https://www.blog.minike.top/Article/details/61552.shtml)
-- 2026-06-29 16:24 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/707345642209.shtml)
-- 2026-06-29 16:49 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/2881342340.shtml)
-- 2026-06-29 16:47 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/500991284.shtml)
-- 2026-06-29 16:26 - [《贺子珍》](http://www.blog.minike.top/Article/details/787838232842.shtml)
-- 2026-06-29 16:37 - [上海一小区水池内出现一条鳄鱼](http://www.share.kurohicncr.top/Article/details/09472.shtml)
-- 2026-06-29 16:46 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/18695288.shtml)
-- 2026-06-29 16:39 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.minike.top/Article/details/2631774745.shtml)
-- 2026-06-29 16:51 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/66376799150.shtml)
+- 2026-06-29 16:44 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/26098156713.shtml)
+- 2026-06-29 16:43 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/308556.shtml)
+- 2026-06-29 16:30 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/98177208519.shtml)
+- 2026-06-29 16:39 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/8644869263.shtml)
+- 2026-06-29 16:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/249093.shtml)
+- 2026-06-29 16:47 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/785833.shtml)
+- 2026-06-29 16:39 - [南昌市委书记调整](https://www.blog.minike.top/Article/details/6862443937.shtml)
+- 2026-06-29 16:33 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.kurohicncr.top/Article/details/6374254803.shtml)
+- 2026-06-29 16:49 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/5655739446.shtml)
+- 2026-06-29 16:56 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/7656695.shtml)
+- 2026-06-29 16:31 - [TFING全员黑西装](https://www.share.minike.top/Article/details/01277240827.shtml)
+- 2026-06-29 16:32 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.kurohicncr.top/Article/details/469939.shtml)
+- 2026-06-29 16:50 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/415480548.shtml)
+- 2026-06-29 16:40 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/3390360.shtml)
+- 2026-06-29 16:35 - [扫黑风暴](https://www.blog.minike.top/Article/details/840724518.shtml)

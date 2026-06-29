@@ -1,59 +1,57 @@
-# 豆粕：震荡为基，成本为托，天气为引
+# 王毅会见塞尔维亚外长久里奇
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-大地期货研究院 观点小结 核心观点：震荡美豆播种偏快但新作或紧平衡，巴西豆对华仍有优势，整体外盘底部抬升。国内到港多，油厂开机回升压制现货，养殖刚需偏强。短期或继续震荡，远期锚定美豆天气，或有阶段性反弹驱动。 现货基差：偏空到港和开机增加，现货和基差继续承压弱势运行。 南美大豆：偏空巴西丰产且出口旺盛；阿根廷收割加快，产量相对稳定。 美国大豆：利多新作播种超前，26/27年度供
+新华社纽约5月27日电 当地时间27日，中共中央政治局委员、外交部长王毅在纽约会见塞尔维亚外长久里奇。 王毅感谢久里奇专程出席中方倡议举办的安理会高级别会议，表示武契奇总统正在中国访问，此访对促进双边关系具有里程碑意义。两国元首深入战略沟通，增进了互信友谊，达成广泛共识。习近平主席还亲自向武契奇总统授予中华人民共和国“友谊勋章”。两国发表两份重磅合作文件，塞方成为首个同中方就支
 
 ## 正文
 
-大地期货研究院 观点小结 核心观点：震荡美豆播种偏快但新作或紧平衡，巴西豆对华仍有优势，整体外盘底部抬升。
+新华社纽约5月27日电 当地时间27日，中共中央政治局委员、外交部长王毅在纽约会见塞尔维亚外长久里奇。
 
-国内到港多，油厂开机回升压制现货，养殖刚需偏强。
+王毅感谢久里奇专程出席中方倡议举办的安理会高级别会议，表示武契奇总统正在中国访问，此访对促进双边关系具有里程碑意义。
 
-短期或继续震荡，远期锚定美豆天气，或有阶段性反弹驱动。
+两国元首深入战略沟通，增进了互信友谊，达成广泛共识。
 
-现货基差：偏空到港和开机增加，现货和基差继续承压弱势运行。
+习近平主席还亲自向武契奇总统授予中华人民共和国“友谊勋章”。
 
-南美大豆：偏空巴西丰产且出口旺盛；阿根廷收割加快，产量相对稳定。
+两国发表两份重磅合作文件，塞方成为首个同中方就支持四大全球倡议发表联合声明的国家，充分体现了中塞关系的特殊性和高水平。
 
-美国大豆：利多新作播种超前，26/27年度供需或偏紧；中美达成对美国农产品的采购协议170亿美元，不包括此前的大豆采购。
+王毅表示，中方坚定支持塞方维护国家主权和领土完整，赞赏塞方恪守一个中国原则。
 
-进口采购：中性以近月巴西豆为主，四季度或新增美豆采购。
+下阶段，双方重要任务是把两国元首共识落到实处，密切各层级交往，推进匈塞铁路建设，拓展人工智能、新能源等领域合作，加强在联合国等平台协调合作，推进新时代中塞命运共同体建设。
 
-大豆到港库存：偏空5-8月月均到港或高达1100万吨，大豆持续累库，供应宽松。
+久里奇表示，很荣幸受邀参加安理会高级别会议，同中方一起发出维护联合国宪章、坚持多边主义的共同声音。
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 16:49 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 16:34 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 16:45 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 16:25 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 16:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 16:42 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 16:28 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 16:52 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 16:45 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 16:30 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 16:27 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 16:34 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 16:37 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 16:44 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 16:42 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 16:51 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 16:36 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 16:54 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 16:31 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 16:36 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 16:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 16:30 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 16:33 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:35 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/573855914154.shtml)
-- 2026-06-29 16:38 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.minike.top/Article/details/50547556.shtml)
-- 2026-06-29 16:30 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/81437.shtml)
-- 2026-06-29 16:46 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/370701962976.shtml)
-- 2026-06-29 16:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/238020145437.shtml)
-- 2026-06-29 16:48 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/362064665509.shtml)
-- 2026-06-29 16:27 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.minike.top/Article/details/6436883492.shtml)
-- 2026-06-29 16:37 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/45735399.shtml)
-- 2026-06-29 16:51 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/84099197679.shtml)
-- 2026-06-29 16:33 - [网警提醒4类高考查分陷阱考生速看](https://www.share.minike.top/Article/details/4792894.shtml)
-- 2026-06-29 16:53 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/789309798.shtml)
-- 2026-06-29 16:31 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/61460307.shtml)
-- 2026-06-29 16:33 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/4895665100.shtml)
-- 2026-06-29 16:29 - [滾石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/907407.shtml)
-- 2026-06-29 16:30 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/847057571.shtml)
+- 2026-06-29 16:48 - [货车司机雨中帮交警挪树获表扬](http://www.blog.kurohicncr.top/Article/details/10730463.shtml)
+- 2026-06-29 16:36 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/7736991.shtml)
+- 2026-06-29 16:33 - [斗破苍穹](https://www.blog.minike.top/Article/details/7325689151.shtml)
+- 2026-06-29 16:31 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/840840194.shtml)
+- 2026-06-29 16:39 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/5818594.shtml)
+- 2026-06-29 16:53 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/2437382955.shtml)
+- 2026-06-29 16:56 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.minike.top/Article/details/12880340.shtml)
+- 2026-06-29 16:37 - [爱很美味](http://www.share.minike.top/Article/details/23229.shtml)
+- 2026-06-29 16:32 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/33024370955.shtml)
+- 2026-06-29 16:36 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/68139930.shtml)
+- 2026-06-29 16:37 - [绘画区你赢了](http://www.blog.minike.top/Article/details/6477357.shtml)
+- 2026-06-29 16:30 - [欧盟为什么越来越倾向贸易保护](http://www.share.minike.top/Article/details/69941011472.shtml)
+- 2026-06-29 16:59 - [挪威王储妃长子2次强奸被判4年](http://www.share.minike.top/Article/details/73263.shtml)
+- 2026-06-29 16:51 - [斗破苍穹](https://www.blog.minike.top/Article/details/19577211.shtml)
+- 2026-06-29 16:30 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/5937652830.shtml)

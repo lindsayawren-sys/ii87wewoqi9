@@ -1,52 +1,57 @@
-# “90”后的童年售后彩蛋：“糖果屋”文具封面藏着设计师QQ号
+# 集体拉升！白酒股底部已现？多家券商看好后市
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 15:34 来源：中国新闻网 千禧年间，“糖果屋”系列文具承载了无数80、90后的青春记忆。设计师梁准准(笔名：星盒子)告诉中新网，当初在每一张笔记本繁复的封面图里，他都藏了自己的QQ号。那个年代，没有微信，没有短视频，一个小小的Q号，成了创作者和使用者之间唯一的连接。有人发现过，但更多的人或许没有注意到，如今再看，仿佛是那些温暖画面给多年后的
+5月27日早盘，创业板一骑绝尘，续创新高，最高触及4148.23点，点数超越沪指。不过午后，行情迅速反转，三大指数集体翻绿。截至收盘，沪指跌1.25%，深证成指跌0.88%，创业板指涨0.07%，北证50跌2.38%，科创50指数跌2.8%。全市场近4500只个股下跌。板块题材上，白酒、影视院线、电力、煤炭开采加工、逆变器板块涨幅居前；贵金属、电机、通信服务、算力租赁、油气开采
 
 ## 正文
 
-发布时间：2026年05月19日 15:34 来源：中国新闻网 千禧年间，“糖果屋”系列文具承载了无数80、90后的青春记忆。
+5月27日早盘，创业板一骑绝尘，续创新高，最高触及4148.23点，点数超越沪指。
 
-设计师梁准准(笔名：星盒子)告诉中新网，当初在每一张笔记本繁复的封面图里，他都藏了自己的QQ号。
+不过午后，行情迅速反转，三大指数集体翻绿。
 
-那个年代，没有微信，没有短视频，一个小小的Q号，成了创作者和使用者之间唯一的连接。
+截至收盘，沪指跌1.25%，深证成指跌0.88%，创业板指涨0.07%，北证50跌2.38%，科创50指数跌2.8%。
 
-有人发现过，但更多的人或许没有注意到，如今再看，仿佛是那些温暖画面给多年后的你我一个彩蛋。
+全市场近4500只个股下跌。
 
-(记者 郎朗) 责任编辑：【张曦】
+板块题材上，白酒、影视院线、电力、煤炭开采加工、逆变器板块涨幅居前；贵金属、电机、通信服务、算力租赁、油气开采及服务板块跌幅居前。
+
+沉寂许久的白酒板块终于“硬”了一把。
+
+午后，水井坊涨停，金徽酒逼近涨停，舍得酒业涨超8%，金种子酒、酒鬼酒涨超6%，今世缘、皇台酒业、口子窖等跟涨，板块内个股全线飘红，龙头贵州茅台盘中涨幅一度突破3%。
+
+消息面上，消费端传来利好。
 
 ## 相关推荐
 
-- 2026-06-29 16:24 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 16:32 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 16:50 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 16:25 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 16:36 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 16:26 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 16:47 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 16:43 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 16:32 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 16:46 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 16:41 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 16:29 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 16:44 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 16:59 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 16:54 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 16:44 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 16:34 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 16:47 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 16:46 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 16:40 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 16:50 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 16:39 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 16:41 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:41 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/121988991960.shtml)
-- 2026-06-29 16:33 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/8157613909.shtml)
-- 2026-06-29 16:47 - [绘画区你赢了](http://www.blog.minike.top/Article/details/108375.shtml)
-- 2026-06-29 16:39 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/0913531150.shtml)
-- 2026-06-29 16:34 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/790427.shtml)
-- 2026-06-29 16:36 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/091792865513.shtml)
-- 2026-06-29 16:54 - [爱很美味](http://www.blog.minike.top/Article/details/46357.shtml)
-- 2026-06-29 16:27 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/91670907661.shtml)
-- 2026-06-29 16:34 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/98429842147.shtml)
-- 2026-06-29 16:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/017706867588.shtml)
-- 2026-06-29 16:39 - [刘烨16岁儿子诺一颜值](https://www.blog.kurohicncr.top/Article/details/350463281.shtml)
-- 2026-06-29 16:42 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/7309020641.shtml)
-- 2026-06-29 16:51 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/44258504305.shtml)
-- 2026-06-29 16:50 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/524746218.shtml)
-- 2026-06-29 16:51 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.minike.top/Article/details/149647599310.shtml)
+- 2026-06-29 16:31 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/3335237.shtml)
+- 2026-06-29 16:37 - [省市招考专家解读山西高考志愿政策](http://www.share.minike.top/Article/details/181307076989.shtml)
+- 2026-06-29 16:57 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/02748704.shtml)
+- 2026-06-29 16:33 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/4992351.shtml)
+- 2026-06-29 16:53 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/20358392483.shtml)
+- 2026-06-29 16:47 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/922321.shtml)
+- 2026-06-29 16:53 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/76300.shtml)
+- 2026-06-29 16:52 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/638833454.shtml)
+- 2026-06-29 16:34 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.kurohicncr.top/Article/details/63207.shtml)
+- 2026-06-29 16:56 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/34234104.shtml)
+- 2026-06-29 16:35 - [一生一世](https://www.blog.minike.top/Article/details/079350.shtml)
+- 2026-06-29 16:44 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/52183.shtml)
+- 2026-06-29 16:37 - [挪威王储妃长子2次强奸被判4年](http://www.blog.minike.top/Article/details/2464455.shtml)
+- 2026-06-29 16:57 - [倪春青跨市履新苏州市委组织部部长](https://www.share.kurohicncr.top/Article/details/3910458865.shtml)
+- 2026-06-29 16:52 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/86620.shtml)

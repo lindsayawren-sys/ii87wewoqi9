@@ -1,47 +1,48 @@
-# 新一轮生猪产能调控目标确定，严查产能逆势扩张行为
+# 亚太资源拟折让约33.49%按“2供1”基准发行供股
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-据相关知情人士处消息，全国划定3750万头能繁母猪总调控目标，按区域实际情况逐级分解下达至各省市。在5月18日召开的全国生猪产业调控专项工作会议上，主管部门同时明确多项硬性管控举措与考核监管机制，并表示将严查产能逆势扩张行为。（财联社记者 王平安 张晨静 刘建）
+亚太资源（01104）公布，公司建议按“2供1”基准，折让约33.49%按每股供股股份1.45港元的认购价，（i）透过发行约7.47亿股供股股份（假设已发行股份数目于记录日期或之前并无变动）筹集所得款项总额最多约10.83亿港元；或（ii）透过发行约8.14亿股供股股份（假设除根据尚未行使的认股权证获悉数行使而将予配发及发行的新股份外，已发行股份数目于记录日期或之前并无变动）筹
 
 ## 正文
 
-据相关知情人士处消息，全国划定3750万头能繁母猪总调控目标，按区域实际情况逐级分解下达至各省市。
+亚太资源（01104）公布，公司建议按“2供1”基准，折让约33.49%按每股供股股份1.45港元的认购价，（i）透过发行约7.47亿股供股股份（假设已发行股份数目于记录日期或之前并无变动）筹集所得款项总额最多约10.83亿港元；或（ii）透过发行约8.14亿股供股股份（假设除根据尚未行使的认股权证获悉数行使而将予配发及发行的新股份外，已发行股份数目于记录日期或之前并无变动）筹集所得款项总额最多约11.8亿港元。
 
-在5月18日召开的全国生猪产业调控专项工作会议上，主管部门同时明确多项硬性管控举措与考核监管机制，并表示将严查产能逆势扩张行为。
+公司拟将供股所得款项净额用于（i）补充指定作TanamiGold股份认购事项的内部资源；（ii）偿还集团的未偿还银行借款；（iii）提升集团把握机遇投资于资源行业的能力；及（iv）为集团提供一般营运资金。
 
-（财联社记者 王平安 张晨静 刘建）
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:45 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 16:26 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 16:25 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 16:26 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 16:27 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 16:46 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 16:28 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 16:33 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 16:44 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 16:44 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 16:51 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 16:54 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 16:38 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 16:32 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 16:37 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 16:53 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 16:44 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 16:35 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 16:57 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 16:38 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 16:35 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 16:49 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 16:48 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:33 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/824758373.shtml)
-- 2026-06-29 16:43 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/394948.shtml)
-- 2026-06-29 16:52 - [美的空调 卡bug](https://www.share.minike.top/Article/details/40671531.shtml)
-- 2026-06-29 16:34 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/14824599602.shtml)
-- 2026-06-29 16:48 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/2893662404.shtml)
-- 2026-06-29 16:26 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/05339.shtml)
-- 2026-06-29 16:46 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/97451901.shtml)
-- 2026-06-29 16:52 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/07554.shtml)
-- 2026-06-29 16:35 - [明星大侦探第四季](https://www.share.minike.top/Article/details/6929444640.shtml)
-- 2026-06-29 16:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/184144884266.shtml)
-- 2026-06-29 16:40 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/86933145.shtml)
-- 2026-06-29 16:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/621165071915.shtml)
-- 2026-06-29 16:48 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/5801497422.shtml)
-- 2026-06-29 16:44 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/36633161648.shtml)
-- 2026-06-29 16:49 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/98202986.shtml)
+- 2026-06-29 16:43 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/331596696.shtml)
+- 2026-06-29 16:49 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/580818.shtml)
+- 2026-06-29 16:43 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/661572386.shtml)
+- 2026-06-29 16:52 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/19405.shtml)
+- 2026-06-29 16:52 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/7573739998.shtml)
+- 2026-06-29 16:36 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/1350804624.shtml)
+- 2026-06-29 16:45 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/4098716.shtml)
+- 2026-06-29 16:43 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/19170617979.shtml)
+- 2026-06-29 16:41 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/8286895.shtml)
+- 2026-06-29 16:56 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/701671017.shtml)
+- 2026-06-29 16:31 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/8325151344.shtml)
+- 2026-06-29 16:54 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/52324381656.shtml)
+- 2026-06-29 16:59 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/104435679891.shtml)
+- 2026-06-29 16:59 - [抓特务票房破亿](http://www.share.kurohicncr.top/Article/details/119088.shtml)
+- 2026-06-29 16:49 - [美国大满贯首日国乒主力均取胜](https://www.share.minike.top/Article/details/4242598.shtml)

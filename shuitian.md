@@ -1,59 +1,53 @@
-# 从重磅文物到沉浸体验 吉林推百余场活动竞逐文博流量
+# 问界M9与蔚来ES9发布会撞期后更改时间，鸿蒙智行回应
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新网吉林集安5月18日电 (记者 郭佳)重磅文物亮相，沉浸体验登场。2026年国际博物馆日吉林省主会场活动18日在集安举办。记者获悉，今年，该省推出105项文博活动，竞逐当下火热的文博流量。吉林省文旅厅副厅长张鹏表示，这一系列活动将持续至5月末，旨在为公众献上一场精彩纷呈的文化盛宴。 主会场集安是世界文化遗产地，曾长期作为中国东北古代民族政权高句丽的都城，该政权活跃于汉唐时期
+新浪科技讯 5月28日下午消息，近期汽车行业9系旗舰扎堆发布，问界M9与蔚来ES9发布会撞期后又改期一事引发关注。 据悉，问界M9发布会时间起初定于5月27日19：00，而蔚来ES9发布会时间则为5月27日19：30，两者时间有一定重合。 发布会前夕，鸿蒙智行方面宣布问界M9系列新品发布会时间调整至5月27日14：30，官方给出的理由是“为了给大家带来更好的体验”。外界则猜测，
 
 ## 正文
 
-中新网吉林集安5月18日电 (记者 郭佳)重磅文物亮相，沉浸体验登场。
+新浪科技讯 5月28日下午消息，近期汽车行业9系旗舰扎堆发布，问界M9与蔚来ES9发布会撞期后又改期一事引发关注。
 
-2026年国际博物馆日吉林省主会场活动18日在集安举办。
+据悉，问界M9发布会时间起初定于5月27日19：00，而蔚来ES9发布会时间则为5月27日19：30，两者时间有一定重合。
 
-记者获悉，今年，该省推出105项文博活动，竞逐当下火热的文博流量。
+发布会前夕，鸿蒙智行方面宣布问界M9系列新品发布会时间调整至5月27日14：30，官方给出的理由是“为了给大家带来更好的体验”。
 
-吉林省文旅厅副厅长张鹏表示，这一系列活动将持续至5月末，旨在为公众献上一场精彩纷呈的文化盛宴。
+外界则猜测，是为了避免两款产品正面交锋。
 
-主会场集安是世界文化遗产地，曾长期作为中国东北古代民族政权高句丽的都城，该政权活跃于汉唐时期。
+从产品定位和售价来看，两款产品是直接的竞争对手，都定位旗舰SUV，其中蔚来ES9售价49.8万元起，问界M9售价47.98万元起。
 
-当天，集安市博物馆正式入藏并首次对外展出一件重要文物——“晋高句骊归义侯”金印。
-
-这枚金印重约88克，印面阴刻篆书“晋高句骊归义侯”七字。
-
-作为西晋中央王朝颁赐给高句丽首领的册封信物，它实证了中原王朝对东北边疆的行政管理，吸引大量观众前来观摩。
+责任编辑：孙同怀
 
 ## 相关推荐
 
-- 2026-06-29 16:27 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 16:37 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 16:30 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 16:40 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 16:27 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 16:47 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 16:25 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 16:48 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 16:36 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 16:30 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 16:45 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 16:47 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 16:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 16:33 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 16:39 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 16:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 16:31 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 16:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 16:53 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 16:38 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 16:38 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 16:38 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 16:59 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 16:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:41 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/7189099073.shtml)
-- 2026-06-29 16:30 - [博主：黄金和原油回落不等于风险消失](http://www.share.minike.top/Article/details/992277.shtml)
-- 2026-06-29 16:39 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/2917658.shtml)
-- 2026-06-29 16:46 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/1485872491.shtml)
-- 2026-06-29 16:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/06521416.shtml)
-- 2026-06-29 16:38 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/197661.shtml)
-- 2026-06-29 16:41 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/95101974014.shtml)
-- 2026-06-29 16:29 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/011318210.shtml)
-- 2026-06-29 16:24 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/4732145783.shtml)
-- 2026-06-29 16:39 - [沙丘](https://www.share.kurohicncr.top/Article/details/21415.shtml)
-- 2026-06-29 16:52 - [时光音乐会](https://www.blog.minike.top/Article/details/91844736415.shtml)
-- 2026-06-29 16:46 - [105年初心滚烫](https://www.share.minike.top/Article/details/902935253844.shtml)
-- 2026-06-29 16:39 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/881013494.shtml)
-- 2026-06-29 16:53 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/892005755.shtml)
-- 2026-06-29 16:42 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.kurohicncr.top/Article/details/80409.shtml)
+- 2026-06-29 16:31 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/138726672.shtml)
+- 2026-06-29 16:46 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/68854650.shtml)
+- 2026-06-29 16:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/25620.shtml)
+- 2026-06-29 16:30 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/987638225757.shtml)
+- 2026-06-29 16:38 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/202758877048.shtml)
+- 2026-06-29 16:50 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/24586.shtml)
+- 2026-06-29 16:47 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/5690818047.shtml)
+- 2026-06-29 16:54 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/263807.shtml)
+- 2026-06-29 16:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/58228175113.shtml)
+- 2026-06-29 16:52 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/8104507.shtml)
+- 2026-06-29 16:58 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/082970524.shtml)
+- 2026-06-29 16:48 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/54799718875.shtml)
+- 2026-06-29 16:34 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/668248508085.shtml)
+- 2026-06-29 16:38 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/573946223.shtml)
+- 2026-06-29 16:55 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/05922.shtml)

@@ -1,57 +1,59 @@
-# 网友追忆“糖果屋”文具，设计师回应
+# 害虫防治企业Rollins宣布CFO交接，Kenneth Krause卸任由William Harkins接棒
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 15:33 来源：中国新闻网 你的学生时代，有没有一本“糖果屋”笔记本？在当年“非主流”占据主流审美的流行文化中，城堡、向日葵花海、少男少女、旋转木马……“糖果屋”文具繁复的线条和梦幻的色彩曾为80、90后构筑了学生时代的童话世界。15年前，这个经典IP悄悄告别，但在2026，设计师发布的当年的手绘图又掀起一阵阵怀旧潮，网友留言最多的是：“本子
+害虫防治企业Rollins， Inc．（纽约证券交易所代码：ROL）今日宣布，执行副总裁兼首席财务官Kenneth D． Krause将辞职，前往一家非相关行业的公司任职，该决定自2026年6月15日起生效。为确保平稳过渡，Krause已同意签署过渡服务协议，在交接期内继续为公司提供咨询服务。公司同时宣布，现任首席会计官William W． Harkins已被推选为执行副总裁兼
 
 ## 正文
 
-发布时间：2026年05月19日 15:33 来源：中国新闻网 你的学生时代，有没有一本“糖果屋”笔记本？
+害虫防治企业Rollins， Inc．（纽约证券交易所代码：ROL）今日宣布，执行副总裁兼首席财务官Kenneth D． Krause将辞职，前往一家非相关行业的公司任职，该决定自2026年6月15日起生效。
 
-在当年“非主流”占据主流审美的流行文化中，城堡、向日葵花海、少男少女、旋转木马……“糖果屋”文具繁复的线条和梦幻的色彩曾为80、90后构筑了学生时代的童话世界。
+为确保平稳过渡，Krause已同意签署过渡服务协议，在交接期内继续为公司提供咨询服务。
 
-15年前，这个经典IP悄悄告别，但在2026，设计师发布的当年的手绘图又掀起一阵阵怀旧潮，网友留言最多的是：“本子还没用我就长大了”。
+公司同时宣布，现任首席会计官William W． Harkins已被推选为执行副总裁兼首席财务官，同样于6月15日正式上任。
 
-“我真的没想到，今天还有那么多人喜欢它、需要它。
+自2022年加入Rollins以来，Krause对公司现代化进程、资本结构优化及投资者透明度提升做出了重要贡献，并主导了多项关键资本市场交易。
 
-”近日，“糖果屋”IP原创设计师梁准准(笔名星盒子)接受中新网采访，在众多网友回复中，他感受到的是一种巨大的“遗憾”。
+在他的任期内，公司市值增长超过50%，股息自2022年以来增幅超过80%。
 
-这份遗憾，也在多年之后击中设计师本人。
+Rollins总裁兼首席执行官Jerry Gahlhoff表示：“Ken一直是一位杰出的领导者，我们深切感激他为Rollins所做的一切”。
 
-当初为什么放下这个IP？
+接任者Harkins拥有超过二十年的丰富财务与会计领导经验，于2025年3月加入Rollins担任首席会计官。
 
-记忆中的“糖果屋”是否还能再次和大家见面？
+在加入Rollins之前，他曾任Mohawk Industries的首席会计官兼财务总监，并在Mars， Incorporated和The Coca-Cola Company担任过领导职务。
 
 ## 相关推荐
 
-- 2026-06-29 16:38 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 16:43 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 16:42 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 16:44 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 16:30 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 16:39 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 16:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 16:52 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 16:27 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 16:29 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 16:38 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 16:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 16:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 16:45 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 16:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 16:30 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 16:59 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 16:51 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 16:34 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 16:54 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 16:30 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 16:35 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 16:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 16:48 - [T1 KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:34 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/5958548614.shtml)
-- 2026-06-29 16:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/040106984140.shtml)
-- 2026-06-29 16:34 - [王俊凯命名方式](http://www.share.minike.top/Article/details/5567426.shtml)
-- 2026-06-29 16:47 - [斛珠夫人](http://www.share.minike.top/Article/details/03596066950.shtml)
-- 2026-06-29 16:26 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/70165617298.shtml)
-- 2026-06-29 16:26 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/80239335002.shtml)
-- 2026-06-29 16:39 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/6268717480.shtml)
-- 2026-06-29 16:37 - [博主：全球股市进入“AI极端共振”](http://www.share.kurohicncr.top/Article/details/708231624545.shtml)
-- 2026-06-29 16:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/64003.shtml)
-- 2026-06-29 16:41 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/512640.shtml)
-- 2026-06-29 16:30 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/3341474294.shtml)
-- 2026-06-29 16:28 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/6547615.shtml)
-- 2026-06-29 16:34 - [爸爸当家](https://www.share.minike.top/Article/details/58169002782.shtml)
-- 2026-06-29 16:45 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/434250195.shtml)
-- 2026-06-29 16:37 - [王楚钦开门红](https://www.share.minike.top/Article/details/1329371387.shtml)
+- 2026-06-29 16:59 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/597538004344.shtml)
+- 2026-06-29 16:37 - [当我回母校教书](https://www.share.minike.top/Article/details/6784359.shtml)
+- 2026-06-29 16:37 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/93970.shtml)
+- 2026-06-29 16:30 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/178729759369.shtml)
+- 2026-06-29 16:59 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/2056303348.shtml)
+- 2026-06-29 16:50 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/887622478.shtml)
+- 2026-06-29 16:56 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/76781219.shtml)
+- 2026-06-29 16:43 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/4420227145.shtml)
+- 2026-06-29 16:38 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/4203642343.shtml)
+- 2026-06-29 16:44 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/4750302.shtml)
+- 2026-06-29 16:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/2792500077.shtml)
+- 2026-06-29 16:58 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/40534.shtml)
+- 2026-06-29 16:50 - [这一刀 会很帅](http://www.share.minike.top/Article/details/75978752825.shtml)
+- 2026-06-29 16:57 - [黄金也扛不住了](http://www.share.minike.top/Article/details/31054844.shtml)
+- 2026-06-29 16:31 - [小娘惹](https://www.share.minike.top/Article/details/582228487801.shtml)

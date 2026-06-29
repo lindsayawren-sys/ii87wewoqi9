@@ -1,57 +1,57 @@
-# 小米YU7GT刷新纽北纪录，买车用车这些维权渠道要记好
+# 卓锦股份上市首年旧账落槌：卓未龙被判，辞去董事长兼总经理职务 | 长三角资本局
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-5月19日，小米YU7 GT以刷新纽博北环SUV圈速纪录的成绩再次引爆汽车圈的关注。与此同时，尚界汽车因疑似遭遇恶意抹黑而选择报警的事件也在持续发酵。每当有重磅新车发布或行业热点出现，都会吸引大量消费者的目光。但对于准车主和现有车主来说，除了关注车型本身，了解汽车消费中的维权渠道同样重要——毕竟买车是一笔不小的开支，用车过程中也可能遇到各种问题。 汽车消费链条长、环节多，从订金
+登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 卓锦股份仍在为上市第一年旧账付代价。 5月25日晚，科创板环保公司卓锦股份披露，公司实际控制人、原董事长兼总经理卓未龙，以及原董事、副总经理陈奉连收到杭州市中级人民法院一审刑事判决书。卓未龙因犯违规披露重要信息罪，被判处有期徒刑一年，缓刑一年，并处罚金20万元；陈奉连因同罪被判处拘役四个月，缓刑四个月，
 
 ## 正文
 
-5月19日，小米YU7 GT以刷新纽博北环SUV圈速纪录的成绩再次引爆汽车圈的关注。
+登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 卓锦股份仍在为上市第一年旧账付代价。
 
-与此同时，尚界汽车因疑似遭遇恶意抹黑而选择报警的事件也在持续发酵。
+5月25日晚，科创板环保公司卓锦股份披露，公司实际控制人、原董事长兼总经理卓未龙，以及原董事、副总经理陈奉连收到杭州市中级人民法院一审刑事判决书。
 
-每当有重磅新车发布或行业热点出现，都会吸引大量消费者的目光。
+卓未龙因犯违规披露重要信息罪，被判处有期徒刑一年，缓刑一年，并处罚金20万元；陈奉连因同罪被判处拘役四个月，缓刑四个月，并处罚金2万元。
 
-但对于准车主和现有车主来说，除了关注车型本身，了解汽车消费中的维权渠道同样重要——毕竟买车是一笔不小的开支，用车过程中也可能遇到各种问题。
+判决下达同日，卓未龙辞去董事长、总经理、法定代表人及董事会专门委员会相关职务，辞职后不再担任公司任何职务；陈奉连也辞去董事、副总经理职务。
 
-汽车消费链条长、环节多，从订金合同纠纷、到车辆质量和三包售后、再到保险理赔和金融贷款，每个环节都可能产生争议。
+这不是一起突然出现的人事变动，而是一笔上市第一年留下的旧账终于走到刑事判决环节。
 
-目前国内主要的官方维权渠道包括：国家市场监督管理总局缺陷产品管理中心（负责召回类质量问题）、中国汽车消费者协会（提供调解服务）、各地12315平台（处理一般性消费纠纷 【下载黑猫投诉客户端】），以及各车企自身的客服体系。
+卓锦股份2021年9月登陆科创板，彼时公司头顶环保、科创板、污染治理等标签。
 
-在实际维权中，不少车主反映官方渠道流程较长、跨区域协调困难，尤其是在4S店推诿扯皮的情况下，往往需要反复沟通才能得到实质性回应。
+但就在上市当年，公司2021年年报财务数据出现虚假记载。
 
-这时候，借助第三方投诉平台来补充维权手段是一种务实的选择。
+浙江证监局此前行政处罚决定书显示，2021年下半年，卓锦股份将部分成本以保证金名义计入往来款，虚减营业成本2796.52万元，进而虚增利润总额2705.67万元，占当期披露利润总额的57.84%。
 
 ## 相关推荐
 
-- 2026-06-29 16:44 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 16:42 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 16:47 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 16:31 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 16:27 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 16:26 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 16:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 16:44 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 16:49 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 16:50 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 16:53 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 16:40 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 16:59 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 16:44 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 16:42 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 16:55 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 16:35 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 16:46 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 16:32 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 16:55 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 16:43 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 16:52 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:32 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/9771248379.shtml)
-- 2026-06-29 16:52 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/95692.shtml)
-- 2026-06-29 16:32 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/91095.shtml)
-- 2026-06-29 16:36 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/055884265402.shtml)
-- 2026-06-29 16:36 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/32675015532.shtml)
-- 2026-06-29 16:32 - [当我回母校教书](http://www.share.minike.top/Article/details/13511.shtml)
-- 2026-06-29 16:36 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/9998593.shtml)
-- 2026-06-29 16:31 - [20年前的周杰伦](http://www.share.kurohicncr.top/Article/details/14659606.shtml)
-- 2026-06-29 16:43 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/53954245.shtml)
-- 2026-06-29 16:37 - [四川宜宾地震](https://www.blog.minike.top/Article/details/58113.shtml)
-- 2026-06-29 16:42 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/63261656.shtml)
-- 2026-06-29 16:46 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/012904917941.shtml)
-- 2026-06-29 16:47 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/730990958.shtml)
-- 2026-06-29 16:44 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/46273752894.shtml)
-- 2026-06-29 16:40 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/0347936195.shtml)
+- 2026-06-29 16:36 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/6713472851.shtml)
+- 2026-06-29 16:47 - [扫黑风暴](http://www.share.minike.top/Article/details/5320730262.shtml)
+- 2026-06-29 16:43 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/3814141808.shtml)
+- 2026-06-29 16:51 - [抓特务票房破亿](https://www.share.kurohicncr.top/Article/details/05874.shtml)
+- 2026-06-29 16:43 - [博主：全球股市进入“AI极端共振”](https://www.blog.kurohicncr.top/Article/details/667754893106.shtml)
+- 2026-06-29 16:52 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/49553871916.shtml)
+- 2026-06-29 16:49 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/63404.shtml)
+- 2026-06-29 16:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/47618786.shtml)
+- 2026-06-29 16:41 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/9498140.shtml)
+- 2026-06-29 16:40 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/59167424165.shtml)
+- 2026-06-29 16:39 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/8287867.shtml)
+- 2026-06-29 16:38 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/61743047.shtml)
+- 2026-06-29 16:42 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/700549787.shtml)
+- 2026-06-29 16:34 - [天道](http://www.blog.kurohicncr.top/Article/details/330504.shtml)
+- 2026-06-29 16:52 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/46655332.shtml)

@@ -1,58 +1,61 @@
-# 追觅俞浩回应设立上百个BU：AI时代，人类生产力会提高100倍
+# 铸牢中华民族共同体意识丨欢歌笑语乐享假日
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-做企业不是开故事会，发展才能解释问题，发展才能解决问题 文|《中国企业家》记者 李艳艳 见习编辑|李原编辑|何伊凡 头图摄影|邓攀 在成为世界首富之前，追觅科技创始人俞浩先打破了一项世界纪录：社交媒体上最活跃的CEO。从5月6日到5月12日，一周之内，他发了409条抖音、376条视频号、291条小红书、393条微博，平均每天12条朋友圈。 这还不包括追觅员工、高管发布的内容，他
+古尔邦节假期来临，丰富多彩的文化活动在天山南北上演。乡村文化大院里歌舞飞扬，社区广场上趣味赛事热火朝天，晚会上经典民乐奏响欢乐乐章……各族群众看表演、品美食、赏美景，乐享假日美好时光。 5月27日，和田团城景区内乐曲悠扬，动感欢快的音乐声中，身着盛装的青年步入场地，跳起热情奔放的舞蹈。围观群众被这份热情打动，纷纷加入其中，跟随节拍一同舞动。游客们拿起手机、相机，定格这美好瞬间。
 
 ## 正文
 
-做企业不是开故事会，发展才能解释问题，发展才能解决问题 文|《中国企业家》记者 李艳艳 见习编辑|李原编辑|何伊凡 头图摄影|邓攀 在成为世界首富之前，追觅科技创始人俞浩先打破了一项世界纪录：社交媒体上最活跃的CEO。
+古尔邦节假期来临，丰富多彩的文化活动在天山南北上演。
 
-从5月6日到5月12日，一周之内，他发了409条抖音、376条视频号、291条小红书、393条微博，平均每天12条朋友圈。
+乡村文化大院里歌舞飞扬，社区广场上趣味赛事热火朝天，晚会上经典民乐奏响欢乐乐章……各族群众看表演、品美食、赏美景，乐享假日美好时光。
 
-这还不包括追觅员工、高管发布的内容，他要求所有员工开通所有社交媒体的账号，每天至少发3条视频。
+5月27日，和田团城景区内乐曲悠扬，动感欢快的音乐声中，身着盛装的青年步入场地，跳起热情奔放的舞蹈。
 
-视频中的俞浩，情绪起伏极大，几乎每句话都用叹号收尾。
+围观群众被这份热情打动，纷纷加入其中，跟随节拍一同舞动。
 
-有时快意恩仇：“夸我们的人，都长得比较帅！
+游客们拿起手机、相机，定格这美好瞬间。
 
-骂我们的人，都长得比较丑！
+第一次来和田的北京游客李礼激动地说：“沉浸式参与歌舞活动，真切感受和田独有的人文魅力，浓郁的烟火气和淳朴热情深深打动了我。
 
-”有时咬牙切齿：“反正谁都不要随便招惹老子！
+” 在和田县约特干故城景区，“从早嗨到晚·入戏约特干”沉浸式一日游活动火热开启。
 
-我有仇必报！
+游客们可以在非遗体验工坊亲手制作桑皮纸拓印作品，参与“泼水迎福”传统民俗活动，还可以加入千人萨玛舞集体互动，在专业演员的领舞下，简单易学的舞步让各族群众快速融入其中。
 
 ## 相关推荐
 
-- 2026-06-29 16:44 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 16:33 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 16:53 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 16:27 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 16:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 16:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 16:33 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 16:37 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 16:42 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 16:50 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 16:33 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 16:28 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 16:59 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 16:33 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 16:49 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 16:59 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 16:56 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 16:52 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 16:58 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 16:39 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 16:35 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 16:57 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 16:54 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 16:58 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 16:37 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 16:43 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 16:36 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:30 - [105年初心滚烫](http://www.blog.minike.top/Article/details/474803364.shtml)
-- 2026-06-29 16:40 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/92090094.shtml)
-- 2026-06-29 16:47 - [媒体：中国田径压力与期待并存](http://www.blog.kurohicncr.top/Article/details/973116754718.shtml)
-- 2026-06-29 16:26 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.kurohicncr.top/Article/details/9797945.shtml)
-- 2026-06-29 16:33 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/52093361672.shtml)
-- 2026-06-29 16:53 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/40235863407.shtml)
-- 2026-06-29 16:35 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/643662.shtml)
-- 2026-06-29 16:43 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/8110648482.shtml)
-- 2026-06-29 16:47 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/07717862434.shtml)
-- 2026-06-29 16:49 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/996484.shtml)
-- 2026-06-29 16:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/5288672252.shtml)
-- 2026-06-29 16:43 - [沙丘](http://www.share.kurohicncr.top/Article/details/094388920.shtml)
-- 2026-06-29 16:42 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/6355116.shtml)
-- 2026-06-29 16:39 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/8308013255.shtml)
-- 2026-06-29 16:39 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.kurohicncr.top/Article/details/2180241.shtml)
+- 2026-06-29 16:55 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/1729673.shtml)
+- 2026-06-29 16:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/18239.shtml)
+- 2026-06-29 16:35 - [斗破苍穹](http://www.blog.minike.top/Article/details/030268887969.shtml)
+- 2026-06-29 16:57 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/5062399.shtml)
+- 2026-06-29 16:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/9891321.shtml)
+- 2026-06-29 16:51 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/814685997.shtml)
+- 2026-06-29 16:43 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/72508372.shtml)
+- 2026-06-29 16:41 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/580825864.shtml)
+- 2026-06-29 16:34 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/386572207.shtml)
+- 2026-06-29 16:48 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/9559032.shtml)
+- 2026-06-29 16:56 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/4255331075.shtml)
+- 2026-06-29 16:55 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/581622886430.shtml)
+- 2026-06-29 16:47 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/3974086.shtml)
+- 2026-06-29 16:44 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/7886263.shtml)
+- 2026-06-29 16:47 - [李在镕：计划将光州作为芯片生产基地](https://www.share.kurohicncr.top/Article/details/9434968.shtml)

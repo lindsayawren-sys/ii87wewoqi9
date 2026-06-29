@@ -1,56 +1,58 @@
-# 从“观光”到“参与” 深度体验成旅行新风尚
+# 申万宏源：建滔积层板首予“增持”评级 厚植一体化护城河
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-从“观光”到“参与”，从“看景”到“入景”—— 深度体验成旅行新风尚 当下文旅市场中，沉浸式体验游的热度正持续攀升。奔赴江西景德镇邂逅陶瓷文脉，走进河南开封沉浸式感受武侠宋韵，去往陕西西安梦回盛唐烟火……告别走马观花，深度参与、沉浸式共情，成为大众出游的新追求。 体验经济作为重要的消费场景，正日益成为激活国内文旅市场的重要力量，“为一场体验赴一座城”已成为文旅消费新风尚。体验游
+申万宏源发布研报称，建滔积层板（01888）盈利能力或将大幅提升，该行预计2026-2028年公司分别实现营收268、356、383亿港元，对应综合毛利率分别为30%、31%、32%，其中毛利率假设主要基于公司逐步提价以及产品结构升级，预计2026-2028年公司实现归母净利润46.2、66.6、75.4亿港元，对应估值分别为37、26、23倍。公司估值低于可比公司，但考虑不同
 
 ## 正文
 
-从“观光”到“参与”，从“看景”到“入景”—— 深度体验成旅行新风尚 当下文旅市场中，沉浸式体验游的热度正持续攀升。
+申万宏源发布研报称，建滔积层板（01888）盈利能力或将大幅提升，该行预计2026-2028年公司分别实现营收268、356、383亿港元，对应综合毛利率分别为30%、31%、32%，其中毛利率假设主要基于公司逐步提价以及产品结构升级，预计2026-2028年公司实现归母净利润46.2、66.6、75.4亿港元，对应估值分别为37、26、23倍。
 
-奔赴江西景德镇邂逅陶瓷文脉，走进河南开封沉浸式感受武侠宋韵，去往陕西西安梦回盛唐烟火……告别走马观花，深度参与、沉浸式共情，成为大众出游的新追求。
+公司估值低于可比公司，但考虑不同市场的估值差异，该行以谨慎性原则，首次覆盖，给予公司“增持”评级。
 
-体验经济作为重要的消费场景，正日益成为激活国内文旅市场的重要力量，“为一场体验赴一座城”已成为文旅消费新风尚。
+申万宏源主要观点如下： 产业链一体化建设的全球CCL头部企业，迎来三重转变机遇 建滔积层板是全球最大的刚性覆铜板销售企业，占据2024年全球销售额14.4%。
 
-体验游为何如此吸引人？
+公司具备行业稀缺的产业链一体化布局优势，覆铜板上游的铜箔、玻纤、树脂、填料等均具备资产能力；其母公司建滔集团（00148）则是PCB的核心供应商。
 
-如何才能走得更远？
+在AI需求驱动的原材料涨价周期中，公司当前正处于“传统CCL多次提价修复利润，AI-CCL高端材料成长重估，从CCL头部企业向AI电子布领先供应商转型”的三重转变阶段。
 
-记者对此进行了采访。
+三重转变对公司的盈利预期与估值水平均有深刻影响，资本市场正处在对公司深刻转变的认知过程中。
 
-体验游为何引人入戏共情 这个“五一”假期，河南开封再次成为热门旅游目的地。
+传统业务周期拐点，传统CCL多轮提价修复盈利 CCL在PCB产业链格局较分散，盈利能力在过去弱于下游PCB与上游材料板块，提价难度也相对高于产业链其他环节。
 
-在万岁山武侠城景区，往来游客络绎不绝。
+2025年以来，需求推动下行业逐步落实CCL提价规划，传统CCL盈利能力迎来重估。
 
 ## 相关推荐
 
-- 2026-06-29 16:52 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 16:50 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 16:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 16:29 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 16:24 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 16:39 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 16:44 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 16:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 16:29 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 16:28 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 16:44 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 16:40 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 16:55 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 16:30 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 16:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 16:51 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 16:34 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 16:32 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 16:33 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 16:48 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 16:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 16:54 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:42 - [《贺子珍》](http://www.share.minike.top/Article/details/59416832.shtml)
-- 2026-06-29 16:29 - [爱很美味](http://www.share.minike.top/Article/details/69992330.shtml)
-- 2026-06-29 16:24 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/35121128781.shtml)
-- 2026-06-29 16:41 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/30769150218.shtml)
-- 2026-06-29 16:29 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/271418892106.shtml)
-- 2026-06-29 16:42 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/620028429536.shtml)
-- 2026-06-29 16:35 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/28986909.shtml)
-- 2026-06-29 16:52 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/20482671573.shtml)
-- 2026-06-29 16:44 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/416221.shtml)
-- 2026-06-29 16:50 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/2098197337.shtml)
-- 2026-06-29 16:42 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/46153967.shtml)
-- 2026-06-29 16:48 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/627627.shtml)
-- 2026-06-29 16:53 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/939674291.shtml)
-- 2026-06-29 16:30 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/2103027.shtml)
-- 2026-06-29 16:47 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/877072699423.shtml)
+- 2026-06-29 16:46 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/6959232099.shtml)
+- 2026-06-29 16:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/74465.shtml)
+- 2026-06-29 16:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/23271967852.shtml)
+- 2026-06-29 16:51 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/4262379290.shtml)
+- 2026-06-29 16:34 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/7014403.shtml)
+- 2026-06-29 16:42 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/8293988056.shtml)
+- 2026-06-29 16:46 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/20512069161.shtml)
+- 2026-06-29 16:39 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/757843618.shtml)
+- 2026-06-29 16:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/55552511.shtml)
+- 2026-06-29 16:56 - [新能源车能当外接空调用吗](http://www.blog.kurohicncr.top/Article/details/65762165714.shtml)
+- 2026-06-29 16:40 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/20384970.shtml)
+- 2026-06-29 16:36 - [T1 KC](https://www.share.kurohicncr.top/Article/details/8309181017.shtml)
+- 2026-06-29 16:52 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/47450.shtml)
+- 2026-06-29 16:32 - [南昌市委书记调整](https://www.share.minike.top/Article/details/17006942.shtml)
+- 2026-06-29 16:47 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/80569620.shtml)

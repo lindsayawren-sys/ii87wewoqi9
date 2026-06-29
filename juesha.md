@@ -1,61 +1,60 @@
-# 沃什将于周五在白宫宣誓就任美联储主席
+# 云南侨界人士热议电影《给阿嬷的情书》
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-福克斯商业新闻周一援引白宫官员消息称，凯文・沃什（Kevin Warsh）将于本周五在白宫举行的仪式上宣誓就任美国联邦储备委员会（美联储）下一任主席，仪式由美国总统唐纳德・特朗普主持。 美国参议院已于周三投票批准凯文・沃什出任美联储主席。现年 56 岁的沃什兼具律师与金融背景，将正式执掌美联储。当前美国通胀持续加剧，特朗普总统一再要求降息，但通胀高企或令降息难以落地，沃什正是在
+中新网昆明5月27日电 (记者 缪超 刘冉阳)光影连侨心，书香寄深情。27日，上百名云南侨界代表人士在昆明集中观看华侨题材电影《给阿嬷的情书》，在光影流转中重温侨史记忆，共话家国情怀。 侨批，是海外华侨通过民间渠道寄给国内家人的书信与汇款凭证，兼具“银信合一”的独特价值。2013年，侨批已入选联合国教科文组织《世界记忆名录》，是珍贵的世界档案文献遗产。 电影《给阿嬷的情书》以侨
 
 ## 正文
 
-福克斯商业新闻周一援引白宫官员消息称，凯文・沃什（Kevin Warsh）将于本周五在白宫举行的仪式上宣誓就任美国联邦储备委员会（美联储）下一任主席，仪式由美国总统唐纳德・特朗普主持。
+中新网昆明5月27日电 (记者 缪超 刘冉阳)光影连侨心，书香寄深情。
 
-美国参议院已于周三投票批准凯文・沃什出任美联储主席。
+27日，上百名云南侨界代表人士在昆明集中观看华侨题材电影《给阿嬷的情书》，在光影流转中重温侨史记忆，共话家国情怀。
 
-现年 56 岁的沃什兼具律师与金融背景，将正式执掌美联储。
+侨批，是海外华侨通过民间渠道寄给国内家人的书信与汇款凭证，兼具“银信合一”的独特价值。
 
-当前美国通胀持续加剧，特朗普总统一再要求降息，但通胀高企或令降息难以落地，沃什正是在此背景下接掌央行大权。
+2013年，侨批已入选联合国教科文组织《世界记忆名录》，是珍贵的世界档案文献遗产。
 
-沃什由特朗普提名出任美联储主席。
+电影《给阿嬷的情书》以侨批为载体，讲述了一段跨越半个世纪的南洋往事：潮汕青年郑木生远赴南洋谋生，靠一封封“银信合一”的侨批寄回血汗钱支撑家庭。
 
-过去八年，白宫与美联储关系摩擦不断，叠加全球疫情冲击与高通胀拉锯，沃什的上任有望为白宫与央行的关系翻开新篇章。
+郑木生意外客死他乡后，好友谢南枝替其代写侨批十八年，以温柔的谎言守护着阿嬷淑柔的等待。
 
-沃什将从现任美联储主席杰罗姆・鲍威尔（Jerome Powell）手中接过领导权。
+观影过程中，不少侨界人士被银幕上呈现的质朴情感深深打动落泪。
 
-责任编辑：郭明煜
+在观影结束后举行的交流活动上，侨界代表人士分享了各自的感受。
 
 ## 相关推荐
 
-- 2026-06-29 16:47 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 16:26 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 16:26 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 16:26 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 16:32 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 16:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 16:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 16:32 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 16:44 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 16:32 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 16:51 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 16:46 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 16:36 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 16:41 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 16:38 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 16:38 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 16:31 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 16:48 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 16:53 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 16:55 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 16:37 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 16:51 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 16:36 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 16:31 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 16:54 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 16:52 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 16:39 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 16:41 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 16:55 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:50 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.kurohicncr.top/Article/details/359628803417.shtml)
-- 2026-06-29 16:30 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/60509774342.shtml)
-- 2026-06-29 16:30 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/39066038271.shtml)
-- 2026-06-29 16:47 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/37784032997.shtml)
-- 2026-06-29 16:38 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/0079792.shtml)
-- 2026-06-29 16:41 - [唐艺昕告别浪姐千字长文](https://www.blog.kurohicncr.top/Article/details/7617480.shtml)
-- 2026-06-29 16:35 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/28707131.shtml)
-- 2026-06-29 16:51 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/568167608678.shtml)
-- 2026-06-29 16:28 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.minike.top/Article/details/11379158171.shtml)
-- 2026-06-29 16:26 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/5443829.shtml)
-- 2026-06-29 16:26 - [NBA交易](http://www.share.minike.top/Article/details/812606.shtml)
-- 2026-06-29 16:36 - [速度与激情9](http://www.share.minike.top/Article/details/344462.shtml)
-- 2026-06-29 16:41 - [第一炉香](https://www.share.kurohicncr.top/Article/details/96449.shtml)
-- 2026-06-29 16:37 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/822268.shtml)
-- 2026-06-29 16:53 - [博主：美航母沦为毒品集散窝点](https://www.blog.minike.top/Article/details/041696.shtml)
+- 2026-06-29 16:57 - [妹妹的正确用法！](http://www.blog.kurohicncr.top/Article/details/976154930003.shtml)
+- 2026-06-29 16:49 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/99314.shtml)
+- 2026-06-29 16:46 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/4452723696.shtml)
+- 2026-06-29 16:40 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/955981046778.shtml)
+- 2026-06-29 16:55 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/662873236970.shtml)
+- 2026-06-29 16:48 - [省市招考专家解读山西高考志愿政策](http://www.blog.minike.top/Article/details/639629.shtml)
+- 2026-06-29 16:57 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/77199597.shtml)
+- 2026-06-29 16:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/532098.shtml)
+- 2026-06-29 16:43 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/45893226.shtml)
+- 2026-06-29 16:40 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/8530845676.shtml)
+- 2026-06-29 16:48 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/36697.shtml)
+- 2026-06-29 16:57 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/7153956.shtml)
+- 2026-06-29 16:32 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/16316680455.shtml)
+- 2026-06-29 16:41 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/0269778765.shtml)
+- 2026-06-29 16:30 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/812432.shtml)

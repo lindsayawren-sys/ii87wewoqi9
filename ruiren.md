@@ -1,60 +1,51 @@
-# 易事特（300376）投资者索赔案收到调解书将获赔，还在诉讼时效内
+# 中塞(尔维亚)两国央行再次签署双边本币互换协议
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年5月15日，上海久诚律师事务所股票索赔律师许峰代理的易事特（300376）投资者索赔案收到广州中院送达的部分投资者的调解书，投资者将调解获赔。 许峰律师提示，易事特投资者索赔案已有胜诉判决，此前部分投资者收到赔偿款，已经获赔到位。许峰律师代理的易事特投资者索赔案部分达成调解，已有调解获赔。律师团队
+经国务院批准，近日中国人民银行与塞尔维亚国家银行再次签署双边本币互换协议，互换规模由原来的15亿元人民币/270亿塞尔维亚第纳尔扩大至50亿元人民币/740亿塞尔维亚第纳尔，协议有效期五年，经双方同意可以展期。 双方再次签署双边本币互换协议并扩大规模，有助于进一步深化两国货币金融合作，促进双边贸易和投资便利化，维护金融市场稳定。责任编辑：秦艺
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+经国务院批准，近日中国人民银行与塞尔维亚国家银行再次签署双边本币互换协议，互换规模由原来的15亿元人民币/270亿塞尔维亚第纳尔扩大至50亿元人民币/740亿塞尔维亚第纳尔，协议有效期五年，经双方同意可以展期。
 
-2026年5月15日，上海久诚律师事务所股票索赔律师许峰代理的易事特（300376）投资者索赔案收到广州中院送达的部分投资者的调解书，投资者将调解获赔。
+双方再次签署双边本币互换协议并扩大规模，有助于进一步深化两国货币金融合作，促进双边贸易和投资便利化，维护金融市场稳定。
 
-许峰律师提示，易事特投资者索赔案已有胜诉判决，此前部分投资者收到赔偿款，已经获赔到位。
-
-许峰律师代理的易事特投资者索赔案部分达成调解，已有调解获赔。
-
-律师团队同步还在推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
-
-2024年12月31日晚，易事特公告收到证监会《行政处罚决定书》，经查明，当事人存在以下违法事实： 一、易事特通过开展虚假贸易业务虚增营业收入、营业成本、利润总额。
-
-二、易事特通过开展具有融资性质的代采业务和代理业务虚增营业收入、营业成本。
-
-三、易事特通过开展具有融资性质的数据中心集成业务虚增营业收入、营业成本。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 16:53 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 16:36 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 16:38 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 16:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 16:43 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 16:51 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 16:36 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 16:50 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 16:28 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 16:35 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 16:34 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 16:31 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 16:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 16:31 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 16:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 16:40 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 16:40 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 16:59 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 16:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 16:37 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 16:48 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 16:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 16:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 16:57 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 16:37 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 16:52 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 16:43 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 16:40 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 16:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:28 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/97753103391.shtml)
-- 2026-06-29 16:34 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/217090.shtml)
-- 2026-06-29 16:35 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/83855.shtml)
-- 2026-06-29 16:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/795595979.shtml)
-- 2026-06-29 16:38 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/648025.shtml)
-- 2026-06-29 16:40 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/591727.shtml)
-- 2026-06-29 16:45 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/692438287609.shtml)
-- 2026-06-29 16:45 - [急先锋](http://www.share.minike.top/Article/details/15962987937.shtml)
-- 2026-06-29 16:25 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/613164501.shtml)
-- 2026-06-29 16:52 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/553474337.shtml)
-- 2026-06-29 16:26 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/838921.shtml)
-- 2026-06-29 16:35 - [一见倾心](https://www.share.kurohicncr.top/Article/details/518647525591.shtml)
-- 2026-06-29 16:34 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/17960.shtml)
-- 2026-06-29 16:35 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/14281.shtml)
-- 2026-06-29 16:46 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/151091952.shtml)
+- 2026-06-29 16:31 - [南昌市委书记调整](https://www.blog.minike.top/Article/details/02241326582.shtml)
+- 2026-06-29 16:52 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/798177089.shtml)
+- 2026-06-29 16:53 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/82648301.shtml)
+- 2026-06-29 16:47 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/135346.shtml)
+- 2026-06-29 16:47 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/528179510.shtml)
+- 2026-06-29 16:45 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/07113872732.shtml)
+- 2026-06-29 16:36 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/125323351518.shtml)
+- 2026-06-29 16:56 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/82605.shtml)
+- 2026-06-29 16:47 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/00438.shtml)
+- 2026-06-29 16:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/5858745057.shtml)
+- 2026-06-29 16:39 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/48688507381.shtml)
+- 2026-06-29 16:59 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/429519.shtml)
+- 2026-06-29 16:50 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/49171596.shtml)
+- 2026-06-29 16:38 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/523134.shtml)
+- 2026-06-29 16:43 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/9890610757.shtml)

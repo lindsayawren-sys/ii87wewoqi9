@@ -1,60 +1,57 @@
-# 香港中旅早盘一度拉升逾41% 积极布局新文旅项目
+# 2026年前4个月重庆市进口主要商品量值表(人民币值)
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-香港中旅（00308）早盘一度拉升逾41%，截至发稿，股价上涨22.22%，报1.43港元，成交额5.45亿港元。 5月17日，香港中旅发布公告，集团把握内地旅游市场复苏契机，积极布局新文旅项目作为新收入来源。集团于2025年10月27日完成收购的吉林省松花湖国际度假区开发有限公司及中旅（北京）冰雪体育发展有限公司。同时，集团已于2026年3月26日，与茫崖旅投旅游开发有限责任
+倒计时10天！今年高考有哪些新变化？林志玲辞任董事的台湾“文策院”，是个什么机构？国家首次专门发文，解决未落户常住人口急难愁盼英法加澳频繁介入西太平洋局势，“刷存在感”背后安全格局生变？这里的荔枝，何以C位出道？美伊谈判仍在继续 美以伊最新局势一文速览武契奇夫人塔玛拉体验中华文化 提议在塞举办中国服装秀“纸面上的安全堡垒”难守“人命关天”的安全生产防线不到1个月，“巴铁”总统、
 
 ## 正文
 
-香港中旅（00308）早盘一度拉升逾41%，截至发稿，股价上涨22.22%，报1.43港元，成交额5.45亿港元。
+倒计时10天！
 
-5月17日，香港中旅发布公告，集团把握内地旅游市场复苏契机，积极布局新文旅项目作为新收入来源。
+今年高考有哪些新变化？
 
-集团于2025年10月27日完成收购的吉林省松花湖国际度假区开发有限公司及中旅（北京）冰雪体育发展有限公司。
+林志玲辞任董事的台湾“文策院”，是个什么机构？
 
-同时，集团已于2026年3月26日，与茫崖旅投旅游开发有限责任公司、茫崖国青旅游文化开发有限公司订立投资协议及股东协议，共同设立中旅（茫崖）旅游开发有限公司（合资公司），以打造位于青海省的黑独山景区，投资建设更多旅游体验项目。
+国家首次专门发文，解决未落户常住人口急难愁盼英法加澳频繁介入西太平洋局势，“刷存在感”背后安全格局生变？
 
-公告称，合资公司注册资本人民币2亿元，集团认缴出资人民币1.02亿元，持股占比51%。
+这里的荔枝，何以C位出道？
 
-该项目拟以独特的“地质奇观+深空探索”体验为核心产品体系，地处青甘大环线的关键节点，是集团继宁夏沙坡头景区项目后在西北地区的重要布局，有助于集团完善西北旅游环线的站点，加强西北地区市场份额及影响力。
+美伊谈判仍在继续 美以伊最新局势一文速览武契奇夫人塔玛拉体验中华文化 提议在塞举办中国服装秀“纸面上的安全堡垒”难守“人命关天”的安全生产防线不到1个月，“巴铁”总统、总理为何先后访华？
 
-目前黑独山景区已在对外开放阶段，2026年五一黄金周期间（5月1日至5月5日）共接待20874人次，集团预期新增投资业态将会在2028年建设完成并开业，届时将会吸引更多游客。
+写出《给阿嬷的情书》的人们，怎么可能是“神秘渗透者”！
 
-责任编辑：卢昱君
+龙卷风为何近期多发？
 
 ## 相关推荐
 
-- 2026-06-29 16:31 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 16:28 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 16:35 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 16:33 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 16:24 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 16:37 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 16:47 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 16:47 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 16:26 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 16:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 16:25 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 16:27 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 16:29 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 16:53 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 16:47 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 16:36 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 16:32 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 16:46 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 16:59 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 16:51 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 16:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 16:31 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 16:47 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 16:31 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 16:34 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:27 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.minike.top/Article/details/59066064.shtml)
-- 2026-06-29 16:52 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/30251838054.shtml)
-- 2026-06-29 16:36 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/939202036.shtml)
-- 2026-06-29 16:51 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/008634.shtml)
-- 2026-06-29 16:36 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/26018.shtml)
-- 2026-06-29 16:40 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/26303868.shtml)
-- 2026-06-29 16:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/4409992.shtml)
-- 2026-06-29 16:54 - [速度与激情9](http://www.blog.minike.top/Article/details/12672168.shtml)
-- 2026-06-29 16:37 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/81583.shtml)
-- 2026-06-29 16:28 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/2616777.shtml)
-- 2026-06-29 16:40 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/286498667397.shtml)
-- 2026-06-29 16:32 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/739699830618.shtml)
-- 2026-06-29 16:39 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/7650670537.shtml)
-- 2026-06-29 16:41 - [沙丘](http://www.share.minike.top/Article/details/66639.shtml)
-- 2026-06-29 16:37 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/4800633040.shtml)
+- 2026-06-29 16:58 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/571817.shtml)
+- 2026-06-29 16:31 - [恋与深空发放补偿未得到玩家认可](http://www.blog.kurohicncr.top/Article/details/76460106.shtml)
+- 2026-06-29 16:53 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/733819074.shtml)
+- 2026-06-29 16:31 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/733019245551.shtml)
+- 2026-06-29 16:44 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.minike.top/Article/details/96697.shtml)
+- 2026-06-29 16:52 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/5407618911.shtml)
+- 2026-06-29 16:51 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/954457120.shtml)
+- 2026-06-29 16:34 - [T1 KC](http://www.share.kurohicncr.top/Article/details/199612795.shtml)
+- 2026-06-29 16:39 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/2866377545.shtml)
+- 2026-06-29 16:45 - [博主：美航母沦为毒品集散窝点](https://www.share.kurohicncr.top/Article/details/64772813778.shtml)
+- 2026-06-29 16:52 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/18891798313.shtml)
+- 2026-06-29 16:55 - [普京承认俄出现燃料危机](http://www.share.minike.top/Article/details/76328703146.shtml)
+- 2026-06-29 16:42 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/84331578.shtml)
+- 2026-06-29 16:53 - [业内：全球市场迎来结构性投资窗口](http://www.share.kurohicncr.top/Article/details/5476431.shtml)
+- 2026-06-29 16:48 - [A股割裂行情有变化了吗](https://www.blog.kurohicncr.top/Article/details/74834615.shtml)

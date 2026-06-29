@@ -1,60 +1,59 @@
-# 全球债市抛售潮再起！美债、日债新一轮风险席卷而来？
+# 五粮液（000858）股民索赔再提交法院立案，此前已有案件获得法院立案
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-全球债市警报再拉响。 在通胀预期重燃、财政忧虑发酵与地缘冲击叠加的共振效应下，全球债市近几个交易日再现抛售潮。其中，10年期日债和30年期美债收益率都突破关键点位。美债、日债都被市场警示潜在危机。 10年期日债收益率突破2.8% 5月18日亚太交易时段，日债再度遭遇新一轮抛售，10年期日本国债收益率开盘后不久便狂飙逾10个基点触及2.8%关口，创下自1996年10月以来的最高水
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月27日，上海久诚律师事务所股票索赔律师许峰代理的五粮液（维权）（000858）投资者索赔案案再向法院提交一次立案。（许峰律师专栏） 此前2026年5月20日，许峰律师代理的五粮液投资者索赔案已获得成渝金融法院立案，目前正在等待法院的下一步安排。律师团队同步还在继续推进后续案件的代理工作，还在继续接受其他投资者的索赔
 
 ## 正文
 
-全球债市警报再拉响。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月27日，上海久诚律师事务所股票索赔律师许峰代理的五粮液（维权）（000858）投资者索赔案案再向法院提交一次立案。
 
-在通胀预期重燃、财政忧虑发酵与地缘冲击叠加的共振效应下，全球债市近几个交易日再现抛售潮。
+（许峰律师专栏） 此前2026年5月20日，许峰律师代理的五粮液投资者索赔案已获得成渝金融法院立案，目前正在等待法院的下一步安排。
 
-其中，10年期日债和30年期美债收益率都突破关键点位。
+律师团队同步还在继续推进后续案件的代理工作，还在继续接受其他投资者的索赔委托。
 
-美债、日债都被市场警示潜在危机。
+2026年4月30日晚，五粮液发布关于前期会计差错更正的公告，称宜宾五粮液股份有限公司于2026年4月28日召开第七届董事会2026年第4次会议和第七届董事会审计委员会2026年第四次会议，审议通过了《关于前期会计差错更正的议案》。
 
-10年期日债收益率突破2.8% 5月18日亚太交易时段，日债再度遭遇新一轮抛售，10年期日本国债收益率开盘后不久便狂飙逾10个基点触及2.8%关口，创下自1996年10月以来的最高水平，30年期日债收益率更是大涨近20个基点，升破4.20%。
+根据《企业会计准则第28号——会计政策、会计估计变更和差错更正》《公开发行证券的公司信息披露编报规则19号——财务信息的更正及相关披露》等相关规定，对前期会计差错更正的具体情况说明公告说明，建议投资者仔细阅读全文。
 
-除了此前扰动市场的高通胀预期外，18日稍早，一位了解审议情况的日本政府消息人士称，为了缓冲中东冲突带来的经济冲击，日本政府可能会发行新债，作为计划中追加预算的资金一部分。
+专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，在2025年4月28日到2026年5月1日之间买入五粮液股票，并且在2026年5月1日后卖出或继续持有股票的投资者，目前还可发起索赔，具体应以法院认定为准。
 
-而任何新债发行都将进一步加剧日本本已恶化的财政状况，并可能加速长债收益率的上行。
+（五粮液维权入口） （本文由许峰律师供稿，不代表新浪财经立场。
 
-野村证券策略师Naka Matsuzawa在报告中梳理称，自高市早苗政府上台以来，“债券义警”已三度就经济政策管理发出警告：第一次发生在去年10月高市政府刚刚就任之后，第二次发生在今年1月食品税减免提案浮出水面之时，第三次则是当前这轮由海外因素主导的抛售。
+许峰律师，上海久诚律师事务所主任，2008年起律师执业，执业服务范围涉及虚假陈述、内幕交易、操纵市场等证券欺诈领域索赔代理。
 
 ## 相关推荐
 
-- 2026-06-29 16:50 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 16:53 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 16:32 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 16:33 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 16:30 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 16:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 16:42 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 16:37 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 16:46 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 16:52 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 16:26 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 16:42 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 16:34 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 16:48 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 16:43 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 16:47 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 16:30 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 16:46 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 16:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 16:48 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 16:32 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 16:48 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 16:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 16:57 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 16:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 16:55 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 16:57 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:53 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/706948272052.shtml)
-- 2026-06-29 16:35 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/21907127.shtml)
-- 2026-06-29 16:50 - [世界杯上那些封神的门将](https://www.share.kurohicncr.top/Article/details/921021435.shtml)
-- 2026-06-29 16:42 - [周生如故](https://www.share.minike.top/Article/details/265927392.shtml)
-- 2026-06-29 16:31 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/43199213.shtml)
-- 2026-06-29 16:44 - [端午节加班工资应该怎么算](https://www.blog.minike.top/Article/details/44817.shtml)
-- 2026-06-29 16:29 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/47515.shtml)
-- 2026-06-29 16:30 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/21471723512.shtml)
-- 2026-06-29 16:39 - [滾石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/095810797.shtml)
-- 2026-06-29 16:48 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/155230348.shtml)
-- 2026-06-29 16:26 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/375749.shtml)
-- 2026-06-29 16:53 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/33823628.shtml)
-- 2026-06-29 16:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/532071737.shtml)
-- 2026-06-29 16:29 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.kurohicncr.top/Article/details/199515.shtml)
-- 2026-06-29 16:42 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/86530900582.shtml)
+- 2026-06-29 16:48 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/96547.shtml)
+- 2026-06-29 16:32 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/7615311105.shtml)
+- 2026-06-29 16:52 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/21246652237.shtml)
+- 2026-06-29 16:57 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/09286.shtml)
+- 2026-06-29 16:33 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/6689255.shtml)
+- 2026-06-29 16:34 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/86621259896.shtml)
+- 2026-06-29 16:40 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/045116640346.shtml)
+- 2026-06-29 16:36 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/093847354669.shtml)
+- 2026-06-29 16:42 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/78771344.shtml)
+- 2026-06-29 16:40 - [绘画区你赢了](https://www.share.minike.top/Article/details/861472.shtml)
+- 2026-06-29 16:43 - [欧洲多国激辩“装不装空调”](http://www.share.kurohicncr.top/Article/details/330898.shtml)
+- 2026-06-29 16:45 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/1150161.shtml)
+- 2026-06-29 16:37 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/65819383.shtml)
+- 2026-06-29 16:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/71819.shtml)
+- 2026-06-29 16:50 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/25030.shtml)

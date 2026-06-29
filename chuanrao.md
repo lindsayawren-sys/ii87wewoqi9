@@ -1,58 +1,60 @@
-# “浙”里法治护民生 湖州公安绘就基层治理新图景
+# 武契奇：中国已成为当今世界“稳定的重心”
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新网湖州5月19日电 (钱晨菲 叶冠琦)基层治理的难点，往往藏在琐碎的日常里。今年是法治浙江建设20年，浙江省公安厅“法治公安‘浙’里行”主题宣传活动近日走进浙江湖州，探访当地公安机关在基层治理中的实践。 从社区警务机制改革，到景区治理创新，再到未成年人保护……在一个个基层治理场景中，湖州公安正尝试以更贴近民生的方式，让法治力量向街巷深处延伸。 过去，“无法真正下沉”是社区民
+26日，塞尔维亚总统武契奇在北京接受总台《高端访谈》栏目专访时，高度评价中国对维护全球稳定所作出的贡献。他将此次访华称为“政治生涯中最重要的一次国事访问”，并明确指出，中国已成为当今世界“稳定的重心”。各国可以信赖中国负责任的外交政策与和平发展的坚定承诺。总台记者 邹韵：总统先生，您曾将此次访华称为自己政治生涯中最重要的一次国事访问，为什么这样说？此次访问为何对您个人以及在政治
 
 ## 正文
 
-中新网湖州5月19日电 (钱晨菲 叶冠琦)基层治理的难点，往往藏在琐碎的日常里。
+26日，塞尔维亚总统武契奇在北京接受总台《高端访谈》栏目专访时，高度评价中国对维护全球稳定所作出的贡献。
 
-今年是法治浙江建设20年，浙江省公安厅“法治公安‘浙’里行”主题宣传活动近日走进浙江湖州，探访当地公安机关在基层治理中的实践。
+他将此次访华称为“政治生涯中最重要的一次国事访问”，并明确指出，中国已成为当今世界“稳定的重心”。
 
-从社区警务机制改革，到景区治理创新，再到未成年人保护……在一个个基层治理场景中，湖州公安正尝试以更贴近民生的方式，让法治力量向街巷深处延伸。
+各国可以信赖中国负责任的外交政策与和平发展的坚定承诺。
 
-过去，“无法真正下沉”是社区民警的困境之一。
+总台记者 邹韵：总统先生，您曾将此次访华称为自己政治生涯中最重要的一次国事访问，为什么这样说？
 
-传统的“四天一班”轮班制，使民警难以脱离派出所的值班节奏，难以长时间扎根社区。
+此次访问为何对您个人以及在政治层面都具有如此特殊的重要意义？
 
-改变，从调整勤务机制开始。
+塞尔维亚总统 武契奇：为什么我会这样说，因为时机。
 
-武康派出所将值班周期延长至“十六天一班”，并将主城区划分为东、中、西三个防区，每个防区设综合警务站，由民警常态化驻守。
+当前所处的时间节点非常特殊，如今你看到世界上许多其他大国的行为方式都变得难以预测。
 
-工作日里，民警就在警务站接处一般警情；夜间及节假日，则由轮值警力统一兜底。
+你无法预判他们明天会做什么，更不用说一个月后，或者一年后会发生什么了。
 
 ## 相关推荐
 
-- 2026-06-29 16:52 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 16:24 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 16:28 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 16:43 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 16:25 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 16:25 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 16:51 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 16:38 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 16:47 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 16:35 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 16:26 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 16:44 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 16:33 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 16:41 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 16:49 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 16:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 16:37 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 16:51 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 16:37 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 16:36 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 16:41 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 16:46 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 16:47 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 16:51 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 16:44 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 16:34 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:29 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/521269.shtml)
-- 2026-06-29 16:40 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/98089.shtml)
-- 2026-06-29 16:39 - [世界杯上那些封神的门将](https://www.share.kurohicncr.top/Article/details/08557149870.shtml)
-- 2026-06-29 16:33 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/69226584001.shtml)
-- 2026-06-29 16:42 - [起风了](http://www.blog.kurohicncr.top/Article/details/1096893.shtml)
-- 2026-06-29 16:28 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/542411.shtml)
-- 2026-06-29 16:49 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/046402.shtml)
-- 2026-06-29 16:32 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/934520.shtml)
-- 2026-06-29 16:31 - [世界杯十大帅哥必吃榜](https://www.share.minike.top/Article/details/41192328.shtml)
-- 2026-06-29 16:27 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/203362098.shtml)
-- 2026-06-29 16:44 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/08109456.shtml)
-- 2026-06-29 16:29 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/794715444.shtml)
-- 2026-06-29 16:31 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/3766026180.shtml)
-- 2026-06-29 16:45 - [小说《无悔追踪》翻红](http://www.share.minike.top/Article/details/22297541110.shtml)
-- 2026-06-29 16:42 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/880275604758.shtml)
+- 2026-06-29 16:37 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/213139044673.shtml)
+- 2026-06-29 16:36 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/037070932515.shtml)
+- 2026-06-29 16:44 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/5199364.shtml)
+- 2026-06-29 16:55 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/181706984.shtml)
+- 2026-06-29 16:34 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/5147638.shtml)
+- 2026-06-29 16:40 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/46957.shtml)
+- 2026-06-29 16:45 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/542137253870.shtml)
+- 2026-06-29 16:46 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/76978171074.shtml)
+- 2026-06-29 16:45 - [扬名立万](https://www.share.minike.top/Article/details/7677534978.shtml)
+- 2026-06-29 16:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/7739211295.shtml)
+- 2026-06-29 16:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/31619714.shtml)
+- 2026-06-29 16:53 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/3163296.shtml)
+- 2026-06-29 16:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/39694.shtml)
+- 2026-06-29 16:35 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/582028233.shtml)
+- 2026-06-29 16:42 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/18079368.shtml)

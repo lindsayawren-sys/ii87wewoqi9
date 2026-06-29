@@ -1,45 +1,44 @@
-# 微观察·中美元首北京会晤丨历史性的一页，要用历史的长镜头去端详
+# 2026年01月-04月广西进出口商品类章总值表（人民币、美元值）
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 10:05 来源：人民日报客户端 责任编辑：【杨彦宇】
+2026年01月-04月广西进出口商品类章总值表(人民币、美元值).xls
 
 ## 正文
 
-发布时间：2026年05月18日 10:05 来源：人民日报客户端 责任编辑：【杨彦宇】
+2026年01月-04月广西进出口商品类章总值表(人民币、美元值).xls
 
 ## 相关推荐
 
-- 2026-06-29 16:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 16:46 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 16:31 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 16:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 16:32 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 16:48 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 16:39 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 16:50 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 16:43 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 16:38 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 16:30 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 16:48 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 16:51 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 16:49 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 16:56 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 16:32 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 16:35 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 16:58 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 16:39 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 16:56 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 16:53 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 16:47 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 16:53 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 16:39 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 16:44 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:29 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/997497.shtml)
-- 2026-06-29 16:52 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/4409875315.shtml)
-- 2026-06-29 16:43 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/4392260443.shtml)
-- 2026-06-29 16:28 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/495755944763.shtml)
-- 2026-06-29 16:36 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/1026757800.shtml)
-- 2026-06-29 16:42 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/10189966653.shtml)
-- 2026-06-29 16:49 - [金牌调解](http://www.share.kurohicncr.top/Article/details/19704028.shtml)
-- 2026-06-29 16:37 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/85730102202.shtml)
-- 2026-06-29 16:37 - [T1 KC](https://www.share.minike.top/Article/details/435891592.shtml)
-- 2026-06-29 16:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/1199413.shtml)
-- 2026-06-29 16:27 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/61248466878.shtml)
-- 2026-06-29 16:24 - [速度与激情9](https://www.share.minike.top/Article/details/64810397518.shtml)
-- 2026-06-29 16:47 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/004541985.shtml)
-- 2026-06-29 16:46 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/553201351239.shtml)
-- 2026-06-29 16:53 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/70813893922.shtml)
+- 2026-06-29 16:38 - [一见倾心](http://www.share.minike.top/Article/details/046557315171.shtml)
+- 2026-06-29 16:44 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/802431085919.shtml)
+- 2026-06-29 16:58 - [滾石唱片要求万豪酒店道歉](http://www.share.minike.top/Article/details/84876901.shtml)
+- 2026-06-29 16:55 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/8523855486.shtml)
+- 2026-06-29 16:47 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/70742357.shtml)
+- 2026-06-29 16:45 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/20379730.shtml)
+- 2026-06-29 16:45 - [天道](https://www.share.minike.top/Article/details/7661710557.shtml)
+- 2026-06-29 16:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/47476.shtml)
+- 2026-06-29 16:57 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/18660795851.shtml)
+- 2026-06-29 16:33 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/777659037824.shtml)
+- 2026-06-29 16:44 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/5152400.shtml)
+- 2026-06-29 16:52 - [依法管制阻遏日方军事化危险动向](https://www.share.kurohicncr.top/Article/details/84299723.shtml)
+- 2026-06-29 16:56 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/47466288665.shtml)
+- 2026-06-29 16:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/787917.shtml)
+- 2026-06-29 16:32 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/2640652.shtml)

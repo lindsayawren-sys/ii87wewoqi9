@@ -1,56 +1,60 @@
-# 红利低波ETF华泰柏瑞（512890）半日成交3.51亿领跑同类 机构：歇脚期重结构，沿景气与红利两线布局
+# 重庆全市域融入、全方位推进 与四川合力唱好“双城记”
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-5月19日，三大指数涨跌不一，沪指翻红，创指跌超1%。在此背景下，红利低波ETF华泰柏瑞（512890）早盘上涨0.34%，报1.164元，换手率1.13%，半日成交额3.51亿元，居同类标的ETF首位。 资金流向上，红利低波ETF华泰柏瑞（512890）长期受资金青睐。近5个交易日资金净流入5.4亿，近10个交易日资金净流入14.3亿元，近60个交易日资金净流入16.5亿元。
+中新网重庆5月27日电(梁钦卿)重庆市政府新闻办27日举行“开局起步‘十五五’”重庆专场新闻发布会。会上透露，今后五年，重庆将坚持全市域融入、全方位推进，扎实推动“两中心两地”和“三中心一走廊”部署要求落地见效，与四川合力唱好新时代西部“双城记”。重庆市政府副市长郑向东介绍，推动成渝地区双城经济圈建设实施6年多来，两省市地区生产总值连续跨过3个万亿级台阶，从2020年的7.5万
 
 ## 正文
 
-5月19日，三大指数涨跌不一，沪指翻红，创指跌超1%。
+中新网重庆5月27日电(梁钦卿)重庆市政府新闻办27日举行“开局起步‘十五五’”重庆专场新闻发布会。
 
-在此背景下，红利低波ETF华泰柏瑞（512890）早盘上涨0.34%，报1.164元，换手率1.13%，半日成交额3.51亿元，居同类标的ETF首位。
+会上透露，今后五年，重庆将坚持全市域融入、全方位推进，扎实推动“两中心两地”和“三中心一走廊”部署要求落地见效，与四川合力唱好新时代西部“双城记”。
 
-资金流向上，红利低波ETF华泰柏瑞（512890）长期受资金青睐。
+重庆市政府副市长郑向东介绍，推动成渝地区双城经济圈建设实施6年多来，两省市地区生产总值连续跨过3个万亿级台阶，从2020年的7.5万亿元增加到去年的10.1万亿元，占全国比重提高到了7.2%，成渝地区双城经济圈引领西部、服务全国的能力和贡献度明显增强。
 
-近5个交易日资金净流入5.4亿，近10个交易日资金净流入14.3亿元，近60个交易日资金净流入16.5亿元。
+一是协同建设具有全国影响力的重要经济中心。
 
-截止2026年5月18日，红利低波ETF华泰柏瑞（512890）流通规模310.41亿元。
+近年来，川渝两地强化双核引领、区域联动，共同建成电子信息、装备制造、先进材料、特色消费品等4个万亿级产业集群。
 
-兴业证券表示，此前科技产业趋势带动的分子端盈利的上修，是4月以来全球权益资产修复的核心逻辑，但也带动市场在结构上更加集中。
+“十五五”时期，重庆将持续发力，携手打造智能网联新能源汽车、软件和信息服务业等新的万亿级产业集群，带动川渝地区生产总值再跨越3个万亿级台阶。
 
-近期的一系列事件使得分母端流动性长尾压力重回大众视野，但经历了3月以来市场对于本轮行情底层逻辑转向盈利端、转向科技产业趋势的更加充分的认知，以及赚钱效应积累的正循环的强化，近期流动性的压力并不能改变本轮行情的底层逻辑。
+二是协同建设具有全国影响力的科技创新中心。
 
-因此，与其说分母端的流动性压力再度成为全球资本市场定价的主要矛盾，倒不如说市场借这一波视角的转换，进行阶段性休整和结构的再平衡，也有利于市场在中长期的演绎。
+2025年，成渝地区纳入国家区域科技创新中心布局。
 
 ## 相关推荐
 
-- 2026-06-29 16:29 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 16:25 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 16:52 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 16:29 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 16:37 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 16:37 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 16:43 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 16:32 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 16:35 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 16:44 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 16:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 16:58 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 16:32 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 16:34 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 16:32 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 16:40 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 16:37 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 16:35 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 16:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 16:54 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 16:30 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 16:40 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 16:44 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 16:51 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:39 - [王安宇尊重田曦薇的一切选择](https://www.blog.kurohicncr.top/Article/details/73977118.shtml)
-- 2026-06-29 16:26 - [papi酱回应毕业4年零收入](https://www.blog.kurohicncr.top/Article/details/528002517680.shtml)
-- 2026-06-29 16:38 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/2527051.shtml)
-- 2026-06-29 16:47 - [叠纸](http://www.blog.kurohicncr.top/Article/details/5927062.shtml)
-- 2026-06-29 16:29 - [教育部发布高考志愿填报预警](https://www.share.kurohicncr.top/Article/details/6480813.shtml)
-- 2026-06-29 16:37 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/499912792.shtml)
-- 2026-06-29 16:34 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/972736538413.shtml)
-- 2026-06-29 16:51 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/4989846.shtml)
-- 2026-06-29 16:34 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.kurohicncr.top/Article/details/51929284935.shtml)
-- 2026-06-29 16:49 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/3461991078.shtml)
-- 2026-06-29 16:25 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/513018039856.shtml)
-- 2026-06-29 16:36 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/29335756531.shtml)
-- 2026-06-29 16:50 - [20年前的周杰伦](http://www.share.minike.top/Article/details/27099948.shtml)
-- 2026-06-29 16:52 - [差点没看懂白鹿丞磊这段意识流](http://www.share.minike.top/Article/details/81949322.shtml)
-- 2026-06-29 16:48 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/6438713551.shtml)
+- 2026-06-29 16:49 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/79948.shtml)
+- 2026-06-29 16:42 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/57872295686.shtml)
+- 2026-06-29 16:38 - [T1 KC](http://www.share.kurohicncr.top/Article/details/537699488.shtml)
+- 2026-06-29 16:38 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.kurohicncr.top/Article/details/1691178436.shtml)
+- 2026-06-29 16:40 - [T1 KC](http://www.blog.minike.top/Article/details/15969540.shtml)
+- 2026-06-29 16:41 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/9581426.shtml)
+- 2026-06-29 16:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/5273477.shtml)
+- 2026-06-29 16:31 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/21753085.shtml)
+- 2026-06-29 16:48 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.minike.top/Article/details/1668159.shtml)
+- 2026-06-29 16:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/630931.shtml)
+- 2026-06-29 16:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/22347.shtml)
+- 2026-06-29 16:32 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/9040898.shtml)
+- 2026-06-29 16:54 - [湖北钟祥市委书记张勇拟任新职](https://www.share.kurohicncr.top/Article/details/6141547962.shtml)
+- 2026-06-29 16:39 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/16944520305.shtml)
+- 2026-06-29 16:54 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/44239800354.shtml)

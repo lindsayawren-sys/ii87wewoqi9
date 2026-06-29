@@ -1,58 +1,56 @@
-# “侨瞧哈尔滨”启动 马来西亚侨商走进五常看“稻”机遇
+# KKR将开设米兰办事处 进一步深化在意大利的业务布局
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月19日电 (记者 刘锡菊)18日，由哈尔滨市委统战部主办、五常市委统战部承办的“侨瞧哈尔滨·溯源稻香五常”活动启动，以“相聚龙江，共谋发展”为主题，吸引了来自马来西亚的近40名华侨华商参加，从农业、文化等方面深度解读哈尔滨的发展新优势和投资新机遇。 五常市地处北纬45度，位于世界三大黑土带之一，被誉为“中国优质稻米之乡”。五常市现有耕地443.8万亩，年产优质成
+KKR & Co 周四表示，将在米兰开设办事处。此前，这家美国私募股权公司已在电信和能源领域进行了大量投资，目前正寻求扩大其在意大利的业务版图 。 过去两年间，由KKR牵头的财团以190亿欧元（合220亿美元）收购了意大利电信（Telecom Italia）旗下的固定电话网络，同时KKR还以约36亿欧元入股了埃尼集团（Eni）旗下生物燃料子公司Enilive，持股比例为30%。
 
 ## 正文
 
-中新网哈尔滨5月19日电 (记者 刘锡菊)18日，由哈尔滨市委统战部主办、五常市委统战部承办的“侨瞧哈尔滨·溯源稻香五常”活动启动，以“相聚龙江，共谋发展”为主题，吸引了来自马来西亚的近40名华侨华商参加，从农业、文化等方面深度解读哈尔滨的发展新优势和投资新机遇。
+KKR & Co 周四表示，将在米兰开设办事处。
 
-五常市地处北纬45度，位于世界三大黑土带之一，被誉为“中国优质稻米之乡”。
+此前，这家美国私募股权公司已在电信和能源领域进行了大量投资，目前正寻求扩大其在意大利的业务版图 。
 
-五常市现有耕地443.8万亩，年产优质成品五常大米约85万吨，品牌价值高达720.12亿元(人民币)，连续11年蝉联地标产品大米类中国第一，在2024国际稻香米品牌大会上位列地理标志品牌榜稻米类第一名。
+过去两年间，由KKR牵头的财团以190亿欧元（合220亿美元）收购了意大利电信（Telecom Italia）旗下的固定电话网络，同时KKR还以约36亿欧元入股了埃尼集团（Eni）旗下生物燃料子公司Enilive，持股比例为30%。
 
-“五常正处在高质量发展、可持续振兴的关键时期，比以往任何时候都更需要凝聚侨心、汇聚侨力、发挥侨智，也比以往任何时候都更有条件、更有平台、更有前景，让各位侨胞来此投资兴业、成就梦想。
+该公司在一份声明中表示，新办公室将负责KKR在意大利的私募股权、实物资产、信贷和保险业务，以及其私人财富管理业务。
 
-”五常市招商服务中心主任张严表示，该市作为黑龙江县域经济高质量发展的排头兵，拥有独特的资源禀赋、扎实的产业基础、明显的区位优势和良好的营商环境。
+该办公室将由KKR基础设施团队合伙人马尔科·丰塔纳（Marco Fontana）领导。
 
-活动中，侨商们参观了五常市博物馆，欣赏了东北大鼓、朝鲜族民俗舞等表演。
+私募股权团队董事尼科洛·德拉·卡萨（Nicolo Della Casa）将负责领导该公司在意大利的私募股权业务。
 
-当日举办的“五常臻品侨连世界”农产品大集，则通过美食体验、非遗展示、互动体验等多元形式，让侨商们看到了五常市的优势、诚意和机遇。
-
-马来西亚中华总商会中央理事、吉打中华总商会会长、拿督洪锡倡表示，通过此次活动，他感受到了五常市的独特风情，也对哈尔滨市的资源禀赋、产业优势和政策环境有了更深入的了解。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 16:30 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 16:31 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 16:31 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 16:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 16:32 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 16:47 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 16:34 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 16:50 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 16:34 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 16:47 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 16:33 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 16:34 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 16:44 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 16:59 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 16:48 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 16:51 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 16:53 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 16:39 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 16:43 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 16:40 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 16:41 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 16:59 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 16:41 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 16:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:37 - [逃狱兄弟](http://www.blog.minike.top/Article/details/9564086981.shtml)
-- 2026-06-29 16:42 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/4917632.shtml)
-- 2026-06-29 16:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/00656574.shtml)
-- 2026-06-29 16:25 - [金牌调解](https://www.share.kurohicncr.top/Article/details/88309671727.shtml)
-- 2026-06-29 16:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/23810.shtml)
-- 2026-06-29 16:29 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/654902891.shtml)
-- 2026-06-29 16:38 - [苹果回应恋与深空低分](http://www.share.minike.top/Article/details/4786778351.shtml)
-- 2026-06-29 16:39 - [女心理师](https://www.blog.kurohicncr.top/Article/details/410463.shtml)
-- 2026-06-29 16:32 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/74168730.shtml)
-- 2026-06-29 16:29 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/622431688928.shtml)
-- 2026-06-29 16:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/8861082516.shtml)
-- 2026-06-29 16:51 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/917968649704.shtml)
-- 2026-06-29 16:46 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/865403320.shtml)
-- 2026-06-29 16:44 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/0487114.shtml)
-- 2026-06-29 16:34 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/196954246.shtml)
+- 2026-06-29 16:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/9920631556.shtml)
+- 2026-06-29 16:42 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/44580.shtml)
+- 2026-06-29 16:41 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/7084179602.shtml)
+- 2026-06-29 16:55 - [人类对空调和其他家电有多双标](http://www.share.minike.top/Article/details/054071061066.shtml)
+- 2026-06-29 16:56 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/32842.shtml)
+- 2026-06-29 16:54 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/20083943.shtml)
+- 2026-06-29 16:30 - [T1 KC](https://www.share.minike.top/Article/details/05238147.shtml)
+- 2026-06-29 16:51 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/43051522.shtml)
+- 2026-06-29 16:40 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/0072267.shtml)
+- 2026-06-29 16:54 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/779771513306.shtml)
+- 2026-06-29 16:44 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/2882377.shtml)
+- 2026-06-29 16:30 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/990228168393.shtml)
+- 2026-06-29 16:42 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/59919816.shtml)
+- 2026-06-29 16:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/5865635.shtml)
+- 2026-06-29 16:45 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/18076773413.shtml)

@@ -1,58 +1,57 @@
-# 广州乡村以旅为媒铺就振兴路 粤韵乡村“藏着”文明新景
+# 天津首批境外上市公司境内股东减持登记业务落地
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-探索城乡融合 助推高质量发展 广州乡村以旅为媒铺就振兴路 粤韵乡村“藏着”文明新景 在第16个中国旅游日来临之际，广州乡村以文明创建为笔，绘就了一幅美丽乡村的崭新画卷。从白山村的绿美步道到瑞岭村的百年盆景，从湴湄村的星海红韵到龙潭村的旧墟新生，再到上九陂村的文旅融合……一个个典型村如珠落玉盘，在片区化、组团化的发展新格局中，实现了资源互补、产业联动与生态增值。 文明创建的涓涓细
+中新网天津5月27日电 (记者 周亚强)记者27日从中国银行天津市分行获悉，在国家外汇管理局天津市分局指导下，该行近日成功落地天津市首批境外上市公司境内股东减持登记业务。 据了解，根据中国人民银行、国家外汇管理局联合发布的《关于境内企业境外上市资金管理有关问题的通知》，自今年4月1日起，境内企业境外上市登记、变更登记及境内股东减持登记等业务改由银行直接办理，登记时限也大幅放宽。
 
 ## 正文
 
-探索城乡融合 助推高质量发展 广州乡村以旅为媒铺就振兴路 粤韵乡村“藏着”文明新景 在第16个中国旅游日来临之际，广州乡村以文明创建为笔，绘就了一幅美丽乡村的崭新画卷。
+中新网天津5月27日电 (记者 周亚强)记者27日从中国银行天津市分行获悉，在国家外汇管理局天津市分局指导下，该行近日成功落地天津市首批境外上市公司境内股东减持登记业务。
 
-从白山村的绿美步道到瑞岭村的百年盆景，从湴湄村的星海红韵到龙潭村的旧墟新生，再到上九陂村的文旅融合……一个个典型村如珠落玉盘，在片区化、组团化的发展新格局中，实现了资源互补、产业联动与生态增值。
+据了解，根据中国人民银行、国家外汇管理局联合发布的《关于境内企业境外上市资金管理有关问题的通知》，自今年4月1日起，境内企业境外上市登记、变更登记及境内股东减持登记等业务改由银行直接办理，登记时限也大幅放宽。
 
-文明创建的涓涓细流，汇聚成乡村全面振兴的澎湃动力，让各地的生动实践，成为广州探索城乡融合、助推高质量发展的鲜活注脚。
+此次办理业务的是一家已在境外上市的茶饮企业，其境内股东拟减持所持股份。
 
-文、图/广州日报全媒体记者叶卡斯 特色引领 百花齐放 白云区太和镇白山村： 白山村位于白云区北部、太和镇东部、帽峰山森林公园南部，村内白山涌穿村而过，森林覆盖率达75%以上，是帽峰山山脚的一颗璀璨明珠。
+银行安排专人上门对接，为企业提供材料审核、系统录入、减持登记、开户等全流程服务，企业无需往返外汇局，在银行网点即可办结全部手续。
 
-该村通过党群服务中心改造工作，将党群服务、文明实践、志愿服务、村史展览等功能融为一体，举办“我们的端午”、暑期大学生下乡支教助力“百千万工程”等活动，打造成为群众想来、爱来、常来的“红色家园”。
+“以前要跑好几个地方，现在直接在银行就办完了，省时又省力。
 
-白山村以绿美公园+森林步道建设为推手撬动休闲健身事业，以客家坞、八社古村落等项目为载体吸引研学科普、民宿康养等运营主体谋求合作，构建新型乡村农旅体商产业体系。
+”该企业财务负责人表示。
 
-同时，白山村大力响应绿美广东生态建设，累计种植苗木920棵，完成绿化美化面积约45.14亩，景观改造面积超10000平方米，“艺美白山”精品线路持续优化，助推文旅产业蓬勃发展。
+中国银行天津市分行称，后续将持续推动资本项目便利化政策落地，让更多企业享受高效便捷的跨境金融服务。
 
-花都区赤坭镇瑞岭村： 瑞岭村深挖百年盆景文化，从引进高端盆景创意园入手，接续擦亮打响盆景艺术节、电商直播节等金字招牌，全力打造成为集种植栽培、交易交流、创作培训、科普展览、休闲旅游于一体的岭南盆景园艺文化艺术名村。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:53 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 16:53 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 16:36 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 16:29 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 16:31 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 16:43 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-29 16:24 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 16:39 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 16:39 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 16:54 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 16:53 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 16:35 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 16:49 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 16:47 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 16:47 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 16:58 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 16:38 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 16:30 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 16:38 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 16:57 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 16:51 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 16:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 16:30 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:24 - [博主：美航母沦为毒品集散窝点](http://www.share.kurohicncr.top/Article/details/34964.shtml)
-- 2026-06-29 16:50 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/7089860691.shtml)
-- 2026-06-29 16:38 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/4127704229.shtml)
-- 2026-06-29 16:32 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/0114294901.shtml)
-- 2026-06-29 16:43 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/17442855905.shtml)
-- 2026-06-29 16:36 - [5万块的威力](http://www.blog.minike.top/Article/details/904398.shtml)
-- 2026-06-29 16:41 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/5401651.shtml)
-- 2026-06-29 16:50 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/1102104.shtml)
-- 2026-06-29 16:34 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/600128099.shtml)
-- 2026-06-29 16:36 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/90568745.shtml)
-- 2026-06-29 16:24 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.kurohicncr.top/Article/details/71900881.shtml)
-- 2026-06-29 16:41 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/08097.shtml)
-- 2026-06-29 16:42 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/37555680.shtml)
-- 2026-06-29 16:34 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/556553441.shtml)
-- 2026-06-29 16:39 - [存储三巨头被告了](https://www.share.minike.top/Article/details/225678857556.shtml)
+- 2026-06-29 16:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/10001407.shtml)
+- 2026-06-29 16:42 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/56654.shtml)
+- 2026-06-29 16:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/57056787348.shtml)
+- 2026-06-29 16:37 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/346205568719.shtml)
+- 2026-06-29 16:55 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/95613.shtml)
+- 2026-06-29 16:44 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/92557.shtml)
+- 2026-06-29 16:46 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/57311247.shtml)
+- 2026-06-29 16:53 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.minike.top/Article/details/324637449.shtml)
+- 2026-06-29 16:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/25635575576.shtml)
+- 2026-06-29 16:44 - [《贺子珍》](http://www.blog.minike.top/Article/details/409867449.shtml)
+- 2026-06-29 16:33 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/64247551.shtml)
+- 2026-06-29 16:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/792663.shtml)
+- 2026-06-29 16:57 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/646943.shtml)
+- 2026-06-29 16:46 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/9944405166.shtml)
+- 2026-06-29 16:34 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/841112477.shtml)

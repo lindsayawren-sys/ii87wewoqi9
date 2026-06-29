@@ -1,59 +1,61 @@
-# 东盟国家官员：中国—东盟商贸资讯平台发挥积极作用
+# 美国汽车行业惨淡，福特和通用为何逆势飙升？
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新社南宁5月19日电 (阚枫 陈秋霞)中国—东盟商贸资讯平台座谈会18日在广西南宁举行。座谈会上，东盟国家驻南宁总领事馆官员就促进各自国家同中国经贸合作和人文交流，加强东盟国家同中国贸易畅通和民心相通分享了看法。中国—东盟商贸资讯平台是中国新闻网围绕中国—东盟经贸合作打造的一站式商贸资讯服务平台，重点面向东盟商贸部门、行业协会、华侨华人、跨境企业等群体，提供一站式商贸信息服务
+美国汽车行业正经历艰难时期。在高通胀、高利率以及地缘冲突导致油价高企的多重压力下，新车销量持续疲软。福特4月销量同比大跌14.4%，今年累计跌幅达10.6%。然而，福特和通用汽车的股价却在近期表现抢眼，成为市场热议的焦点。这背后，一张关于人工智能和关税的“叙事新皮”正悄然取代汽车基本面的“旧皮”。 福特股价飙升的核心驱动力已不再是皮卡和SUV，而是新成立的能源子公司——福特能源
 
 ## 正文
 
-中新社南宁5月19日电 (阚枫 陈秋霞)中国—东盟商贸资讯平台座谈会18日在广西南宁举行。
+美国汽车行业正经历艰难时期。
 
-座谈会上，东盟国家驻南宁总领事馆官员就促进各自国家同中国经贸合作和人文交流，加强东盟国家同中国贸易畅通和民心相通分享了看法。
+在高通胀、高利率以及地缘冲突导致油价高企的多重压力下，新车销量持续疲软。
 
-中国—东盟商贸资讯平台是中国新闻网围绕中国—东盟经贸合作打造的一站式商贸资讯服务平台，重点面向东盟商贸部门、行业协会、华侨华人、跨境企业等群体，提供一站式商贸信息服务。
+福特4月销量同比大跌14.4%，今年累计跌幅达10.6%。
 
-平台网页、客户端于2026年1月起陆续上线试运行，已成为广受欢迎的中国—东盟经贸合作信息窗口。
+然而，福特和通用汽车的股价却在近期表现抢眼，成为市场热议的焦点。
 
-柬埔寨驻南宁总领事馆总领事唐肃安表示，当前背景下，信息共享变得至关重要。
+这背后，一张关于人工智能和关税的“叙事新皮”正悄然取代汽车基本面的“旧皮”。
 
-柬中合作成果丰硕，从企业角度来看，信息服务方面的沟通与合作十分重要，中国—东盟商贸资讯平台在推动商贸合作、助力企业转型方面发挥了积极作用。
+福特股价飙升的核心驱动力已不再是皮卡和SUV，而是新成立的能源子公司——福特能源。
 
-柬中合作源于传统友谊，面向未来，愿持续拓展合作领域，赋能产业升级，实现互利共赢。
+5月中旬，福特宣布投资20亿美元，将电动汽车电池改造为面向AI数据中心、电力公司等客户的固定式储能系统，正式进军储能赛道。
 
-缅甸驻南宁总领事馆总领事凯素林认为，在中国—东盟自贸区3.0版升级议定书签署的大背景下，充分发挥中国—东盟商贸资讯平台价值尤为重要。
+这一战略转型精准踩中AI基础设施投资热潮。
 
 ## 相关推荐
 
-- 2026-06-29 16:36 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 16:28 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 16:53 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 16:42 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 16:32 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 16:37 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 16:34 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 16:38 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 16:49 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 16:46 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 16:53 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 16:24 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 16:46 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 16:46 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 16:54 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 16:37 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 16:46 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 16:56 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 16:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 16:53 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 16:41 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 16:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 16:50 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 16:37 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 16:43 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 16:47 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 16:50 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 16:59 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:28 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/6392750.shtml)
-- 2026-06-29 16:28 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/61341.shtml)
-- 2026-06-29 16:42 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/2166180541.shtml)
-- 2026-06-29 16:42 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/195727577676.shtml)
-- 2026-06-29 16:30 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/0920105.shtml)
-- 2026-06-29 16:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/91984939714.shtml)
-- 2026-06-29 16:31 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/148014.shtml)
-- 2026-06-29 16:49 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/1799393586.shtml)
-- 2026-06-29 16:51 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.kurohicncr.top/Article/details/04023029.shtml)
-- 2026-06-29 16:44 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/68756.shtml)
-- 2026-06-29 16:40 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/1560003518.shtml)
-- 2026-06-29 16:44 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/10334568.shtml)
-- 2026-06-29 16:26 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.kurohicncr.top/Article/details/118935886790.shtml)
-- 2026-06-29 16:30 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/321873.shtml)
-- 2026-06-29 16:41 - [一生一世](http://www.share.kurohicncr.top/Article/details/250537723205.shtml)
+- 2026-06-29 16:59 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/482203048145.shtml)
+- 2026-06-29 16:53 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/5887488.shtml)
+- 2026-06-29 16:38 - [12所大学更正招生目录](http://www.blog.minike.top/Article/details/09118473.shtml)
+- 2026-06-29 16:51 - [中国战机大片上新](http://www.blog.minike.top/Article/details/3991721.shtml)
+- 2026-06-29 16:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/191422146010.shtml)
+- 2026-06-29 16:45 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/300470765771.shtml)
+- 2026-06-29 16:40 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/05862225.shtml)
+- 2026-06-29 16:33 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/56917.shtml)
+- 2026-06-29 16:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/322455375.shtml)
+- 2026-06-29 16:43 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/67153244.shtml)
+- 2026-06-29 16:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/8579843396.shtml)
+- 2026-06-29 16:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/513655790.shtml)
+- 2026-06-29 16:44 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/68288.shtml)
+- 2026-06-29 16:49 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/358729918999.shtml)
+- 2026-06-29 16:55 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/0448962.shtml)

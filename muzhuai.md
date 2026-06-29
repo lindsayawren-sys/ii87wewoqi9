@@ -1,51 +1,61 @@
-# 韩国央行：预估三星罢工将拖累韩国GDP增速下滑0.5个百分点
+# 预测市场谋求下一阶段增长，发力招揽机构投资者
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-据韩国《每日经济新闻》援引韩国央行近期递交至总统府的报告报道，韩国央行预测，在最坏情形下，三星电子劳资罢工或将令韩国2026年GDP增速回落0.5个百分点。 韩国央行测算，此次罢工对半导体产业造成的生产损失规模可达30万亿韩元；同时预估罢工结束后，产线恢复正常生产约需三周时间。 本月早些时候韩国政府要求央行研判各类情景下的经济冲击，这份报告由此撰写完成。报告基于如下情景作出预判
+卡尔希等多家预测交易平台正大力招揽头部机构投资者与对冲基金。尽管这类交易平台距离大规模普及仍有一段路要走，但此番布局或将对传统金融领域产生连锁影响。 过去一年，预测市场在个人交易者群体中热度飙升、规模迅猛扩张。如今平台开始将目光转向财力雄厚的金融机构与投资公司。这类客户资金实力强劲，能够开展大额批量交易，是利润丰厚的客群。 索利达斯实验室是卡尔希的交易监控合作方，该公司首席执行
 
 ## 正文
 
-据韩国《每日经济新闻》援引韩国央行近期递交至总统府的报告报道，韩国央行预测，在最坏情形下，三星电子劳资罢工或将令韩国2026年GDP增速回落0.5个百分点。
+卡尔希等多家预测交易平台正大力招揽头部机构投资者与对冲基金。
 
-韩国央行测算，此次罢工对半导体产业造成的生产损失规模可达30万亿韩元；同时预估罢工结束后，产线恢复正常生产约需三周时间。
+尽管这类交易平台距离大规模普及仍有一段路要走，但此番布局或将对传统金融领域产生连锁影响。
 
-本月早些时候韩国政府要求央行研判各类情景下的经济冲击，这份报告由此撰写完成。
+过去一年，预测市场在个人交易者群体中热度飙升、规模迅猛扩张。
 
-报告基于如下情景作出预判：若劳资谈判破裂，三星将于5月21日开启为期18天的罢工行动。
+如今平台开始将目光转向财力雄厚的金融机构与投资公司。
 
-责任编辑：王永生
+这类客户资金实力强劲，能够开展大额批量交易，是利润丰厚的客群。
+
+索利达斯实验室是卡尔希的交易监控合作方，该公司首席执行官阿萨夫・迈尔表示：“在传统金融渠道之外，对冲基金需要更精细、更精准的工具，在各类衍生品市场表达自身观点。
+
+” 他还称，众多对冲基金和机构投资者正密切关注预测市场的交易机会。
+
+卡尔希机构业务负责人安迪・罗斯向路透社透露，近几周平台完成了首笔定制化大宗交易，目前正积极争取更多大型机构入驻。
 
 ## 相关推荐
 
-- 2026-06-29 16:28 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 16:52 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 16:26 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 16:31 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 16:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 16:26 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 16:48 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 16:52 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 16:41 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 16:46 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 16:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 16:55 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 16:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 16:52 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 16:57 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 16:53 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 16:47 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 16:39 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 16:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 16:42 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 16:54 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 16:55 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 16:36 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 16:57 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 16:55 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 16:38 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:44 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/466004998908.shtml)
-- 2026-06-29 16:36 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/1687100428.shtml)
-- 2026-06-29 16:28 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/291857156319.shtml)
-- 2026-06-29 16:50 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/7773437014.shtml)
-- 2026-06-29 16:47 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/1301783114.shtml)
-- 2026-06-29 16:38 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/937051382.shtml)
-- 2026-06-29 16:28 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/14004.shtml)
-- 2026-06-29 16:38 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/18616.shtml)
-- 2026-06-29 16:41 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/79622335.shtml)
-- 2026-06-29 16:33 - [起风了](http://www.blog.kurohicncr.top/Article/details/790837.shtml)
-- 2026-06-29 16:46 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/046565.shtml)
-- 2026-06-29 16:24 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/39617356.shtml)
-- 2026-06-29 16:52 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/077446498311.shtml)
-- 2026-06-29 16:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/366759862.shtml)
-- 2026-06-29 16:38 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/9028597637.shtml)
+- 2026-06-29 16:53 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/650687744.shtml)
+- 2026-06-29 16:35 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.minike.top/Article/details/464546263615.shtml)
+- 2026-06-29 16:39 - [送你一朵小红花](http://www.blog.minike.top/Article/details/180517084.shtml)
+- 2026-06-29 16:59 - [博主：美航母沦为毒品集散窝点](https://www.share.kurohicncr.top/Article/details/088910423.shtml)
+- 2026-06-29 16:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/61292820.shtml)
+- 2026-06-29 16:32 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/82645816376.shtml)
+- 2026-06-29 16:30 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/7301051.shtml)
+- 2026-06-29 16:42 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/17539106621.shtml)
+- 2026-06-29 16:55 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/48274472.shtml)
+- 2026-06-29 16:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/240913090367.shtml)
+- 2026-06-29 16:50 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/77542923.shtml)
+- 2026-06-29 16:35 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/482385506585.shtml)
+- 2026-06-29 16:37 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/70240847.shtml)
+- 2026-06-29 16:37 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/82065.shtml)
+- 2026-06-29 16:56 - [千与千寻](http://www.share.minike.top/Article/details/502320220.shtml)

@@ -1,56 +1,57 @@
-# 特朗普：应海湾三国请求 推迟攻击伊朗
+# 押注国产芯！6家险资23.85亿布局，有望斩获千亿级市值回报
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-新华社华盛顿5月18日电(记者黄强 徐剑梅)美东时间18日下午，美国总统特朗普在社交媒体发文称，应卡塔尔、沙特阿拉伯、阿联酋领导人请求，他已下令推迟“原定于明天(19日)”对伊朗发动的军事攻击。 特朗普说，美国和伊朗正在进行“严肃的谈判”，上述三国领导人认为，美伊终将达成“美国以及中东地区乃至更广泛范围的所有国家均能接受”的协议。重要的是，协议将规定“伊朗不得拥有核武器”。 特
+来源：险联社 “险资凭借‘长期、稳健、抗周期’的投资特质，在企业低迷阶段重金入局，仅合计投入23.85亿元，如今有望撬动千亿市值收益。” 国产DRAM存储芯片龙头长鑫科技成功过会，这场硬科技企业的上市热潮中，6家保险资金的长线潜伏布局，成为市场关注的焦点。 险资凭借“长期、稳健、抗周期”的投资特质，在企业低迷阶段重金入局，仅合计投入23.85亿元，如今有望撬动千亿市值收益。 六
 
 ## 正文
 
-新华社华盛顿5月18日电(记者黄强 徐剑梅)美东时间18日下午，美国总统特朗普在社交媒体发文称，应卡塔尔、沙特阿拉伯、阿联酋领导人请求，他已下令推迟“原定于明天(19日)”对伊朗发动的军事攻击。
+来源：险联社 “险资凭借‘长期、稳健、抗周期’的投资特质，在企业低迷阶段重金入局，仅合计投入23.85亿元，如今有望撬动千亿市值收益。
 
-特朗普说，美国和伊朗正在进行“严肃的谈判”，上述三国领导人认为，美伊终将达成“美国以及中东地区乃至更广泛范围的所有国家均能接受”的协议。
+” 国产DRAM存储芯片龙头长鑫科技成功过会，这场硬科技企业的上市热潮中，6家保险资金的长线潜伏布局，成为市场关注的焦点。
 
-重要的是，协议将规定“伊朗不得拥有核武器”。
+险资凭借“长期、稳健、抗周期”的投资特质，在企业低迷阶段重金入局，仅合计投入23.85亿元，如今有望撬动千亿市值收益。
 
-特朗普称，出于对上述领导人的尊重，他已指示美国防部长赫格塞思、美军参谋长联席会议主席凯恩以及美军，19日将不按原计划对伊朗发动攻击。
+六大险资低位布局持股架构清晰 此次布局长鑫科技的险资阵营清晰，和谐健康、阳光人寿、中邮人寿、国寿投资、人保资本、人保科创6家机构，均在企业上市前的私募阶段完成投资，属于典型的低位提前布局。
 
-同时，他要求美军必须做好准备，一旦未能达成令人满意的协议，随时准备对伊朗发起“全面、大规模”进攻。
+与偏好短期套利的资金不同，险资金体量大、投资周期长，对科创企业前期亏损、回报周期长的特点具备天然耐受度，与半导体这类重投入、高成长的硬核赛道高度适配，这也是多家险资集体押注的核心逻辑。
 
-特朗普当天早些时候接受美国媒体采访时表示，在收到伊朗“令人失望”的最新提案后，他不考虑向伊朗作出任何让步。
+从招股书披露的持股数据来看，险资持仓结构清晰、布局精准。
 
-伊朗塔斯尼姆通讯社18日援引消息人士的话报道，伊朗已通过巴基斯坦将包含14点的最新谈判文本转交美方，核心内容聚焦于“结束战争”相关议题，以及美方应采取的各项建立信任的措施。
+其中，和谐健康表现最为突出，以1.5%的持股比例跻身长鑫科技发行前第十大股东，是所有险资中唯一进入企业前十股东的机构，也是持股比例最高的险资主体。
 
-美国阿克西奥斯新闻网站随后援引美方高级官员的话报道，白宫认为伊朗最新提案没有实质性改进，不足以作为达成协议的基础，特朗普正考虑重启军事行动。
+其余险资持股分布均衡，国寿投资持股0.79%，人保资本持股0.78%，两大国资险资资管平台紧随其后；阳光人寿、中邮人寿持股比例一致，均为0.37%；人保科创持股0.15%。
 
 ## 相关推荐
 
-- 2026-06-29 16:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 16:45 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 16:43 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 16:53 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 16:39 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 16:33 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 16:36 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 16:27 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 16:53 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 16:51 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 16:47 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 16:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 16:59 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 16:56 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 16:49 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 16:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 16:52 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 16:53 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 16:40 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 16:53 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 16:37 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:31 - [7款商保创新药“转道”](http://www.blog.kurohicncr.top/Article/details/647768779464.shtml)
-- 2026-06-29 16:36 - [绘画区你赢了](https://www.blog.minike.top/Article/details/389647275.shtml)
-- 2026-06-29 16:34 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/20480605372.shtml)
-- 2026-06-29 16:42 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/838328133135.shtml)
-- 2026-06-29 16:52 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/801606221.shtml)
-- 2026-06-29 16:45 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/4272051553.shtml)
-- 2026-06-29 16:38 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/26986.shtml)
-- 2026-06-29 16:40 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/86531.shtml)
-- 2026-06-29 16:31 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/184280447.shtml)
-- 2026-06-29 16:35 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/104428558.shtml)
-- 2026-06-29 16:37 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/67750066088.shtml)
-- 2026-06-29 16:30 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/860766505.shtml)
-- 2026-06-29 16:24 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/52718745.shtml)
-- 2026-06-29 16:35 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/046011002577.shtml)
-- 2026-06-29 16:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/5817206.shtml)
+- 2026-06-29 16:59 - [斗破苍穹](https://www.share.minike.top/Article/details/60331766236.shtml)
+- 2026-06-29 16:38 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/786410.shtml)
+- 2026-06-29 16:41 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/8419797.shtml)
+- 2026-06-29 16:56 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/290332123.shtml)
+- 2026-06-29 16:42 - [中国空间站为什么要升级扩容](https://www.blog.kurohicncr.top/Article/details/95427.shtml)
+- 2026-06-29 16:36 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/8177766330.shtml)
+- 2026-06-29 16:32 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/49409681307.shtml)
+- 2026-06-29 16:34 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.minike.top/Article/details/740398709016.shtml)
+- 2026-06-29 16:45 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/6192513451.shtml)
+- 2026-06-29 16:40 - [中方将20家日本实体列入关注名单](https://www.share.kurohicncr.top/Article/details/621962979.shtml)
+- 2026-06-29 16:52 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/7456713.shtml)
+- 2026-06-29 16:41 - [南昌市委书记调整](https://www.share.minike.top/Article/details/5899428.shtml)
+- 2026-06-29 16:48 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/289118400.shtml)
+- 2026-06-29 16:56 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/749649977938.shtml)
+- 2026-06-29 16:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/9659275552.shtml)

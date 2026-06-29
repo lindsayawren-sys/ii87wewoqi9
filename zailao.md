@@ -1,59 +1,60 @@
-# 33亿“老鼠仓”案落槌：华泰资产的“防火墙”为何没挡住内鬼？
+# “2026诗歌课堂活动”走进西藏洛扎县
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！作者 | 刘银平 编辑 | 付影 来源 | 独角金融 5月15日，上海市第三中级人民法院公开了一起利用未公开信息交易罪案件的一审判决：被告人刘某义——公开信息指向华泰资产管理有限公司（简称“华泰资产”）前投资经理刘建义——被判处有期徒刑5年，并处罚金2100万元。 至此，这起涉案金额33亿余元、刷新了保险资
+中新网拉萨5月28日电 (李林)“2026诗歌课堂活动”27日走进西藏山南市洛扎县洛扎镇小学。本次活动以“诗润童心·健康成长”为主题，为师生们送上了一场文化盛宴，让优质美育资源精准落地高原。 诗歌课堂共设置四场专题讲座，内容涵盖诗歌创作、诗歌研究、朗诵技巧等，既有学术深度，又贴合师生需求。 《雪域萱歌》创始人刘萱以《雪域高原：我心中的诗和远方》为题开启首场讲座。知名儿童文学家、
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网拉萨5月28日电 (李林)“2026诗歌课堂活动”27日走进西藏山南市洛扎县洛扎镇小学。
 
-作者 | 刘银平 编辑 | 付影 来源 | 独角金融 5月15日，上海市第三中级人民法院公开了一起利用未公开信息交易罪案件的一审判决：被告人刘某义——公开信息指向华泰资产管理有限公司（简称“华泰资产”）前投资经理刘建义——被判处有期徒刑5年，并处罚金2100万元。
+本次活动以“诗润童心·健康成长”为主题，为师生们送上了一场文化盛宴，让优质美育资源精准落地高原。
 
-至此，这起涉案金额33亿余元、刷新了保险资管领域纪录的“老鼠仓”案，完成了“行政+刑事”的双重追责。
+诗歌课堂共设置四场专题讲座，内容涵盖诗歌创作、诗歌研究、朗诵技巧等，既有学术深度，又贴合师生需求。
 
-就在一年多前，2025年1月，辽宁证监局已对其开出行政处罚决定书：合计罚没约6432万元，并处以10年证券市场禁入。
+《雪域萱歌》创始人刘萱以《雪域高原：我心中的诗和远方》为题开启首场讲座。
 
-这些数字构成了金融从业者铤而走险的警示牌，此案主角刘建义或许未曾想到，从入职次月开始持续两年半的“老鼠仓”操作，等待他的将是这样的结局。
+知名儿童文学家、《十月少年文学》编辑童子线上带来《童诗的秘密》专题分享。
 
-一个值得追问的问题是：刘建义从入职到离职总共两年半的时间，华泰资产号称“全员参与、全面覆盖”的风控体系为何未能及时拦截？
+西藏大学文学院博士生焦旭辉、陈冠霖分别以《当代西藏汉语诗歌的创作风格和评论方法》和《诗歌有声语言创作的常规路径》为题分享。
 
-当处罚全部落在个人身上时，机构是否可以置身事外？
+本次活动由中国宋庆龄基金会等联合主办，中国宋庆龄基金会培训交流中心等承办，西藏大学文学院等协办。
 
-1 33亿“老鼠仓”的操作路径： 两年半持续作案获利2473万 刘建义，1986年11月出生，2021年2月入职华泰资产，先后担任权益投资部投资经理助理、投资经理。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:35 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 16:31 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 16:38 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 16:42 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 16:54 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 16:28 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 16:29 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 16:53 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 16:31 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 16:25 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 16:46 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 16:25 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 16:29 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 16:49 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 16:54 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 16:54 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 16:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 16:41 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 16:56 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 16:42 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 16:36 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 16:36 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 16:32 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 16:57 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 16:31 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 16:51 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 16:36 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:35 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/66392203.shtml)
-- 2026-06-29 16:45 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/82063178.shtml)
-- 2026-06-29 16:53 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/286460.shtml)
-- 2026-06-29 16:49 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/44233.shtml)
-- 2026-06-29 16:37 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/519336145166.shtml)
-- 2026-06-29 16:26 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/77966989.shtml)
-- 2026-06-29 16:46 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/540289798.shtml)
-- 2026-06-29 16:41 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/886916652615.shtml)
-- 2026-06-29 16:24 - [抓特务票房破亿](https://www.share.minike.top/Article/details/222822264432.shtml)
-- 2026-06-29 16:43 - [流金岁月](https://www.share.kurohicncr.top/Article/details/033338204.shtml)
-- 2026-06-29 16:35 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/3839941250.shtml)
-- 2026-06-29 16:48 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/022788.shtml)
-- 2026-06-29 16:36 - [12所大学更正招生目录](http://www.share.kurohicncr.top/Article/details/061633369.shtml)
-- 2026-06-29 16:52 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/8839560.shtml)
-- 2026-06-29 16:38 - [12所大学更正招生目录](https://www.share.kurohicncr.top/Article/details/020187489880.shtml)
+- 2026-06-29 16:46 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/79602300011.shtml)
+- 2026-06-29 16:52 - [扬名立万](https://www.share.kurohicncr.top/Article/details/1905611.shtml)
+- 2026-06-29 16:31 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/43021.shtml)
+- 2026-06-29 16:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/998139724323.shtml)
+- 2026-06-29 16:47 - [男孩复读一年减重20斤涨分111分](http://www.share.kurohicncr.top/Article/details/2839946341.shtml)
+- 2026-06-29 16:46 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.kurohicncr.top/Article/details/3304757.shtml)
+- 2026-06-29 16:56 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/29414030.shtml)
+- 2026-06-29 16:46 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/2802719899.shtml)
+- 2026-06-29 16:36 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/503265.shtml)
+- 2026-06-29 16:39 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/1323400.shtml)
+- 2026-06-29 16:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/7787278.shtml)
+- 2026-06-29 16:45 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/5842452.shtml)
+- 2026-06-29 16:49 - [沙丘](http://www.share.minike.top/Article/details/52496.shtml)
+- 2026-06-29 16:32 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/38602.shtml)
+- 2026-06-29 16:52 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/807615.shtml)

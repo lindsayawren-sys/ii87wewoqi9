@@ -1,56 +1,51 @@
-# 三星电子罢工“急刹车”！韩法院要求工会维持人力和产能，违规将赔偿
+# 长沙银行：2021年二级资本债券赎回完成
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新经纬5月18日电 据韩媒最新报道，三星电子工会即便在进行劳资斗争期间，也必须维持与争议行为发生前相同程度的人力、运转时间及生产规模等，否则两家工会须进行赔偿。 三星电子劳资双方18日上午启动第二轮事后调解。此前，劳方已宣布将于21日启动为期18天的总罢工，因此调解能否达成协议从而化解矛盾、避免罢工，引发关注。 韩国《中央日报》中文版18日报道称，韩国法院部分接受了三星电子要
+5月27日金融一线消息，长沙银行发布公告称，2021年5月26日至5月27日，长沙银行发行了规模为人民币20亿元的二级资本债券（以下简称“本期债券”），并于2021年5月28日发布了《长沙银行股份有限公司关于发行2021年二级资本债券的公告》。根据本期债券募集说明书相关条款的规定，本期债券设有发行人有条件赎回权，发行人有权在本期债券第5个计息年度的最后一日（即2026年5月27
 
 ## 正文
 
-中新经纬5月18日电 据韩媒最新报道，三星电子工会即便在进行劳资斗争期间，也必须维持与争议行为发生前相同程度的人力、运转时间及生产规模等，否则两家工会须进行赔偿。
+5月27日金融一线消息，长沙银行发布公告称，2021年5月26日至5月27日，长沙银行发行了规模为人民币20亿元的二级资本债券（以下简称“本期债券”），并于2021年5月28日发布了《长沙银行股份有限公司关于发行2021年二级资本债券的公告》。
 
-三星电子劳资双方18日上午启动第二轮事后调解。
+根据本期债券募集说明书相关条款的规定，本期债券设有发行人有条件赎回权，发行人有权在本期债券第5个计息年度的最后一日（即2026年5月27日）部分或全部赎回本期债券。
 
-此前，劳方已宣布将于21日启动为期18天的总罢工，因此调解能否达成协议从而化解矛盾、避免罢工，引发关注。
+截至本公告日，本行已行使赎回权，全额赎回了本期债券。
 
-韩国《中央日报》中文版18日报道称，韩国法院部分接受了三星电子要求禁止超企业工会三星电子支部及全国三星电子工会举行总罢工的临时处分申请。
-
-韩国水原地方法院第31民事部(审判长申宇晸)18日在原定于21日举行总罢工前三天，对三星电子针对两家工会提出的“禁止违法争议行为”临时处分申请作出部分支持裁定。
-
-因此，三星电子工会即便在进行劳资斗争期间，也必须维持与争议行为发生前相同程度的人力、运转时间及生产规模等。
-
-法院还认定，若工会违反上述规定，通过施加有形压力、发出威胁通知或发布相关指令等方式妨碍相关设施维持平时运转水平，两家工会每天每次违规须各赔偿1亿韩元，各工会支部长及委员长代理则各赔偿1000万韩元。
-
-韩国《中央日报》中文版还称，据悉，三星电子已根据工会要求，更换了资方首席谈判代表，并向半导体(DS)部门提出相当于年薪600%的绩效奖金方案。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 16:26 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 16:36 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 16:31 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 16:43 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 16:49 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 16:32 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 16:28 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 16:28 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 16:30 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 16:34 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 16:46 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 16:38 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 16:30 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 16:47 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 16:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 16:55 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 16:56 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 16:46 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 16:50 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 16:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 16:42 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 16:54 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 16:41 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:34 - [BB大王横店拍戏](http://www.share.kurohicncr.top/Article/details/76957158547.shtml)
-- 2026-06-29 16:39 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/1374849.shtml)
-- 2026-06-29 16:42 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/3360744.shtml)
-- 2026-06-29 16:41 - [起风了](https://www.share.kurohicncr.top/Article/details/58172.shtml)
-- 2026-06-29 16:44 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/521837.shtml)
-- 2026-06-29 16:46 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/95042292.shtml)
-- 2026-06-29 16:47 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/338558401.shtml)
-- 2026-06-29 16:28 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/136479.shtml)
-- 2026-06-29 16:52 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/01231009203.shtml)
-- 2026-06-29 16:42 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/3535174137.shtml)
-- 2026-06-29 16:47 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/1202473329.shtml)
-- 2026-06-29 16:32 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/29472.shtml)
-- 2026-06-29 16:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/35720.shtml)
-- 2026-06-29 16:43 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/37427057.shtml)
-- 2026-06-29 16:40 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/262845237.shtml)
+- 2026-06-29 16:33 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/801561015882.shtml)
+- 2026-06-29 16:50 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/189104545.shtml)
+- 2026-06-29 16:53 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/388568906593.shtml)
+- 2026-06-29 16:33 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/42628963.shtml)
+- 2026-06-29 16:41 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/6574814515.shtml)
+- 2026-06-29 16:48 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/085264247.shtml)
+- 2026-06-29 16:57 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/44713.shtml)
+- 2026-06-29 16:30 - [小娘惹](https://www.blog.minike.top/Article/details/10023131513.shtml)
+- 2026-06-29 16:39 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/647897.shtml)
+- 2026-06-29 16:47 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.minike.top/Article/details/948372225890.shtml)
+- 2026-06-29 16:52 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/560762239965.shtml)
+- 2026-06-29 16:55 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/51575675.shtml)
+- 2026-06-29 16:46 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/1319165.shtml)
+- 2026-06-29 16:40 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/691173143.shtml)
+- 2026-06-29 16:33 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/82280.shtml)

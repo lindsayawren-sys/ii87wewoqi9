@@ -1,59 +1,58 @@
-# 西班牙第二副首相兼劳动与社会经济大臣到访中华全国供销合作总社
+# 港航业拥抱具身智能浪潮 如何跨越“最后一公里”？
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新网北京5月19日电(记者 谢艺观)5月18日，西班牙第二副首相兼劳动与社会经济大臣约兰达·迪亚斯·佩雷斯到访中华全国供销合作总社，与总社党组书记、理事会主任王宇燕会谈。双方就推进农产品贸易、农业科技、合作社治理等领域合作深入交换意见。总社党组成员、理事会副主任徐光洪参加会谈。王宇燕对迪亚斯一行的到来表示热烈欢迎。她指出，中国供销合作社经过70多年的发展，已构建起覆盖全国城乡
+中新网宁波5月28日电(蓝伊旎)“具身智能发展的浪潮已然到来，深入的技术应用将为港航业注入更强的韧性。”5月28日，2026第十届海丝港口合作论坛的数字与智能专题分论坛会议上，宇树科技股份有限公司副总经理方晗峰的这番话，引发与会者共鸣。 当日，港航界专家学者、业内人士齐聚浙江宁波，围绕行业数字化与智能化转型开展前沿技术交流，共探协同发展路径。 近年来，全球港航业正经历深刻变革，
 
 ## 正文
 
-中新网北京5月19日电(记者 谢艺观)5月18日，西班牙第二副首相兼劳动与社会经济大臣约兰达·迪亚斯·佩雷斯到访中华全国供销合作总社，与总社党组书记、理事会主任王宇燕会谈。
+中新网宁波5月28日电(蓝伊旎)“具身智能发展的浪潮已然到来，深入的技术应用将为港航业注入更强的韧性。
 
-双方就推进农产品贸易、农业科技、合作社治理等领域合作深入交换意见。
+”5月28日，2026第十届海丝港口合作论坛的数字与智能专题分论坛会议上，宇树科技股份有限公司副总经理方晗峰的这番话，引发与会者共鸣。
 
-总社党组成员、理事会副主任徐光洪参加会谈。
+当日，港航界专家学者、业内人士齐聚浙江宁波，围绕行业数字化与智能化转型开展前沿技术交流，共探协同发展路径。
 
-王宇燕对迪亚斯一行的到来表示热烈欢迎。
+近年来，全球港航业正经历深刻变革，各类机器人正快步走进港口一线，它们既能在极端天气条件下开展不间断巡检，也可深入高危作业区域替代人工操作，更能补齐复杂场景的数据采集短板，成为驱动传统港口向智慧港口转型升级的重要力量。
 
-她指出，中国供销合作社经过70多年的发展，已构建起覆盖全国城乡的组织体系和经营服务网络。
+现场，港口产业巡检机器人、船舶信息感知机器人、港区消防无人机协同系统等具身智能技术成果集中发布。
 
-西班牙合作社是促进西班牙国民经济发展的重要力量，在农业领域拥有成熟的经验。
+多家企业围绕港口海陆空三位一体具身智能解决方案、具身智能港口起重作业体系、四足机器人港口智能巡检整体解决方案等进行分享。
 
-作为中国供销合作社的联合组织，中华全国供销合作总社愿推动中国供销合作社与西班牙合作社进一步加强交流互鉴，深化务实合作，不断助力提升农业发展水平。
+从一项项技术突破，到港口智慧系统整体能级提升，科技发展为港航业打开了新的想象空间，但挑战同样不容回避。
 
-迪亚斯高度认可中国供销合作社的发展经验与为农服务模式。
+具身智能应如何突破港口场景应用的“最后一公里”？
 
 ## 相关推荐
 
-- 2026-06-29 16:32 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 16:41 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 16:46 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 16:35 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 16:51 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 16:46 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 16:33 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 16:30 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 16:52 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 16:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 16:28 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 16:34 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 16:45 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 16:33 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 16:46 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 16:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 16:49 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 16:33 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 16:45 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 16:52 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 16:43 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 16:57 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 16:45 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 16:51 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 16:41 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:27 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/843831627.shtml)
-- 2026-06-29 16:39 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/786615.shtml)
-- 2026-06-29 16:49 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/42795208023.shtml)
-- 2026-06-29 16:33 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/91468052.shtml)
-- 2026-06-29 16:30 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/880104176.shtml)
-- 2026-06-29 16:33 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/420573438.shtml)
-- 2026-06-29 16:37 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/41821.shtml)
-- 2026-06-29 16:48 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/5835815.shtml)
-- 2026-06-29 16:29 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/827762135442.shtml)
-- 2026-06-29 16:37 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/0743237.shtml)
-- 2026-06-29 16:37 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/37842.shtml)
-- 2026-06-29 16:45 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/271276048.shtml)
-- 2026-06-29 16:36 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/00881499.shtml)
-- 2026-06-29 16:54 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/6043025.shtml)
-- 2026-06-29 16:39 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/253692193777.shtml)
+- 2026-06-29 16:36 - [斛珠夫人](http://www.share.minike.top/Article/details/35844542687.shtml)
+- 2026-06-29 16:56 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/43467946.shtml)
+- 2026-06-29 16:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/72826912.shtml)
+- 2026-06-29 16:47 - [扬名立万](http://www.share.kurohicncr.top/Article/details/943183309.shtml)
+- 2026-06-29 16:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/21120996374.shtml)
+- 2026-06-29 16:35 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/75051.shtml)
+- 2026-06-29 16:35 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/94910.shtml)
+- 2026-06-29 16:33 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/332377706171.shtml)
+- 2026-06-29 16:42 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/007590805356.shtml)
+- 2026-06-29 16:30 - [12所大学更正招生目录](https://www.blog.minike.top/Article/details/885002182.shtml)
+- 2026-06-29 16:57 - [东方风云榜](https://www.share.minike.top/Article/details/2612842387.shtml)
+- 2026-06-29 16:56 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/32548793863.shtml)
+- 2026-06-29 16:50 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/28534.shtml)
+- 2026-06-29 16:47 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/020030269.shtml)
+- 2026-06-29 16:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/202196481.shtml)

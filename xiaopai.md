@@ -1,57 +1,56 @@
-# 调查显示：逾八成中俄青年认为中俄关系友好
+# 日本政府支持的JIC考虑出售芯片材料生产商JSR
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-中新网北京5月18日电(巩微微)5月15日，《中俄青年友好与文化交流调查分析报告》发布会在中国人民大学举行。调查显示，87.5%的俄罗斯青年和85.5%的中国青年认为中俄关系友好。 报告发现，中俄青年对两国关系评价积极，对彼此国家形象总体正面，对未来合作普遍乐观，友好合作是两国青年对中俄关系的主流认知。 数据显示，对对方国家持正面评价的俄罗斯青年和中国青年分别为78.0%和76
+据知情人士透露，由政府支持的基金--产业革新投资机构（JIC）正在考虑出售芯片材料生产商JSR。两年前，JIC曾以60亿美元将JSR私有化。 知情人士补充称，富士胶片和三菱化学已表示有意收购该公司。由于信息尚未公开，他们拒绝透露身份。 其中一位知情人士称，人工智能领域的巨额投资推高了芯片供应链企业的估值。JIC原本打算利用JSR推动材料行业的整合，现在则寻求利用强劲的市场条件将
 
 ## 正文
 
-中新网北京5月18日电(巩微微)5月15日，《中俄青年友好与文化交流调查分析报告》发布会在中国人民大学举行。
+据知情人士透露，由政府支持的基金--产业革新投资机构（JIC）正在考虑出售芯片材料生产商JSR。
 
-调查显示，87.5%的俄罗斯青年和85.5%的中国青年认为中俄关系友好。
+两年前，JIC曾以60亿美元将JSR私有化。
 
-报告发现，中俄青年对两国关系评价积极，对彼此国家形象总体正面，对未来合作普遍乐观，友好合作是两国青年对中俄关系的主流认知。
+知情人士补充称，富士胶片和三菱化学已表示有意收购该公司。
 
-数据显示，对对方国家持正面评价的俄罗斯青年和中国青年分别为78.0%和76.4%；对中俄合作前景表示乐观的比例分别为77.7%和73.7%。
+由于信息尚未公开，他们拒绝透露身份。
 
-这些数据表明，两国青年对彼此国家和双边合作前景的整体判断高度接近，中俄友好具有稳定、积极的青年民意基础。
+其中一位知情人士称，人工智能领域的巨额投资推高了芯片供应链企业的估值。
 
-两国青年对彼此文化保持较高兴趣。
+JIC原本打算利用JSR推动材料行业的整合，现在则寻求利用强劲的市场条件将其出售。
 
-俄罗斯青年对中国传统与节日、饮食、建筑等兴趣较高，中国青年对俄罗斯建筑、文学、音乐等保持关注。
+JSR成立于1957年，是光刻胶的领先制造商。
 
-语言学习方面，75.5%的中国青年和52.8%的俄罗斯青年表示愿意学习或提升对方语言水平。
+光刻胶被用于将电路图案转移到半导体晶圆上。
 
 ## 相关推荐
 
-- 2026-06-29 16:40 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 16:53 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-29 16:36 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 16:32 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 16:33 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 16:50 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 16:42 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 16:53 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 16:26 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 16:26 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 16:27 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 16:59 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 16:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 16:34 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 16:57 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 16:48 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 16:55 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 16:54 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 16:42 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 16:54 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 16:42 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - [7款商保创新药“转道”](https://www.blog.minike.top/Article/details/85641.shtml)
-- 2026-06-29 16:53 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/44249716.shtml)
-- 2026-06-29 16:47 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/42696729.shtml)
-- 2026-06-29 16:26 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/7881732.shtml)
-- 2026-06-29 16:26 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/2806273.shtml)
-- 2026-06-29 16:24 - [BB大王横店拍戏](https://www.blog.minike.top/Article/details/51585.shtml)
-- 2026-06-29 16:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/364768840.shtml)
-- 2026-06-29 16:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/17162425.shtml)
-- 2026-06-29 16:32 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/389950201.shtml)
-- 2026-06-29 16:26 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.minike.top/Article/details/06122.shtml)
-- 2026-06-29 16:52 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.minike.top/Article/details/14287885124.shtml)
-- 2026-06-29 16:27 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/411318.shtml)
-- 2026-06-29 16:39 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/623031.shtml)
-- 2026-06-29 16:31 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/045744035.shtml)
-- 2026-06-29 16:29 - [金刚川](https://www.blog.minike.top/Article/details/01872821470.shtml)
+- 2026-06-29 16:38 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/91936963.shtml)
+- 2026-06-29 16:58 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.minike.top/Article/details/91261444680.shtml)
+- 2026-06-29 16:32 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/7573746.shtml)
+- 2026-06-29 16:43 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/8811411.shtml)
+- 2026-06-29 16:41 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.minike.top/Article/details/958283112.shtml)
+- 2026-06-29 16:55 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/98559381.shtml)
+- 2026-06-29 16:35 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/70143.shtml)
+- 2026-06-29 16:48 - [勇敢的心第二部](http://www.share.minike.top/Article/details/686789462913.shtml)
+- 2026-06-29 16:51 - [滾石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/02864921778.shtml)
+- 2026-06-29 16:45 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/797607963381.shtml)
+- 2026-06-29 16:37 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.minike.top/Article/details/65243131.shtml)
+- 2026-06-29 16:48 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/059685316794.shtml)
+- 2026-06-29 16:35 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/052030032103.shtml)
+- 2026-06-29 16:54 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/94860.shtml)
+- 2026-06-29 16:41 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/6645823520.shtml)

@@ -1,60 +1,61 @@
-# 芯片公司Analog Devices据悉接近以15亿美元收购Empower
+# 福布斯2026“点金榜”发布，沈南鹏全球第二，荣膺25年来最成功的15位投资人
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-Analog Devices Inc．就以15亿美元现金收购非上市公司Empower Semiconductor进行深入谈判。 知情人士表示，最早可能在周二宣布这笔交易。由于信息尚未公开，知情人士要求匿名。 知情人士称，最终协议尚未达成，细节可能会发生变化，谈判也可能最终无果而终。 Analog Devices和Empower的代表尚未立即回应置评请求。 总部位于加利福尼亚州M
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月27日，《福布斯》杂志公布了2026年全球最佳创投人榜单（Midas List）。该榜单被誉为创投界的“奥斯卡”，每年在全球范围内评选出业绩最优秀的100位投资人。 今年上榜的投资人中，红杉中国创始及执行合伙人沈南鹏位列全球第二，并且是前30名中唯一的中国投资人。自2012年首次入选Midas List
 
 ## 正文
 
-Analog Devices Inc．就以15亿美元现金收购非上市公司Empower Semiconductor进行深入谈判。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-知情人士表示，最早可能在周二宣布这笔交易。
+5月27日，《福布斯》杂志公布了2026年全球最佳创投人榜单（Midas List）。
 
-由于信息尚未公开，知情人士要求匿名。
+该榜单被誉为创投界的“奥斯卡”，每年在全球范围内评选出业绩最优秀的100位投资人。
 
-知情人士称，最终协议尚未达成，细节可能会发生变化，谈判也可能最终无果而终。
+今年上榜的投资人中，红杉中国创始及执行合伙人沈南鹏位列全球第二，并且是前30名中唯一的中国投资人。
 
-Analog Devices和Empower的代表尚未立即回应置评请求。
+自2012年首次入选Midas List以来，沈南鹏已连续15年上榜，4次排名第一，其中3年蝉联（2018-2020）。
 
-总部位于加利福尼亚州Milpitas的Empower生产用于电压调节的芯片，其产品广泛应用于数据中心。
+红杉中国合伙人周逵也再次入选，排名第65位，这也是今年中国投资机构中唯一一家有两位投资人上榜。
 
-该公司在9月宣布已在D轮融资中筹集超过1.4亿美元，由Fidelity Management & Research Co．领投。
+自2001年首次评选以来，Midas List在今年迎来了25周年。
 
-Analog Devices设计、制造和销售用于工业和通信设备、消费电子产品和汽车等领域的芯片。
+《福布斯》表示，2001年推出该榜单时，硅谷仍在消化科技泡沫破裂带来的冲击，此后20多年间，创新浪潮接踵而至——社交媒体、智能手机、电动汽车再到人工智能，“但能持续精准发掘顶尖创业者和优质初创公司的投资人寥寥无几”。
 
 ## 相关推荐
 
-- 2026-06-29 16:48 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 16:29 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 16:25 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 16:40 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 16:41 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 16:43 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 16:48 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 16:53 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 16:32 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 16:40 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 16:49 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 16:25 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 16:33 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 16:35 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 16:34 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 16:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 16:40 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 16:39 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 16:32 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 16:50 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 16:54 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 16:52 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 16:47 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 16:37 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 16:46 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 16:41 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 16:34 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 16:52 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 16:32 - [抓特务票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:42 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/920300349.shtml)
-- 2026-06-29 16:31 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/667059811.shtml)
-- 2026-06-29 16:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/852064258533.shtml)
-- 2026-06-29 16:34 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/9920661142.shtml)
-- 2026-06-29 16:52 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/2671742733.shtml)
-- 2026-06-29 16:48 - [普京承认俄出现燃料危机](https://www.share.minike.top/Article/details/93554522890.shtml)
-- 2026-06-29 16:30 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/46583.shtml)
-- 2026-06-29 16:33 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/909195306.shtml)
-- 2026-06-29 16:36 - [博主：黄金和原油回落不等于风险消失](https://www.blog.minike.top/Article/details/975353.shtml)
-- 2026-06-29 16:26 - [扫黑风暴](http://www.share.minike.top/Article/details/6844877906.shtml)
-- 2026-06-29 16:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/535986954.shtml)
-- 2026-06-29 16:36 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/784052.shtml)
-- 2026-06-29 16:43 - [起风了](https://www.share.kurohicncr.top/Article/details/870670245737.shtml)
-- 2026-06-29 16:40 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/90408673922.shtml)
-- 2026-06-29 16:26 - [7款商保创新药“转道”](https://www.blog.kurohicncr.top/Article/details/70968.shtml)
+- 2026-06-29 16:39 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/671350.shtml)
+- 2026-06-29 16:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/0766545285.shtml)
+- 2026-06-29 16:54 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/00231000.shtml)
+- 2026-06-29 16:43 - [沙丘](https://www.share.minike.top/Article/details/7891730573.shtml)
+- 2026-06-29 16:59 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/53571437601.shtml)
+- 2026-06-29 16:52 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/2943323651.shtml)
+- 2026-06-29 16:30 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/393115269434.shtml)
+- 2026-06-29 16:38 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/4553170.shtml)
+- 2026-06-29 16:56 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.minike.top/Article/details/162162098291.shtml)
+- 2026-06-29 16:47 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/86863196659.shtml)
+- 2026-06-29 16:43 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/1735200.shtml)
+- 2026-06-29 16:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/8334562.shtml)
+- 2026-06-29 16:56 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/1064790646.shtml)
+- 2026-06-29 16:43 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/31951352668.shtml)
+- 2026-06-29 16:37 - [一见倾心](https://www.share.kurohicncr.top/Article/details/606379.shtml)

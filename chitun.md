@@ -1,60 +1,46 @@
-# 父辈读物日渐式微
+# 日本历史学者：警示本国扩军与历史教育乱象
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-聚焦政治、人物传记等主打男性读者的纪实类图书销量持续走低 内容速览 严肃纪实类纸质书销量大幅下滑，整体销量跌幅近 8%，时政类书籍销量更是大跌 19%。 曾几何时，父亲节送礼的首选总有这类书：讲述二战冷门史实的著作、波澜壮阔的海难纪事，或是最新的总统人物传记。 而今，这类深受父辈喜爱的读物已然日渐没落。 过去四年里，纪实类图书销量持续下滑，如今已是纸质图书市场中处境最为艰难的品
+发布时间：2026年05月28日 22:44 来源：中国新闻网 纪念东京审判开庭80周年国际研讨会5月28日起在上海、南京举行。来华出席研讨会的日本历史学者、细菌战问题研究专家森正孝27日接受中新社记者专访时表示，他对高市早苗政府的政策非常担心，对日本当下偏离和平道路的一系列动向深感忧虑。(张素 周昕 康玉湛 刘鹏 综合报道) 责任编辑：【曲克】
 
 ## 正文
 
-聚焦政治、人物传记等主打男性读者的纪实类图书销量持续走低 内容速览 严肃纪实类纸质书销量大幅下滑，整体销量跌幅近 8%，时政类书籍销量更是大跌 19%。
+发布时间：2026年05月28日 22:44 来源：中国新闻网 纪念东京审判开庭80周年国际研讨会5月28日起在上海、南京举行。
 
-曾几何时，父亲节送礼的首选总有这类书：讲述二战冷门史实的著作、波澜壮阔的海难纪事，或是最新的总统人物传记。
+来华出席研讨会的日本历史学者、细菌战问题研究专家森正孝27日接受中新社记者专访时表示，他对高市早苗政府的政策非常担心，对日本当下偏离和平道路的一系列动向深感忧虑。
 
-而今，这类深受父辈喜爱的读物已然日渐没落。
-
-过去四年里，纪实类图书销量持续下滑，如今已是纸质图书市场中处境最为艰难的品类。
-
-出版商表示，部分纪实书籍依旧销路向好，例如名人回忆录、宗教类读物。
-
-但近年来，传记、时政、经管经济等被业内称作严肃纪实读物、受众以男性为主的纸质书销量大幅缩水。
-
-图书行业调研机构瑟卡纳图书扫描数据显示，截至今年 5 月 9 日，纪实类纸质图书整体销量下滑近 8%，政治与时政类书籍销量跌幅达 19%。
-
-出版行业向来存在周期性风向变化，图书品类与阅读潮流总是轮番更迭。
+(张素 周昕 康玉湛 刘鹏 综合报道) 责任编辑：【曲克】
 
 ## 相关推荐
 
-- 2026-06-29 16:52 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 16:42 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 16:35 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 16:53 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 16:44 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 16:45 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 16:25 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 16:40 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 16:37 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 16:52 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 16:44 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 16:52 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 16:32 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 16:33 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 16:33 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 16:32 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 16:47 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 16:52 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 16:32 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 16:44 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 16:38 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 16:30 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 16:46 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 16:38 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:45 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/41370584.shtml)
-- 2026-06-29 16:42 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/385291.shtml)
-- 2026-06-29 16:30 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/7592854.shtml)
-- 2026-06-29 16:30 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/8343457967.shtml)
-- 2026-06-29 16:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/42987.shtml)
-- 2026-06-29 16:29 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/44095677497.shtml)
-- 2026-06-29 16:44 - [速度与激情9](http://www.blog.minike.top/Article/details/277949798620.shtml)
-- 2026-06-29 16:34 - [刘扬任湖南省副省长](http://www.share.kurohicncr.top/Article/details/104842757.shtml)
-- 2026-06-29 16:41 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/98342706.shtml)
-- 2026-06-29 16:29 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/590594526.shtml)
-- 2026-06-29 16:51 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/03442045174.shtml)
-- 2026-06-29 16:29 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/3660252980.shtml)
-- 2026-06-29 16:48 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/549871236.shtml)
-- 2026-06-29 16:34 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/662289787.shtml)
-- 2026-06-29 16:49 - [天道](https://www.blog.minike.top/Article/details/641061646843.shtml)
+- 2026-06-29 16:46 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.kurohicncr.top/Article/details/10135561581.shtml)
+- 2026-06-29 16:44 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/104507.shtml)
+- 2026-06-29 16:45 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/3048158.shtml)
+- 2026-06-29 16:51 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/6932911374.shtml)
+- 2026-06-29 16:34 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/10658729.shtml)
+- 2026-06-29 16:38 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/9206300.shtml)
+- 2026-06-29 16:36 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/568077107.shtml)
+- 2026-06-29 16:48 - [机器人学校开学了](https://www.blog.kurohicncr.top/Article/details/54566602.shtml)
+- 2026-06-29 16:31 - [人形机器人](http://www.share.minike.top/Article/details/6191934.shtml)
+- 2026-06-29 16:52 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/908485526456.shtml)
+- 2026-06-29 16:32 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.minike.top/Article/details/55207.shtml)
+- 2026-06-29 16:45 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/294143.shtml)
+- 2026-06-29 16:30 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/91335033.shtml)
+- 2026-06-29 16:48 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/172326937001.shtml)
+- 2026-06-29 16:49 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/408321591.shtml)

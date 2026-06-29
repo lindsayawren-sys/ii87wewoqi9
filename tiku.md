@@ -1,58 +1,61 @@
-# 古今“驴友”大PK，谁才是狠人？
+# Stem借智利Granja项目将PowerTrack EMS引入拉美公用事业规模混合能源市场
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-5月19日，中国旅游日。 400多年前的这一天， 一位江苏江阴青年， 从浙江宁海西门出发。 为了纪念此行， 他还特意发了个“朋友圈”： “云散日朗，人意山光，俱有喜态。” 没有高铁，没有导航，没有登山鞋， 30余年壮游，他一路长途跋涉， 用笔墨记录各地地理风貌、风土人情。 2011年， 国务院将这一天定为中国旅游日。 为了记住这个叫徐霞客的人。 从江阴走出的“初代旅行家” 16
+人工智能清洁能源软件与服务提供商Stem， Inc．日前宣布，智利能源巨头Copec旗下可再生能源子公司Copec Flux正在其Granja Solar项目中部署Stem的PowerTrack能源管理系统。此举标志着Stem正式进入拉丁美洲公用事业规模混合能源市场，并扩大其在拉美地区的业务版图。 项目概况：135兆瓦光伏配420兆瓦时储能 Granja项目是一座现有的135兆
 
 ## 正文
 
-5月19日，中国旅游日。
+人工智能清洁能源软件与服务提供商Stem， Inc．日前宣布，智利能源巨头Copec旗下可再生能源子公司Copec Flux正在其Granja Solar项目中部署Stem的PowerTrack能源管理系统。
 
-400多年前的这一天， 一位江苏江阴青年， 从浙江宁海西门出发。
+此举标志着Stem正式进入拉丁美洲公用事业规模混合能源市场，并扩大其在拉美地区的业务版图。
 
-为了纪念此行， 他还特意发了个“朋友圈”： “云散日朗，人意山光，俱有喜态。
+项目概况：135兆瓦光伏配420兆瓦时储能 Granja项目是一座现有的135兆瓦光伏电站，Copec正在为其增配420兆瓦时的电池储能系统，将其改造为太阳能加储能的混合设施，使Copec能够在电价更高的时段向国家电网供电。
 
-” 没有高铁，没有导航，没有登山鞋， 30余年壮游，他一路长途跋涉， 用笔墨记录各地地理风貌、风土人情。
+作为改造的一部分，Stem的PowerTrack EMS将作为该电站的主控系统，提供管理这一综合性资产所需的控制架构。
 
-2011年， 国务院将这一天定为中国旅游日。
+Stem将提供其PowerTrack边缘端和云端解决方案，以支持现场监控、控制和运营可视性，统一数据、改善对太阳能和储能资产的监管，并支持更有效的运营。
 
-为了记住这个叫徐霞客的人。
+Copec Flux作为独立电力生产商，同时在其可再生能源投资组合中提供工程总承包和运营维护服务。
 
-从江阴走出的“初代旅行家” 1607年， 徐霞客走出江阴南旸岐村的徐家老宅， 在村东的胜水桥下乘舟， 前往太湖。
+这种资产所有权、本地执行和运营能力的结合，使Copec Flux既是Granja项目的重要客户，也成为Stem在拉美地区开发本地交付和支持可扩展模式的重要合作伙伴。
 
-这是他人生的第一次出游。
+Copec首席开发官Leonardo Ljubetic表示：“我们在Granja Solar开发的模式反映了该地区能源转型的方向：日益集成化、智能化和灵活的可再生能源项目。
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 16:50 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 16:53 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 16:46 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 16:34 - [TFING全员黑西装](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 16:43 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 16:47 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 16:28 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 16:51 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 16:32 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 16:24 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 16:47 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 16:48 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 16:42 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 16:38 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 16:53 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 16:47 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 16:52 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 16:37 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 16:44 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 16:55 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 16:32 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 16:44 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 16:32 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 16:50 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 16:59 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 16:36 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:30 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/565727.shtml)
-- 2026-06-29 16:50 - [恋与深空各大应用商店评分](http://www.share.kurohicncr.top/Article/details/87904558.shtml)
-- 2026-06-29 16:45 - [105年初心滚烫](http://www.blog.minike.top/Article/details/08414.shtml)
-- 2026-06-29 16:42 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/3630528148.shtml)
-- 2026-06-29 16:47 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/03540.shtml)
-- 2026-06-29 16:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/073082.shtml)
-- 2026-06-29 16:36 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/4427417896.shtml)
-- 2026-06-29 16:35 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/4242343.shtml)
-- 2026-06-29 16:37 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/09870980.shtml)
-- 2026-06-29 16:52 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/43779074.shtml)
-- 2026-06-29 16:30 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/74811593086.shtml)
-- 2026-06-29 16:47 - [恋与深空发放补偿未得到玩家认可](http://www.blog.minike.top/Article/details/32517.shtml)
-- 2026-06-29 16:41 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/23173108.shtml)
-- 2026-06-29 16:50 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/5944937881.shtml)
-- 2026-06-29 16:47 - [叠纸](http://www.share.minike.top/Article/details/835738639.shtml)
+- 2026-06-29 16:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/726588.shtml)
+- 2026-06-29 16:36 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/98098.shtml)
+- 2026-06-29 16:32 - [博主：黄金和原油回落不等于风险消失](http://www.blog.kurohicncr.top/Article/details/778086.shtml)
+- 2026-06-29 16:43 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/2261951.shtml)
+- 2026-06-29 16:31 - [第一炉香](https://www.share.minike.top/Article/details/873701358762.shtml)
+- 2026-06-29 16:42 - [5万块的威力](https://www.blog.minike.top/Article/details/27925221658.shtml)
+- 2026-06-29 16:57 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/359046132.shtml)
+- 2026-06-29 16:31 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/836877.shtml)
+- 2026-06-29 16:44 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/95171871313.shtml)
+- 2026-06-29 16:43 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/0083445398.shtml)
+- 2026-06-29 16:41 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/820140736564.shtml)
+- 2026-06-29 16:49 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/823454125309.shtml)
+- 2026-06-29 16:40 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/7083473854.shtml)
+- 2026-06-29 16:47 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/2059516426.shtml)
+- 2026-06-29 16:32 - [抓特务票房破亿](http://www.blog.kurohicncr.top/Article/details/95838057.shtml)

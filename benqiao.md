@@ -1,59 +1,46 @@
-# 四家消金公司挂牌转让不良贷款31.45亿
+# 贝森特警告阿曼 任何参与海峡收费安排的人都将被美国追责
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-来源：中国网财经 中国网财经5月19日讯 日前，中银消费金融、马上消费金融、锦程消费金融、唯品富邦消费金融四家消金公司同日在银行业信贷资产登记流转中心有限公司（简称“银登中心”）挂牌转让不良贷款本息合计31.45亿元。 从4家消费金融公司发布的个人不良贷款转让公告来看，中银消费金融一连挂牌3期个人不良贷款，未偿本息合计27.96亿元，加权平均逾期天数均超2700天。 截至目前，
+美国财政部长贝森特在X平台发文称：“阿曼尤其应当清楚知道美国财政部将积极打击任何直接或间接协助霍尔木兹海峡收费安排的人，任何愿意参与合作的人都将受到制裁。” 贝森特表示，美国反对任何试图在海峡实施收费制度的行为，所有国家应“坚决低质伊朗任何扰乱商业自由流通的企图”责任编辑：丁文武
 
 ## 正文
 
-来源：中国网财经 中国网财经5月19日讯 日前，中银消费金融、马上消费金融、锦程消费金融、唯品富邦消费金融四家消金公司同日在银行业信贷资产登记流转中心有限公司（简称“银登中心”）挂牌转让不良贷款本息合计31.45亿元。
+美国财政部长贝森特在X平台发文称：“阿曼尤其应当清楚知道美国财政部将积极打击任何直接或间接协助霍尔木兹海峡收费安排的人，任何愿意参与合作的人都将受到制裁。
 
-从4家消费金融公司发布的个人不良贷款转让公告来看，中银消费金融一连挂牌3期个人不良贷款，未偿本息合计27.96亿元，加权平均逾期天数均超2700天。
-
-截至目前，中银消费金融年内已累计挂牌转让13期不良贷款，累计转让规模达60.7亿元。
-
-从资产质量来看，其出让不良多数逾期时长超3年，最长加权平均逾期更是超过7年。
-
-马上消费金融挂牌的不良贷款，未偿本息为2.40亿元，加权平均逾期天数309.70天；唯品富邦消金、锦程消费金融的挂牌不良贷款未偿本息分别为2348.01万元、8575.48万元，加权平均逾期天数分别为158.40天、172.23天。
-
-今年以来，消费金融公司挂牌转让不良贷款规模处在高位。
-
-据银登中心网站公开信息统计，截至目前，年内已有22家消费金融公司发布个人不良贷款转让公告，累计挂牌转让不良贷款规模超340亿元。
-
-素喜智研高级研究员苏筱芮表示，消金公司今年以来不良资产包转让出现增长，属于持牌消金行业贷后风险暴露与政策市场手段提供出清通道的共同作用结果。
+” 贝森特表示，美国反对任何试图在海峡实施收费制度的行为，所有国家应“坚决低质伊朗任何扰乱商业自由流通的企图”责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 16:28 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 16:45 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 16:50 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 16:48 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 16:52 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 16:33 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 16:42 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 16:34 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 16:42 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 16:49 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 16:26 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 16:53 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 16:28 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 16:36 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 16:59 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 16:58 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 16:33 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 16:39 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 16:34 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 16:37 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 16:58 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 16:38 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 16:45 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 16:58 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 16:50 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/71312.shtml)
-- 2026-06-29 16:41 - [博主：全球股市进入“AI极端共振”](http://www.share.minike.top/Article/details/4812431659.shtml)
-- 2026-06-29 16:39 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/155881719477.shtml)
-- 2026-06-29 16:51 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/15372.shtml)
-- 2026-06-29 16:37 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/01993.shtml)
-- 2026-06-29 16:51 - [倪春青跨市履新苏州市委组织部部长](https://www.share.minike.top/Article/details/53232640379.shtml)
-- 2026-06-29 16:36 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/874844256.shtml)
-- 2026-06-29 16:32 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/92172464.shtml)
-- 2026-06-29 16:32 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/29699475.shtml)
-- 2026-06-29 16:45 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/37794883171.shtml)
-- 2026-06-29 16:24 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/788422105658.shtml)
-- 2026-06-29 16:43 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/02994340113.shtml)
-- 2026-06-29 16:49 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/66731604.shtml)
-- 2026-06-29 16:40 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/8037295.shtml)
-- 2026-06-29 16:37 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/81616287314.shtml)
+- 2026-06-29 16:33 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/173204670.shtml)
+- 2026-06-29 16:50 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/8597313665.shtml)
+- 2026-06-29 16:35 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/1219155340.shtml)
+- 2026-06-29 16:40 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/703448068693.shtml)
+- 2026-06-29 16:31 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/968666112.shtml)
+- 2026-06-29 16:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/906279.shtml)
+- 2026-06-29 16:48 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/57362602.shtml)
+- 2026-06-29 16:45 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/789625994.shtml)
+- 2026-06-29 16:30 - [2026世界杯谁能一黑到底](https://www.share.minike.top/Article/details/708060043.shtml)
+- 2026-06-29 16:47 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/27613173598.shtml)
+- 2026-06-29 16:36 - [天道](https://www.blog.minike.top/Article/details/9094988.shtml)
+- 2026-06-29 16:41 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/267212251.shtml)
+- 2026-06-29 16:46 - [妹妹的正确用法！](http://www.blog.kurohicncr.top/Article/details/4411869299.shtml)
+- 2026-06-29 16:52 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/8123784899.shtml)
+- 2026-06-29 16:54 - [王楚钦开门红](http://www.blog.minike.top/Article/details/12137647.shtml)

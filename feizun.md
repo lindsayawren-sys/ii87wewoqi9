@@ -1,56 +1,57 @@
-# 今年医保目录调整工作有哪些变化？国家医保局专家详解→
+# 美银CEO预计第二季度交易业务收入同比增长15% 称美国经济保持坚韧
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-来源：中央广播电视总台中国之声 国家医保局近日透露，2026年国家基本医保目录、商业健康保险创新药品目录调整将于本月底启动。根据此前发布的工作方案，今年适当拓宽了国家基本医保目录外药品的申报范围。预计新版医保药品目录和商保创新药目录将于11月底前发布。 值得关注的是，与往年相比，今年目录调整方案在申报时间、申报条件、参照药预沟通及商保创新药目录衔接等方面出现了多处重要变化。 此
+美国银行首席执行官Brian Moynihan表示，预计第二季度销售和交易收入将较上年同期增长约15%，同时经济保持坚韧。 Moynihan表示，该行一直在动用更多资产负债表资源来支持交易业务，并加大科技投资。去年10月，美国银行还提拔Denis Manelski和Soofian Zuberi担任全球市场业务联席主管。 Moynihan说：“在这样一个高度依赖人才、需要精细服务
 
 ## 正文
 
-来源：中央广播电视总台中国之声 国家医保局近日透露，2026年国家基本医保目录、商业健康保险创新药品目录调整将于本月底启动。
+美国银行首席执行官Brian Moynihan表示，预计第二季度销售和交易收入将较上年同期增长约15%，同时经济保持坚韧。
 
-根据此前发布的工作方案，今年适当拓宽了国家基本医保目录外药品的申报范围。
+Moynihan表示，该行一直在动用更多资产负债表资源来支持交易业务，并加大科技投资。
 
-预计新版医保药品目录和商保创新药目录将于11月底前发布。
+去年10月，美国银行还提拔Denis Manelski和Soofian Zuberi担任全球市场业务联席主管。
 
-值得关注的是，与往年相比，今年目录调整方案在申报时间、申报条件、参照药预沟通及商保创新药目录衔接等方面出现了多处重要变化。
+Moynihan说：“在这样一个高度依赖人才、需要精细服务客户的业务中，你必须真正愿意投入大规模资源。
 
-此次医保目录调整情况透露出哪些信息？
+团队在这方面做得很好。
 
-国家医保局明确，为给目录发布后落地执行、商保衔接等留有必要的准备时间，今年目录启动申报预计将较往年提前1个月左右，预计5月底正式发布工作方案，11月底前公布新版医保目录及商保创新药目录。
+” 华尔街各大银行预计，其交易部门将再度迎来一个亮眼季度。
 
-这就意味着，创新药获批“闯关”医保目录的最后时限较往年的6月30日大幅提前。
+摩根大通首席执行官杰米·戴蒙在同一场会议上表示，该行市场业务收入可能同比增长11%，这将成为该业务有史以来表现第二好的季度。
 
-为此，今年的基本医保目录谈判将首次开展“预申报”。
+Moynihan表示，尽管面临关税和中东战争等因素，美国经济依然强劲，持续的消费者和企业支出以及稳定的失业率都反映出这一点。
 
 ## 相关推荐
 
-- 2026-06-29 16:39 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 16:42 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 16:32 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 16:34 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 16:29 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 16:39 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 16:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 16:42 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 16:29 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 16:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 16:45 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 16:36 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 16:32 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 16:39 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 16:54 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 16:38 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 16:48 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 16:40 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 16:35 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 16:32 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 16:55 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:31 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.kurohicncr.top/Article/details/855183.shtml)
-- 2026-06-29 16:52 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/18617106.shtml)
-- 2026-06-29 16:52 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/1520381355.shtml)
-- 2026-06-29 16:53 - [美人鱼](http://www.blog.minike.top/Article/details/0439617047.shtml)
-- 2026-06-29 16:45 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/780807.shtml)
-- 2026-06-29 16:47 - [爸爸当家](https://www.share.minike.top/Article/details/57117367.shtml)
-- 2026-06-29 16:26 - [王楚钦开门红](https://www.share.minike.top/Article/details/83718476460.shtml)
-- 2026-06-29 16:41 - [机器人学校开学了](http://www.share.kurohicncr.top/Article/details/75409.shtml)
-- 2026-06-29 16:36 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/24532279.shtml)
-- 2026-06-29 16:39 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/41861.shtml)
-- 2026-06-29 16:37 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/658386.shtml)
-- 2026-06-29 16:43 - [爸爸当家](https://www.share.minike.top/Article/details/312825496426.shtml)
-- 2026-06-29 16:39 - [当我回母校教书](https://www.blog.minike.top/Article/details/45703.shtml)
-- 2026-06-29 16:32 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/57290698.shtml)
-- 2026-06-29 16:31 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.kurohicncr.top/Article/details/289569304.shtml)
+- 2026-06-29 16:31 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/37359.shtml)
+- 2026-06-29 16:52 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/3196005.shtml)
+- 2026-06-29 16:59 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/87731.shtml)
+- 2026-06-29 16:51 - [端午节加班工资应该怎么算](http://www.blog.kurohicncr.top/Article/details/173213405662.shtml)
+- 2026-06-29 16:40 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/143241655550.shtml)
+- 2026-06-29 16:53 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/12069700812.shtml)
+- 2026-06-29 16:48 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/4269034398.shtml)
+- 2026-06-29 16:42 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/889200325.shtml)
+- 2026-06-29 16:51 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/4754401964.shtml)
+- 2026-06-29 16:32 - [T1零封KC MSI](http://www.share.minike.top/Article/details/161567018367.shtml)
+- 2026-06-29 16:49 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/6941171288.shtml)
+- 2026-06-29 16:45 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/6513729277.shtml)
+- 2026-06-29 16:51 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/77272.shtml)
+- 2026-06-29 16:58 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/757273841.shtml)
+- 2026-06-29 16:41 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/856783135750.shtml)

@@ -1,59 +1,56 @@
-# 在“赶大集”中触摸乡村消费脉搏
+# 际华集团（601718）投资者索赔再提交法院立案
 
-> 更新时间：2026-06-29 16:54:02 UTC+8
+> 更新时间：2026-06-29 17:00:02 UTC+8
 
 ## 摘要
 
-【光明论坛】在“赶大集”中触摸乡村消费脉搏 随着县域经济发展，“赶集”这一富有年代感的词语重回大众视野。媒体报道称，大集，正成为观察乡村消费动向的窗口。在山东莱州朱桥镇大集，花卉绿植等悦己类商品销量明显上涨；在安徽铜陵顺安镇大集，村民现场购买了一辆新能源汽车…… “大力实施扩大内需战略”作为当前宏观政策的重要主线，是国家统筹眼下和长远、国内和国际、发展和安全作出的科学研判和重大
+2026年5月27日，上海久诚律师事务所股票索赔律师许峰代理的际华集团（601718）虚假陈述投资者索赔案再向北京金融法院提交一次立案。（许峰律师专栏） 许峰律师代理的际华集团投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排。律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2026年4月30日晚，际华集团公告收到证监会下发的《行政处罚事
 
 ## 正文
 
-【光明论坛】在“赶大集”中触摸乡村消费脉搏 随着县域经济发展，“赶集”这一富有年代感的词语重回大众视野。
+2026年5月27日，上海久诚律师事务所股票索赔律师许峰代理的际华集团（601718）虚假陈述投资者索赔案再向北京金融法院提交一次立案。
 
-媒体报道称，大集，正成为观察乡村消费动向的窗口。
+（许峰律师专栏） 许峰律师代理的际华集团投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排。
 
-在山东莱州朱桥镇大集，花卉绿植等悦己类商品销量明显上涨；在安徽铜陵顺安镇大集，村民现场购买了一辆新能源汽车…… “大力实施扩大内需战略”作为当前宏观政策的重要主线，是国家统筹眼下和长远、国内和国际、发展和安全作出的科学研判和重大部署。
+律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-党的二十届四中全会和“十五五”规划纲要明确指出，要坚持以扩大内需为战略基点，增强国内大循环的内生动力与可靠性。
+2026年4月30日晚，际华集团公告收到证监会下发的《行政处罚事先告知书》，经查明，际华集团及相关人员违法事实如下： 际华集团2018年至2021年年度报告分别虚增营业收入5，098，495，638.15元、2，997，624，845.12元、550，776，959.10元、1，013，129，465.60元，占各期对外披露营业收入的22.48%、14.17%、3.68%、6.54%，虚增营业成本5，078，563，183.57元、2，980，144，144.24元、550，776，959.10元、1，013，129，465.60元，占各期对外披露营业成本的22.29%、14.04%、3.60%、6.51%。
 
-2026年《政府工作报告》将“着力建设强大国内市场”列为重点任务，强调要坚持内需主导，拓展内需增长新空间。
+同时，2020年年度报告虚减利润总额502，111，658.99元，占当期对外披露利润总额的60.26%。
 
-近年来，有关政策重心正加速向县域及乡村下沉，中央一号文件更是围绕“多措并举扩大乡村消费”作出专门部署。
+专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，在2019年4月26日到2025年8月9日之间买入际华集团股票，并在2025年8月9日后卖出或继续持有股票的投资者，目前还可发起索赔。
 
-村民有了新需求，大集“上新”新产品。
+（际华集团维权入口） （本文由许峰律师供稿，不代表新浪财经立场。
 
-“大集之变”不仅折射出从“有没有”到“好不好”、从“买实用”到“买悦己”、从“买商品”到“买服务”的乡村消费新图景，也印证了其扩大内需战略地位的日益凸显。
+许峰律师，上海久诚律师事务所主任，2008年起律师执业，执业服务范围涉及虚假陈述、内幕交易、操纵市场等证券欺诈领域索赔代理。
 
 ## 相关推荐
 
-- 2026-06-29 16:31 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 16:48 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 16:32 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 16:30 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 16:35 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 16:43 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 16:47 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 16:37 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 16:25 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 16:47 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 16:41 - [东方风云榜红毯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 16:44 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 16:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 16:45 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 16:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 16:52 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 16:51 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 16:31 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 16:33 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 16:46 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 16:38 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 16:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 16:53 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/666408515007.shtml)
-- 2026-06-29 16:24 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/925833605.shtml)
-- 2026-06-29 16:26 - [苹果回应恋与深空低分](https://www.blog.minike.top/Article/details/984890757688.shtml)
-- 2026-06-29 16:48 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/70273868077.shtml)
-- 2026-06-29 16:29 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/82561092528.shtml)
-- 2026-06-29 16:34 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/2951981555.shtml)
-- 2026-06-29 16:34 - [王楚钦开门红](http://www.share.minike.top/Article/details/548906470906.shtml)
-- 2026-06-29 16:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/23019209.shtml)
-- 2026-06-29 16:28 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/45021773.shtml)
-- 2026-06-29 16:48 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/96918.shtml)
-- 2026-06-29 16:36 - [韩国国脚无缘上亿韩元奖金](https://www.blog.kurohicncr.top/Article/details/179763682647.shtml)
-- 2026-06-29 16:32 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/90714852.shtml)
-- 2026-06-29 16:51 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/68108933.shtml)
-- 2026-06-29 16:48 - [欧盟为什么越来越倾向贸易保护](http://www.share.kurohicncr.top/Article/details/153303.shtml)
-- 2026-06-29 16:48 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/20493.shtml)
+- 2026-06-29 16:56 - [博主：美航母沦为毒品集散窝点](https://www.share.kurohicncr.top/Article/details/82140.shtml)
+- 2026-06-29 16:40 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/7244662419.shtml)
+- 2026-06-29 16:55 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/0589223522.shtml)
+- 2026-06-29 16:50 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/5007341299.shtml)
+- 2026-06-29 16:37 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/14647063.shtml)
+- 2026-06-29 16:39 - [首尔商铺禁止洪明甫入内](http://www.share.minike.top/Article/details/33774211.shtml)
+- 2026-06-29 16:42 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/281031763.shtml)
+- 2026-06-29 16:38 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/9780083.shtml)
+- 2026-06-29 16:45 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/939025302.shtml)
+- 2026-06-29 16:45 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/2297758744.shtml)
+- 2026-06-29 16:44 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/1770528.shtml)
+- 2026-06-29 16:47 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/33147534265.shtml)
+- 2026-06-29 16:53 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/588431.shtml)
+- 2026-06-29 16:59 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/5625205.shtml)
+- 2026-06-29 16:49 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/098723325323.shtml)
