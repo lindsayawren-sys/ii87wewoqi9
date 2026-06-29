@@ -1,59 +1,57 @@
-# 热卷期货“出海”！“LME上海热轧卷板合约”将于今年10月在伦敦挂牌
+# 日本央行政策不确定性压制日元叠加英银利率观望，英镑兑日元升至215.70附近
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-来源：期货日报 6月17日，上海期货交易所（简称上期所）与伦敦金属交易所（简称LME）在陆家嘴论坛期间，举行热轧卷板期货结算价授权签约仪式。上海市政府副秘书长金鹏辉、上海市推进国际金融中心建设办公室主任周小全、上海市浦东新区副区长徐欣、上期所理事长田向阳、伦敦金融城政府政策与资源委员会主席贺凯思、香港交易所集团行政总裁陈翊庭、LME主席约翰·威廉姆森出席签约仪式并见证。上期所总
+汇通财经APP讯——周一欧洲早盘，英镑兑日元小幅走高至215.70附近，延续短线反弹走势。汇价上涨主要受到日元走弱推动，在当前市场环境下，日元表现明显落后于其他主要货币。 从基本面来看，日本央行即将在周二公布利率决议，市场普遍预计将连续第三次维持利率在0.75%不变。尽管存在“偏鹰暂停”的可能性，但在中东局势推升能源价格的背景下，日本经济面临下行风险，政策制定者态度趋于谨慎。这
 
 ## 正文
 
-来源：期货日报 6月17日，上海期货交易所（简称上期所）与伦敦金属交易所（简称LME）在陆家嘴论坛期间，举行热轧卷板期货结算价授权签约仪式。
+汇通财经APP讯——周一欧洲早盘，英镑兑日元小幅走高至215.70附近，延续短线反弹走势。
 
-上海市政府副秘书长金鹏辉、上海市推进国际金融中心建设办公室主任周小全、上海市浦东新区副区长徐欣、上期所理事长田向阳、伦敦金融城政府政策与资源委员会主席贺凯思、香港交易所集团行政总裁陈翊庭、LME主席约翰·威廉姆森出席签约仪式并见证。
+汇价上涨主要受到日元走弱推动，在当前市场环境下，日元表现明显落后于其他主要货币。
 
-上期所总经理鲁东升与LME首席执行官张柏廉代表双方签约。
+从基本面来看，日本央行即将在周二公布利率决议，市场普遍预计将连续第三次维持利率在0.75%不变。
 
-田向阳表示，本次结算价授权合作，是上期所加快落实资本市场对外开放、加快建成世界一流交易所的具体举措。
+尽管存在“偏鹰暂停”的可能性，但在中东局势推升能源价格的背景下，日本经济面临下行风险，政策制定者态度趋于谨慎。
 
-我国钢铁产业规模庞大、产业基础扎实，期货市场运行规范、发展成熟。
+这种不确定性削弱了日元吸引力，使其在主要货币中表现偏弱。
 
-此次合作将进一步拓展“上海价格”的国际应用场景，吸引全球钢铁企业与金融机构参与价格形成，持续提升我国钢铁期货的国际影响力。
+与此同时，日内货币表现显示，日元兑多种主要货币普遍走弱，尤其对澳元等风险货币跌幅明显，反映市场风险偏好有所回升。
 
-未来，上期所将继续深化与国际机构务实合作，积极拓展对外开放的路径和模式，更好发挥期货市场功能。
+在这一环境下，资金更倾向于流向收益更高的货币，从而对日元形成持续压力。
 
-LME主席约翰·威廉姆森表示：“此次合作对两地市场而言都是激动人心的进展，中国以外的企业可以更容易地参与世界流动性最好的大宗商品合约之一，并同时享有交易LME现金交割合约的便捷性。
+从英镑方面来看，走势相对温和。
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 17:31 - [永远有话聊的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 17:21 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 17:23 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 17:25 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 17:10 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 17:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 17:27 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 17:28 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 17:29 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 17:08 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 17:36 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 17:16 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 17:17 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 17:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 17:33 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 17:14 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 17:26 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 17:38 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 17:13 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 17:37 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 17:30 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 17:14 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 17:34 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:33 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/0583147.shtml)
-- 2026-06-29 17:35 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/701178210552.shtml)
-- 2026-06-29 17:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/8908855344.shtml)
-- 2026-06-29 17:13 - [送你一朵小红花](https://www.blog.minike.top/Article/details/850201.shtml)
-- 2026-06-29 17:34 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.minike.top/Article/details/54250055967.shtml)
-- 2026-06-29 17:11 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/609387.shtml)
-- 2026-06-29 17:21 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/566396.shtml)
-- 2026-06-29 17:32 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/7271728.shtml)
-- 2026-06-29 17:31 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/980853092642.shtml)
-- 2026-06-29 17:17 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/840839503160.shtml)
-- 2026-06-29 17:07 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/840818.shtml)
-- 2026-06-29 17:35 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/1519786117.shtml)
-- 2026-06-29 17:22 - [逆天祖国人](https://www.share.minike.top/Article/details/141348.shtml)
-- 2026-06-29 17:24 - [沙丘](https://www.share.kurohicncr.top/Article/details/809967957438.shtml)
-- 2026-06-29 17:08 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/09211.shtml)
+- 2026-06-29 17:29 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/4908574246.shtml)
+- 2026-06-29 17:17 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/1166119221.shtml)
+- 2026-06-29 17:12 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/83597168349.shtml)
+- 2026-06-29 17:31 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/52913371918.shtml)
+- 2026-06-29 17:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/3252964002.shtml)
+- 2026-06-29 17:33 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/3748349.shtml)
+- 2026-06-29 17:21 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/1852501.shtml)
+- 2026-06-29 17:32 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/203578.shtml)
+- 2026-06-29 17:39 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/801244809403.shtml)
+- 2026-06-29 17:41 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/4128014.shtml)
+- 2026-06-29 17:24 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/66576.shtml)
+- 2026-06-29 17:38 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/1588013281.shtml)
+- 2026-06-29 17:38 - [普京介绍前线战事](http://www.share.minike.top/Article/details/96094660.shtml)
+- 2026-06-29 17:18 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/18935.shtml)
+- 2026-06-29 17:27 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/7411241893.shtml)

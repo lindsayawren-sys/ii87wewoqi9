@@ -1,60 +1,57 @@
-# “我一定会再来新疆”——“海外智库看新疆”代表团参访新疆侧记
+# “同心·博爱名医堂”中医药事业项目在贵州赫章启动
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-石榴云/新疆日报记者 张冬梅 6月10日至17日，来自希腊、埃及、法国、美国、俄罗斯、马来西亚等12个国家16位专家学者，组成“海外智库看新疆”活动代表团到新疆参访。代表团先后走访乌鲁木齐、吐鲁番、塔城三地，见证新疆社会稳定、经济发展、文化繁荣、人民安居乐业的真实状况。 6月11日，代表团首站走进新疆国际会展中心，参观新疆的反恐和去极端化斗争主题展。随后走进乌鲁木齐文化中心展览
+中新网贵州赫章4月27日电 (记者 周燕玲)4月27日，经中央统战部统筹联引，由北京新联会中医服务团发起的“同心·博爱名医堂”统一战线中医药事业支持项目启动仪式在贵州省毕节市赫章县金银山书院举行。 启动仪式上，赫章县中医医院与北京博爱堂中医医院签订为期三年的帮扶协议。博爱堂中医医院将通过师带徒培养、免费临床进修、远程培训、巡回义诊等方式，支持赫章县中医人才培养和中医基层服务能力
 
 ## 正文
 
-石榴云/新疆日报记者 张冬梅 6月10日至17日，来自希腊、埃及、法国、美国、俄罗斯、马来西亚等12个国家16位专家学者，组成“海外智库看新疆”活动代表团到新疆参访。
+中新网贵州赫章4月27日电 (记者 周燕玲)4月27日，经中央统战部统筹联引，由北京新联会中医服务团发起的“同心·博爱名医堂”统一战线中医药事业支持项目启动仪式在贵州省毕节市赫章县金银山书院举行。
 
-代表团先后走访乌鲁木齐、吐鲁番、塔城三地，见证新疆社会稳定、经济发展、文化繁荣、人民安居乐业的真实状况。
+启动仪式上，赫章县中医医院与北京博爱堂中医医院签订为期三年的帮扶协议。
 
-6月11日，代表团首站走进新疆国际会展中心，参观新疆的反恐和去极端化斗争主题展。
+博爱堂中医医院将通过师带徒培养、免费临床进修、远程培训、巡回义诊等方式，支持赫章县中医人才培养和中医基层服务能力提升。
 
-随后走进乌鲁木齐文化中心展览馆，参观了新疆维吾尔自治区成立70周年主题成就展。
+北京新联会中医服务团团长、北京博爱堂中医医院院长李俊峰说，将充分发挥专家资源和技术优势，切实做好帮扶工作，把先进的中医诊疗技术和服务理念带到赫章，帮助当地培养高水平中医人才。
 
-来自比利时的艺术家、陶艺家、策展人戴金浦在一组记录新疆旧貌的老照片前驻足良久。
+活动现场还举行了中医师承拜师仪式。
 
-他说，这片土地一直在稳步发展，外界应当客观知晓这里真实的情况。
+来自北京的董振华、朱海燕、杨建华、来要水、黄启文五位专家，正式收下赫章6名本土医师为徒。
 
-在乌鲁木齐市天山区二道桥街道固原巷社区，代表团了解了当地民众生活。
+27日至29日，北京新联会中医服务团、博爱堂中医医院的专家将赴赫章县中医医院、金银山书院、兴发乡中寨村卫生室等地开展义诊、带教，同时向县乡村三级医务人员开展现场授课。
 
-“这是一个多民族共同生活的社区，他们在一起生活得非常和谐。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 17:19 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 17:09 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 17:11 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 17:16 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 17:31 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 17:26 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-29 17:30 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 17:18 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 17:12 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 17:23 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 17:14 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 17:22 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 17:14 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 17:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 17:21 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 17:23 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 17:36 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 17:22 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 17:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 17:29 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 17:24 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 17:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 17:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 17:26 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:34 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/6163786292.shtml)
-- 2026-06-29 17:19 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/62672.shtml)
-- 2026-06-29 17:32 - [扬名立万](http://www.share.minike.top/Article/details/1277738580.shtml)
-- 2026-06-29 17:35 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/50474.shtml)
-- 2026-06-29 17:25 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/73131261554.shtml)
-- 2026-06-29 17:32 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/86498.shtml)
-- 2026-06-29 17:15 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/37507739683.shtml)
-- 2026-06-29 17:20 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/848507772606.shtml)
-- 2026-06-29 17:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/48680.shtml)
-- 2026-06-29 17:28 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.kurohicncr.top/Article/details/9819638.shtml)
-- 2026-06-29 17:07 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/96907.shtml)
-- 2026-06-29 17:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/8342955491.shtml)
-- 2026-06-29 17:26 - [叠纸客服回应恋与深空新角色争议](https://www.blog.minike.top/Article/details/39655517259.shtml)
-- 2026-06-29 17:08 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/3811484489.shtml)
-- 2026-06-29 17:13 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/19142788.shtml)
+- 2026-06-29 17:26 - [妹妹的正确用法！](http://www.blog.kurohicncr.top/Article/details/4668083040.shtml)
+- 2026-06-29 17:29 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/56077.shtml)
+- 2026-06-29 17:18 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/0461855527.shtml)
+- 2026-06-29 17:31 - [时光音乐会](https://www.blog.minike.top/Article/details/5187123974.shtml)
+- 2026-06-29 17:40 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/207391.shtml)
+- 2026-06-29 17:30 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/664347528820.shtml)
+- 2026-06-29 17:37 - [专家预计全球央行加息节奏将出现反复](http://www.blog.kurohicncr.top/Article/details/72753729033.shtml)
+- 2026-06-29 17:23 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/1769334.shtml)
+- 2026-06-29 17:33 - [挪威王储妃长子2次强奸被判4年](https://www.share.minike.top/Article/details/67991963.shtml)
+- 2026-06-29 17:39 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/043962251921.shtml)
+- 2026-06-29 17:19 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/82091.shtml)
+- 2026-06-29 17:12 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/634010.shtml)
+- 2026-06-29 17:27 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.minike.top/Article/details/89941359.shtml)
+- 2026-06-29 17:36 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/35455415368.shtml)
+- 2026-06-29 17:12 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/447819.shtml)

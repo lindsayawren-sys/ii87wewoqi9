@@ -1,61 +1,57 @@
-# 首艘平陆运河智能船舶示范船建成试航
+# 又到一年“吃虾季” 小龙虾最新消费提示
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新网贵港6月17日电(黄艳梅 莫卫华 吴昊)由广西西江重工有限责任公司建造的首艘平陆运河5000吨级绿色智能示范船“北港运河002”，17日在广西贵港顺利完成试航，标志着平陆运河智能船舶正式从建造阶段迈向运营应用。 前述船舶集成智能航行、智能能效、船岸协同等先进技术，是广西航运智能化、绿色化转型的重要里程碑。 贵港海事局强化试航监管与服务保障，全力护航智能船舶安全试航。试航前
+又到一年“吃虾季” 如何食用更健康？ 这份小龙虾消费提示请查收 ↓↓↓小龙虾的这些部位最好不要吃 有研究人员对小龙虾不同部位的重金属含量进行检测，结果显示：小龙虾腹部肌肉重金属含量明显低于虾头。 这是因为小龙虾的肝、肾、胰等解毒和排泄器官都在头部，这些器官可以产生大量的金属硫蛋白来束缚重金属元素。因此，重金属元素更容易集中在小龙虾头部。此外，外壳也是小龙虾处理重金属的重要部位。
 
 ## 正文
 
-中新网贵港6月17日电(黄艳梅 莫卫华 吴昊)由广西西江重工有限责任公司建造的首艘平陆运河5000吨级绿色智能示范船“北港运河002”，17日在广西贵港顺利完成试航，标志着平陆运河智能船舶正式从建造阶段迈向运营应用。
+又到一年“吃虾季” 如何食用更健康？
 
-前述船舶集成智能航行、智能能效、船岸协同等先进技术，是广西航运智能化、绿色化转型的重要里程碑。
+这份小龙虾消费提示请查收 ↓↓↓小龙虾的这些部位最好不要吃 有研究人员对小龙虾不同部位的重金属含量进行检测，结果显示：小龙虾腹部肌肉重金属含量明显低于虾头。
 
-贵港海事局强化试航监管与服务保障，全力护航智能船舶安全试航。
+这是因为小龙虾的肝、肾、胰等解毒和排泄器官都在头部，这些器官可以产生大量的金属硫蛋白来束缚重金属元素。
 
-试航前，该局第一时间对接船东、造船企业和试航团队，严格审查试航方案及安全保障措施，严格落实试航报备制度，联合相关单位同步开展船舶、船员试航前检查，重点审核智能船舶航行系统的内河适配性，同时实施试航分级分类风险管控，提前防范化解试航通航安全风险。
+因此，重金属元素更容易集中在小龙虾头部。
 
-试航过程中，贵港海事局派出执法力量现场驻守监督检查、调度海巡船现场护航，疏导过往船舶，保障试航水域通航秩序稳定，并通过线上监控对该船进行全流程跟踪，“线上+线下”联动为船舶试航保驾护航。
+此外，外壳也是小龙虾处理重金属的重要部位。
 
-随着平陆运河等重大工程加速推进，西江干线航运向智能、绿色方向转型升级步伐持续加快。
+需要注意的是，小龙虾的重金属含量和生长环境关系密切，如果规范化养殖，保持水源质量，就能确保小龙虾肉的安全性。
 
-此次建成试航的智能船舶示范船，集成了四大核心智能系统：智能集成平台作为船舶“中枢大脑”，整合航行、能效、监测等核心数据，实现船岸一体化调度；智能航行系统融合多传感器与航道实时感知功能，具备障碍物预警、航线智能规划能力，有效降低碰撞、搁浅风险；智能能效系统动态监测燃料消耗并优化能耗，契合平陆运河省水船闸高效运行理念；监测报警系统对动力、应急、防污染等关键设备实现24小时全覆盖监控，异常响应不超过3秒，故障定位精度达95%，从源头防范安全隐患。
+市面上正规小龙虾可食部(腹部肌肉)的重金属含量都在安全限制内，可以放心食用。
 
-该示范船的建成试航，不仅能够验证内河大型智能船舶的技术可行性，更推动传统运输工具向“航运数据节点”演进。
+小龙虾的内脏位于虾头，吃起来很香的虾黄是它的肝脏和胰腺，脂肪含量高且重金属含量超过虾肉。
 
 ## 相关推荐
 
-- 2026-06-29 17:15 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 17:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 17:31 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 17:27 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 17:06 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 17:13 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 17:14 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 17:07 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 17:26 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 17:29 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 17:35 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 17:29 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 17:07 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 17:13 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 17:14 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 17:15 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 17:19 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 17:32 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 17:16 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 17:28 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 17:40 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 17:23 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 17:20 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 17:21 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 17:30 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 17:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:12 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/266137901.shtml)
-- 2026-06-29 17:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/63488848.shtml)
-- 2026-06-29 17:12 - [沙丘](http://www.blog.kurohicncr.top/Article/details/21402665694.shtml)
-- 2026-06-29 17:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/75210911.shtml)
-- 2026-06-29 17:08 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.kurohicncr.top/Article/details/170872430.shtml)
-- 2026-06-29 17:22 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/300564941585.shtml)
-- 2026-06-29 17:21 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/1941705.shtml)
-- 2026-06-29 17:29 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.minike.top/Article/details/575212457.shtml)
-- 2026-06-29 17:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/6076617.shtml)
-- 2026-06-29 17:33 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/8289124.shtml)
-- 2026-06-29 17:22 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/927073.shtml)
-- 2026-06-29 17:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/71711.shtml)
-- 2026-06-29 17:10 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.minike.top/Article/details/21890859.shtml)
-- 2026-06-29 17:34 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/434276181165.shtml)
-- 2026-06-29 17:24 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/3054783937.shtml)
+- 2026-06-29 17:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/66620512900.shtml)
+- 2026-06-29 17:15 - [普京承认俄出现燃料危机](https://www.blog.kurohicncr.top/Article/details/60943841991.shtml)
+- 2026-06-29 17:20 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.minike.top/Article/details/4900959867.shtml)
+- 2026-06-29 17:39 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/9715297199.shtml)
+- 2026-06-29 17:40 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/028318242.shtml)
+- 2026-06-29 17:38 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.kurohicncr.top/Article/details/967609036341.shtml)
+- 2026-06-29 17:32 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/173855.shtml)
+- 2026-06-29 17:37 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/074556325274.shtml)
+- 2026-06-29 17:40 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/117007.shtml)
+- 2026-06-29 17:23 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/5752652171.shtml)
+- 2026-06-29 17:32 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/3150562753.shtml)
+- 2026-06-29 17:24 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/76974.shtml)
+- 2026-06-29 17:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/786162029678.shtml)
+- 2026-06-29 17:15 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/263510.shtml)
+- 2026-06-29 17:21 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/938263.shtml)

@@ -1,47 +1,58 @@
-# 中国中铁：截至2026年3月31日公司普通股股东总数为545147户
+# 保险公司收紧对霍尔木兹海峡过往船只的承保要求
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-证券日报网讯6月17日，中国中铁在互动平台回答投资者提问时表示，截至2026年3月31日，公司普通股股东总数为545147户。
+保险经纪商Marsh称，一些保险公司现在要求，船只若要获得战争险，就必须基本遵循伊朗批准的路线通过霍尔木兹海峡。这一新规反映出这条实际上已被封锁的水道持续存在不确定性，风险也在加剧。 Marsh海事与货运业务全球主管马库斯·贝克表示：“在设定承保条件时，各家承保人都有自己的考量。”他补充说，要求伊朗方面签字放行实属强人所难，因为伊朗正受到制裁，且外界很难证实此类批文的有效性。贝
 
 ## 正文
 
-证券日报网讯6月17日，中国中铁在互动平台回答投资者提问时表示，截至2026年3月31日，公司普通股股东总数为545147户。
+保险经纪商Marsh称，一些保险公司现在要求，船只若要获得战争险，就必须基本遵循伊朗批准的路线通过霍尔木兹海峡。
+
+这一新规反映出这条实际上已被封锁的水道持续存在不确定性，风险也在加剧。
+
+Marsh海事与货运业务全球主管马库斯·贝克表示：“在设定承保条件时，各家承保人都有自己的考量。
+
+”他补充说，要求伊朗方面签字放行实属强人所难，因为伊朗正受到制裁，且外界很难证实此类批文的有效性。
+
+贝克还说：“你怎么知道从他们那里拿到的批文真的能保证你的船平安无事？
+
+” 保险公司对该海峡风险的担忧继续体现在其保费水平上。
+
+贝克说，目前战争险的费率约为船舶价值的3%至8%。
+
+这一费率水平虽低于停火前10%的高点，但仍是和平时期通常0.25%水平的许多倍。
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 17:22 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 17:26 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 17:33 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 17:34 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 17:17 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 17:17 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 17:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 17:30 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 17:27 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 17:07 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 17:13 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 17:23 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 17:11 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 17:25 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 17:19 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 17:36 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 17:31 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 17:17 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 17:34 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 17:17 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 17:24 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 17:12 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 17:31 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 17:12 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 17:21 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 17:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:16 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/274754871863.shtml)
-- 2026-06-29 17:11 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/08071086632.shtml)
-- 2026-06-29 17:09 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/810694.shtml)
-- 2026-06-29 17:10 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/722249.shtml)
-- 2026-06-29 17:14 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.minike.top/Article/details/7986263366.shtml)
-- 2026-06-29 17:17 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/0841067.shtml)
-- 2026-06-29 17:27 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/6660564651.shtml)
-- 2026-06-29 17:33 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/22165730809.shtml)
-- 2026-06-29 17:33 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/414948909.shtml)
-- 2026-06-29 17:22 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/782447690.shtml)
-- 2026-06-29 17:32 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/7815769691.shtml)
-- 2026-06-29 17:15 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.minike.top/Article/details/594518569.shtml)
-- 2026-06-29 17:23 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/676556749.shtml)
-- 2026-06-29 17:08 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/6431313548.shtml)
-- 2026-06-29 17:24 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/898154.shtml)
+- 2026-06-29 17:36 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/144159874.shtml)
+- 2026-06-29 17:33 - [美国大满贯首日国乒主力均取胜](http://www.share.minike.top/Article/details/955267.shtml)
+- 2026-06-29 17:28 - [抓特务票房破亿](http://www.share.minike.top/Article/details/17722059470.shtml)
+- 2026-06-29 17:36 - [未成年少女长期吸毒导致卧床不起](https://www.share.minike.top/Article/details/30054623.shtml)
+- 2026-06-29 17:30 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/49875496692.shtml)
+- 2026-06-29 17:14 - [沙丘](https://www.share.minike.top/Article/details/798164652755.shtml)
+- 2026-06-29 17:41 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/2332830.shtml)
+- 2026-06-29 17:32 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/0440596.shtml)
+- 2026-06-29 17:41 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/025386.shtml)
+- 2026-06-29 17:17 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/83576115.shtml)
+- 2026-06-29 17:24 - [工作靠AI算不算职场作弊](http://www.share.kurohicncr.top/Article/details/651965395.shtml)
+- 2026-06-29 17:14 - [医院大厅放钢琴是形式主义吗](https://www.share.minike.top/Article/details/060307814654.shtml)
+- 2026-06-29 17:23 - [男孩复读一年减重20斤涨分111分](http://www.blog.minike.top/Article/details/421635601090.shtml)
+- 2026-06-29 17:22 - [极限挑战第一季](http://www.share.minike.top/Article/details/85481737821.shtml)
+- 2026-06-29 17:15 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/734626335.shtml)

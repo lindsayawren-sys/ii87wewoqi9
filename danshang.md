@@ -1,60 +1,57 @@
-# 吴伟：截至今年5月沪港通累计成交额近157.7万亿元，成为跨境资本高效配置的重要通道
+# 大宗商品综述：原油上涨 黄金下跌 供应前景趋紧推高镍价
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，202陆家嘴论坛于今日召开，上海市常务副市长吴伟出席“全体大会四：沪港金融协同发展赋能高水平金融开放”并发言。 吴伟表示，建设上海香港两大国际金融中心是重大国家战略。中央金融工作会议明确提出，增强上海国际金融中心的竞争力和影响力，巩固提升香港国际金融中心地位。近年来，沪港两地深入推进金融协同发
+由于美伊和谈仍陷入僵局，霍尔木兹海峡短期内恢复通行依然无望，原油价格周一上涨。黄金则承压走低，跌破了每盎司4700美元。供应前景趋紧推动镍价升至接近两年高位。 原油：WTI上涨 美伊和谈僵局导致霍尔木兹海峡仍几近封闭 油价上涨，此前重启伊朗战争和谈的努力陷入僵局，霍尔木兹海峡通行仍几近停滞，扰乱全球市场的供应扰动持续。 WTI原油期货上涨2.1%，收于每桶96美元上方，布伦特收
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，202陆家嘴论坛于今日召开，上海市常务副市长吴伟出席“全体大会四：沪港金融协同发展赋能高水平金融开放”并发言。
+由于美伊和谈仍陷入僵局，霍尔木兹海峡短期内恢复通行依然无望，原油价格周一上涨。
 
-吴伟表示，建设上海香港两大国际金融中心是重大国家战略。
+黄金则承压走低，跌破了每盎司4700美元。
 
-中央金融工作会议明确提出，增强上海国际金融中心的竞争力和影响力，巩固提升香港国际金融中心地位。
+供应前景趋紧推动镍价升至接近两年高位。
 
-近年来，沪港两地深入推进金融协同发展。
+原油：WTI上涨 美伊和谈僵局导致霍尔木兹海峡仍几近封闭 油价上涨，此前重启伊朗战争和谈的努力陷入僵局，霍尔木兹海峡通行仍几近停滞，扰乱全球市场的供应扰动持续。
 
-特别是去年陆家嘴论坛期间，沪港国际金融中心协同发展行动方案签署。
+WTI原油期货上涨2.1%，收于每桶96美元上方，布伦特收于每桶108美元附近。
 
-一年来，两地金融市场互联互通机制持续优化，跨境和离岸金融协同不断深化，科技金融、绿色金融和金融科技等新兴领域合作亮点纷呈。
+白宫新闻秘书卡罗琳·莱维特表示，特朗普召集国家安全团队讨论伊朗的提案，但未具体说明提案细节和美国的反应。
 
-吴伟指出，截至今年5月，沪港通累计成交额近157.7万亿元，成为跨境资本高效配置的重要通道。
+6月交割的WTI原油上涨2.1%，结算价报每桶96.37美元。
 
-上海黄金交易所落地香港国际板指定交割仓库，并同步推出离岸黄金交割合约，进一步夯实沪港金融市场互联互通的基础设施底座。
+6月交割的布伦特原油上涨2.8%，结算价报每桶108.23美元。
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 17:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 17:35 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 17:17 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 17:32 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 17:24 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 17:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 17:09 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 17:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 17:15 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 17:11 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 17:33 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 17:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 17:11 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 17:35 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 17:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 17:31 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 17:35 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 17:26 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 17:22 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 17:38 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 17:33 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 17:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 17:30 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 17:15 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:08 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/2190755.shtml)
-- 2026-06-29 17:11 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/7889999.shtml)
-- 2026-06-29 17:07 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/90279702949.shtml)
-- 2026-06-29 17:30 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.kurohicncr.top/Article/details/789493941916.shtml)
-- 2026-06-29 17:13 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/113740.shtml)
-- 2026-06-29 17:16 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/39944356.shtml)
-- 2026-06-29 17:33 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/07321934097.shtml)
-- 2026-06-29 17:09 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/5201730437.shtml)
-- 2026-06-29 17:16 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.minike.top/Article/details/10440930945.shtml)
-- 2026-06-29 17:07 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/860315720673.shtml)
-- 2026-06-29 17:23 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/8541458717.shtml)
-- 2026-06-29 17:08 - [东方风云榜红毯](http://www.share.minike.top/Article/details/25287601250.shtml)
-- 2026-06-29 17:07 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/77861.shtml)
-- 2026-06-29 17:24 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/4985736.shtml)
-- 2026-06-29 17:23 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.kurohicncr.top/Article/details/03835238517.shtml)
+- 2026-06-29 17:34 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/85919.shtml)
+- 2026-06-29 17:19 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/87668984.shtml)
+- 2026-06-29 17:27 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/29940.shtml)
+- 2026-06-29 17:28 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/13933.shtml)
+- 2026-06-29 17:40 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/0016719.shtml)
+- 2026-06-29 17:35 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/4922180.shtml)
+- 2026-06-29 17:20 - [叠纸](http://www.share.minike.top/Article/details/8425570667.shtml)
+- 2026-06-29 17:30 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/6458149.shtml)
+- 2026-06-29 17:17 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/470181573681.shtml)
+- 2026-06-29 17:32 - [抓特务票房破亿](https://www.blog.kurohicncr.top/Article/details/71955741712.shtml)
+- 2026-06-29 17:40 - [起风了](https://www.share.kurohicncr.top/Article/details/625037501455.shtml)
+- 2026-06-29 17:40 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/720422853.shtml)
+- 2026-06-29 17:40 - [极限挑战第一季](https://www.share.minike.top/Article/details/7907578838.shtml)
+- 2026-06-29 17:13 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/3737539219.shtml)
+- 2026-06-29 17:29 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/2028335.shtml)

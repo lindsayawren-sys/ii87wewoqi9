@@ -1,56 +1,58 @@
-# 熊猫中心2026年首对双胞胎大熊猫幼崽诞生
+# 派拉蒙寻求FCC批准中东资本大幅持股
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据中国大熊猫保护研究中心微信公众号消息，6月10日上午，熊猫中心大熊猫“芊芊”在雅安基地产下双胞胎幼崽，这是今年熊猫中心圈养大熊猫种群产下的首对双胞胎大熊猫幼崽。 “双胞胎幼崽均为雄性，目前发育良好，眼睛、耳朵、四肢、肩带开始变黑，叫声洪亮，经检查身体健康。其中一只幼崽由熊猫母兽哺育，另一只幼崽由人工育幼团队照顾，两只幼崽将轮流交换到母亲身边。大熊猫生单胎和
+专题：持股还是持币？机构看好A股“红五月”行情 派拉蒙（Paramount）正寻求美国联邦通讯委员会（FCC）的批准，以允许波斯湾地区主权财富基金获得该公司相当大比例的股权，此举是其以810亿美元收购华纳兄弟探索交易的一部分。 周一，这家由大卫．埃里森（David Ellison）掌管的公司向FCC提交申请，请求该机构批准中东基金的大额持股；申请文件中称，拟议交易将导致外国投资
 
 ## 正文
 
-中新网6月18日电 据中国大熊猫保护研究中心微信公众号消息，6月10日上午，熊猫中心大熊猫“芊芊”在雅安基地产下双胞胎幼崽，这是今年熊猫中心圈养大熊猫种群产下的首对双胞胎大熊猫幼崽。
+专题：持股还是持币？
 
-“双胞胎幼崽均为雄性，目前发育良好，眼睛、耳朵、四肢、肩带开始变黑，叫声洪亮，经检查身体健康。
+机构看好A股“红五月”行情 派拉蒙（Paramount）正寻求美国联邦通讯委员会（FCC）的批准，以允许波斯湾地区主权财富基金获得该公司相当大比例的股权，此举是其以810亿美元收购华纳兄弟探索交易的一部分。
 
-其中一只幼崽由熊猫母兽哺育，另一只幼崽由人工育幼团队照顾，两只幼崽将轮流交换到母亲身边。
+周一，这家由大卫．埃里森（David Ellison）掌管的公司向FCC提交申请，请求该机构批准中东基金的大额持股；申请文件中称，拟议交易将导致外国投资者间接持有派拉蒙近50%的股权。
 
-大熊猫生单胎和双胞胎的概率各占约50%。
+派拉蒙是哥伦比亚广播公司（CBS）的母公司，后者拥有28家地方电视台。
 
-在生单胎的情况下，通常由母兽独立照顾幼崽；而在生双胞胎的情况下，为最大限度保障幼崽的成活与健康成长，我们采取‘母兽哺育一只、人工育幼一只’的饲养方式。
+FCC现行规定禁止外国投资者持有拥有广播牌照的公司超过25%的股份，除非委员会认定此举符合公众利益。
 
-长期监测数据显示，大熊猫母兽同时哺育两只幼崽并都成活的案例极低。
+一旦FCC拒绝给予豁免，派拉蒙将无法获得主权财富基金的资金，埃里森家族和RedBird Capital Partners将不得不承担全部810亿美元。
 
-”熊猫中心雅安基地副主任李果6月18日介绍道。
+派拉蒙为该交易筹集的融资中，约240亿美元来自三家中东主权财富基金的联合投资，分别是沙特公共投资基金（Public Investment Fund）、卡塔尔投资局（Qatar Investment Authority）和阿布扎比的L‘imad Holding Co．。
 
-大熊猫“芊芊”出生于2006年9月11日，今年2月上旬在熊猫中心卧龙神树坪基地完成自然交配，当月底转移至雅安基地。
+派拉蒙的一位发言人表示：“对于此类投资，向FCC提交申请是完全标准的流程，并非派拉蒙完成收购华纳兄弟探索的先决条件。
 
 ## 相关推荐
 
-- 2026-06-29 17:33 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 17:24 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 17:17 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 17:14 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 17:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 17:29 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 17:33 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 17:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 17:24 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 17:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 17:20 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 17:18 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 17:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 17:40 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 17:39 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 17:16 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 17:37 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 17:25 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 17:38 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 17:37 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 17:24 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 17:17 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:14 - [世界杯上那些封神的门将](https://www.blog.minike.top/Article/details/015340949717.shtml)
-- 2026-06-29 17:17 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/598523576.shtml)
-- 2026-06-29 17:30 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/364356702551.shtml)
-- 2026-06-29 17:28 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/77036578.shtml)
-- 2026-06-29 17:34 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/217713868210.shtml)
-- 2026-06-29 17:27 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/1111426.shtml)
-- 2026-06-29 17:06 - [世界杯1/16决赛对阵出炉](https://www.share.minike.top/Article/details/4336608.shtml)
-- 2026-06-29 17:15 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/77285978433.shtml)
-- 2026-06-29 17:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/53156595417.shtml)
-- 2026-06-29 17:33 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/262795982385.shtml)
-- 2026-06-29 17:35 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/735634.shtml)
-- 2026-06-29 17:30 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/8711173798.shtml)
-- 2026-06-29 17:12 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.minike.top/Article/details/1340881.shtml)
-- 2026-06-29 17:25 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/178211268.shtml)
-- 2026-06-29 17:11 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/30787316407.shtml)
+- 2026-06-29 17:19 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/40200.shtml)
+- 2026-06-29 17:41 - [普京承认俄出现燃料危机](https://www.share.minike.top/Article/details/073248249490.shtml)
+- 2026-06-29 17:41 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/32043.shtml)
+- 2026-06-29 17:21 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/3179483817.shtml)
+- 2026-06-29 17:27 - [起风了](http://www.blog.kurohicncr.top/Article/details/497289.shtml)
+- 2026-06-29 17:39 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.minike.top/Article/details/247560789.shtml)
+- 2026-06-29 17:40 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/37705163194.shtml)
+- 2026-06-29 17:25 - [刘扬任湖南省副省长](http://www.blog.minike.top/Article/details/616858.shtml)
+- 2026-06-29 17:39 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/781308361.shtml)
+- 2026-06-29 17:25 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/38160.shtml)
+- 2026-06-29 17:40 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/6849194266.shtml)
+- 2026-06-29 17:34 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/971998.shtml)
+- 2026-06-29 17:13 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/3701808002.shtml)
+- 2026-06-29 17:14 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/81120696424.shtml)
+- 2026-06-29 17:32 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/387573.shtml)

@@ -1,46 +1,60 @@
-# 何超琼推荐澳门一日游路线
+# 中信建投期货：4月28日农产品早报
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 18:44 来源：中国新闻网 6月17日，在“机遇澳门”主题采访活动中，全国政协常委、世界旅游经济研究中心主席何超琼分享了一条她设计的“澳门一日游路线”：从历史城区开始，看澳门如何在发展中守住初心。(记者 陈子彦 制作 侯诗蕊） 责任编辑：【李季】
+玉米：中性 1．市场关注：短期政策收储边际减弱、新麦上市预期、进口谷物到港以及需求端疲软，构成当前市场的空头阵营；但贸易商挺价心态、稻谷拍卖迟迟未落地以及春播天气扰动，多空双方均无压倒性优势，预计主力合约在2375-2450元/吨宽幅区间内拉锯。中期来看，随着5-6月新麦收割入市、稻谷拍卖若最终落地、三季度能繁母猪产能去化效应逐步传导至生猪出栏端，供需格局的边际变化将是决定玉米
 
 ## 正文
 
-发布时间：2026年06月18日 18:44 来源：中国新闻网 6月17日，在“机遇澳门”主题采访活动中，全国政协常委、世界旅游经济研究中心主席何超琼分享了一条她设计的“澳门一日游路线”：从历史城区开始，看澳门如何在发展中守住初心。
+玉米：中性 1．市场关注：短期政策收储边际减弱、新麦上市预期、进口谷物到港以及需求端疲软，构成当前市场的空头阵营；但贸易商挺价心态、稻谷拍卖迟迟未落地以及春播天气扰动，多空双方均无压倒性优势，预计主力合约在2375-2450元/吨宽幅区间内拉锯。
 
-(记者 陈子彦 制作 侯诗蕊） 责任编辑：【李季】
+中期来看，随着5-6月新麦收割入市、稻谷拍卖若最终落地、三季度能繁母猪产能去化效应逐步传导至生猪出栏端，供需格局的边际变化将是决定玉米方向的关键变量，届时重新评估区间策略的适用边界。
+
+2．观点总结：2375-2450元/吨宽幅震荡，下方支撑较强。
+
+豆粕：中性偏多 1．荷兰近期对阿根廷豆粕发出多起未批准GMO事件检测警示，市场据此解读为相关货物面临退运风险，隔夜CBOT豆粕大涨，美豆跟随走强，短期海外市场等待特朗普访华进展以及5月USDA报告带来的指引。
+
+2．截至4月26日，全美大豆播种23%，快于去年同期17%以及五年均值12%。
+
+World Ag Weather预报显示，未来一周多数核心产区降雨整体偏少，有利于播种加快推进，但也可能加剧平原地区干旱发展风险。
+
+3．豆粕缺乏新的矛盾，短期仍主要跟随美盘波动，单边预计维持宽幅震荡。
+
+观点总结：区间交易思路，日内受美盘带动预计偏强运行，关注09合约在2900-3100元/吨区间表现。
 
 ## 相关推荐
 
-- 2026-06-29 17:07 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 17:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 17:29 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 17:24 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 17:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 17:13 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 17:07 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 17:32 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 17:21 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 17:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 17:17 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 17:20 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 17:21 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 17:31 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 17:29 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 17:28 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 17:16 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 17:23 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 17:12 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 17:32 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 17:38 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 17:23 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 17:38 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 17:28 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 17:29 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 17:27 - [世界杯上那些封神的门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:08 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/21626229029.shtml)
-- 2026-06-29 17:19 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/679403194101.shtml)
-- 2026-06-29 17:20 - [女心理师](http://www.share.kurohicncr.top/Article/details/264271.shtml)
-- 2026-06-29 17:20 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/25932095591.shtml)
-- 2026-06-29 17:26 - [疑似吴建豪老婆正脸照](http://www.blog.kurohicncr.top/Article/details/509473.shtml)
-- 2026-06-29 17:15 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/83449.shtml)
-- 2026-06-29 17:27 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/096438107461.shtml)
-- 2026-06-29 17:21 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/036205455137.shtml)
-- 2026-06-29 17:18 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/213791568598.shtml)
-- 2026-06-29 17:12 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/882213.shtml)
-- 2026-06-29 17:34 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/963113908522.shtml)
-- 2026-06-29 17:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/36730.shtml)
-- 2026-06-29 17:08 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/039827133690.shtml)
-- 2026-06-29 17:29 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/282870326.shtml)
-- 2026-06-29 17:17 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/06176446.shtml)
+- 2026-06-29 17:24 - [四川地震前夕 街头电线上站满燕子](https://www.blog.minike.top/Article/details/452344857.shtml)
+- 2026-06-29 17:31 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/540493355002.shtml)
+- 2026-06-29 17:27 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/86664070700.shtml)
+- 2026-06-29 17:17 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/800135593595.shtml)
+- 2026-06-29 17:19 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/5470661.shtml)
+- 2026-06-29 17:32 - [逃狱兄弟](https://www.blog.minike.top/Article/details/233448600.shtml)
+- 2026-06-29 17:37 - [TTG KSG](http://www.blog.minike.top/Article/details/64280654.shtml)
+- 2026-06-29 17:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/076572899598.shtml)
+- 2026-06-29 17:20 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/5388540656.shtml)
+- 2026-06-29 17:34 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/30318054.shtml)
+- 2026-06-29 17:25 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/201420095303.shtml)
+- 2026-06-29 17:31 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/845775659.shtml)
+- 2026-06-29 17:30 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/23940.shtml)
+- 2026-06-29 17:34 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/97907322883.shtml)
+- 2026-06-29 17:18 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/68385693562.shtml)

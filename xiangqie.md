@@ -1,57 +1,53 @@
-# 碳酸锂期货及期权将迎境外交易者 7月3日起正式交易
+# 日本北部山火已连烧6天 过火面积超1600公顷
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-6月18日，广州期货交易所（以下简称广期所）公告显示，将于北京时间7月3日9时起正式引入境外交易者参与碳酸锂期货及期权交易，这是该品种继引入合格境外投资者（QFI）后国际化的又一重要举措，标志着我国在全球新能源材料领域的价格影响力将进一步增强。 碳酸锂作为锂电池核心原材料，是新能源产业链上游的战略性资源，也是我国锂电产业竞争优势的重要支撑。自2023年7月上市以来，碳酸锂期货市
+中新网4月27日电 据日本岩手电视台报道，当地时间27日，日本岩手县的山火已连续燃烧了6天，过火面积约为1618公顷，比前一日扩大了245公顷。 据报道，在岩手县大槌町，火势已经逼近附近的高中，居民日常生活也受到影响。 当地政府称，27日约有1600人正在全力进行灭火工作。 另据日本时事通讯社报道，截至目前当地已向约3200人发出避难指示，并开设了8处避难所，目前有约130人正
 
 ## 正文
 
-6月18日，广州期货交易所（以下简称广期所）公告显示，将于北京时间7月3日9时起正式引入境外交易者参与碳酸锂期货及期权交易，这是该品种继引入合格境外投资者（QFI）后国际化的又一重要举措，标志着我国在全球新能源材料领域的价格影响力将进一步增强。
+中新网4月27日电 据日本岩手电视台报道，当地时间27日，日本岩手县的山火已连续燃烧了6天，过火面积约为1618公顷，比前一日扩大了245公顷。
 
-碳酸锂作为锂电池核心原材料，是新能源产业链上游的战略性资源，也是我国锂电产业竞争优势的重要支撑。
+据报道，在岩手县大槌町，火势已经逼近附近的高中，居民日常生活也受到影响。
 
-自2023年7月上市以来，碳酸锂期货市场运行平稳，功能有效发挥，期现紧密联动，已成为国内现货贸易中的重要定价参考。
+当地政府称，27日约有1600人正在全力进行灭火工作。
 
-此次引入境外交易者，既是我国期货市场顺应全球锂电产业发展趋势、服务实体经济高质量发展的务实举措，也是提升我国锂资源全球定价影响力的关键一步。
-
-经中国证监会批准，2026年1月23日，碳酸锂期货、期权获批以特定品种的方式引入境外交易者。
-
-据广期所有关业务负责人介绍，碳酸锂期货及期权是广期所首个以特定品种方式对外开放的品种，参与主体方面，新增境外中介机构和境外客户两类主体，境外客户既可通过境内期货公司直接开户，也可通过境外中介机构转委托的方式参与交易。
-
-适当性管理方面，实行灵活务实的制度安排，设置了过渡方案和豁免情形，例如已取得碳酸锂期货及期权交易权限的境内客户无需重新评估，已开通其他实行适当性制度品种交易权限的可豁免知识测试和交易经历要求，已具备相同或较高资金门槛品种权限的可豁免可用资金余额要求，既有效防控风险，又降低了市场参与成本。
-
-结算方面，境外交易者可以使用外汇资金作为保证金。
+另据日本时事通讯社报道，截至目前当地已向约3200人发出避难指示，并开设了8处避难所，目前有约130人正在其中避难。
 
 ## 相关推荐
 
-- 2026-06-29 17:30 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 17:16 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 17:18 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 17:10 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 17:18 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 17:16 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 17:35 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 17:34 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 17:27 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 17:33 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 17:27 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 17:40 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 17:29 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 17:36 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 17:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 17:12 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 17:29 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 17:14 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 17:32 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 17:21 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 17:39 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 17:22 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 17:19 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 17:28 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 17:20 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 17:33 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:07 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/638378632796.shtml)
-- 2026-06-29 17:30 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/249026126.shtml)
-- 2026-06-29 17:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/960550.shtml)
-- 2026-06-29 17:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/3356927500.shtml)
-- 2026-06-29 17:25 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/4739251360.shtml)
-- 2026-06-29 17:10 - [业内：全球市场迎来结构性投资窗口](https://www.blog.kurohicncr.top/Article/details/048768042755.shtml)
-- 2026-06-29 17:07 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/293079824.shtml)
-- 2026-06-29 17:23 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/999879684065.shtml)
-- 2026-06-29 17:21 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/070044126.shtml)
-- 2026-06-29 17:30 - [扫黑风暴](http://www.blog.minike.top/Article/details/45903.shtml)
-- 2026-06-29 17:17 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/369537.shtml)
-- 2026-06-29 17:15 - [T1 KC](http://www.blog.minike.top/Article/details/2257152.shtml)
-- 2026-06-29 17:27 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.minike.top/Article/details/740446.shtml)
-- 2026-06-29 17:32 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/49828939.shtml)
-- 2026-06-29 17:18 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/356680.shtml)
+- 2026-06-29 17:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/336102.shtml)
+- 2026-06-29 17:38 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/70929485.shtml)
+- 2026-06-29 17:36 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/7013707420.shtml)
+- 2026-06-29 17:36 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/873782277.shtml)
+- 2026-06-29 17:23 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/332427071.shtml)
+- 2026-06-29 17:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/54709.shtml)
+- 2026-06-29 17:32 - [龟梨和也田中美奈实结婚](https://www.blog.kurohicncr.top/Article/details/6369084.shtml)
+- 2026-06-29 17:30 - [南昌市委书记调整](http://www.share.minike.top/Article/details/477178.shtml)
+- 2026-06-29 17:19 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/039374.shtml)
+- 2026-06-29 17:17 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/63420589.shtml)
+- 2026-06-29 17:18 - [起风了](http://www.blog.kurohicncr.top/Article/details/0132262.shtml)
+- 2026-06-29 17:41 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/75938.shtml)
+- 2026-06-29 17:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/80716910701.shtml)
+- 2026-06-29 17:32 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/1423855170.shtml)
+- 2026-06-29 17:16 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/6571990.shtml)

@@ -1,58 +1,59 @@
-# 国泰君安期货：低透明+高波动？沃什首秀之后，市场该如何“适应”新格局？
+# 上海通报5起违反中央八项规定精神问题
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-国泰君安期货市场分析师 陈骏昊 投资咨询证号：Z0021546 周四凌晨，美联储公布6月议息会议决议，新任美联储主席凯文·沃什迎来首次政策新闻发布会。虽然利率如市场预期按兵不动，但沃什这场首秀带来的诸多变化，也令市场短期反应剧烈。那么这次议息会议相比此前有哪些重大变化？投资者应如何看待市场波动？ 政策风向转变，美联储等待“重塑” 一、利率决议：按兵不动，全票通过 美联储联邦公开
+中新网4月27日电 据中央纪委国家监委网站消息，日前，上海市纪委监委公开通报5起违反中央八项规定精神典型问题。 1.政协上海市委员会界别和地区工作委员会原专职副主任吉玉萍接受可能影响公正执行公务的宴请，违规收受礼金，违规出入私人会所等问题。2013年至2025年，吉玉萍频繁接受私营企业主安排的宴请，违规出入私人会所并接受宴请，费用由对方支付；多次收受私营企业主所送礼金。吉玉萍还
 
 ## 正文
 
-国泰君安期货市场分析师 陈骏昊 投资咨询证号：Z0021546 周四凌晨，美联储公布6月议息会议决议，新任美联储主席凯文·沃什迎来首次政策新闻发布会。
+中新网4月27日电 据中央纪委国家监委网站消息，日前，上海市纪委监委公开通报5起违反中央八项规定精神典型问题。
 
-虽然利率如市场预期按兵不动，但沃什这场首秀带来的诸多变化，也令市场短期反应剧烈。
+1.政协上海市委员会界别和地区工作委员会原专职副主任吉玉萍接受可能影响公正执行公务的宴请，违规收受礼金，违规出入私人会所等问题。
 
-那么这次议息会议相比此前有哪些重大变化？
+2013年至2025年，吉玉萍频繁接受私营企业主安排的宴请，违规出入私人会所并接受宴请，费用由对方支付；多次收受私营企业主所送礼金。
 
-投资者应如何看待市场波动？
+吉玉萍还存在其他严重违纪违法问题，被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
 
-政策风向转变，美联储等待“重塑” 一、利率决议：按兵不动，全票通过 美联储联邦公开市场委员会（FOMC）以12票全票赞成，决定将联邦基金利率目标区间维持在3.5%至3.75%不变。
+2.上海国际机场股份有限公司原总经理黄铮霖接受可能影响公正执行公务的宴请、旅游活动安排，违规收受礼品礼金，违规出入私人会所，违规干预和插手市场经济活动等问题。
 
-这是美联储连续第四次维持利率不变，上一次降息要追溯到2025年12月。
+2021年至2025年，黄铮霖多次接受私营企业主安排的宴请、外地旅游，违规出入私人会所并接受宴请，费用由对方支付；多次收受私营企业主所送礼品礼金；利用职务便利，违规为他人在相关设备采购等事项上提供帮助，非法收受财物。
 
-二、政策声明：大幅精简，删除宽松表述 声明大幅“瘦身”，除了利率决议外，FOMC会后声明删除了此前暗示未来倾向于宽松政策的措辞，还对声明的其余部分进行了大幅删减。
+黄铮霖还存在其他严重违纪违法问题，被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
 
-该声明仅对经济状况进行了简短总结，随后承诺将控制通胀。
+3.上海体育大学资产处产业办公室原业务主管、交流中心原总经理张成一接受可能影响公正执行公务的宴请、旅游活动安排，违规收受礼品礼金等问题。
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 17:10 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 17:23 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 17:28 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 17:06 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 17:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 17:07 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 17:10 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 17:32 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 17:32 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 17:27 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 17:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 17:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 17:34 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 17:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 17:16 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 17:37 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 17:12 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 17:26 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 17:26 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 17:24 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 17:28 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 17:14 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 17:35 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 17:30 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:18 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/21328024079.shtml)
-- 2026-06-29 17:16 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/268927.shtml)
-- 2026-06-29 17:23 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/30230121.shtml)
-- 2026-06-29 17:29 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/35472752790.shtml)
-- 2026-06-29 17:22 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/106175200.shtml)
-- 2026-06-29 17:27 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/244279320.shtml)
-- 2026-06-29 17:11 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/385486.shtml)
-- 2026-06-29 17:34 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/9403295.shtml)
-- 2026-06-29 17:23 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/298098858057.shtml)
-- 2026-06-29 17:16 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/570439587.shtml)
-- 2026-06-29 17:21 - [世界杯上那些封神的门将](https://www.share.kurohicncr.top/Article/details/9489763.shtml)
-- 2026-06-29 17:16 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/40208.shtml)
-- 2026-06-29 17:13 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/930509.shtml)
-- 2026-06-29 17:20 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/080092102.shtml)
-- 2026-06-29 17:23 - [普京介绍前线战事](https://www.blog.minike.top/Article/details/007354.shtml)
+- 2026-06-29 17:21 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/8541057.shtml)
+- 2026-06-29 17:37 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/95069389822.shtml)
+- 2026-06-29 17:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/28576587755.shtml)
+- 2026-06-29 17:14 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/01036.shtml)
+- 2026-06-29 17:34 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/344356.shtml)
+- 2026-06-29 17:16 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/52560528.shtml)
+- 2026-06-29 17:26 - [博主：AI泡沫必须破灭](http://www.blog.kurohicncr.top/Article/details/696133487.shtml)
+- 2026-06-29 17:36 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/48668874235.shtml)
+- 2026-06-29 17:18 - [绘画区你赢了](https://www.blog.minike.top/Article/details/559951.shtml)
+- 2026-06-29 17:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/82889135.shtml)
+- 2026-06-29 17:35 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/223278628068.shtml)
+- 2026-06-29 17:35 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/11523118.shtml)
+- 2026-06-29 17:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/5533632296.shtml)
+- 2026-06-29 17:32 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/52382.shtml)
+- 2026-06-29 17:40 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/76786481907.shtml)

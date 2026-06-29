@@ -1,56 +1,56 @@
-# 长江有色：18日铝价稳中有跌 节后关注成本支撑与出口窗口
+# 瑞银：药明康德维持“买入”评级 目标价上调至164港元
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 CCMN国际市场：今日伦铝震荡走弱，LME三个月北京时间15：09报于3399美元/吨，较上一交易日结算价跌25.5美元/吨，跌幅0.74%。 国内期货：今日沪铝主力月2607合约围绕均线反复上蹿下跳，尾盘强势拉涨；开盘价报23900元/吨，盘中最高23985元/吨，最低23820元/吨，昨日结算23890元/吨，尾盘收至23980元/吨，涨90元，涨幅0.38
+瑞银发布研报称，上调药明康德（02359）目标价6.4%，从154.1港元上调至164港元，维持“买入”评级。瑞银根据药明康德2026年第一季业绩对模型进行微调，上调收入和利润率预期，将2026-2028年每股盈利预测上调10-11%。 该行指，药明康德第一季收入增长28.8%至124亿元人民币，超出该行预期的112亿元及市场普遍预期的108亿元。持续经营业务收入表现强劲，同比
 
 ## 正文
 
-长江有色金属网 CCMN国际市场：今日伦铝震荡走弱，LME三个月北京时间15：09报于3399美元/吨，较上一交易日结算价跌25.5美元/吨，跌幅0.74%。
+瑞银发布研报称，上调药明康德（02359）目标价6.4%，从154.1港元上调至164港元，维持“买入”评级。
 
-国内期货：今日沪铝主力月2607合约围绕均线反复上蹿下跳，尾盘强势拉涨；开盘价报23900元/吨，盘中最高23985元/吨，最低23820元/吨，昨日结算23890元/吨，尾盘收至23980元/吨，涨90元，涨幅0.38%；沪铝主力月2607合约全天成交量120525手减少4972手，持仓量206338手减少12770手。
+瑞银根据药明康德2026年第一季业绩对模型进行微调，上调收入和利润率预期，将2026-2028年每股盈利预测上调10-11%。
 
-CCMN现货市场评述：今日长江现货成交价格23850-23890元/吨，持平，贴水70-贴水30，涨10元；广东现货23795-23845元/吨，跌20元，贴水120-贴水70，跌5元；上海地区23840-23880元/吨，持平，贴水80-贴水40，涨10元。
+该行指，药明康德第一季收入增长28.8%至124亿元人民币，超出该行预期的112亿元及市场普遍预期的108亿元。
 
-宏观鹰派压制与产业韧性博弈：铝价节前承压，节后关注成本支撑与出口窗口 宏观层面，全球货币政策正经历深刻分化，市场情绪趋于谨慎。
+持续经营业务收入表现强劲，同比增39.4%。
 
-美联储新任主席沃什在6月17日FOMC会议后首秀，展现出鲜明的抗通胀决心。
+经调整净利润同比增71.6%至46亿元。
 
-尽管面临外部压力，会议仍维持3.50%-3.75%利率不变，但点阵图大幅转向鹰派，9名官员预计年内至少加息一次，与3月预期形成鲜明反差。
+利润率方面，经调整毛利率年增8.5个百分点至50.4%，经调整净利率同比增9.2个百分点至37%。
 
-沃什宣布启动全面政策审查，并暗示可能减少例行新闻发布会，转向更灵活的沟通策略。
+该公司重申其2026年全年业绩指引，持续经营业务同比增长18-22%；总收入513-530亿元，同比增12.9-16.6%；资本开支65-75亿元人民币，管理层对实现这些目标充满信心，并积极寻求机会上调业绩。
 
-地缘方面，美伊签署临时停火协议，霍尔木兹海峡有望重开，中东局势缓和预期升温，能源成本溢价逐步回落。
+旗下平台TIDES业务2026年收入增长预期上调至约40%（先前预期为30%以上），与该行预期一致。
 
 ## 相关推荐
 
-- 2026-06-29 17:20 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 17:11 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 17:15 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 17:31 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 17:32 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 17:30 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 17:22 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 17:19 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 17:30 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 17:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 17:34 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 17:29 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 17:28 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 17:25 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 17:21 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 17:13 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 17:22 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 17:29 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 17:12 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 17:38 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:35 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/30186.shtml)
-- 2026-06-29 17:09 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/322122.shtml)
-- 2026-06-29 17:15 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/297137.shtml)
-- 2026-06-29 17:34 - [恋与深空 731](http://www.share.minike.top/Article/details/74684292.shtml)
-- 2026-06-29 17:22 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/42752.shtml)
-- 2026-06-29 17:11 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/7767621.shtml)
-- 2026-06-29 17:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/42512397.shtml)
-- 2026-06-29 17:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/6924693.shtml)
-- 2026-06-29 17:09 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/68755.shtml)
-- 2026-06-29 17:31 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/395473.shtml)
-- 2026-06-29 17:25 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/4514579837.shtml)
-- 2026-06-29 17:29 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/28994740.shtml)
-- 2026-06-29 17:26 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/268868214.shtml)
-- 2026-06-29 17:12 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/6091823.shtml)
-- 2026-06-29 17:23 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/30651332003.shtml)
+- 2026-06-29 17:19 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.minike.top/Article/details/39536.shtml)
+- 2026-06-29 17:39 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/32860320947.shtml)
+- 2026-06-29 17:13 - [花万元相亲对象是50元雇的演员](http://www.share.minike.top/Article/details/846836.shtml)
+- 2026-06-29 17:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/6169469940.shtml)
+- 2026-06-29 17:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/86667.shtml)
+- 2026-06-29 17:36 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/950751065.shtml)
+- 2026-06-29 17:38 - [男孩复读一年减重20斤涨分111分](http://www.blog.kurohicncr.top/Article/details/52269006.shtml)
+- 2026-06-29 17:27 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/99740595.shtml)
+- 2026-06-29 17:28 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/312608115463.shtml)
+- 2026-06-29 17:33 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/941652.shtml)
+- 2026-06-29 17:20 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/747970968008.shtml)
+- 2026-06-29 17:25 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/52635235.shtml)
+- 2026-06-29 17:29 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/80601392.shtml)
+- 2026-06-29 17:27 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/575750632730.shtml)
+- 2026-06-29 17:25 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/19146557.shtml)

@@ -1,55 +1,46 @@
-# 【编辑推荐】2026年以来大宗商品需求如何定性？
+# 植田和男：通胀预期上调后 仍有政策制定者认为价格存在上行风险
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-紫金天风期货研究所 2026年以来，商品交易主题风云变换，春节前以铜、黄金、碳酸锂为代表的金属走出一波“以新世界为核心”的强势上涨行情。春节后美伊战争爆发，霍尔木兹海峡封锁，大量油品、化工无法运出，能化走出一波暴涨暴跌的高波行情。黑色板块房地产仍旧低迷，而山西煤矿爆炸点燃预期差；农产品板块炒作厄尔尼诺等等。 纵观2026年上半年，商品扰动均来自于宏大主题，美元回流、地缘、K型经
+日本央行行长植田和男周二在利率决定公布后的新闻发布会上表示，日本央行在今日会议上上调通胀预期后，仍有部分政策制定者认为物价存在上行风险。 植田和男表示，日本央行并非试图通过新数据来控制有关价格的讨论。责任编辑：江学思
 
 ## 正文
 
-紫金天风期货研究所 2026年以来，商品交易主题风云变换，春节前以铜、黄金、碳酸锂为代表的金属走出一波“以新世界为核心”的强势上涨行情。
+日本央行行长植田和男周二在利率决定公布后的新闻发布会上表示，日本央行在今日会议上上调通胀预期后，仍有部分政策制定者认为物价存在上行风险。
 
-春节后美伊战争爆发，霍尔木兹海峡封锁，大量油品、化工无法运出，能化走出一波暴涨暴跌的高波行情。
+植田和男表示，日本央行并非试图通过新数据来控制有关价格的讨论。
 
-黑色板块房地产仍旧低迷，而山西煤矿爆炸点燃预期差；农产品板块炒作厄尔尼诺等等。
-
-纵观2026年上半年，商品扰动均来自于宏大主题，美元回流、地缘、K型经济、新旧世界、天气等等，使得我们似乎无法用统一的定性来对待当前商品的需求。
-
-但在此刻做必要的统计和梳理，以便进行板块间的比对和参考。
-
-作者：肖兰兰 从业资格证号：F3042977 交易咨询证号：Z0013951 联系方式：xiaolanlan@zjtfqh.com 责任编辑：李铁民
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 17:25 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 17:19 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 17:19 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 17:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 17:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 17:16 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 17:06 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 17:21 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 17:07 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 17:31 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 17:13 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 17:14 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 17:10 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 17:41 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 17:32 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 17:41 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 17:34 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 17:32 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 17:20 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 17:34 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 17:12 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 17:31 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 17:24 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:20 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/05125.shtml)
-- 2026-06-29 17:28 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/491593.shtml)
-- 2026-06-29 17:16 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/565722904970.shtml)
-- 2026-06-29 17:07 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.kurohicncr.top/Article/details/08085029.shtml)
-- 2026-06-29 17:34 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/075023.shtml)
-- 2026-06-29 17:18 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/294765.shtml)
-- 2026-06-29 17:34 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/31153334456.shtml)
-- 2026-06-29 17:14 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/152737159.shtml)
-- 2026-06-29 17:06 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/327702957.shtml)
-- 2026-06-29 17:24 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/568837.shtml)
-- 2026-06-29 17:35 - [第一炉香](https://www.share.minike.top/Article/details/68052.shtml)
-- 2026-06-29 17:32 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/3166813594.shtml)
-- 2026-06-29 17:08 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.kurohicncr.top/Article/details/687114541.shtml)
-- 2026-06-29 17:07 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/6761901050.shtml)
-- 2026-06-29 17:30 - [世界杯上那些封神的门将](http://www.blog.minike.top/Article/details/394556864647.shtml)
+- 2026-06-29 17:39 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/12095641569.shtml)
+- 2026-06-29 17:34 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/03383357.shtml)
+- 2026-06-29 17:17 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/05678160.shtml)
+- 2026-06-29 17:20 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/27410.shtml)
+- 2026-06-29 17:12 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/4319972081.shtml)
+- 2026-06-29 17:27 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/79406870694.shtml)
+- 2026-06-29 17:34 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/06866248.shtml)
+- 2026-06-29 17:26 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/333550188.shtml)
+- 2026-06-29 17:34 - [美国大满贯首日国乒主力均取胜](http://www.share.minike.top/Article/details/453275.shtml)
+- 2026-06-29 17:36 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/08601.shtml)
+- 2026-06-29 17:25 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/3120276.shtml)
+- 2026-06-29 17:25 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/70342118271.shtml)
+- 2026-06-29 17:20 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/658538885.shtml)
+- 2026-06-29 17:28 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/147968850.shtml)
+- 2026-06-29 17:13 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/9117641.shtml)

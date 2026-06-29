@@ -1,52 +1,52 @@
-# 特朗普：如果伊朗不达成协议，美国将“重新启动这一进程”
+# 湖南岳阳通报“一中学生在校期间饮水杯被同学投放异物”
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普周三表示，如果伊朗不同意达成解决核问题的最终协议，美国将不得不“重新启动这一进程”。 在法国举行的七国集团（G7）峰会期间，当被问及达成协议的前景时，特朗普表示：“我认为他们会这么做。如果他们不这么做，那也没关系。我们将不得不重新开始这一进程，而我们不会因此受到损失。” 特朗普周三稍早表示，与伊朗达成的临时协议并非最终协议，如果他不满意该协议，或者德黑兰方面不“老
+中新网4月28日电 据“岳阳发布”微信公众号消息，岳阳市教育体育局4月28日发布情况通报称，4月27日，有网民在抖音平台发布视频，反映岳阳市洞庭高级中学一学生在校期间饮水杯被同学投放异物。 经调查，该校高三学生阮某某于4月26日下午将“槟榔伴侣”(俗称桂子油)液体滴入同桌李某某的饮水杯中，李某某饮水后发觉异常并报告。学校第一时间安排李某某前往医院检查，并配合我局及属地派出所开展
 
 ## 正文
 
-美国总统特朗普周三表示，如果伊朗不同意达成解决核问题的最终协议，美国将不得不“重新启动这一进程”。
+中新网4月28日电 据“岳阳发布”微信公众号消息，岳阳市教育体育局4月28日发布情况通报称，4月27日，有网民在抖音平台发布视频，反映岳阳市洞庭高级中学一学生在校期间饮水杯被同学投放异物。
 
-在法国举行的七国集团（G7）峰会期间，当被问及达成协议的前景时，特朗普表示：“我认为他们会这么做。
+经调查，该校高三学生阮某某于4月26日下午将“槟榔伴侣”(俗称桂子油)液体滴入同桌李某某的饮水杯中，李某某饮水后发觉异常并报告。
 
-如果他们不这么做，那也没关系。
+学校第一时间安排李某某前往医院检查，并配合我局及属地派出所开展调查核实。
 
-我们将不得不重新开始这一进程，而我们不会因此受到损失。
+目前李某某身体状况平稳、无异常表现，遵医嘱留院观察。
 
-” 特朗普周三稍早表示，与伊朗达成的临时协议并非最终协议，如果他不满意该协议，或者德黑兰方面不“老实”，他可以重启轰炸行动。
+学校已对阮某某进行批评教育，阮某某家长已主动承担全部医疗费用并诚恳致歉，双方现已达成和解。
 
-责任编辑：李桐
+该局将督促该校开展风险物品排查清理，完善突发事件应急预案，提升在校师生安全防范意识，防止类似事件再次发生。
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 17:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-29 17:22 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 17:20 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 17:20 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 17:09 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 17:33 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 17:33 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 17:34 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 17:30 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 17:41 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 17:18 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 17:40 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 17:29 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 17:18 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 17:31 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 17:35 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 17:35 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 17:21 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 17:28 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:25 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/466533784.shtml)
-- 2026-06-29 17:07 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/34126539.shtml)
-- 2026-06-29 17:26 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/770559150.shtml)
-- 2026-06-29 17:34 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/75522609.shtml)
-- 2026-06-29 17:10 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/15547.shtml)
-- 2026-06-29 17:20 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/2495326.shtml)
-- 2026-06-29 17:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/187403945.shtml)
-- 2026-06-29 17:07 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/0520549.shtml)
-- 2026-06-29 17:10 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/3417063.shtml)
-- 2026-06-29 17:13 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/22345.shtml)
-- 2026-06-29 17:13 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/802406.shtml)
-- 2026-06-29 17:09 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/9257960.shtml)
-- 2026-06-29 17:27 - [青春环游记第三季](http://www.share.minike.top/Article/details/169712253.shtml)
-- 2026-06-29 17:16 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/13122.shtml)
-- 2026-06-29 17:07 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/60975.shtml)
+- 2026-06-29 17:30 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/7816387027.shtml)
+- 2026-06-29 17:28 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/6308181.shtml)
+- 2026-06-29 17:19 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/7094933731.shtml)
+- 2026-06-29 17:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/520402393.shtml)
+- 2026-06-29 17:31 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/188927.shtml)
+- 2026-06-29 17:13 - [当地回应林区违规放羊遭豹啃食](http://www.blog.minike.top/Article/details/68116.shtml)
+- 2026-06-29 17:24 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/2026094652.shtml)
+- 2026-06-29 17:17 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/778698.shtml)
+- 2026-06-29 17:38 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/863152470.shtml)
+- 2026-06-29 17:19 - [斗破苍穹](https://www.share.minike.top/Article/details/55283981.shtml)
+- 2026-06-29 17:17 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.kurohicncr.top/Article/details/573273988.shtml)
+- 2026-06-29 17:21 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/41719920658.shtml)
+- 2026-06-29 17:26 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/944662.shtml)
+- 2026-06-29 17:29 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/85031076081.shtml)
+- 2026-06-29 17:35 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/87463540.shtml)

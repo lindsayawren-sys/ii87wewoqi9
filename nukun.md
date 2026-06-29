@@ -1,61 +1,58 @@
-# 宝马下调业绩预期，欧洲汽车板块股价集体下挫
+# 报道：谷歌员工敦促Pichai阻止美国军方使用其人工智能技术
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 BMWYY>宝马下调多项核心财务指标的全年业绩指引 受宝马下调业绩预期拖累，欧洲汽车类股周三全线走低。宝马股价大跌 6.80%，下调预期主要源于中国市场行情恶化，叠加中东冲突带来的连锁负面影响。 这家德国车企在周二收盘后发布声明称，中国汽车市场第二季度表现持续走弱，行业竞争白热化，市场压力蔓延至整个亚太区域。亚太地区销量下滑，抵消了公司在欧
+英国《金融时报》报道，超过560名谷歌员工已联名致信首席执行官Sundar Pichai，敦促他拒绝让美国政府将谷歌人工智能技术用于机密军事行动。 信中写道：“我们希望看到人工智能造福人类，而不是被用于不人道或极其有害的用途。这其中包括但不限于致命性自主武器和大规模监控。” 两名参与者表示，这封致Pichai的信由谷歌人工智能实验室DeepMind的员工协调发起。签署者中有五分
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 BMWYY>宝马下调多项核心财务指标的全年业绩指引 受宝马下调业绩预期拖累，欧洲汽车类股周三全线走低。
+英国《金融时报》报道，超过560名谷歌员工已联名致信首席执行官Sundar Pichai，敦促他拒绝让美国政府将谷歌人工智能技术用于机密军事行动。
 
-宝马股价大跌 6.80%，下调预期主要源于中国市场行情恶化，叠加中东冲突带来的连锁负面影响。
+信中写道：“我们希望看到人工智能造福人类，而不是被用于不人道或极其有害的用途。
 
-这家德国车企在周二收盘后发布声明称，中国汽车市场第二季度表现持续走弱，行业竞争白热化，市场压力蔓延至整个亚太区域。
+这其中包括但不限于致命性自主武器和大规模监控。
 
-亚太地区销量下滑，抵消了公司在欧美市场的销量增长。
+” 两名参与者表示，这封致Pichai的信由谷歌人工智能实验室DeepMind的员工协调发起。
 
-与此同时，中东冲突对宝马经营造成的冲击超出此前预期。
+签署者中有五分之二来自人工智能部门，云业务部门占比相近，其余则来自Alphabet的其他团队。
 
-能源价格居高不下持续推高企业生产成本，地缘政治与宏观经济的不确定性也打击了全球各地消费者的购车意愿。
+包括总监和副总裁在内的超过18名高级员工签署了这封信。
 
-受多重因素影响，宝马下调多项核心财务指标的全年业绩指引：汽车业务息税前利润率预期从此前的 4%–6% 下调至 1%–3%；汽车业务投入资本回报率由 6%–10% 下调至 1%–5%；集团税前净利润从此前预期的小幅下滑，修正为大概率大幅下跌。
-
-伯恩斯坦投行分析师在研报中评价：“此次业绩不及预期对宝马而言十分罕见。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 17:30 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 17:25 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 17:24 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 17:30 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 17:15 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 17:16 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 17:09 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 17:12 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 17:27 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 17:28 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 17:07 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 17:27 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 17:33 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 17:15 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 17:27 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 17:31 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 17:17 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 17:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 17:22 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 17:13 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 17:18 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 17:33 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 17:24 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 17:21 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 17:38 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 17:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 17:36 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 17:25 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 17:26 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/67606.shtml)
-- 2026-06-29 17:25 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/460498.shtml)
-- 2026-06-29 17:08 - [乔家的儿女](http://www.share.minike.top/Article/details/850027783341.shtml)
-- 2026-06-29 17:26 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/161987172282.shtml)
-- 2026-06-29 17:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/1261615663.shtml)
-- 2026-06-29 17:09 - [天道](http://www.blog.minike.top/Article/details/106481384.shtml)
-- 2026-06-29 17:20 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/934391242455.shtml)
-- 2026-06-29 17:14 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/644731428.shtml)
-- 2026-06-29 17:34 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/49176.shtml)
-- 2026-06-29 17:11 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/6602270874.shtml)
-- 2026-06-29 17:10 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/0990160614.shtml)
-- 2026-06-29 17:14 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/21846834882.shtml)
-- 2026-06-29 17:27 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/8300566085.shtml)
-- 2026-06-29 17:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/4445933674.shtml)
-- 2026-06-29 17:12 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/3883859.shtml)
+- 2026-06-29 17:23 - [新能源车能当外接空调用吗](http://www.share.minike.top/Article/details/313793.shtml)
+- 2026-06-29 17:41 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/628616016.shtml)
+- 2026-06-29 17:32 - [恋与深空发放补偿未得到玩家认可](https://www.share.minike.top/Article/details/536466.shtml)
+- 2026-06-29 17:20 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/126063.shtml)
+- 2026-06-29 17:16 - [叠纸](https://www.share.kurohicncr.top/Article/details/2845423660.shtml)
+- 2026-06-29 17:23 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/761922271.shtml)
+- 2026-06-29 17:31 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/771983.shtml)
+- 2026-06-29 17:39 - [起风了](http://www.share.minike.top/Article/details/0030331815.shtml)
+- 2026-06-29 17:15 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.kurohicncr.top/Article/details/585499669.shtml)
+- 2026-06-29 17:40 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/92124401397.shtml)
+- 2026-06-29 17:14 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/41325.shtml)
+- 2026-06-29 17:36 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/3131537.shtml)
+- 2026-06-29 17:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/37515137188.shtml)
+- 2026-06-29 17:25 - [断骨增高灰产拉一人提成1.5万元](http://www.share.kurohicncr.top/Article/details/5506767895.shtml)
+- 2026-06-29 17:41 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/08360.shtml)

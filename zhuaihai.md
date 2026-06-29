@@ -1,57 +1,57 @@
-# 小作文突袭！财通基金和金梓才刚“封神”，就被盯上了
+# 海关总署：将大力支持保税维修等新业态发展
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-来源：南财社 人怕出名猪怕壮。基金圈刚“封神”的财通基金和金梓才，就被小作文给盯上了。 今天证监会主席吴清重磅发言后，A股科技股暴力拉升，尤其是科创50，更是从涨幅不到1%暴力拉升到4.69%！ 而在科技股大涨的狂潮中，却出现一个小插曲。 今天上午，有截图流传称，财通基金被突击检查，手机、电脑都被收走，并涉及PCB板块个股。 但下午开盘后，就有知情人士对每日经济新闻辟谣，传闻纯
+中新社北京4月27日电 (记者 尹倩芸)中国海关总署自贸区和特殊区域发展司司长潘城27日在北京表示，将大力支持保税维修等新业态发展，将综合保税区打造成优质产业集聚的重要平台。 近日，国务院办公厅转发海关总署《关于促进综合保税区扩能提质的若干措施》(下称《若干措施》)，其中提出要促进保税维修发展。潘城在当日召开的新闻发布会上介绍，2025年，全国综合保税区内企业实现维修进出口值3
 
 ## 正文
 
-来源：南财社 人怕出名猪怕壮。
+中新社北京4月27日电 (记者 尹倩芸)中国海关总署自贸区和特殊区域发展司司长潘城27日在北京表示，将大力支持保税维修等新业态发展，将综合保税区打造成优质产业集聚的重要平台。
 
-基金圈刚“封神”的财通基金和金梓才，就被小作文给盯上了。
+近日，国务院办公厅转发海关总署《关于促进综合保税区扩能提质的若干措施》(下称《若干措施》)，其中提出要促进保税维修发展。
 
-今天证监会主席吴清重磅发言后，A股科技股暴力拉升，尤其是科创50，更是从涨幅不到1%暴力拉升到4.69%！
+潘城在当日召开的新闻发布会上介绍，2025年，全国综合保税区内企业实现维修进出口值3757.3亿元人民币，同比增长3.2%。
 
-而在科技股大涨的狂潮中，却出现一个小插曲。
+潘城表示，此次出台的《若干措施》在总结前期经验的基础上，聚焦企业反映强烈的诉求，进一步优化相关措施，助力保税维修发展。
 
-今天上午，有截图流传称，财通基金被突击检查，手机、电脑都被收走，并涉及PCB板块个股。
+主要从以下三方面着手： 一是拓展范围。
 
-但下午开盘后，就有知情人士对每日经济新闻辟谣，传闻纯属谣言。
+探索实施保税维修产品负面清单管理，进一步扩大保税维修产品范围，满足企业发展需求。
 
-要知道，就在今天的陆家嘴金融论坛上，证监会主席吴清才强调，“严查严处借科技之名蹭热点、炒概念甚至操纵市场，内幕交易等违法违规行为”。
+二是拓宽流向。
 
-话音刚落，就有人顶风作案？
+允许保税维修成品继续在区内开展生产加工后离境出口，分步推进保税维修成品转内销，进一步拓宽维修后成品的流向，延长产业链提升价值链。
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 17:31 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 17:09 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 17:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 17:28 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 17:13 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 17:31 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 17:23 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 17:31 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 17:28 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 17:21 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 17:26 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 17:40 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 17:18 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 17:14 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 17:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 17:15 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 17:23 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 17:26 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 17:19 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 17:30 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 17:28 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:27 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/18041851.shtml)
-- 2026-06-29 17:20 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/011613155899.shtml)
-- 2026-06-29 17:09 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/815801312.shtml)
-- 2026-06-29 17:18 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/1950028670.shtml)
-- 2026-06-29 17:27 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/33320985395.shtml)
-- 2026-06-29 17:24 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/78183227.shtml)
-- 2026-06-29 17:18 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/30950856205.shtml)
-- 2026-06-29 17:22 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/35149532.shtml)
-- 2026-06-29 17:14 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/74160266.shtml)
-- 2026-06-29 17:21 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/4999242477.shtml)
-- 2026-06-29 17:23 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/02053.shtml)
-- 2026-06-29 17:35 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/41814546296.shtml)
-- 2026-06-29 17:33 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/894048.shtml)
-- 2026-06-29 17:07 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/1629249.shtml)
-- 2026-06-29 17:29 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/397137445.shtml)
+- 2026-06-29 17:30 - [滾石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/88436584306.shtml)
+- 2026-06-29 17:32 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/225682641539.shtml)
+- 2026-06-29 17:12 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/51134371.shtml)
+- 2026-06-29 17:30 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/686087174081.shtml)
+- 2026-06-29 17:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/3147310957.shtml)
+- 2026-06-29 17:31 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/17119444780.shtml)
+- 2026-06-29 17:15 - [互助版模拟高考志愿填报](https://www.share.kurohicncr.top/Article/details/166136363152.shtml)
+- 2026-06-29 17:13 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.minike.top/Article/details/8497051.shtml)
+- 2026-06-29 17:13 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/4713963.shtml)
+- 2026-06-29 17:29 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/28345287.shtml)
+- 2026-06-29 17:18 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/177343.shtml)
+- 2026-06-29 17:27 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/34264.shtml)
+- 2026-06-29 17:37 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/467978956.shtml)
+- 2026-06-29 17:41 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/22636250265.shtml)
+- 2026-06-29 17:38 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/9174522159.shtml)

@@ -1,61 +1,57 @@
-# AI催生生物医学科研危机？顶尖科学家差点被AI假文献蒙骗
+# 酒价内参4月28日价格发布：洋河梦之蓝M6+下跌2元
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-每经记者｜林姿辰 2026年5月，《柳叶刀》刊发的一篇“AI(人工智能)引文造假”文章(correspondence，通讯稿件)，在中国的医学科研圈火了。 基于对PubMed Central(美国国立医学图书馆旗下的免费生物医学全文档案库)收录的约250万篇生物医学论文开展的筛查，这篇文章指出，过去几年生物医学论文参考文献造假率涨幅超12倍。2023年每万篇论文约出现4条伪造参
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月28日整体温和走高。如果主要单品各取一瓶整体打包售卖，今日总售价为9988元，较昨日上涨17元，创下3月22日以来之最。在贵州茅台飞天酒和精品酒的引领下，市场延续高位运行，终端交投明显放量，但核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨五跌一平，涨跌结构较为均衡。上涨方面，古井贡
 
 ## 正文
 
-每经记者｜林姿辰 2026年5月，《柳叶刀》刊发的一篇“AI(人工智能)引文造假”文章(correspondence，通讯稿件)，在中国的医学科研圈火了。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月28日整体温和走高。
 
-基于对PubMed Central(美国国立医学图书馆旗下的免费生物医学全文档案库)收录的约250万篇生物医学论文开展的筛查，这篇文章指出，过去几年生物医学论文参考文献造假率涨幅超12倍。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9988元，较昨日上涨17元，创下3月22日以来之最。
 
-2023年每万篇论文约出现4条伪造参考文献，到2026年初达到每万篇56.9条。
+在贵州茅台飞天酒和精品酒的引领下，市场延续高位运行，终端交投明显放量，但核心单品涨跌分化依然显著。
 
-有意思的是，该项研究牵头人Maxim Topaz不仅是哥伦比亚大学护理学院副教授、医疗AI研究员，还是全球前2%顶尖科学家。
+今日白酒市场11大单品五涨五跌一平，涨跌结构较为均衡。
 
-但即便是这位常年和AI打交道的专家，也曾在评论写作中被一篇AI生成的虚假文献“唬”过。
+上涨方面，古井贡古20涨幅居前，上涨9元/瓶，收获四连涨并再创近一个月新高；精品茅台与青花郎均上涨5元/瓶，精品茅台实现三连阳，而青花郎重返700元关口；国窖1573上涨4元/瓶；飞天茅台小幅上涨3元/瓶。
 
-对此，人们能做什么？
+下跌方面，五粮液1618、洋河梦之蓝M6+、习酒君品及水晶剑南春均下跌2元/瓶；青花汾20小幅回落1元/瓶。
 
-《每日经济新闻》记者(以下简称NBD)就此专访了Maxim Topaz。
+五粮液普五八代的价格环比保持不变。
 
-虚假引文遍布各类文献 NBD：是什么契机或经历，让你开始关注生物医学论文中的引文造假问题？
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 17:26 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 17:21 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 17:19 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 17:19 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 17:32 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 17:34 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 17:32 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 17:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 17:28 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 17:14 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 17:24 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 17:13 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 17:07 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 17:33 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 17:32 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 17:33 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 17:35 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 17:34 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 17:27 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 17:17 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 17:39 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 17:32 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 17:38 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 17:29 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 17:33 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 17:21 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:22 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/6551001.shtml)
-- 2026-06-29 17:16 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/4475674970.shtml)
-- 2026-06-29 17:31 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/778957288468.shtml)
-- 2026-06-29 17:32 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/2603109.shtml)
-- 2026-06-29 17:12 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/073892842940.shtml)
-- 2026-06-29 17:16 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.kurohicncr.top/Article/details/15695849.shtml)
-- 2026-06-29 17:23 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/6971045510.shtml)
-- 2026-06-29 17:06 - [日本偶像龟梨和也宣布结婚](https://www.share.kurohicncr.top/Article/details/649173557691.shtml)
-- 2026-06-29 17:07 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/293553007398.shtml)
-- 2026-06-29 17:19 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/012263466.shtml)
-- 2026-06-29 17:10 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/28109525.shtml)
-- 2026-06-29 17:08 - [极限挑战第一季](https://www.blog.minike.top/Article/details/14071.shtml)
-- 2026-06-29 17:35 - [极限挑战第一季](http://www.blog.minike.top/Article/details/757419.shtml)
-- 2026-06-29 17:30 - [中国战机大片上新](http://www.blog.kurohicncr.top/Article/details/6832183.shtml)
-- 2026-06-29 17:23 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/0944793.shtml)
+- 2026-06-29 17:29 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/7137162.shtml)
+- 2026-06-29 17:30 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/0744105959.shtml)
+- 2026-06-29 17:20 - [未成年少女长期吸毒导致卧床不起](https://www.share.kurohicncr.top/Article/details/912329545457.shtml)
+- 2026-06-29 17:21 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/79336128817.shtml)
+- 2026-06-29 17:23 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/17703098678.shtml)
+- 2026-06-29 17:17 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/1270999195.shtml)
+- 2026-06-29 17:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/797232.shtml)
+- 2026-06-29 17:26 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/521675023.shtml)
+- 2026-06-29 17:25 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/91326738.shtml)
+- 2026-06-29 17:37 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/48557.shtml)
+- 2026-06-29 17:18 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/440268219150.shtml)
+- 2026-06-29 17:17 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/024705615593.shtml)
+- 2026-06-29 17:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/46531060.shtml)
+- 2026-06-29 17:23 - [业内：全球市场迎来结构性投资窗口](http://www.blog.kurohicncr.top/Article/details/623902427.shtml)
+- 2026-06-29 17:36 - [急先锋](http://www.share.minike.top/Article/details/30614669721.shtml)

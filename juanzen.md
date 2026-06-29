@@ -1,60 +1,56 @@
-# Babycare回应：送检纸尿裤均未检出甲酰胺
+# 德银：迅策目标价上调至351港元 维持“买入”评级
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-6月18日消息，近期，有消费者反映，使用部分品牌婴幼儿纸尿裤后，婴幼儿出现反复红臀乃至皮肤破溃，停用后症状明显缓解。 为核实投诉线索，《经济参考报》委托专业检测机构对市场上部分品牌婴幼儿纸尿裤开展抽样检测，结果在“好奇”“碧芭宝贝”“Babycare”等多个品牌的婴幼儿纸尿裤中，检出毒性物质——甲酰胺。 对此，Babycare回应称，公司第一时间成立专项小组启动内部核查工作。在
+德意志银行发布研报，维持对迅策（03317）的“买入”评级，并将目标价从85港元大幅上调至351港元。该行表示，随着智能体人工智能（Agentic AI）的快速发展和向“词元（Token）经济”模式的转型，迅策正迎来结构性重估机遇。 报告称，迅策在上月经历了一次显著的价值重估，核心来自两大驱动力：一是智能体AI的快速发展，带动公司优质数据的需求激增；二是公司向Token‌ 经济
 
 ## 正文
 
-6月18日消息，近期，有消费者反映，使用部分品牌婴幼儿纸尿裤后，婴幼儿出现反复红臀乃至皮肤破溃，停用后症状明显缓解。
+德意志银行发布研报，维持对迅策（03317）的“买入”评级，并将目标价从85港元大幅上调至351港元。
 
-为核实投诉线索，《经济参考报》委托专业检测机构对市场上部分品牌婴幼儿纸尿裤开展抽样检测，结果在“好奇”“碧芭宝贝”“Babycare”等多个品牌的婴幼儿纸尿裤中，检出毒性物质——甲酰胺。
+该行表示，随着智能体人工智能（Agentic AI）的快速发展和向“词元（Token）经济”模式的转型，迅策正迎来结构性重估机遇。
 
-对此，Babycare回应称，公司第一时间成立专项小组启动内部核查工作。
+报告称，迅策在上月经历了一次显著的价值重估，核心来自两大驱动力：一是智能体AI的快速发展，带动公司优质数据的需求激增；二是公司向Token‌ 经济模式转型，使其增长与强劲的Token消费直接挂钩。
 
-在售纸尿裤产品，均严格遵循现行国家标准，截至目前，未收到任何市场监管部门关于抽检不合格的正式通知或反馈。
+但不同于通用大模型提供基础Token，迅策依托垂直领域数据能力，为企业打造高精度、可用于决策的Token，这种垂直的Token即服务（TaaS） 模式使迅策能够捕获稀缺性溢价，并随客户工作流程非线性地扩展。
 
-此外，公司始终将产品安全置于首位，严禁添加任何有害物质，并已建立全链路管控体系。
+与此同时，智能体AI的兴起使Token消耗呈几何级增长，迅策在生态中扮演“数据燃料供应商”和“计费中心”的双重角色，其价值体现在合规保障、实时数据供给和Token计量结算能力上。
 
-前期已主动依据欧盟 REACH法规中的 SVHC（ 高关注物质 ）要求，对纸尿裤进行检测，甲酰胺项目检测结果均为“未检出”。
-
-Babycare表示，针对报道中提及的检测结果及方法，因国内尚无明确统一标准，公司已主动联系《经济参考报》，希望对方提供样品来源、检测方法及依据，以便进一步核实。
-
-同时也已委托多家第三方权威检测机构，对全系列纸尿裤开展独立抽检，并全程进行公证，检测过程及结果接受社会各界公开监督。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:21 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 17:07 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 17:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 17:25 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 17:11 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 17:08 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 17:33 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 17:35 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 17:30 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 17:23 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 17:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 17:20 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 17:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 17:18 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 17:29 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 17:13 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 17:33 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 17:31 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 17:40 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 17:18 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 17:25 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 17:17 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 17:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 17:34 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 17:40 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 17:29 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 17:24 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 17:26 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:31 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/036785202.shtml)
-- 2026-06-29 17:34 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/37799472.shtml)
-- 2026-06-29 17:10 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/779346.shtml)
-- 2026-06-29 17:18 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/9190975969.shtml)
-- 2026-06-29 17:15 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/898709559170.shtml)
-- 2026-06-29 17:18 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/281914828159.shtml)
-- 2026-06-29 17:34 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/7212531861.shtml)
-- 2026-06-29 17:24 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/5699054788.shtml)
-- 2026-06-29 17:32 - [抓特务票房破亿](https://www.blog.kurohicncr.top/Article/details/41688804863.shtml)
-- 2026-06-29 17:16 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/47542326.shtml)
-- 2026-06-29 17:31 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/30710867976.shtml)
-- 2026-06-29 17:25 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/554616.shtml)
-- 2026-06-29 17:21 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/95648375.shtml)
-- 2026-06-29 17:10 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/78561546795.shtml)
-- 2026-06-29 17:17 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/763026521.shtml)
+- 2026-06-29 17:31 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/218288423.shtml)
+- 2026-06-29 17:34 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/19047563309.shtml)
+- 2026-06-29 17:20 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/962835941795.shtml)
+- 2026-06-29 17:37 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/04625.shtml)
+- 2026-06-29 17:26 - [机器人学校开学了](http://www.share.kurohicncr.top/Article/details/141111194.shtml)
+- 2026-06-29 17:30 - [一生一世](https://www.share.kurohicncr.top/Article/details/6518605507.shtml)
+- 2026-06-29 17:36 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/64809.shtml)
+- 2026-06-29 17:20 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.minike.top/Article/details/210653.shtml)
+- 2026-06-29 17:18 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/97628065726.shtml)
+- 2026-06-29 17:14 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/97474491086.shtml)
+- 2026-06-29 17:32 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/035416120076.shtml)
+- 2026-06-29 17:34 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/6469906440.shtml)
+- 2026-06-29 17:12 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/4267289.shtml)
+- 2026-06-29 17:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/2274694002.shtml)
+- 2026-06-29 17:20 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/4923787.shtml)

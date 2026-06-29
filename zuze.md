@@ -1,45 +1,59 @@
-# 崇德科技：截至2026年6月10日公司股东总户数为8400多户
+# 云南迪庆纳帕海国际重要湿地新增3种鸟类新记录
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月18日，崇德科技在互动平台回答投资者提问时表示，截至2026年6月10日，公司股东总户数为8400多户。（文章来源：证券日报）
+中新网迪庆4月28日电 (赵旭燕)西南林业大学研究生汪山贵近日在迪庆藏族自治州纳帕海国际重要湿地开展鸟类监测工作时，拍摄到3种疑似纳帕海鸟类新记录的照片。28日，经西南林业大学副教授刘强鉴定并查阅相关资料，确认照片中的鸟类分别是长尾雀、灰腹绣眼鸟、暗绿绣眼鸟，3种均为纳帕海鸟类新记录。 长尾雀，是雀形目燕雀科朱雀属的鸟类。体长16–18厘米，是尾羽极长的中型雀类。繁殖期雄鸟头、
 
 ## 正文
 
-证券日报网讯 6月18日，崇德科技在互动平台回答投资者提问时表示，截至2026年6月10日，公司股东总户数为8400多户。
+中新网迪庆4月28日电 (赵旭燕)西南林业大学研究生汪山贵近日在迪庆藏族自治州纳帕海国际重要湿地开展鸟类监测工作时，拍摄到3种疑似纳帕海鸟类新记录的照片。
 
-（文章来源：证券日报）
+28日，经西南林业大学副教授刘强鉴定并查阅相关资料，确认照片中的鸟类分别是长尾雀、灰腹绣眼鸟、暗绿绣眼鸟，3种均为纳帕海鸟类新记录。
+
+长尾雀，是雀形目燕雀科朱雀属的鸟类。
+
+体长16–18厘米，是尾羽极长的中型雀类。
+
+繁殖期雄鸟头、胸及腰呈玫瑰红至粉绯色，具黑褐色纵纹；雌鸟与幼鸟羽色较暗，以灰褐为基调。
+
+食性以植物种子、浆果及少量昆虫为主。
+
+分布于西伯利亚至中国东北、华北、朝鲜半岛及日本，冬季多迁往低地。
+
+灰腹绣眼鸟，是雀形目绣眼鸟科绣眼鸟属的鸟类。
 
 ## 相关推荐
 
-- 2026-06-29 17:29 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 17:09 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 17:17 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 17:15 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 17:25 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 17:22 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 17:33 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 17:32 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 17:12 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 17:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 17:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 17:33 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 17:33 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 17:17 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 17:15 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 17:39 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 17:28 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 17:23 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 17:36 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 17:33 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 17:29 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 17:19 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 17:28 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 17:33 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:22 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/23616796062.shtml)
-- 2026-06-29 17:10 - [舒行钢任湖南省交通运输厅厅长](https://www.share.kurohicncr.top/Article/details/09777238.shtml)
-- 2026-06-29 17:10 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/50641379.shtml)
-- 2026-06-29 17:34 - [天道](http://www.share.kurohicncr.top/Article/details/349176.shtml)
-- 2026-06-29 17:27 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/832124060563.shtml)
-- 2026-06-29 17:07 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/5822558.shtml)
-- 2026-06-29 17:29 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/358121820519.shtml)
-- 2026-06-29 17:20 - [扫黑风暴](https://www.share.minike.top/Article/details/679933634078.shtml)
-- 2026-06-29 17:10 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/302972857087.shtml)
-- 2026-06-29 17:21 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/866028861222.shtml)
-- 2026-06-29 17:35 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/1600255.shtml)
-- 2026-06-29 17:24 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.kurohicncr.top/Article/details/016508677113.shtml)
-- 2026-06-29 17:30 - [BB大王横店拍戏](http://www.blog.kurohicncr.top/Article/details/42314856923.shtml)
-- 2026-06-29 17:16 - [千与千寻](https://www.blog.minike.top/Article/details/562242028.shtml)
-- 2026-06-29 17:12 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/824676304130.shtml)
+- 2026-06-29 17:12 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/2082934269.shtml)
+- 2026-06-29 17:16 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/80560574.shtml)
+- 2026-06-29 17:14 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/45523.shtml)
+- 2026-06-29 17:36 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/78658688376.shtml)
+- 2026-06-29 17:26 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/914578200663.shtml)
+- 2026-06-29 17:19 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/53080886.shtml)
+- 2026-06-29 17:29 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/16591.shtml)
+- 2026-06-29 17:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/14178287.shtml)
+- 2026-06-29 17:38 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/2093621822.shtml)
+- 2026-06-29 17:16 - [专家建议城乡居民养老金增至每月千元](http://www.share.kurohicncr.top/Article/details/123317792454.shtml)
+- 2026-06-29 17:41 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/25374.shtml)
+- 2026-06-29 17:34 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/87968864247.shtml)
+- 2026-06-29 17:38 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.kurohicncr.top/Article/details/4186190.shtml)
+- 2026-06-29 17:38 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/57164191.shtml)
+- 2026-06-29 17:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/37996.shtml)

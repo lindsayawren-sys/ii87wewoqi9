@@ -1,61 +1,57 @@
-# 今夜！美联储，重磅来袭！
+# 阿联酋宣布自5月1日起退出欧佩克 退出后逐步上调石油产量
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-全球关注。 当地时间6月17日下午2点（北京时间18日凌晨2点），美联储联邦公开市场委员会（FOMC）将发布最新的议息结果，随后新任主席凯文·沃什（Kevin Warsh）将举行履职后的首次新闻发布会。 目前，市场普遍预期，美联储将继续维持基准利率不变。但美联储政策声明的措辞如何变化，新主席沃什是否会提交个人利率路径预期，以及他将在新闻发布会上如何解读通胀与利率前景，都将成为市
+阿联酋宣布，自5月1日起退出石油输出国组织（欧佩克）。阿联酋称此举是为适配不断变化的市场需求，但分析人士认为，这一决定将对欧佩克造成沉重打击。 这个海湾国家在声明中表示：“本次决定，是在全面评估本国石油生产政策、当前及未来产能后作出的，完全基于国家利益，同时也是为切实助力缓解当下紧迫的市场需求。” 声明还提到：“尽管短期之内，阿拉伯湾、霍尔木兹海峡等地局势动荡持续扰乱原油供应格
 
 ## 正文
 
-全球关注。
+阿联酋宣布，自5月1日起退出石油输出国组织（欧佩克）。
 
-当地时间6月17日下午2点（北京时间18日凌晨2点），美联储联邦公开市场委员会（FOMC）将发布最新的议息结果，随后新任主席凯文·沃什（Kevin Warsh）将举行履职后的首次新闻发布会。
+阿联酋称此举是为适配不断变化的市场需求，但分析人士认为，这一决定将对欧佩克造成沉重打击。
 
-目前，市场普遍预期，美联储将继续维持基准利率不变。
+这个海湾国家在声明中表示：“本次决定，是在全面评估本国石油生产政策、当前及未来产能后作出的，完全基于国家利益，同时也是为切实助力缓解当下紧迫的市场需求。
 
-但美联储政策声明的措辞如何变化，新主席沃什是否会提交个人利率路径预期，以及他将在新闻发布会上如何解读通胀与利率前景，都将成为市场关注的焦点。
+” 声明还提到：“尽管短期之内，阿拉伯湾、霍尔木兹海峡等地局势动荡持续扰乱原油供应格局，但中长期来看，全球能源需求整体将保持稳步增长。
 
-美联储大概率维持利率不变 当前美国通胀水平持续维持高位，而就业形势良好。
+” 阿联酋补充称，该国还将同步退出欧佩克+产油国联盟，并在退出后逐步上调石油产量。
 
-数据显示，美国5月CPI同比升至4.2%，创三年新高，中东地缘冲突推升能源价格，叠加关税政策持续传导，通胀距离2%长期目标仍存在显著差距；就业市场韧性超预期，当月新增非农就业17.2万人，近乎市场预期两倍，失业率维持4.3%低位，双重指标均不支撑降息操作。
-
-市场几乎完全定价本次会议维持3.5%—3.75%基准利率区间不变。
-
-芝加哥商品交易所（CME）美联储观察工具显示6月降息概率趋近于零，但年末加息概率达42%。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 17:24 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 17:08 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 17:12 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 17:25 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 17:11 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 17:32 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 17:30 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 17:13 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 17:22 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 17:10 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 17:12 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 17:19 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 17:25 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 17:09 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 17:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 17:28 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 17:38 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 17:23 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 17:24 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 17:17 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 17:39 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 17:15 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 17:15 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 17:41 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 17:12 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 17:34 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 17:35 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 17:14 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 17:21 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:32 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/409733862817.shtml)
-- 2026-06-29 17:15 - [世界杯上那些封神的门将](https://www.share.kurohicncr.top/Article/details/227817.shtml)
-- 2026-06-29 17:30 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/94620368.shtml)
-- 2026-06-29 17:12 - [叠纸客服回应恋与深空新角色争议](https://www.blog.kurohicncr.top/Article/details/159604717898.shtml)
-- 2026-06-29 17:14 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/354861898623.shtml)
-- 2026-06-29 17:13 - [沙丘](https://www.share.kurohicncr.top/Article/details/1759711020.shtml)
-- 2026-06-29 17:21 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/6885798.shtml)
-- 2026-06-29 17:26 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/219776014359.shtml)
-- 2026-06-29 17:07 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/482550786930.shtml)
-- 2026-06-29 17:20 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/1597535.shtml)
-- 2026-06-29 17:30 - [蔚来回应车漆洗车时被冲掉](https://www.share.minike.top/Article/details/652696.shtml)
-- 2026-06-29 17:35 - [流金岁月](https://www.share.minike.top/Article/details/94552507.shtml)
-- 2026-06-29 17:34 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/899503.shtml)
-- 2026-06-29 17:28 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/528590.shtml)
-- 2026-06-29 17:31 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/21272872642.shtml)
+- 2026-06-29 17:35 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/35253090.shtml)
+- 2026-06-29 17:33 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/4830182.shtml)
+- 2026-06-29 17:19 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/5412780.shtml)
+- 2026-06-29 17:32 - [青春环游记第三季](https://www.blog.minike.top/Article/details/95266144696.shtml)
+- 2026-06-29 17:31 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.minike.top/Article/details/21718.shtml)
+- 2026-06-29 17:29 - [媒体：中国田径压力与期待并存](https://www.blog.kurohicncr.top/Article/details/53910.shtml)
+- 2026-06-29 17:29 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/63306817.shtml)
+- 2026-06-29 17:31 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/80525.shtml)
+- 2026-06-29 17:30 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/557538.shtml)
+- 2026-06-29 17:40 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/730512848.shtml)
+- 2026-06-29 17:13 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.kurohicncr.top/Article/details/58647185121.shtml)
+- 2026-06-29 17:35 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/708561756.shtml)
+- 2026-06-29 17:25 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/56184659.shtml)
+- 2026-06-29 17:25 - [永远有话聊的原因](http://www.share.minike.top/Article/details/78576.shtml)
+- 2026-06-29 17:34 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/139334053187.shtml)

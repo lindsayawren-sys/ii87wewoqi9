@@ -1,60 +1,61 @@
-# 长存集团“放权”，光谷国资入主武汉新芯
+# 中央气象台：南方地区强降雨过程持续
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！在长江存储控股股份有限公司（下称“长存集团”）启动IPO辅导，其子公司武汉新芯集成电路股份有限公司（下称“武汉新芯股份”）终止IPO一个月后，两家公司的股权关系也迎来重大调整。 6月17日，重庆市市场监督管理局官网对武汉光谷半导体产业投资有限公司收购武汉新芯集成电路股份有限公司股权案进行经营者集中信息公示，
+中新网4月28日电 据中央气象台网站消息，昨日，广西广东湖南贵州等地部分地区出现强降雨，京津冀鲁和内蒙古等地出现大风。预计28至29日，江淮、江汉及江南、华南等地有强降雨和强对流天气，关注对交通、旅游和农业生产等的不利影响；西北地区多大风沙尘天气，关注对交通、人体健康等影响。 南方地区强降雨过程持续 28日至29日，江淮、江南、华南等地部分地区有大到暴雨，局地大暴雨，并伴有短时
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网4月28日电 据中央气象台网站消息，昨日，广西广东湖南贵州等地部分地区出现强降雨，京津冀鲁和内蒙古等地出现大风。
 
-在长江存储控股股份有限公司（下称“长存集团”）启动IPO辅导，其子公司武汉新芯集成电路股份有限公司（下称“武汉新芯股份”）终止IPO一个月后，两家公司的股权关系也迎来重大调整。
+预计28至29日，江淮、江汉及江南、华南等地有强降雨和强对流天气，关注对交通、旅游和农业生产等的不利影响；西北地区多大风沙尘天气，关注对交通、人体健康等影响。
 
-6月17日，重庆市市场监督管理局官网对武汉光谷半导体产业投资有限公司收购武汉新芯集成电路股份有限公司股权案进行经营者集中信息公示，公示时间截止到6月26日。
+南方地区强降雨过程持续 28日至29日，江淮、江南、华南等地部分地区有大到暴雨，局地大暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气。
 
-交易概况显示，武汉光谷半导体产投、光新启航、长存集团与武汉新芯股份签署协议，光谷半导体产投及通过其控制的光新启航拟收购长存集团持有的武汉新芯股份39%股权。
+预计，4月28日08时至29日08时，重庆中部、云南东部、江淮南部、江南中西部、华南中西部等地部分地区有大到暴雨，其中，安徽南部、江西北部、广西东北部、广东西北部等地部分地区有大暴雨(100～130毫米)。
 
-交易前，长存集团持有武汉新芯股份68.19%股权，单独控制武汉新芯股份。
+上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过60毫米)。
 
-交易后，光谷半导体产投及其一致行动人直接或间接控制武汉新芯股份47.8846%的股权，单独控制武汉新芯股份。
+华南中西部、西南地区南部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，广西东部和南部等地的部分地区将有10级以上雷暴大风，最大风力可达11级以上。
 
-公开信息显示，光谷半导体产投于2023年5月25日成立于湖北省武汉市，主要业务为半导体领域相关的投资活动。
+中央气象台4月28日06时继续发布暴雨黄色预警和强对流天气蓝色预警。
 
-企查查显示，光谷半导体产投由光谷金控100%持股，后者是武汉东湖高新区管委会直属国企。
+国内未来三天具体预报 4月28日08时至29日08时，新疆北部、青海西北部等地部分地区有小到中雨或雨夹雪。
 
 ## 相关推荐
 
-- 2026-06-29 17:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 17:25 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 17:26 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 17:19 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 17:30 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 17:11 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 17:36 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 17:34 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 17:33 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 17:30 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 17:21 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 17:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 17:29 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 17:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 17:34 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 17:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 17:24 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 17:20 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 17:35 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 17:39 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 17:13 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 17:31 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 17:32 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 17:20 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 17:33 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 17:25 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 17:33 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 17:16 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 17:20 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/45505220078.shtml)
-- 2026-06-29 17:18 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/0705110.shtml)
-- 2026-06-29 17:23 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/225215644756.shtml)
-- 2026-06-29 17:29 - [乔家的儿女](http://www.share.minike.top/Article/details/2537052.shtml)
-- 2026-06-29 17:24 - [范志毅看好日本淘汰巴西](http://www.blog.kurohicncr.top/Article/details/96153993213.shtml)
-- 2026-06-29 17:35 - [王曼昱被突如其来的话筒逗笑了](https://www.share.minike.top/Article/details/43652.shtml)
-- 2026-06-29 17:20 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/0659602.shtml)
-- 2026-06-29 17:21 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/144553567929.shtml)
-- 2026-06-29 17:25 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/925190069771.shtml)
-- 2026-06-29 17:29 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.kurohicncr.top/Article/details/817960285.shtml)
-- 2026-06-29 17:12 - [5万块的威力](https://www.blog.minike.top/Article/details/044818258.shtml)
-- 2026-06-29 17:07 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/36660939.shtml)
-- 2026-06-29 17:27 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/676971010.shtml)
-- 2026-06-29 17:30 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/04130211268.shtml)
-- 2026-06-29 17:16 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/3179291.shtml)
+- 2026-06-29 17:38 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/1122589.shtml)
+- 2026-06-29 17:13 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/030219.shtml)
+- 2026-06-29 17:29 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/2122295680.shtml)
+- 2026-06-29 17:25 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/55920016253.shtml)
+- 2026-06-29 17:15 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/36661.shtml)
+- 2026-06-29 17:17 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/651192565.shtml)
+- 2026-06-29 17:20 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/20469904.shtml)
+- 2026-06-29 17:29 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/5785128.shtml)
+- 2026-06-29 17:19 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/6903028.shtml)
+- 2026-06-29 17:39 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/624814.shtml)
+- 2026-06-29 17:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/492083586.shtml)
+- 2026-06-29 17:21 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/16204498.shtml)
+- 2026-06-29 17:34 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/207438974038.shtml)
+- 2026-06-29 17:17 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/879026778112.shtml)
+- 2026-06-29 17:14 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/7875579156.shtml)

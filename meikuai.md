@@ -1,59 +1,60 @@
-# 帮境外机构解决人民币流动性问题，央行出手了
+# 华尔街预计通用汽车一季度业绩稳健，福特与斯泰兰蒂斯力求业务回暖
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 唐婧 6月17日，央行行长潘功胜在2026陆家嘴论坛上宣布，将创设境外央行类机构回购工具。同日，央行发布公告，披露了该工具的操作框架。 潘功胜介绍，境外央行或货币当局、国际金融组织、主权财富基金，都可以用中国国债等高等级债券回购的方式，从中国人民银行获得人民币流动性，便利境外央行类机构的人民币流动性管理和人民币资产配置。 公告指出，该工具操作方式包括买断式
+专题：聚焦美股2026年第一季度财报 核心要点 受伊朗冲突影响，原油与大宗商品成本持续走高，美国头部三大车企即将在本周发布一季度财报，三家企业当下处境却截然不同。 通用汽车发展最为平稳，华尔街普遍看好其延续稳健表现； 福特汽车前路坎坷，首席执行官法利的转型计划遭遇波折、被迫调整战略；斯泰兰蒂斯则深陷艰难经营周期，不过旗下 Jeep 品牌、搭载赫米 V8 发动机的公羊皮卡，仍为公
 
 ## 正文
 
-21世纪经济报道记者 唐婧 6月17日，央行行长潘功胜在2026陆家嘴论坛上宣布，将创设境外央行类机构回购工具。
+专题：聚焦美股2026年第一季度财报 核心要点 受伊朗冲突影响，原油与大宗商品成本持续走高，美国头部三大车企即将在本周发布一季度财报，三家企业当下处境却截然不同。
 
-同日，央行发布公告，披露了该工具的操作框架。
+通用汽车发展最为平稳，华尔街普遍看好其延续稳健表现； 福特汽车前路坎坷，首席执行官法利的转型计划遭遇波折、被迫调整战略；斯泰兰蒂斯则深陷艰难经营周期，不过旗下 Jeep 品牌、搭载赫米 V8 发动机的公羊皮卡，仍为公司提供业绩支撑。
 
-潘功胜介绍，境外央行或货币当局、国际金融组织、主权财富基金，都可以用中国国债等高等级债券回购的方式，从中国人民银行获得人民币流动性，便利境外央行类机构的人民币流动性管理和人民币资产配置。
+行业大环境进一步放大了各家的经营压力：电动车业务普遍巨额亏损、消费者新车购买意愿降温、供应链紧张叠加伊朗地缘冲突，全面推高生产与原材料成本。
 
-公告指出，该工具操作方式包括买断式逆回购和质押式逆回购，操作期限涵盖7天、1个月、3个月，回购利率在公开市场7天期逆回购操作利率上加点确定。
+华尔街一季度业绩预期，直观反映出三者的差距： 路孚特数据显示，市场平均预测，通用一季度调整后每股收益可达 2.61 美元，领跑同城车企；福特预计仅为 0.19 美元。
 
-境外机构可使用中国国债、央行票据、政策性金融债等高等级人民币债券作为合格抵押品。
+斯泰兰蒂斯一季度分析师预估数据未达到 CNBC 可比统计标准，但其全年每股收益预期为 0.73 欧元（折合 0.85 美元）。
 
-换言之，境外央行类机构可凭合格抵押品从中国人民银行融入资金，从而有效便利其人民币流动性管理，增强持有人民币资产的信心。
+法国巴黎银行股权研究高级分析师、美国汽车行业研究主管詹姆斯・皮卡里耶洛表示： “一家优秀车企需要做到三件事：市场份额稳步微增、利润率扎实稳定、稳定利润转化为充沛自由现金流，最终回馈股东。
 
-‌远东资信研究院副院长张林告诉记者，境外机构持有人民币资产有时会面临短期流动性缺口，该工具有助于解决他们“变现渠道不畅”问题。
+通用汽车长期以来全部达标，且优势仍在延续。
 
-此举可以降低境外机构持有人民币资产的流动性风险溢价，从而增强人民币资产对全球配置机构的吸引力。
+” 金融数据机构富途赛特统计的综合分析师评级显示： 通用汽车评级为增持，目标价 94.71 美元；福特、斯泰兰蒂斯评级均为持有，目标价分别为 13.67 美元、9.09 美元。
 
 ## 相关推荐
 
-- 2026-06-29 17:13 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 17:13 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 17:09 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 17:31 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 17:11 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 17:31 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 17:17 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 17:15 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 17:28 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 17:23 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 17:34 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 17:11 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 17:09 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 17:12 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 17:16 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 17:41 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 17:25 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 17:35 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 17:20 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 17:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 17:27 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 17:15 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 17:39 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 17:36 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 17:17 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 17:40 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 17:27 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:24 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/32765163.shtml)
-- 2026-06-29 17:06 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/546153.shtml)
-- 2026-06-29 17:13 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/7886347052.shtml)
-- 2026-06-29 17:07 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/76057.shtml)
-- 2026-06-29 17:07 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/057213562361.shtml)
-- 2026-06-29 17:08 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/32266.shtml)
-- 2026-06-29 17:14 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/5808875.shtml)
-- 2026-06-29 17:20 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/219214.shtml)
-- 2026-06-29 17:10 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/69342.shtml)
-- 2026-06-29 17:29 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/625590878.shtml)
-- 2026-06-29 17:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/99277.shtml)
-- 2026-06-29 17:30 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/01402537.shtml)
-- 2026-06-29 17:17 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/04871317.shtml)
-- 2026-06-29 17:12 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/88081720.shtml)
-- 2026-06-29 17:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/72633.shtml)
+- 2026-06-29 17:35 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/54689.shtml)
+- 2026-06-29 17:16 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/4165031830.shtml)
+- 2026-06-29 17:16 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/60583644297.shtml)
+- 2026-06-29 17:15 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/75199427.shtml)
+- 2026-06-29 17:21 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/0344216773.shtml)
+- 2026-06-29 17:31 - [当地回应林区违规放羊遭豹啃食](http://www.share.kurohicncr.top/Article/details/6527926994.shtml)
+- 2026-06-29 17:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/6980534.shtml)
+- 2026-06-29 17:23 - [《贺子珍》](https://www.share.minike.top/Article/details/8497312.shtml)
+- 2026-06-29 17:28 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/541438500923.shtml)
+- 2026-06-29 17:18 - [谢依霖夸杨幂靠谱](https://www.blog.minike.top/Article/details/40212.shtml)
+- 2026-06-29 17:26 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/129862422.shtml)
+- 2026-06-29 17:40 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/20250144033.shtml)
+- 2026-06-29 17:33 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/7262394.shtml)
+- 2026-06-29 17:37 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/80316793073.shtml)
+- 2026-06-29 17:26 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/0070165441.shtml)

@@ -1,56 +1,49 @@
-# 澳洲监管机构拟对汇丰处以3500万澳元罚款 指其未尽责防范欺诈
+# 快讯：沪银大跌4% 现货白银失守73美元/盎司
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-澳大利亚证券和投资委员会（ASIC）发布声明称，汇丰承认在保护客户免受欺诈方面存在严重不足，导致客户蒙受损失。 ASIC将请求联邦法院认定汇丰违反法律，并处以3500万澳元罚款。 汇丰承认，2023年5月至2024年5月期间，该行未能对内部转账系统设置充分管控，并且在调查相关案件方面出现重大延误。 在ASIC调查之后，汇丰设立了大规模赔偿计划。 汇丰迄今已支付约2150万澳元的
+4月28日下午，上期所沪银主力合约跌超4%，报18038元/千克。现货白银失守73美元/盎司，日内跌3.35%。 责任编辑：朱赫楠
 
 ## 正文
 
-澳大利亚证券和投资委员会（ASIC）发布声明称，汇丰承认在保护客户免受欺诈方面存在严重不足，导致客户蒙受损失。
+4月28日下午，上期所沪银主力合约跌超4%，报18038元/千克。
 
-ASIC将请求联邦法院认定汇丰违反法律，并处以3500万澳元罚款。
+现货白银失守73美元/盎司，日内跌3.35%。
 
-汇丰承认，2023年5月至2024年5月期间，该行未能对内部转账系统设置充分管控，并且在调查相关案件方面出现重大延误。
-
-在ASIC调查之后，汇丰设立了大规模赔偿计划。
-
-汇丰迄今已支付约2150万澳元的赔偿金。
-
-责任编辑：于健 SF069
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-29 17:07 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 17:13 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 17:21 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 17:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 17:09 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 17:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 17:29 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 17:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 17:22 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 17:24 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 17:33 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 17:10 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 17:29 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 17:18 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 17:21 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 17:24 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 17:13 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 17:31 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 17:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 17:14 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 17:24 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 17:35 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 17:16 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 17:34 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 17:18 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 17:29 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 17:22 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:06 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/42310915496.shtml)
-- 2026-06-29 17:11 - [T1 KC](https://www.share.kurohicncr.top/Article/details/038762763321.shtml)
-- 2026-06-29 17:09 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/627244.shtml)
-- 2026-06-29 17:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/82226694531.shtml)
-- 2026-06-29 17:31 - [外交部谈对日出口管制措施](https://www.blog.kurohicncr.top/Article/details/39093926.shtml)
-- 2026-06-29 17:29 - [速度与激情9](https://www.blog.minike.top/Article/details/9313068.shtml)
-- 2026-06-29 17:11 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/14838073143.shtml)
-- 2026-06-29 17:21 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/5141469734.shtml)
-- 2026-06-29 17:17 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/8214566595.shtml)
-- 2026-06-29 17:32 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/675484117.shtml)
-- 2026-06-29 17:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/113522.shtml)
-- 2026-06-29 17:13 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/904300771.shtml)
-- 2026-06-29 17:28 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/1427883887.shtml)
-- 2026-06-29 17:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/8121180320.shtml)
-- 2026-06-29 17:23 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/389951747681.shtml)
+- 2026-06-29 17:41 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/733049.shtml)
+- 2026-06-29 17:42 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/9686835.shtml)
+- 2026-06-29 17:33 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/46350066.shtml)
+- 2026-06-29 17:27 - [恋与深空失控领地](https://www.blog.minike.top/Article/details/67252852062.shtml)
+- 2026-06-29 17:37 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/67324.shtml)
+- 2026-06-29 17:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/18669.shtml)
+- 2026-06-29 17:13 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/723455483.shtml)
+- 2026-06-29 17:27 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/00210815241.shtml)
+- 2026-06-29 17:37 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/1210243322.shtml)
+- 2026-06-29 17:15 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/6092184125.shtml)
+- 2026-06-29 17:29 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/601934197706.shtml)
+- 2026-06-29 17:30 - [恋与深空失控领地](http://www.share.minike.top/Article/details/9953948864.shtml)
+- 2026-06-29 17:31 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/02208915.shtml)
+- 2026-06-29 17:18 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.minike.top/Article/details/848206800.shtml)
+- 2026-06-29 17:12 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/24807.shtml)

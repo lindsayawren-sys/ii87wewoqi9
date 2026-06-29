@@ -1,57 +1,56 @@
-# 中国央行：今年熊猫债发行规模有望创新高
+# 中国国际贸易学会金旭：中国持续扩大对外开放，为企业来华投资兴业提供广阔空间
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新社北京6月18日电 (陶思阅)据中国央行18日消息，今年前5月，熊猫债发行1365亿元人民币，占去年总量的74%，全年发行规模有望创新高。 熊猫债是指外国政府、国际开发机构、大型跨国机构等境外主体在境内发行的人民币债券。随着更多市场主体愿意使用人民币，熊猫债发行热度显著上升。 熊猫债市场发展初期，出海中资企业和国际开发机构是主要发行主体。近年来，纯外方的国际主流机构成为重要
+专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。 中国国际贸易学会会长、中国驻英国大使馆原公使衔商务参赞金旭表示，中美作为全球最大的两个经济体，贸易合作不仅关乎两国经济发展，也影响着全球贸易格局。2025年双边贸易额保持在较高水平，这充分说明中美贸易的互补性和韧性。 他指出，中美双方应坚持自由贸易理念，贸
 
 ## 正文
 
-中新社北京6月18日电 (陶思阅)据中国央行18日消息，今年前5月，熊猫债发行1365亿元人民币，占去年总量的74%，全年发行规模有望创新高。
+专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。
 
-熊猫债是指外国政府、国际开发机构、大型跨国机构等境外主体在境内发行的人民币债券。
+中国国际贸易学会会长、中国驻英国大使馆原公使衔商务参赞金旭表示，中美作为全球最大的两个经济体，贸易合作不仅关乎两国经济发展，也影响着全球贸易格局。
 
-随着更多市场主体愿意使用人民币，熊猫债发行热度显著上升。
+2025年双边贸易额保持在较高水平，这充分说明中美贸易的互补性和韧性。
 
-熊猫债市场发展初期，出海中资企业和国际开发机构是主要发行主体。
+他指出，中美双方应坚持自由贸易理念，贸易合作应向更高质量、更宽领域发展，加强在服务贸易、数字贸易、绿色贸易等新兴领域的合作，挖掘合作新潜力。
 
-近年来，纯外方的国际主流机构成为重要发行力量。
+针对中美贸易合作的未来，金旭表示，“只要双方坚持互利共赢的原则，加强沟通，就一定能找到贸易合作的突破口，延续并深化双方的贸易合作。
 
-目前，发行主体覆盖波兰、葡萄牙、埃及、匈牙利等主权机构，亚洲开发银行、亚洲基础设施投资银行等国际开发机构，德意志银行、摩根士丹利、大华银行等国际大型金融机构，奔驰、拜耳等跨国企业。
+” 他还提到，中国持续扩大对外开放，不断优化营商环境，为美国企业来华投资兴业提供了广阔空间，希望美国企业抓住机遇，积极参与中国市场，实现互利共赢。
 
-数据显示，2026年一季度熊猫债累计成交1675亿元，同比增长93%，参与交易的机构大幅增加，市场活跃度明显提升。
+此外，金旭也呼吁中美双方在贸易合作中兼顾气候、环境等议题，推动贸易与气候合作协同发展。
 
-同时，熊猫债发展面临的风险总体可控。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
 ## 相关推荐
 
-- 2026-06-29 17:14 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 17:31 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 17:18 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 17:27 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 17:17 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 17:26 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 17:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 17:23 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 17:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 17:10 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 17:27 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 17:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 17:36 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 17:34 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 17:41 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 17:39 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 17:35 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 17:14 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 17:19 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 17:13 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 17:17 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:10 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/94948.shtml)
-- 2026-06-29 17:24 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/85740047669.shtml)
-- 2026-06-29 17:21 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.minike.top/Article/details/2916840.shtml)
-- 2026-06-29 17:22 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/99436.shtml)
-- 2026-06-29 17:20 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/65498439120.shtml)
-- 2026-06-29 17:32 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/924171683.shtml)
-- 2026-06-29 17:18 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/26529.shtml)
-- 2026-06-29 17:34 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/0620379.shtml)
-- 2026-06-29 17:06 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/685432.shtml)
-- 2026-06-29 17:18 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/7447479.shtml)
-- 2026-06-29 17:32 - [众星恭喜吴建豪](http://www.blog.minike.top/Article/details/690686678.shtml)
-- 2026-06-29 17:26 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/2568791.shtml)
-- 2026-06-29 17:29 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.kurohicncr.top/Article/details/97606.shtml)
-- 2026-06-29 17:20 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/6163558.shtml)
-- 2026-06-29 17:21 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/4714937727.shtml)
+- 2026-06-29 17:21 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/61102965.shtml)
+- 2026-06-29 17:12 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/58109.shtml)
+- 2026-06-29 17:22 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/894034257202.shtml)
+- 2026-06-29 17:16 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/9730741.shtml)
+- 2026-06-29 17:17 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/7037459576.shtml)
+- 2026-06-29 17:39 - [东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/0664180938.shtml)
+- 2026-06-29 17:27 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/268532820.shtml)
+- 2026-06-29 17:16 - [疑似吴建豪老婆正脸照](http://www.share.minike.top/Article/details/78739571.shtml)
+- 2026-06-29 17:30 - [范志毅看好日本淘汰巴西](http://www.share.kurohicncr.top/Article/details/34724055041.shtml)
+- 2026-06-29 17:24 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/201280657.shtml)
+- 2026-06-29 17:12 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/0486263273.shtml)
+- 2026-06-29 17:12 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/17993.shtml)
+- 2026-06-29 17:31 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/9676327227.shtml)
+- 2026-06-29 17:35 - [扫黑风暴](http://www.blog.minike.top/Article/details/36164810.shtml)
+- 2026-06-29 17:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/00567.shtml)

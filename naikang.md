@@ -1,57 +1,52 @@
-# 高盛：中国人寿给予“中性”评级 目标价28.5港元
+# 金银急跌，黄金跌破4630美元，国际油价涨超2%
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-高盛发布研报称，对中国人寿（02628）评级为中性，基于总资产回报率计算的12个月目标价为28.5港元，对应1.0倍的2027年预期市净率。投资者问题主要集中于销售前景、银保渠道的潜在增长和干扰情况、投资及股息方面。中国人寿重申2026年的目标是实现新业务价值两位数增长，并强调了银保渠道的竞争优势。2026年二季度股市的强劲走势已推动投资表现改善。对于担忧三季度基数效应的投资者
+记者丨黎雨桐 见习记者林芊蔚 编辑丨张楠 4月28日午后，国际油价快速走高，现货金银急跌。 截至13时52分，美油布油双双涨超2%，纽约期油报98.7美元/桶，日内涨近2.5%，布伦特原油报104美元/桶。 现货黄金快速下挫超1%，现报4627美元/盎司，现货白银跌近3%，报73.39美元/盎司。 近日，摩根士丹利将2026年下半年金价目标从每盎司5700美元大幅下调至5200
 
 ## 正文
 
-高盛发布研报称，对中国人寿（02628）评级为中性，基于总资产回报率计算的12个月目标价为28.5港元，对应1.0倍的2027年预期市净率。
+记者丨黎雨桐 见习记者林芊蔚 编辑丨张楠 4月28日午后，国际油价快速走高，现货金银急跌。
 
-投资者问题主要集中于销售前景、银保渠道的潜在增长和干扰情况、投资及股息方面。
+截至13时52分，美油布油双双涨超2%，纽约期油报98.7美元/桶，日内涨近2.5%，布伦特原油报104美元/桶。
 
-中国人寿重申2026年的目标是实现新业务价值两位数增长，并强调了银保渠道的竞争优势。
+现货黄金快速下挫超1%，现报4627美元/盎司，现货白银跌近3%，报73.39美元/盎司。
 
-2026年二季度股市的强劲走势已推动投资表现改善。
+近日，摩根士丹利将2026年下半年金价目标从每盎司5700美元大幅下调至5200美元，认为本轮金价下跌源于罕见的供给冲击，而实际利率上行、降息延后彻底改变了宏观经济格局。
 
-对于担忧三季度基数效应的投资者，中国人寿表示应该关注全年利润，尤其是考虑到四季度较低的基数。
+这家投行明确指出，2026年黄金走势将更少受避险情绪驱动，更多取决于市场流动性、债券收益率与美联储政策节奏，金价波动从此将更依赖经济数据而非市场情绪。
 
-管理层还将努力降低每股股息的波动幅度。
-
-责任编辑：卢昱君
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-29 17:34 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 17:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 17:21 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 17:30 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 17:11 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 17:27 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 17:07 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 17:23 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 17:15 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 17:06 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 17:11 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 17:32 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 17:33 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 17:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 17:20 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 17:26 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 17:20 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 17:15 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 17:25 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 17:22 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 17:31 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 17:16 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 17:23 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:25 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.minike.top/Article/details/005796849940.shtml)
-- 2026-06-29 17:23 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/34365799221.shtml)
-- 2026-06-29 17:34 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/146115819847.shtml)
-- 2026-06-29 17:23 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/03701.shtml)
-- 2026-06-29 17:19 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/9501262348.shtml)
-- 2026-06-29 17:15 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.kurohicncr.top/Article/details/3980664.shtml)
-- 2026-06-29 17:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/10163.shtml)
-- 2026-06-29 17:13 - [急先锋](https://www.share.minike.top/Article/details/8739384410.shtml)
-- 2026-06-29 17:25 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/264391.shtml)
-- 2026-06-29 17:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/26010.shtml)
-- 2026-06-29 17:27 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/069142330898.shtml)
-- 2026-06-29 17:14 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/9372246.shtml)
-- 2026-06-29 17:11 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/1531404.shtml)
-- 2026-06-29 17:06 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/17766564393.shtml)
-- 2026-06-29 17:17 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/08072852356.shtml)
+- 2026-06-29 17:24 - [四川达州发生一起交通事故致2死](https://www.blog.minike.top/Article/details/0346746.shtml)
+- 2026-06-29 17:19 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/151127.shtml)
+- 2026-06-29 17:34 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/712494.shtml)
+- 2026-06-29 17:16 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/245264066.shtml)
+- 2026-06-29 17:40 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/9588465.shtml)
+- 2026-06-29 17:23 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/348326516.shtml)
+- 2026-06-29 17:21 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/30432958846.shtml)
+- 2026-06-29 17:38 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/82029428562.shtml)
+- 2026-06-29 17:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/87841.shtml)
+- 2026-06-29 17:12 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.minike.top/Article/details/4980944.shtml)
+- 2026-06-29 17:20 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/67817015.shtml)
+- 2026-06-29 17:13 - [差点没看懂白鹿丞磊这段意识流](https://www.share.kurohicncr.top/Article/details/5213999.shtml)
+- 2026-06-29 17:13 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/96205082.shtml)
+- 2026-06-29 17:20 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/11769014650.shtml)
+- 2026-06-29 17:22 - [小娘惹](http://www.share.kurohicncr.top/Article/details/6859249856.shtml)

@@ -1,60 +1,58 @@
-# SpaceX股价暴涨催生独特对冲交易机会
+# 英特尔财报惊艳，分析师给出华尔街最高目标价
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-错过 SpaceX IPO 的投资者，如何通过期权布局这只个股？ 涨势终有回落之时，即便身为火箭企业也不例外，火箭制造商的股票同样如此。不过 SpaceX 这轮十年一遇的股价暴涨行情，也推高了期权价格，经验丰富的投资者得以零成本对冲、保护自身投资组合。 SpaceX（SPCX）上周五在纳斯达克完成创纪录上市，市值突破 2.5 万亿美元。不出市场所料，本周二该股票期权正式上市首日
+在英特尔公布强劲财报后，Evercore分析师周日上调了对这家芯片制造商的评级，理由包括执行力改善、CPU需求复苏以及英特尔作为美国唯一领先制造商的地位。 Evercore分析师马克·利帕西斯将英特尔评级从“与大盘持平”上调至“跑赢大盘”，并将目标价从45美元大幅上调至111美元，创下华尔街最高目标价。他表示，公司的最新季度业绩和前瞻指引表明，市场可能低估了英特尔未来数年的盈利
 
 ## 正文
 
-错过 SpaceX IPO 的投资者，如何通过期权布局这只个股？
+在英特尔公布强劲财报后，Evercore分析师周日上调了对这家芯片制造商的评级，理由包括执行力改善、CPU需求复苏以及英特尔作为美国唯一领先制造商的地位。
 
-涨势终有回落之时，即便身为火箭企业也不例外，火箭制造商的股票同样如此。
+Evercore分析师马克·利帕西斯将英特尔评级从“与大盘持平”上调至“跑赢大盘”，并将目标价从45美元大幅上调至111美元，创下华尔街最高目标价。
 
-不过 SpaceX 这轮十年一遇的股价暴涨行情，也推高了期权价格，经验丰富的投资者得以零成本对冲、保护自身投资组合。
+他表示，公司的最新季度业绩和前瞻指引表明，市场可能低估了英特尔未来数年的盈利潜力。
 
-SpaceX（SPCX）上周五在纳斯达克完成创纪录上市，市值突破 2.5 万亿美元。
+此次评级上调紧随英特尔强于预期的第一季度财报。
 
-不出市场所料，本周二该股票期权正式上市首日，成交量同样创下新股 IPO 后期权首日交易的历史新高。
+数据显示，公司营收同比增长7%至135.8亿美元，调整后每股收益为29美分。
 
-首日近 180 万张期权合约成交，市场情绪出现明显分化：一边是极致狂热的做多投机资金，另一边是机构理性的风控对冲操作。
+公司还预计第二季度营收为138亿至148亿美元，高于华尔街预期，调整后每股收益预计为20美分，而市场共识预期仅为8美分。
 
-下面拆解上市首日两笔大额重磅期权交易，解读背后的市场情绪，同时分析如何利用当前高波动率布局交易。
+利帕西斯认为，不断增长的AI推理需求可能为CPU发挥更大作用提供支撑，而英特尔的制造地位和新的合作伙伴关系可能有助于改善其长期前景。
 
-一、激进押注：7 月行权价 325 美元看涨期权，豪赌股价再度暴涨 不少投资者押注这只航天大牛股能继续走出 “登月级” 暴涨行情，最受市场关注的一笔大额交易是：交易者以每张约 7 美元的价格，大手笔买入 7000 张 7 月到期、行权价 325 美元的 SPCX 看涨期权合约。
+他表示，投资者可能越来越关注英特尔2030年的盈利潜力，而非短期波动。
 
 ## 相关推荐
 
-- 2026-06-29 17:23 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-29 17:25 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 17:28 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 17:31 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 17:33 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 17:20 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 17:28 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 17:35 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 17:09 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 17:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 17:22 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 17:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 17:34 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 17:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 17:24 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 17:24 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 17:13 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 17:39 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 17:23 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 17:35 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 17:41 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 17:41 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 17:27 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 17:35 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 17:24 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 17:29 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:25 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/31773892.shtml)
-- 2026-06-29 17:28 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/84167040433.shtml)
-- 2026-06-29 17:26 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/12692.shtml)
-- 2026-06-29 17:08 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/198974020.shtml)
-- 2026-06-29 17:23 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/46465766.shtml)
-- 2026-06-29 17:11 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/33491.shtml)
-- 2026-06-29 17:32 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/39645220744.shtml)
-- 2026-06-29 17:35 - [papi酱在救赎窦文涛](http://www.share.kurohicncr.top/Article/details/467444897.shtml)
-- 2026-06-29 17:11 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/04887.shtml)
-- 2026-06-29 17:32 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.minike.top/Article/details/01519805.shtml)
-- 2026-06-29 17:32 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/029157599075.shtml)
-- 2026-06-29 17:06 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/340738.shtml)
-- 2026-06-29 17:23 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/128005.shtml)
-- 2026-06-29 17:30 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/6186777.shtml)
-- 2026-06-29 17:25 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/63589.shtml)
+- 2026-06-29 17:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/815629886098.shtml)
+- 2026-06-29 17:19 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/319947016194.shtml)
+- 2026-06-29 17:37 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/636590425616.shtml)
+- 2026-06-29 17:39 - [李在镕：计划将光州作为芯片生产基地](https://www.share.kurohicncr.top/Article/details/4026771.shtml)
+- 2026-06-29 17:13 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/332644.shtml)
+- 2026-06-29 17:28 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/911545240.shtml)
+- 2026-06-29 17:29 - [差点没看懂白鹿丞磊这段意识流](https://www.share.kurohicncr.top/Article/details/054894602.shtml)
+- 2026-06-29 17:40 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/761196689.shtml)
+- 2026-06-29 17:29 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/2403007.shtml)
+- 2026-06-29 17:36 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/0890243.shtml)
+- 2026-06-29 17:25 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/19077600.shtml)
+- 2026-06-29 17:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/96132443.shtml)
+- 2026-06-29 17:36 - [请回答王牌2019](http://www.share.minike.top/Article/details/23347200.shtml)
+- 2026-06-29 17:29 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/52068665.shtml)
+- 2026-06-29 17:20 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/07594.shtml)

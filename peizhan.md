@@ -1,47 +1,60 @@
-# 国家发改委：全国统调电厂存煤达到2.1亿吨，平均可用天数超过34天
+# 美联航放弃与美航合并计划，美国航空业整合浪潮搁浅
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 17:07 来源：三里河 6月18日，国家发展改革委政策研究室副主任、新闻发言人李超在新闻发布会上表示，截至6月16日，全国统调电厂存煤达到2.1亿吨，平均可用天数超过34天，安全稳定供应具备坚实基础。(黄蕾 陈庆洋 李金磊） 责任编辑：【程春雨】
+美联航周一正式宣布，放弃与美国航空的合并计划。此前美航明确拒绝了启动谈判的提议，并为这一本可成为十多年来美国航空业最大规模整合的交易划上了句号。 美联航首席执行官在一份声明中透露，他曾在今年早些时候向特朗普政府提出了与美航合并的设想，并期待能向美航管理层推介这一构想。他指出，将美国两家最大的航空公司合并，将有助于打造一家真正具有全球竞争力的航空公司，创造更多就业岗位并支持美国经
 
 ## 正文
 
-发布时间：2026年06月18日 17:07 来源：三里河 6月18日，国家发展改革委政策研究室副主任、新闻发言人李超在新闻发布会上表示，截至6月16日，全国统调电厂存煤达到2.1亿吨，平均可用天数超过34天，安全稳定供应具备坚实基础。
+美联航周一正式宣布，放弃与美国航空的合并计划。
 
-(黄蕾 陈庆洋 李金磊） 责任编辑：【程春雨】
+此前美航明确拒绝了启动谈判的提议，并为这一本可成为十多年来美国航空业最大规模整合的交易划上了句号。
+
+美联航首席执行官在一份声明中透露，他曾在今年早些时候向特朗普政府提出了与美航合并的设想，并期待能向美航管理层推介这一构想。
+
+他指出，将美国两家最大的航空公司合并，将有助于打造一家真正具有全球竞争力的航空公司，创造更多就业岗位并支持美国经济发展。
+
+然而，美航在上周就已明确否决了这一可能性。
+
+美航首席执行官将这一合并构想评价为“反竞争”且对消费者不利。
+
+美联航方面表示，鉴于美航已明确通过公开声明排除了合并的可能性，该计划只得戛然而止。
+
+这一合并构想自曝光之初便面临巨大阻力。
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 17:17 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 17:19 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 17:33 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 17:25 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 17:20 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 17:08 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 17:28 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 17:20 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 17:27 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 17:30 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 17:31 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 17:09 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 17:33 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 17:19 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 17:16 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 17:19 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 17:23 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 17:36 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 17:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 17:17 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 17:26 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 17:34 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 17:15 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 17:37 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 17:34 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 17:16 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:35 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/708042375.shtml)
-- 2026-06-29 17:35 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/136125.shtml)
-- 2026-06-29 17:28 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/83992205950.shtml)
-- 2026-06-29 17:08 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/4931577035.shtml)
-- 2026-06-29 17:25 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/890296.shtml)
-- 2026-06-29 17:16 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/63307213336.shtml)
-- 2026-06-29 17:09 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/030872122.shtml)
-- 2026-06-29 17:21 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/9272121013.shtml)
-- 2026-06-29 17:22 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/1498614.shtml)
-- 2026-06-29 17:21 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/419675.shtml)
-- 2026-06-29 17:08 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/2324453809.shtml)
-- 2026-06-29 17:30 - [人类对空调和其他家电有多双标](http://www.share.kurohicncr.top/Article/details/199433.shtml)
-- 2026-06-29 17:19 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.minike.top/Article/details/59660083.shtml)
-- 2026-06-29 17:07 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/008389.shtml)
-- 2026-06-29 17:15 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/94320324173.shtml)
+- 2026-06-29 17:31 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/43554584113.shtml)
+- 2026-06-29 17:20 - [波兰创该国高温纪录](https://www.share.minike.top/Article/details/5582611.shtml)
+- 2026-06-29 17:30 - [两老人多次到一洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/90960443.shtml)
+- 2026-06-29 17:29 - [金刚川](https://www.blog.minike.top/Article/details/4910973.shtml)
+- 2026-06-29 17:21 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/8916202.shtml)
+- 2026-06-29 17:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/87887836908.shtml)
+- 2026-06-29 17:24 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/420131273376.shtml)
+- 2026-06-29 17:35 - [5万块的威力](https://www.blog.minike.top/Article/details/29620.shtml)
+- 2026-06-29 17:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/54555.shtml)
+- 2026-06-29 17:27 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/90494625399.shtml)
+- 2026-06-29 17:30 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/63977946644.shtml)
+- 2026-06-29 17:36 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/5627547036.shtml)
+- 2026-06-29 17:38 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/63097.shtml)
+- 2026-06-29 17:25 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/8740579439.shtml)
+- 2026-06-29 17:36 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/17861520.shtml)

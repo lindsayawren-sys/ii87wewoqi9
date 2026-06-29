@@ -1,61 +1,59 @@
-# 广期所发布境外交易者参与碳酸锂期货和期权交易的公告
+# 政治局会议：抓好农业生产，稳定生猪等农产品价格
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-广期所公告〔2026〕36号 经中国证监会批准，广州期货交易所（以下简称广期所）碳酸锂期货及期权被确定为境内特定品种，现将境外交易者参与上述品种交易有关事项公告如下： 一、实施时间 自北京时间2026年7月3日起交易，08：55-09：00集合竞价，09：00开盘。 二、交易合约 LC2607和后续期货合约，以及以上述期货合约为标的的期权合约。 三、外汇资金作为保证金有关事项
+自2026年春节以来，猪价深度下探的态势引发广泛关注，中央决策层面发出了明确的政策托底信号。 中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。会议强调，抓好农业生产，稳定生猪等农产品价格。 从上市公司披露的一季报来看，2026年第一季度，生猪养殖行业普遍陷入亏损。今年一季度，牧原股份归母净利润为-12.15亿元，同比转亏，上年同期为44.91亿元。温氏股份归母
 
 ## 正文
 
-广期所公告〔2026〕36号 经中国证监会批准，广州期货交易所（以下简称广期所）碳酸锂期货及期权被确定为境内特定品种，现将境外交易者参与上述品种交易有关事项公告如下： 一、实施时间 自北京时间2026年7月3日起交易，08：55-09：00集合竞价，09：00开盘。
+自2026年春节以来，猪价深度下探的态势引发广泛关注，中央决策层面发出了明确的政策托底信号。
 
-二、交易合约 LC2607和后续期货合约，以及以上述期货合约为标的的期权合约。
+中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。
 
-三、外汇资金作为保证金有关事项 境外交易者可以使用外汇资金作为保证金。
+会议强调，抓好农业生产，稳定生猪等农产品价格。
 
-以外汇资金作为保证金的，以中国外汇交易中心公布的当日人民币汇率中间价作为其市值核定的基准价，目前广期所规定可用于作为保证金的外汇币种为美元，折扣率为0.95。
+从上市公司披露的一季报来看，2026年第一季度，生猪养殖行业普遍陷入亏损。
 
-当日闭市前外汇资金的市值先按照前一交易日中国外汇交易中心公布的当日人民币汇率中间价核算。
+今年一季度，牧原股份归母净利润为-12.15亿元，同比转亏，上年同期为44.91亿元。
 
-每日结算时按上述规定的方法重新确定外汇资金作为保证金使用的基准价并调整折后金额。
+温氏股份归母净利润-10.7亿元，同比由盈转亏，上年同期为20.13亿元。
 
-自本公告发布之日起，开户机构应当按照我所《关于碳酸锂期货和期权合约交易权限管理相关事项的通知》等要求，在向境内外交易者充分揭示风险、严格履行交易者适当性管理义务、全面评估交易者风险承受能力的基础上，为境内外交易者办理账户开立等手续。
+巨星农牧归母净利润-3.56亿元，上年同期为1.3亿元。
 
-广州期货交易所 2026年6月18日责任编辑：李铁民
+生猪价格跌势延续至今年4月中旬。
 
 ## 相关推荐
 
-- 2026-06-29 17:09 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 17:20 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 17:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 17:23 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 17:08 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 17:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 17:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 17:15 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 17:17 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 17:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 17:09 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 17:34 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 17:30 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 17:11 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 17:32 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 17:36 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 17:37 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 17:18 - [恋与深空失控领地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 17:30 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 17:22 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 17:29 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 17:34 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 17:35 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 17:13 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 17:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 17:30 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 17:13 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 17:37 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:12 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/868584231.shtml)
-- 2026-06-29 17:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/01538296.shtml)
-- 2026-06-29 17:18 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.minike.top/Article/details/671982329878.shtml)
-- 2026-06-29 17:16 - [12所大学更正招生目录](https://www.blog.minike.top/Article/details/114418.shtml)
-- 2026-06-29 17:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/7817626.shtml)
-- 2026-06-29 17:29 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/931570.shtml)
-- 2026-06-29 17:28 - [女心理师](https://www.blog.minike.top/Article/details/6300246.shtml)
-- 2026-06-29 17:29 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/65835390.shtml)
-- 2026-06-29 17:25 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/9379183.shtml)
-- 2026-06-29 17:12 - [金刚川](http://www.share.kurohicncr.top/Article/details/993395.shtml)
-- 2026-06-29 17:13 - [时光音乐会](http://www.blog.minike.top/Article/details/8115715701.shtml)
-- 2026-06-29 17:11 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/394682075585.shtml)
-- 2026-06-29 17:20 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/536377420.shtml)
-- 2026-06-29 17:31 - [葛军谈AI时代理科生出路](http://www.share.kurohicncr.top/Article/details/4142882955.shtml)
-- 2026-06-29 17:10 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/02787072052.shtml)
+- 2026-06-29 17:27 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/17666250951.shtml)
+- 2026-06-29 17:23 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/160440138.shtml)
+- 2026-06-29 17:23 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/19922432744.shtml)
+- 2026-06-29 17:35 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/88745.shtml)
+- 2026-06-29 17:18 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/53735.shtml)
+- 2026-06-29 17:20 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.minike.top/Article/details/17849981642.shtml)
+- 2026-06-29 17:13 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/532940630365.shtml)
+- 2026-06-29 17:33 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/336653211391.shtml)
+- 2026-06-29 17:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/08847918452.shtml)
+- 2026-06-29 17:39 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/710067.shtml)
+- 2026-06-29 17:40 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/2549890.shtml)
+- 2026-06-29 17:13 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/67082.shtml)
+- 2026-06-29 17:25 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/40699357114.shtml)
+- 2026-06-29 17:38 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/57329.shtml)
+- 2026-06-29 17:12 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/58321554.shtml)

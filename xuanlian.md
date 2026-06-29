@@ -1,57 +1,56 @@
-# 中国官方：中美禁毒合作成效明显，禁毒部门保持良好合作关系
+# 《张元济年谱长编》（增订版）、《张元济全集补编》首发
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新社北京6月17日电 (记者 国璇)中国国家禁毒委员会办公室常务副主任、公安部禁毒局局长魏晓军17日在北京召开的新闻发布会上说，中美元首釜山会晤以来，两国禁毒部门紧密合作，取得明显成效，当前中美禁毒部门保持着良好合作关系。“双方开展了很多机制性交流和务实合作，我们与美国白宫国家禁毒政策办公室等政策部门保持联络沟通，定期相互通报工作进展，商讨下步合作优先事项。”魏晓军说，中方与
+中新网浙江海盐4月27日电 “《张元济年谱长编》(增订版)、《张元济全集补编》新书发布暨阅读分享会”日前在张元济先生的故乡浙江海盐举行。 张元济是中国现代出版事业的奠基人，他投身商务印书馆后确立了商务“昌明教育，开启民智”的文化使命，历任商务印书馆编译所所长、经理、监理、董事长，参与、主持、督导商务印书馆50余年，为中国现代出版、教育、文化等事业做出了重要贡献。同时，他集出版家
 
 ## 正文
 
-中新社北京6月17日电 (记者 国璇)中国国家禁毒委员会办公室常务副主任、公安部禁毒局局长魏晓军17日在北京召开的新闻发布会上说，中美元首釜山会晤以来，两国禁毒部门紧密合作，取得明显成效，当前中美禁毒部门保持着良好合作关系。
+中新网浙江海盐4月27日电 “《张元济年谱长编》(增订版)、《张元济全集补编》新书发布暨阅读分享会”日前在张元济先生的故乡浙江海盐举行。
 
-“双方开展了很多机制性交流和务实合作，我们与美国白宫国家禁毒政策办公室等政策部门保持联络沟通，定期相互通报工作进展，商讨下步合作优先事项。
+张元济是中国现代出版事业的奠基人，他投身商务印书馆后确立了商务“昌明教育，开启民智”的文化使命，历任商务印书馆编译所所长、经理、监理、董事长，参与、主持、督导商务印书馆50余年，为中国现代出版、教育、文化等事业做出了重要贡献。
 
-”魏晓军说，中方与美国缉毒署、联邦调查局和移民海关执法局等执法部门联合侦办多起案件，合作遣返涉毒逃犯。
+同时，他集出版家、版本学家、藏书家、教育家等多重身份于一身，其著述整理始终是学界关注的焦点。
 
-在积极合作应对非列管化学品流入北美制毒渠道方面，2025年11月，商务部等五部委联合发布公告，将13种芬太尼类物质前体化学品和美国、墨西哥、加拿大分别增列到《向特定国家(地区)出口易制毒化学品管理目录》《特定国家(地区)目录》，今年5月又针对上述三国增列了3种芬太尼类物质前体化学品。
+十卷本《张元济全集》于2010年出版后，张元济后人、上海市文史研究馆资深馆员张人凤从海内外文博机构所藏历史文献和数据库中，收集整理散佚的张元济信札、著述、文稿，形成近35万字的规模。
 
-此外，针对国内少数不法分子向境外贩运列管或非列管前体化学品及新精神活性物质等敏感化学品的情况，中国禁毒部门在全国范围内多轮次部署开展打击管控专项行动，全面强化案件侦办。
+其中，收录的书信976通，加上《全集》已收4806通，共计约5700通，通信者涵盖政商名流、科举师友、教授学者、工友同人、乡梓亲属，内容涉及出版事务、古籍校勘、学术探讨、为民陈情、日常问候等。
 
-“今年以来，美方在多个场合积极评价中美禁毒合作，并向中方表示感谢；美国的一些专家学者还在《科学》等权威期刊上发表文章，肯定中方的禁毒工作成效。
+这些信札构成一幅以张元济为枢纽的近现代文化人物交往图景，也勾勒出一位见识卓越、善作善为的出版家，一位胸怀家国、有温度的知识分子更立体的身影。
 
-”魏晓军表示，通过合作，中方还根据美方提供的信息和线索侦办了一些案件，对提升中国国内毒品问题治理起到了一定的积极作用。
+《张元济年谱长编》(增订版)以编年形式翔实记述了张元济从出生至逝世的一生行迹，客观呈现其出版功业、学术成就、交游往来与家国情怀，全景展现了这位近现代出版巨擘的人生风采。
 
-他表示，当前，中美禁毒部门保持着良好合作关系，这样的局面来之不易，需要双方继续相向而行、共同维护。
+全书共计206万字，较2011年的初版增订40余万字，增补收录了商务印书馆、上海市图书馆、中国近现代新闻出版博物馆、上海交通大学档案文博管理中心等文化机构及个人收藏家的未刊档案史料，较大程度完善了张元济的人生轨迹，并对初版中的讹误逐一核查、审慎订正，最大限度还原历史本真。
 
 ## 相关推荐
 
-- 2026-06-29 17:19 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 17:35 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 17:24 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 17:24 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 17:25 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 17:23 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 17:15 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 17:32 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 17:25 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 17:15 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 17:15 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 17:27 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 17:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 17:23 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 17:19 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 17:16 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 17:12 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 17:31 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 17:28 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 17:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 17:14 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:17 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/45371062.shtml)
-- 2026-06-29 17:35 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/492032261.shtml)
-- 2026-06-29 17:31 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/1252486.shtml)
-- 2026-06-29 17:33 - [看大国重器“云端穿针引线”](http://www.share.minike.top/Article/details/790307236.shtml)
-- 2026-06-29 17:11 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/0033521885.shtml)
-- 2026-06-29 17:10 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/16347.shtml)
-- 2026-06-29 17:08 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/7909143309.shtml)
-- 2026-06-29 17:34 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/757406.shtml)
-- 2026-06-29 17:08 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/57776892.shtml)
-- 2026-06-29 17:25 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.minike.top/Article/details/74866201.shtml)
-- 2026-06-29 17:26 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/172837.shtml)
-- 2026-06-29 17:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/2102673921.shtml)
-- 2026-06-29 17:26 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/3624550.shtml)
-- 2026-06-29 17:06 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.minike.top/Article/details/04652657974.shtml)
-- 2026-06-29 17:23 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/24036583549.shtml)
+- 2026-06-29 17:30 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/28621.shtml)
+- 2026-06-29 17:39 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/8308619.shtml)
+- 2026-06-29 17:18 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/986563.shtml)
+- 2026-06-29 17:15 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/94735689595.shtml)
+- 2026-06-29 17:37 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/1104406872.shtml)
+- 2026-06-29 17:29 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/05306765597.shtml)
+- 2026-06-29 17:34 - [7款高价创新药有望降价](http://www.blog.minike.top/Article/details/1253271394.shtml)
+- 2026-06-29 17:22 - [首个靠AI躺赢的国家](https://www.share.minike.top/Article/details/1570254.shtml)
+- 2026-06-29 17:32 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/3828835110.shtml)
+- 2026-06-29 17:12 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/22783.shtml)
+- 2026-06-29 17:31 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/1952398.shtml)
+- 2026-06-29 17:16 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/736304277.shtml)
+- 2026-06-29 17:13 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/76746.shtml)
+- 2026-06-29 17:41 - [中方将20家日本实体列入关注名单](https://www.share.kurohicncr.top/Article/details/49909.shtml)
+- 2026-06-29 17:14 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/07215104.shtml)

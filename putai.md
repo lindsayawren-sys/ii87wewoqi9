@@ -1,58 +1,61 @@
-# 黑龙江省讷河市第三十三届瑟宾节启幕
+# “固收+”配置窗口仍在，景顺长城李训练：追求稳健的投资者或可关注中低波产品
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新网齐齐哈尔6月18日电 (刘锡菊 王凡硕)“嫩江的岸边呦，飞来了美丽的古纳基……”黑龙江省讷河市第三十三届瑟宾节暨民族风情游活动6月18日在黑龙江省嘎布喀草原上开幕，鄂温克族青年们身着民族盛装，唱着“扎恩达勒”民歌，迎接八方宾客。 中国唯一的农业鄂温克区——黑龙江省讷河市兴旺鄂温克族乡地处大兴安岭东南麓，松嫩平原北端，嫩江中游东岸。这里江河纵横，土肥水美，适于放牧与耕种。
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！张坤、葛兰等最新布局出炉 随着公募基金2026年一季报披露收官，各类型基金规模数据也浮出水面，“固收+” 产品迎来爆发式增长。中金公司研报统计数据显示，截至2026年3月31日，全市场共有2381只“固收+”基金，存量规模达3.54万亿元，较去年同期增长74%。近日，景顺长城混合资产投资部基金经理李训练
 
 ## 正文
 
-中新网齐齐哈尔6月18日电 (刘锡菊 王凡硕)“嫩江的岸边呦，飞来了美丽的古纳基……”黑龙江省讷河市第三十三届瑟宾节暨民族风情游活动6月18日在黑龙江省嘎布喀草原上开幕，鄂温克族青年们身着民族盛装，唱着“扎恩达勒”民歌，迎接八方宾客。
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！
 
-中国唯一的农业鄂温克区——黑龙江省讷河市兴旺鄂温克族乡地处大兴安岭东南麓，松嫩平原北端，嫩江中游东岸。
+张坤、葛兰等最新布局出炉 随着公募基金2026年一季报披露收官，各类型基金规模数据也浮出水面，“固收+” 产品迎来爆发式增长。
 
-这里江河纵横，土肥水美，适于放牧与耕种。
+中金公司研报统计数据显示，截至2026年3月31日，全市场共有2381只“固收+”基金，存量规模达3.54万亿元，较去年同期增长74%。
 
-每年6月18日，是鄂温克族最具代表性的民族节庆“瑟宾节”。
+近日，景顺长城混合资产投资部基金经理李训练在媒体交流中表示，低利率环境与“存款搬家”浪潮正持续推动资金向“固收+”产品转移，展望未来，这一趋势或仍将持续。
 
-“瑟宾”汉语寓意“欢乐祥和”，瑟宾节是中国鄂温克族最重要的传统节日，也是国家级非物质文化遗产之一。
+流动性宽松仍将持续 权益关注趋势向上板块 近期，被称作“利率之锚”的10年期国债收益率跌破1.75%关口，创年内新低。
 
-本届瑟宾节由黑龙江省鄂温克族研究会主办。
+李训练认为，债券收益率持续走低的核心原因是流动性宽松。
 
-“瑟宾节源于鄂温克族古老的祭祀仪式，如今已演变为歌舞、竞技娱乐、野餐酒宴、篝火晚会等民俗狂欢。
+目前整个融资利率略高于1%，这并非市场在交易衰退预期，而是地产、制造业等融资主体扩张偏弱，市场沉淀了大量闲置资金，央行在经济环境不确定的背景下，倾向于保持流动性合理充裕。
 
-”黑龙江省鄂温克族研究会会长涂亚君说：“通过民俗活动，祈福祝愿。
+在此背景下，债市收益率大幅下行，除超长债外，各期限债券收益率普遍下行至1.7%-1.8%。
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 17:14 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 17:25 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 17:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 17:26 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 17:27 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 17:23 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 17:15 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 17:28 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 17:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 17:23 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 17:19 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 17:12 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 17:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 17:37 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 17:36 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 17:12 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 17:40 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 17:23 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 17:19 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 17:25 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 17:41 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 17:39 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 17:26 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 17:37 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 17:18 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 17:36 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:06 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/04845606619.shtml)
-- 2026-06-29 17:21 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/187257174525.shtml)
-- 2026-06-29 17:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/27698.shtml)
-- 2026-06-29 17:26 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/24272718102.shtml)
-- 2026-06-29 17:33 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/174571313323.shtml)
-- 2026-06-29 17:08 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/7959226.shtml)
-- 2026-06-29 17:24 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/85379.shtml)
-- 2026-06-29 17:29 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/914736436.shtml)
-- 2026-06-29 17:20 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/46080.shtml)
-- 2026-06-29 17:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/117488.shtml)
-- 2026-06-29 17:07 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/7781382.shtml)
-- 2026-06-29 17:29 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/21687167.shtml)
-- 2026-06-29 17:17 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/346086.shtml)
-- 2026-06-29 17:14 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/671788522768.shtml)
-- 2026-06-29 17:22 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/53165024.shtml)
+- 2026-06-29 17:30 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/65646.shtml)
+- 2026-06-29 17:35 - [TFING全员黑西装](https://www.share.minike.top/Article/details/15334885.shtml)
+- 2026-06-29 17:19 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/255888563.shtml)
+- 2026-06-29 17:40 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/254969.shtml)
+- 2026-06-29 17:19 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/3650158.shtml)
+- 2026-06-29 17:31 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/44692332.shtml)
+- 2026-06-29 17:41 - [四川达州发生一起交通事故致2死](https://www.share.kurohicncr.top/Article/details/39717.shtml)
+- 2026-06-29 17:38 - [东方风云榜红毯](https://www.blog.minike.top/Article/details/70166917.shtml)
+- 2026-06-29 17:15 - [金牌调解](http://www.blog.minike.top/Article/details/8988399087.shtml)
+- 2026-06-29 17:17 - [沉睡花园](https://www.share.minike.top/Article/details/89902000.shtml)
+- 2026-06-29 17:23 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/56234159.shtml)
+- 2026-06-29 17:41 - [绘画区你赢了](http://www.blog.minike.top/Article/details/060202671217.shtml)
+- 2026-06-29 17:35 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/8496855857.shtml)
+- 2026-06-29 17:29 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/988881.shtml)
+- 2026-06-29 17:22 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/407666.shtml)

@@ -1,57 +1,61 @@
-# 东风奕派 M8 汽车官宣搭载「全置换新风系统」，宣称有“诺贝尔奖级黑科技”加持
+# 追觅CEO俞浩炮轰小红书：是一个非常烂的平台，价值观和盈利模式“有毒”，其个人小红书账号粉丝9万
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-IT之家 6 月 17 日消息，东风奕派今日宣布，奕派 M8 汽车将搭载采用获得诺贝尔奖尖端滤材的「全置换新风系统」。东风奕派表示，奕派 M8 的全置换新风系统，是一套集温度调节、空气净化、通风换气、防潮抑菌于一体的综合性座舱空气解决方案，核心由两大模块协同组成：负责智能控温、全域空气循环、通风防潮的专属车载空调，以及获得诺贝尔奖技术加持的 MOFs 净化滤芯。据介绍，MOFs
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！追觅CEO俞浩炮轰小红书：是一个非常烂的平台，价值观和盈利模式“有毒”；其个人小红书账号粉丝9万，曾发文“测试”平台 红星资本局4月27日消息，4月26日，追觅科技创始人兼CEO俞浩连发三条微博炮轰小红书运营生态。 俞浩微博截图 “小红书是一个非常非常烂的平台！”俞浩强调，这一结论并非源于追觅近期在小红书遇
 
 ## 正文
 
-IT之家 6 月 17 日消息，东风奕派今日宣布，奕派 M8 汽车将搭载采用获得诺贝尔奖尖端滤材的「全置换新风系统」。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-东风奕派表示，奕派 M8 的全置换新风系统，是一套集温度调节、空气净化、通风换气、防潮抑菌于一体的综合性座舱空气解决方案，核心由两大模块协同组成：负责智能控温、全域空气循环、通风防潮的专属车载空调，以及获得诺贝尔奖技术加持的 MOFs 净化滤芯。
+追觅CEO俞浩炮轰小红书：是一个非常烂的平台，价值观和盈利模式“有毒”；其个人小红书账号粉丝9万，曾发文“测试”平台 红星资本局4月27日消息，4月26日，追觅科技创始人兼CEO俞浩连发三条微博炮轰小红书运营生态。
 
-据介绍，MOFs 空调净化滤芯材料为 2025 年诺贝尔化学奖核心成果，对车内各类持续挥发的污染物净化率最高接近 100%，有效使用寿命达 12-24 个月，超传统滤芯。
+俞浩微博截图 “小红书是一个非常非常烂的平台！
 
-MOFs 核心特性叫“吸附 — 释放”的可逆柔性 —— 它可以反复吸附污染物，再通过特定条件再生，恢复净化能力。
+”俞浩强调，这一结论并非源于追觅近期在小红书遇到的舆情事件，而是他经过一段时间观察后得出的结论。
 
-目前，国内已经实现 MOFs 的室温无溶剂化量产技术突破，具备了规模化民用落地的基础。
+4月27日，就俞浩所发博文内容，红星资本局分别联系追觅和小红书，截至发稿尚未得到回复。
 
-据IT之家此前报道，东风奕派 M8 已于 5 月 23 日迎来全球首秀，拥有 5 米车长、超 3 米轴距，搭载同级唯一纯电、增程双动力，并满配华为乾崑技术 6 件套，包括华为乾崑智驾 ADS 5 Pro、鸿蒙座舱 HarmonySpace 5.2、乾崑车云、乾崑车控、鲸鳍通信和 HUAWEI SOUND 21 扬声器。
+俞浩表示，任何在小红书上评论追觅产品的内容“基本都不要信”，他本人也不会将平台上的任何用户反馈信息当作参考。
+
+俞浩将小红书定义为“价值观和盈利模式都非常有毒的平台”，认为其运营核心在于利用攀比、晒图、夸大其词的手段，以调动人性中的阴暗面来赚钱。
+
+不久后，俞浩再次发表微博表示，“我们起诉每一个在小红书上造谣的博主时，都应该连带小红书平台一起起诉！
 
 ## 相关推荐
 
-- 2026-06-29 17:06 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 17:15 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 17:30 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 17:23 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 17:34 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 17:06 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 17:32 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 17:19 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 17:23 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 17:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 17:27 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 17:27 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 17:33 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 17:10 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 17:06 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 17:40 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 17:24 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 17:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 17:28 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 17:33 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 17:40 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 17:24 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 17:32 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 17:24 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 17:26 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 17:41 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 17:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 17:28 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 17:25 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 17:20 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:09 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/83013.shtml)
-- 2026-06-29 17:26 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/83149898526.shtml)
-- 2026-06-29 17:33 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/50919.shtml)
-- 2026-06-29 17:34 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/910008.shtml)
-- 2026-06-29 17:13 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/939159749858.shtml)
-- 2026-06-29 17:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/174661544.shtml)
-- 2026-06-29 17:30 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/92406.shtml)
-- 2026-06-29 17:31 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/41666064.shtml)
-- 2026-06-29 17:07 - [新能源车能当外接空调用吗](http://www.share.minike.top/Article/details/915738757280.shtml)
-- 2026-06-29 17:26 - [起风了](http://www.share.kurohicncr.top/Article/details/3871803669.shtml)
-- 2026-06-29 17:07 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/429450739646.shtml)
-- 2026-06-29 17:34 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/16262478898.shtml)
-- 2026-06-29 17:07 - [徐昕暂不参加NBA夏季联赛](https://www.blog.kurohicncr.top/Article/details/937490.shtml)
-- 2026-06-29 17:30 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/701051.shtml)
-- 2026-06-29 17:19 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/4219971.shtml)
+- 2026-06-29 17:14 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/0650780390.shtml)
+- 2026-06-29 17:19 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/3569273.shtml)
+- 2026-06-29 17:41 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/22753744.shtml)
+- 2026-06-29 17:13 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/0060987.shtml)
+- 2026-06-29 17:27 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/921214788012.shtml)
+- 2026-06-29 17:20 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/656456548904.shtml)
+- 2026-06-29 17:15 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/9847337759.shtml)
+- 2026-06-29 17:24 - [乔家的儿女](https://www.share.minike.top/Article/details/99539990247.shtml)
+- 2026-06-29 17:34 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/9230721603.shtml)
+- 2026-06-29 17:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/1315629842.shtml)
+- 2026-06-29 17:34 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/08572350.shtml)
+- 2026-06-29 17:25 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/740061472312.shtml)
+- 2026-06-29 17:20 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/71459949168.shtml)
+- 2026-06-29 17:33 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/566216229.shtml)
+- 2026-06-29 17:31 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.kurohicncr.top/Article/details/96347788488.shtml)

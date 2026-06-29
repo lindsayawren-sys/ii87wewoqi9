@@ -1,58 +1,53 @@
-# 山东举办“端午乡思 齐鲁有情”海外慰侨活动
+# “五一”假日期间海南省天气总体较好 适宜出游
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新网济南6月18日电 (记者 李欣)端午节前夕，山东省侨办、山东爱侨公益基金会联合举办“端午乡思 齐鲁有情”海外慰侨活动。活动覆盖韩国、英国、澳大利亚、埃及、巴西等五大洲的23个国家，向30家侨团赠送“大礼包”，进一步密切山东与海外侨团的联系。 据悉，端午“大礼包”印有“一山一水一圣人”图案，内含非遗香囊、艾草锤、艾草皂、五彩绳“端午四件套”以及《一封家信》，在海外侨界引起强
+中新网海口4月28日电 (符晓虹 翁小芳)“五一”假期临近，海南省气象台28日预计，假日期间海南省天气总体较好，大部分时段有利于出游。 气象部门预计，“五一”假期海南省无高温，以多云天气为主。其中，5月1日～2日海南岛西北部局地午后有短时阵雨或雷阵雨，3日～5日部分地区多云有阵雨或雷阵雨，户外活动及时关注天气预警信息。 另外，4月28日～30日、5月3日～5日，海南岛四周海面或
 
 ## 正文
 
-中新网济南6月18日电 (记者 李欣)端午节前夕，山东省侨办、山东爱侨公益基金会联合举办“端午乡思 齐鲁有情”海外慰侨活动。
+中新网海口4月28日电 (符晓虹 翁小芳)“五一”假期临近，海南省气象台28日预计，假日期间海南省天气总体较好，大部分时段有利于出游。
 
-活动覆盖韩国、英国、澳大利亚、埃及、巴西等五大洲的23个国家，向30家侨团赠送“大礼包”，进一步密切山东与海外侨团的联系。
+气象部门预计，“五一”假期海南省无高温，以多云天气为主。
 
-据悉，端午“大礼包”印有“一山一水一圣人”图案，内含非遗香囊、艾草锤、艾草皂、五彩绳“端午四件套”以及《一封家信》，在海外侨界引起强烈反响，受到广泛欢迎。
+其中，5月1日～2日海南岛西北部局地午后有短时阵雨或雷阵雨，3日～5日部分地区多云有阵雨或雷阵雨，户外活动及时关注天气预警信息。
 
-端午节期间，饱含齐鲁乡情的“大礼包”不仅在侨胞们的手中传递，一颗颗传统文化的种子在侨胞们的心中落地生根。
+另外，4月28日～30日、5月3日～5日，海南岛四周海面或有雷雨天气，届时或将出现7～9级大风，相关部门需加强海上船只、近海旅游活动安全管理。
 
-西日本华侨华人社团联合会会长张永胜表示，端午节是中华民族重要传统节日，承载爱国、团圆、追思的文化内核，家乡以端午文创为载体，向海外侨胞普及端午民俗、齐鲁文化，守住了华侨华人共同的文化记忆。
-
-澳大利亚山东联谊会暨留学生关爱中心主任李复新表示，端午“大礼包”承载着传统文化、齐鲁风俗，帮助海外侨胞尤其是侨二代、侨三代更好地感知传统节日内涵，让端午文化、齐鲁文化代代传承。
-
-随“大礼包”附赠的《一封家信》中提到，长期以来，广大海外侨胞发扬爱国爱乡的优良传统，为家乡的建设发展和祖(籍)国的繁荣富强作出了积极贡献。
-
-当前，山东正坚定扛牢“走在前、挑大梁”的使命担当，期盼各位乡亲能常回家看看，共享发展机遇，共叙桑梓情谊。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:06 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 17:32 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 17:25 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 17:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 17:18 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 17:15 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 17:07 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 17:11 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 17:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 17:07 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 17:17 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 17:15 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 17:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 17:36 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 17:37 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 17:23 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 17:28 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 17:15 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 17:37 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 17:26 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 17:41 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 17:30 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 17:25 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 17:15 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 17:37 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:17 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/33295735.shtml)
-- 2026-06-29 17:20 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/7059809.shtml)
-- 2026-06-29 17:34 - [重度抑郁女孩没钱去做心理咨询](http://www.share.kurohicncr.top/Article/details/0512931.shtml)
-- 2026-06-29 17:12 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/257485.shtml)
-- 2026-06-29 17:15 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/22837.shtml)
-- 2026-06-29 17:17 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/430725.shtml)
-- 2026-06-29 17:18 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/2629565026.shtml)
-- 2026-06-29 17:25 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/29054512.shtml)
-- 2026-06-29 17:31 - [毒液2](http://www.share.kurohicncr.top/Article/details/176346489.shtml)
-- 2026-06-29 17:26 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/4018678.shtml)
-- 2026-06-29 17:26 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/1238346.shtml)
-- 2026-06-29 17:25 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/517648675.shtml)
-- 2026-06-29 17:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/6916461189.shtml)
-- 2026-06-29 17:18 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/1000754.shtml)
-- 2026-06-29 17:31 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/4284631060.shtml)
+- 2026-06-29 17:32 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/8916780.shtml)
+- 2026-06-29 17:31 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/004247153.shtml)
+- 2026-06-29 17:31 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/385778803633.shtml)
+- 2026-06-29 17:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/2159271.shtml)
+- 2026-06-29 17:12 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/403200486669.shtml)
+- 2026-06-29 17:15 - [青春环游记第三季](http://www.share.minike.top/Article/details/270625.shtml)
+- 2026-06-29 17:38 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/39762.shtml)
+- 2026-06-29 17:22 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/9301473937.shtml)
+- 2026-06-29 17:37 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/22053205065.shtml)
+- 2026-06-29 17:31 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/1887319.shtml)
+- 2026-06-29 17:39 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/7221386914.shtml)
+- 2026-06-29 17:12 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/40523.shtml)
+- 2026-06-29 17:19 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/281899.shtml)
+- 2026-06-29 17:29 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/907127.shtml)
+- 2026-06-29 17:32 - [金刚川](http://www.share.minike.top/Article/details/2751199.shtml)

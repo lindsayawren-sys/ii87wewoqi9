@@ -1,59 +1,60 @@
-# 博睿康冲击“脑机接口第一股”：25年创收1亿却亏2.3亿、侵入式产品未创收商业化前景存未知 升级版对赌显露
+# 文化和旅游部点名整治一批问题多发景区和一批景区摆渡车问题
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：cici 6月11日，博睿康技术（上海）股份有限公司（以下简称“博睿康”）科创板IPO申请正式获得受理，拟募资25亿元，主要用于脑机接口研发项目、脑机接口产业化建设项目以及补充流动资金。红杉恒辰、上海国资背景的国孚领航、浦东创投现身本次发行前的前十名股东名单。 2023年
+记者从文化和旅游部4月27日举行的新闻发布会上获悉，文化和旅游部梳理近年来5A级旅游景区负面舆情、游客投诉和网络评价，将重点整治一批问题多发景区和一批景区摆渡车问题。 根据游客反映集中的景区价格纠纷、拥堵滞留、服务态度、安全应急、环境卫生等问题，近年来综合问题多发的景区包括湖南张家界天门山—武陵源、云南丽江古城和玉龙雪山、黄河壶口瀑布、广西桂林漓江、河南嵩山少林寺、贵州黄果树瀑
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+记者从文化和旅游部4月27日举行的新闻发布会上获悉，文化和旅游部梳理近年来5A级旅游景区负面舆情、游客投诉和网络评价，将重点整治一批问题多发景区和一批景区摆渡车问题。
 
-出品：新浪财经上市公司研究院 作者：cici 6月11日，博睿康技术（上海）股份有限公司（以下简称“博睿康”）科创板IPO申请正式获得受理，拟募资25亿元，主要用于脑机接口研发项目、脑机接口产业化建设项目以及补充流动资金。
+根据游客反映集中的景区价格纠纷、拥堵滞留、服务态度、安全应急、环境卫生等问题，近年来综合问题多发的景区包括湖南张家界天门山—武陵源、云南丽江古城和玉龙雪山、黄河壶口瀑布、广西桂林漓江、河南嵩山少林寺、贵州黄果树瀑布、湖北武当山等。
 
-红杉恒辰、上海国资背景的国孚领航、浦东创投现身本次发行前的前十名股东名单。
+摆渡车线路不科学、价格不合理、排队时间长、服务态度差等问题比较多的景区包括江西龙虎山、吉林长白山、安徽天柱山、四川稻城亚丁、山东崂山等。
 
-2023年至2025年，博睿康营收从7521万元爬升至1.08亿元，净利润却连续三年告负，累计亏损高达3.28亿元。
+文化和旅游部资源开发司司长满宏卫表示，针对上述问题，将采取三方面治理措施：一是提级督促整改，要求属地和景区对照问题清单，坚持游客为本，逐一制定整改方案，限期开展整改工作。
 
-尤其2025年，归母净亏损骤扩至2.3亿元，即便剔除1.96亿元股份支付费用，扣非后仍亏逾4300万元。
+二是加强暗访检查，组织经常性“体检式”暗访检查，开展全时段网络信息收集，拓宽问题发现渠道，加强舆情收集分析，带着问题清单现场调研检查，完善问题督促整改机制。
 
-而承载此次IPO核心想象力的侵入式脑机接口产品NEO-ONE SCI——虽坐拥“全球首证”光环——报告期内创收为零。
+三是挂钩等级复核，将对问题多发、整改不力的，加强质量等级动态管理，该降低等级的降低等级，该取消等级的取消等级。
 
-除此之外，投资机构的要求从“能否上市”延伸到了“以什么估值上市、融到多少钱”。
+“我们还将持续加大对其它5A级旅游景区的问题核查，并要求各地对照质量等级的要求，对属地4A级及以下景区加强问题排查，列出重点，实施集中整治和限期整改，切实做到整治一批、提升一批。
 
-2025年10月，公司与投资方签署增资协议，约定上市时估值不低于50亿元、融资额不低于5亿元。
+”满宏卫说。
 
 ## 相关推荐
 
-- 2026-06-29 17:27 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 17:23 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 17:35 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 17:23 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 17:30 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 17:34 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 17:14 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 17:09 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 17:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 17:31 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 17:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 17:27 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 17:33 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 17:23 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 17:13 - [世界杯上那些封神的门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 17:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 17:38 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 17:32 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 17:32 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 17:38 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 17:35 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 17:37 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 17:17 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 17:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 17:27 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 17:33 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 17:15 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:12 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/11642.shtml)
-- 2026-06-29 17:08 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/2450181.shtml)
-- 2026-06-29 17:36 - [T1 KC](https://www.blog.minike.top/Article/details/526950550096.shtml)
-- 2026-06-29 17:22 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/003714309691.shtml)
-- 2026-06-29 17:06 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/508471.shtml)
-- 2026-06-29 17:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/297738211.shtml)
-- 2026-06-29 17:12 - [和周杰伦在演唱会合唱了](https://www.share.kurohicncr.top/Article/details/92128848496.shtml)
-- 2026-06-29 17:08 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/37291605614.shtml)
-- 2026-06-29 17:15 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/552542689.shtml)
-- 2026-06-29 17:27 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/87293.shtml)
-- 2026-06-29 17:11 - [金刚川](https://www.blog.minike.top/Article/details/63657.shtml)
-- 2026-06-29 17:28 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/097389488.shtml)
-- 2026-06-29 17:34 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/82765585350.shtml)
-- 2026-06-29 17:31 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/611561897.shtml)
-- 2026-06-29 17:28 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/55017583545.shtml)
+- 2026-06-29 17:23 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/07713976.shtml)
+- 2026-06-29 17:12 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/667150.shtml)
+- 2026-06-29 17:23 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/26274593760.shtml)
+- 2026-06-29 17:34 - [货车司机雨中帮交警挪树获表扬](https://www.share.minike.top/Article/details/22739.shtml)
+- 2026-06-29 17:30 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/07633551191.shtml)
+- 2026-06-29 17:30 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/60129009144.shtml)
+- 2026-06-29 17:30 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/941939.shtml)
+- 2026-06-29 17:30 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/28097.shtml)
+- 2026-06-29 17:28 - [BB大王横店拍戏](https://www.blog.kurohicncr.top/Article/details/686899643416.shtml)
+- 2026-06-29 17:30 - [王安宇尊重田曦薇的一切选择](http://www.blog.kurohicncr.top/Article/details/105160890812.shtml)
+- 2026-06-29 17:32 - [T1零封KC MSI](http://www.share.minike.top/Article/details/89641724.shtml)
+- 2026-06-29 17:21 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/313803131920.shtml)
+- 2026-06-29 17:28 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/50323367.shtml)
+- 2026-06-29 17:12 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/5813820648.shtml)
+- 2026-06-29 17:35 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/415882441112.shtml)

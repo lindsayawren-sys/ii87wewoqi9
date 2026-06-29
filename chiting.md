@@ -1,59 +1,61 @@
-# 首批商业不动产REITs正式上市，配套政策已在路上
+# 广交会叠加五一假期 广州口岸出入境客流持续高位增长
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-近期还有多只首批项目将依规发行上市。 6月18日，首批4只商业不动产REITs在上海鸣锣上市，标志着商业不动产REITs试点正式启航，我国公募REITs市场迈入新阶段。 这4只商业不动产REITs分别为汇添富上海地产商业REIT（508600.SH）、中信建投首农商业REIT（508601.SH）、国泰海通砂之船商业REIT（508602.SH）、中金唯品会商业REIT（508
+中新网广州4月28日电 (记者 方伟彬)记者28日从广州出入境边防检查总站(下称广州边检总站)获悉，随着五一假期临近，叠加即将开启的广交会第三期，广州边检总站下辖口岸将迎来新一轮客流高峰。 据统计，4月以来(截至4月28日0时)，广州边检总站所辖口岸出入境客流已超134万人次，同比增长11%，保持高位增长态势。其中，入境外籍人员数量同比大幅攀升25%，超21万名外籍人员通过单方
 
 ## 正文
 
-近期还有多只首批项目将依规发行上市。
+中新网广州4月28日电 (记者 方伟彬)记者28日从广州出入境边防检查总站(下称广州边检总站)获悉，随着五一假期临近，叠加即将开启的广交会第三期，广州边检总站下辖口岸将迎来新一轮客流高峰。
 
-6月18日，首批4只商业不动产REITs在上海鸣锣上市，标志着商业不动产REITs试点正式启航，我国公募REITs市场迈入新阶段。
+据统计，4月以来(截至4月28日0时)，广州边检总站所辖口岸出入境客流已超134万人次，同比增长11%，保持高位增长态势。
 
-这4只商业不动产REITs分别为汇添富上海地产商业REIT（508600.SH）、中信建投首农商业REIT（508601.SH）、国泰海通砂之船商业REIT（508602.SH）、中金唯品会商业REIT（508603.SH）。
+其中，入境外籍人员数量同比大幅攀升25%，超21万名外籍人员通过单方面免签、过境免签政策从白云机场口岸入境，占入境外籍人员总数超五成；持商贸类签证人员占比超三成，商贸往来成为拉动入境客流增长的重要支撑。
 
-上市首日，4只商业不动产REITs涨幅居前，其中国泰海通砂之船商业REIT涨幅位居REITs市场首位，涨幅达到11.08% 第一财经获悉，近期还有多只首批项目将依规发行上市，市场将稳步持续扩容。
+从客流结构看，境外客商来源更趋多元。
 
-与此同时，配套政策将持续完善，相关部门、地方政府正在研究推进土地使用权续期、税收支持、保险资金投资等配套举措，4只中证REITs全收益指数基金已于近日获得证监会批复，可为REITs市场引入超10亿元增量资金。
+广交会期间，“一带一路”共建国家出入境客流增幅明显，来自东盟、非洲、南美洲等地区的入境人员达18万人次，同比增长22.9%，成为入境参展采购的主力。
 
-截至目前，全市场已受理21只商业不动产REITs，拟募集资金超过600亿元。
+与此同时，法国、英国等欧洲国家入境人员超5万人次，同比增幅超40%，显示全球采购商入境参展、拓展商机的需求持续旺盛。
 
-其中，上交所已受理16只产品。
+据预测，五一假期期间，广州白云国际机场、琶洲港澳客运码头等6大客运口岸出入境旅客总流量预计约29.7万人次，日均5.94万人次，较2025年五一假期同比增长约22%。
 
-在业内看来，首批商业不动产REITs的成功落地，验证了国内商业不动产资本化路径的可行性。
+其中，白云国际机场口岸是客流高峰承载核心，假期日均客流量预计约5.5万人次；水路口岸客流增幅尤为亮眼，毗邻广交会展馆的琶洲港澳客运码头日均客流增幅达108%，南沙客运港、顺德客运港也分别实现75%、47.7%的同比增长。
 
 ## 相关推荐
 
-- 2026-06-29 17:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 17:33 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 17:35 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 17:07 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 17:29 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 17:24 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 17:20 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 17:16 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 17:30 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 17:15 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 17:35 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 17:13 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 17:17 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 17:27 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 17:36 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 17:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 17:13 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 17:16 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 17:31 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 17:27 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 17:27 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 17:24 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 17:38 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 17:38 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 17:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 17:36 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 17:14 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 17:21 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:29 - [起风了](http://www.share.kurohicncr.top/Article/details/99398083890.shtml)
-- 2026-06-29 17:33 - [金刚川](https://www.blog.kurohicncr.top/Article/details/339993412330.shtml)
-- 2026-06-29 17:09 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/39028.shtml)
-- 2026-06-29 17:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/40707.shtml)
-- 2026-06-29 17:06 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/93289610.shtml)
-- 2026-06-29 17:29 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/74524584.shtml)
-- 2026-06-29 17:15 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/8854782787.shtml)
-- 2026-06-29 17:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/96271322655.shtml)
-- 2026-06-29 17:19 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/57631.shtml)
-- 2026-06-29 17:19 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/667280325.shtml)
-- 2026-06-29 17:27 - [新能源车能当外接空调用吗](http://www.blog.kurohicncr.top/Article/details/47409092.shtml)
-- 2026-06-29 17:34 - [小娘惹](http://www.blog.minike.top/Article/details/092450248659.shtml)
-- 2026-06-29 17:06 - [世界杯上那些封神的门将](https://www.blog.minike.top/Article/details/5626065.shtml)
-- 2026-06-29 17:16 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/5467339.shtml)
-- 2026-06-29 17:34 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/2225800.shtml)
+- 2026-06-29 17:16 - [流金岁月](http://www.share.kurohicncr.top/Article/details/74316.shtml)
+- 2026-06-29 17:36 - [T1 KC](http://www.share.kurohicncr.top/Article/details/0689451582.shtml)
+- 2026-06-29 17:12 - [扫黑风暴](https://www.share.minike.top/Article/details/560122585.shtml)
+- 2026-06-29 17:33 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/8057515.shtml)
+- 2026-06-29 17:15 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/2777481677.shtml)
+- 2026-06-29 17:20 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/303412.shtml)
+- 2026-06-29 17:14 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.kurohicncr.top/Article/details/569935.shtml)
+- 2026-06-29 17:29 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/8849599.shtml)
+- 2026-06-29 17:17 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/432808195.shtml)
+- 2026-06-29 17:38 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/238435820738.shtml)
+- 2026-06-29 17:28 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/9351705023.shtml)
+- 2026-06-29 17:26 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.kurohicncr.top/Article/details/920286.shtml)
+- 2026-06-29 17:25 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/14325670.shtml)
+- 2026-06-29 17:19 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/5449871545.shtml)
+- 2026-06-29 17:33 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/43072263.shtml)

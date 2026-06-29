@@ -1,60 +1,57 @@
-# 美联储发布联邦公开市场委员会（FOMC）声明 维持利率不变
+# 今年以来北京口岸出入境人员突破700万人次 外国人同比增34%
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-专题：美联储维持利率不变，精简声明以移除降息偏向 美联储联邦公开市场委员会以12票赞成、0票反对的表决结果，批准发布以下声明： 为支持美联储的双重使命，委员会决定将联邦基金利率的目标区间维持在3.5%至3.75%不变。委员会重申了其在银行体系中维持充足准备金水平的政策。 尽管面临一定程度的不确定性（部分归因于中东冲突），经济活动仍以稳健的步伐扩张。生产率增长和资本投资表现强劲。
+中新社北京4月27日电 (记者 徐婧)北京边检总站27日发布的数据显示，截至4月26日8时，北京口岸今年出入境人员总量突破700万人次，同比增长13.3%。 今年4月以来，北京口岸出入境人员量持续高位运行，入境外国人数量增长明显。4月12日该口岸单日入境外国人近1.6万人次，创下今年以来单日入境外国人数量新高。截至4月25日，北京口岸今年入出境外国人超228万人次，占出入境人员
 
 ## 正文
 
-专题：美联储维持利率不变，精简声明以移除降息偏向 美联储联邦公开市场委员会以12票赞成、0票反对的表决结果，批准发布以下声明： 为支持美联储的双重使命，委员会决定将联邦基金利率的目标区间维持在3.5%至3.75%不变。
+中新社北京4月27日电 (记者 徐婧)北京边检总站27日发布的数据显示，截至4月26日8时，北京口岸今年出入境人员总量突破700万人次，同比增长13.3%。
 
-委员会重申了其在银行体系中维持充足准备金水平的政策。
+今年4月以来，北京口岸出入境人员量持续高位运行，入境外国人数量增长明显。
 
-尽管面临一定程度的不确定性（部分归因于中东冲突），经济活动仍以稳健的步伐扩张。
+4月12日该口岸单日入境外国人近1.6万人次，创下今年以来单日入境外国人数量新高。
 
-生产率增长和资本投资表现强劲。
+截至4月25日，北京口岸今年入出境外国人超228万人次，占出入境人员总量的32.7%，同比增长34%，其中享受免签和临时入境许可政策入境的外国人达82.8万人次，占入境外国人总数的70.4%。
 
-就业增长与劳动力规模保持同步，失业率变动不大。
+从内地居民出入境情况看，选择经北京口岸出入境的内地居民434万余人次，占出入境人员总量的62%。
 
-通胀率仍高于委员会设定的2%目标，部分原因是供给冲击推动了包括能源在内的某些领域的价格上涨。
+韩国、泰国、新加坡等国家是热门目的地。
 
-委员会将致力于实现价格稳定。
+夏秋航季启动以来，北京口岸国际航线持续扩容。
 
-责任编辑：李桐
+首都国际机场口岸加密多条欧洲航线，持续增加亚洲航线频次；大兴国际机场口岸计划连通国际及地区客运航点44个，满足旅客多样化出行需求。
 
 ## 相关推荐
 
-- 2026-06-29 17:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 17:09 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 17:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 17:14 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 17:27 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 17:35 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 17:20 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 17:07 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 17:25 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 17:11 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 17:35 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 17:35 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 17:10 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 17:19 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 17:17 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 17:19 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 17:29 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 17:28 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 17:36 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 17:14 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 17:40 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 17:37 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 17:15 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 17:35 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 17:34 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:30 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/915650.shtml)
-- 2026-06-29 17:30 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/61824.shtml)
-- 2026-06-29 17:11 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/42198821169.shtml)
-- 2026-06-29 17:06 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/7123211776.shtml)
-- 2026-06-29 17:30 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/575585925291.shtml)
-- 2026-06-29 17:33 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/5355093059.shtml)
-- 2026-06-29 17:23 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/592816114682.shtml)
-- 2026-06-29 17:30 - [四川地震前夕 街头电线上站满燕子](https://www.share.minike.top/Article/details/85048.shtml)
-- 2026-06-29 17:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/701091828.shtml)
-- 2026-06-29 17:27 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/16816689.shtml)
-- 2026-06-29 17:28 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/91480.shtml)
-- 2026-06-29 17:08 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/92173990045.shtml)
-- 2026-06-29 17:07 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.minike.top/Article/details/0677214421.shtml)
-- 2026-06-29 17:31 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/958993.shtml)
-- 2026-06-29 17:16 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.minike.top/Article/details/1254870569.shtml)
+- 2026-06-29 17:41 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/071720446348.shtml)
+- 2026-06-29 17:30 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/2332167.shtml)
+- 2026-06-29 17:38 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/8412296.shtml)
+- 2026-06-29 17:34 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/191529.shtml)
+- 2026-06-29 17:24 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/254452564911.shtml)
+- 2026-06-29 17:17 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/5110642759.shtml)
+- 2026-06-29 17:37 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/49105.shtml)
+- 2026-06-29 17:24 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/8564290795.shtml)
+- 2026-06-29 17:20 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/620366.shtml)
+- 2026-06-29 17:42 - [速度与激情9](https://www.share.minike.top/Article/details/01362630391.shtml)
+- 2026-06-29 17:29 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/67347101117.shtml)
+- 2026-06-29 17:31 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/52160514446.shtml)
+- 2026-06-29 17:37 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/8889270.shtml)
+- 2026-06-29 17:24 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/0096160698.shtml)
+- 2026-06-29 17:23 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/70485332852.shtml)

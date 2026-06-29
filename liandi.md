@@ -1,59 +1,57 @@
-# 促进分布式数字身份互通互认 国家网信办公开征求意见
+# 金砖高手在广东肇庆竞逐新能
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-为促进分布式数字身份创新发展和互通互认应用，建立健全分布式数字身份公共服务体系，支撑国家区块链网络基础共性服务能力建设，根据有关法律法规，我办会同有关部门起草了《促进分布式数字身份互通互认应用规定(征求意见稿)》，现向社会公开征求意见。公众可通过以下途径和方式提出反馈意见：1.通过电子邮件方式发送至：did@cac.gov.cn。 2.通过信函方式将意见寄至：北京市海淀区阜成路
+中新网肇庆4月28日电 (记者 蔡敏婕)双光源协同赋能全光谱补光，结合 AI智能物联精准调控，为植物定制专属光照方案，综合能耗较传统方案降低超过40%…… 人工智能物联网调控植物节能补光整体解决方案项目负责人张福良28日在广东肇庆表示，该项目可模拟自然光并精准匹配植物光合作用需求，同时利用AI对植物全生长周期进行数据拟合与调控，并且针对不同作物开发了包含光配比、强度、光周期等在
 
 ## 正文
 
-为促进分布式数字身份创新发展和互通互认应用，建立健全分布式数字身份公共服务体系，支撑国家区块链网络基础共性服务能力建设，根据有关法律法规，我办会同有关部门起草了《促进分布式数字身份互通互认应用规定(征求意见稿)》，现向社会公开征求意见。
+中新网肇庆4月28日电 (记者 蔡敏婕)双光源协同赋能全光谱补光，结合 AI智能物联精准调控，为植物定制专属光照方案，综合能耗较传统方案降低超过40%…… 人工智能物联网调控植物节能补光整体解决方案项目负责人张福良28日在广东肇庆表示，该项目可模拟自然光并精准匹配植物光合作用需求，同时利用AI对植物全生长周期进行数据拟合与调控，并且针对不同作物开发了包含光配比、强度、光周期等在内的核心光配方。
 
-公众可通过以下途径和方式提出反馈意见：1.通过电子邮件方式发送至：did@cac.gov.cn。
+“这项技术已在埃塞俄比亚、东南亚等地开展育苗等研究，并在内地推广近1000亩，覆盖火龙果、荔枝、蓝莓、红掌及寿光蔬菜等众多作物。
 
-2.通过信函方式将意见寄至：北京市海淀区阜成路15号国家互联网信息办公室信息化发展局，邮编100048，并在信封上注明“促进分布式数字身份互通互认应用规定”。
+”张福良说，项目对多种高附加值经济作物普遍实现增产，例如番茄增产约25%，辣椒增产25%-30%，蓝莓甜度提升8%-10%，“希望借助‘金砖国家工业创新大赛’这一平台，拓展海外市场”。
 
-意见反馈截止时间为2026年7月18日。
+2026金砖国家工业创新大赛“能源电子产业”赛道选拔赛当天在广东肇庆高新区拉开帷幕。
 
-附件：促进分布式数字身份互通互认应用规定(征求意见稿) 国家互联网信息办公室 2026年6月18日 促进分布式数字身份互通互认应用规定 (征求意见稿) 第一章 总则 第一条 为深入推进网络强国、数字中国战略实施，促进分布式数字身份创新发展和互通互认应用，建立健全分布式数字身份公共服务体系，夯实网络空间可信身份认证基础，支撑国家区块链网络基础共性服务能力建设，推动国民经济和社会发展各领域数字身份跨平台互通互认，根据《中华人民共和国网络安全法》《中华人民共和国数据安全法》《中华人民共和国个人信息保护法》《中华人民共和国电子签名法》等法律法规，制定本规定。
+大赛以“智汇金砖创新发展加速新工业革命进程”为主题，搭建起金砖国家能源电子领域技术交流、产业对接、成果转化的国际化平台，设有新型储能、太阳能光伏、高鼎端科教走廊三大赛场，赛事自启动报名以来，吸引海内外众多创新主体踊跃参与，经前期线上严格初审，85个优秀项目入围选拔赛。
 
-第二条 本规定所称分布式数字身份，是指基于区块链等分布式技术，支持用户自主管理身份信息的新型数字身份，由标识符、密钥、可验证凭证和可验证声明构成，可用于数字账户管理、登录认证、数据授权等场景，旨在解决跨地域、跨行业、跨平台身份互通互认问题。
+工业和信息化部国际经济技术合作中心副主任张强在开幕式上指出，金砖国家能源消费总量占全球比重约40%，大力发展以光伏、储能为代表的可再生能源是金砖国家绿色转型的重要途径。
 
-本规定所称国家区块链网络，是指基于区块链技术，由国家统筹规划建设，遵循统一技术标准和接入规范，面向社会提供服务的数字基础设施。
+本届赛道项目聚焦新能源、储能、光伏、低碳智慧能源领域，汇聚高校与企业优质成果，技术领先、落地性强，展现能源产业创新活力。
 
-本规定所称分布式数字身份公共服务(以下称“公共服务”)，是指依托分布式数字身份链，为个人、机关事业单位、法人及其他组织机构、工业设备及物品等主体提供的分布式数字身份申请注册、身份核验、可验证凭证签发和可验证凭证授权使用等服务。
+此次大赛所在的肇庆高新技术产业开发区位于粤港澳大湾区西部，该区形成以新能源智能网联汽车及零部件、新型储能为核心，食品饮料、生物医药、家居建材协同发展的产业集群，聚集宁德时代、小鹏汽车、宏旺金属等链主企业，80多家新能源汽车相关企业构建起从整车到后市场的完整产业生态。
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 17:24 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 17:32 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 17:34 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 17:10 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 17:29 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 17:27 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 17:06 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 17:06 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 17:35 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 17:35 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 17:22 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 17:12 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 17:37 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 17:33 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 17:14 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 17:31 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 17:14 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 17:35 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 17:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 17:16 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 17:27 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 17:30 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 17:20 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/997211.shtml)
-- 2026-06-29 17:23 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/658119031107.shtml)
-- 2026-06-29 17:32 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/609844149.shtml)
-- 2026-06-29 17:34 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/010576575.shtml)
-- 2026-06-29 17:14 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.minike.top/Article/details/42837.shtml)
-- 2026-06-29 17:14 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/173562656.shtml)
-- 2026-06-29 17:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/96764413.shtml)
-- 2026-06-29 17:32 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/444948070.shtml)
-- 2026-06-29 17:24 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/997806912.shtml)
-- 2026-06-29 17:20 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/65291335.shtml)
-- 2026-06-29 17:28 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/1292249.shtml)
-- 2026-06-29 17:25 - [依法管制阻遏日方军事化危险动向](http://www.share.minike.top/Article/details/6224888446.shtml)
-- 2026-06-29 17:21 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/95153685.shtml)
-- 2026-06-29 17:32 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/754049971.shtml)
-- 2026-06-29 17:13 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/3236182551.shtml)
+- 2026-06-29 17:14 - [货车司机雨中帮交警挪树获表扬](https://www.share.kurohicncr.top/Article/details/87876756.shtml)
+- 2026-06-29 17:23 - [滾石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/274267227465.shtml)
+- 2026-06-29 17:39 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/323308090710.shtml)
+- 2026-06-29 17:15 - [20年前的周杰伦](http://www.share.kurohicncr.top/Article/details/39175.shtml)
+- 2026-06-29 17:38 - [王俊凯命名方式](https://www.share.minike.top/Article/details/7406678.shtml)
+- 2026-06-29 17:21 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/04129.shtml)
+- 2026-06-29 17:34 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/24784094.shtml)
+- 2026-06-29 17:30 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/7524941011.shtml)
+- 2026-06-29 17:27 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/17035.shtml)
+- 2026-06-29 17:19 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/10990984448.shtml)
+- 2026-06-29 17:31 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/436306.shtml)
+- 2026-06-29 17:12 - [5万块的威力](http://www.blog.minike.top/Article/details/0807170.shtml)
+- 2026-06-29 17:12 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/66378.shtml)
+- 2026-06-29 17:30 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/3365345.shtml)
+- 2026-06-29 17:31 - [断骨增高灰产拉一人提成1.5万元](https://www.share.minike.top/Article/details/4792208620.shtml)

@@ -1,58 +1,56 @@
-# 2026年中国（广西）—东盟青年手拉手活动在南宁举办
+# 重磅！中央政治局会议定调，八大看点速览！
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月17日电 (陈秋霞)6月17日，2026年中国(广西)—东盟青年手拉手活动在南宁举行。来自中国与东盟的青年代表、高校师生及组织单位代表等近350人齐聚一堂，交流分享、共叙友谊。 本次活动以“青春伙伴 桂在携手”为主题，由广西青年联合会、广西壮族自治区人民政府新闻办公室主办，广西民族大学、中国(广西)国际青年交流学院共同承办。 在故事分享环节，来自中国、柬埔寨、老挝
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！江聃、程丹、贺觉渊、孙璐璐、秦燕玲、韩忠楠、郭博昊、张达 4月28日召开的中央政治局会议，分析研究当前经济形势和经济工作。会议对今年经济起步定调积极，认为“主要指标好于预期，彰显强大韧性和活力”。对于下一步经济工作，提出“要增强信心，以更大力度和更实举措抓好经济工作”。 对比去年4月、7月的中央政治局会议，
 
 ## 正文
 
-中新网南宁6月17日电 (陈秋霞)6月17日，2026年中国(广西)—东盟青年手拉手活动在南宁举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来自中国与东盟的青年代表、高校师生及组织单位代表等近350人齐聚一堂，交流分享、共叙友谊。
+江聃、程丹、贺觉渊、孙璐璐、秦燕玲、韩忠楠、郭博昊、张达 4月28日召开的中央政治局会议，分析研究当前经济形势和经济工作。
 
-本次活动以“青春伙伴 桂在携手”为主题，由广西青年联合会、广西壮族自治区人民政府新闻办公室主办，广西民族大学、中国(广西)国际青年交流学院共同承办。
+会议对今年经济起步定调积极，认为“主要指标好于预期，彰显强大韧性和活力”。
 
-在故事分享环节，来自中国、柬埔寨、老挝、缅甸、泰国、越南的6名新聘任“广西故事青年讲述官”依次登台。
+对于下一步经济工作，提出“要增强信心，以更大力度和更实举措抓好经济工作”。
 
-他们紧扣数字经济、绿色发展、乡村振兴、文化交流及个人成长等时代议题，结合自身亲身经历与亲眼见证，生动讲述了中国与东盟青年在互学互鉴中共同成长、在守望相助中携手前行的青春故事。
+对比去年4月、7月的中央政治局会议，以及去年12月的中央经济工作会议，此次会议对下阶段宏观政策定调新增 “精准有效”表述要求，继续强调着力“四稳”（稳就业、稳企业、稳市场、稳预期）。
 
-据了解，自2022年以来，中国(广西)—东盟青年手拉手活动已成功举办5届，累计聘任31名中国、东盟青年为“广西故事青年讲述官”，吸引了超过1800名中国和东盟各国的优秀青年参加，为推动地区青年互学互鉴、共同发展搭建了有益平台。
+重点任务则继续注重挖潜内需潜力、建设现代化产业体系等，强调推动消费升级、加强“六大网”等新型基础设施建设，明确提出保持制造业合理比重、深入整治“内卷式”竞争、完善人工智能治理等要求。
 
-(完)
+此外，在防范化解重点领域风险方面，努力稳定房地产市场、着力解决拖欠企业账款问题、稳定和增强资本市场信心等再被提及。
+
+多位受访专家认为，面对一季度经济良好开局的局面，当前工作的重点是“用好用足”前期已经出台的存量政策，确保政策红利充分释放。
 
 ## 相关推荐
 
-- 2026-06-29 17:34 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 17:15 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 17:25 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 17:28 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 17:27 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 17:23 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 17:22 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 17:28 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 17:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 17:26 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 17:24 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 17:10 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 17:35 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 17:34 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 17:32 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 17:24 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 17:35 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 17:32 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 17:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 17:27 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 17:16 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 17:24 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 17:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 17:14 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:32 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/702404998.shtml)
-- 2026-06-29 17:30 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/993516089020.shtml)
-- 2026-06-29 17:10 - [新能源车能当外接空调用吗](http://www.share.kurohicncr.top/Article/details/298180.shtml)
-- 2026-06-29 17:11 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/467577855982.shtml)
-- 2026-06-29 17:23 - [沉睡花园](http://www.blog.minike.top/Article/details/05317214.shtml)
-- 2026-06-29 17:22 - [省市招考专家解读山西高考志愿政策](http://www.blog.minike.top/Article/details/12734632967.shtml)
-- 2026-06-29 17:20 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/855909583.shtml)
-- 2026-06-29 17:14 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/740240160.shtml)
-- 2026-06-29 17:15 - [大六座SUV进入黄金时代](http://www.share.minike.top/Article/details/86651175047.shtml)
-- 2026-06-29 17:33 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.kurohicncr.top/Article/details/725422604.shtml)
-- 2026-06-29 17:24 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/73548.shtml)
-- 2026-06-29 17:31 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/3608847.shtml)
-- 2026-06-29 17:31 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/01226538.shtml)
-- 2026-06-29 17:11 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/20624.shtml)
-- 2026-06-29 17:18 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/98732.shtml)
+- 2026-06-29 17:30 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/8413395461.shtml)
+- 2026-06-29 17:27 - [东方风云榜红毯](http://www.share.minike.top/Article/details/9946493747.shtml)
+- 2026-06-29 17:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/90239389.shtml)
+- 2026-06-29 17:14 - [小说《无悔追踪》翻红](http://www.share.minike.top/Article/details/7776183937.shtml)
+- 2026-06-29 17:34 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.minike.top/Article/details/3294998823.shtml)
+- 2026-06-29 17:37 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/5485743.shtml)
+- 2026-06-29 17:19 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/81517.shtml)
+- 2026-06-29 17:14 - [首个靠AI躺赢的国家](https://www.share.minike.top/Article/details/135249.shtml)
+- 2026-06-29 17:23 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/63143594.shtml)
+- 2026-06-29 17:25 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/6322584308.shtml)
+- 2026-06-29 17:25 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/42189.shtml)
+- 2026-06-29 17:16 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/15301860356.shtml)
+- 2026-06-29 17:15 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/61123650676.shtml)
+- 2026-06-29 17:26 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/592972617053.shtml)
+- 2026-06-29 17:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/18254.shtml)

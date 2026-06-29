@@ -1,56 +1,61 @@
-# 骗购、套开、转售麻精药品或涉嫌毒品犯罪 国家卫健委提醒
+# 阿联酋油企通知客户下月在霍尔木兹海峡外提货
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新网6月17日电 国家卫生健康委17日召开新闻发布会。会上，国家卫生健康委新闻发言人胡强强介绍，今年6月26日是第39个国际禁毒日，根据《中华人民共和国禁毒法》，毒品不仅包括鸦片、海洛因、冰毒等物质，也包括国家规定管制的其它能够使人成瘾的麻醉药品和精神药品。国家卫生健康委提醒： 第一，合理使用麻醉药品和精神药品，有助于治疗疾病、控制疼痛，不当使用则可能导致成瘾及其他的副作用，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社北京4月28日电据美国彭博新闻社28日报道，阿拉伯联合酋长国一家国营石油企业已通知其部分长期客户，5月份可在波斯湾外的富查伊拉港以船对船转运方式提取货物。这表明已有阿联酋油轮突破伊朗和美国的“双重封锁”，穿过霍尔木兹海峡。 这是2025年2月19日拍摄的霍尔木兹海峡的资料照片。新华社记者汪强摄报道说，
 
 ## 正文
 
-中新网6月17日电 国家卫生健康委17日召开新闻发布会。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-会上，国家卫生健康委新闻发言人胡强强介绍，今年6月26日是第39个国际禁毒日，根据《中华人民共和国禁毒法》，毒品不仅包括鸦片、海洛因、冰毒等物质，也包括国家规定管制的其它能够使人成瘾的麻醉药品和精神药品。
+新华社北京4月28日电据美国彭博新闻社28日报道，阿拉伯联合酋长国一家国营石油企业已通知其部分长期客户，5月份可在波斯湾外的富查伊拉港以船对船转运方式提取货物。
 
-国家卫生健康委提醒： 第一，合理使用麻醉药品和精神药品，有助于治疗疾病、控制疼痛，不当使用则可能导致成瘾及其他的副作用，上述药品必须遵医嘱凭处方购买，规范使用，使用过程中需按医嘱定期复诊，不得擅自购买使用或调整用药剂量。
+这表明已有阿联酋油轮突破伊朗和美国的“双重封锁”，穿过霍尔木兹海峡。
 
-第二，过期和剩余的麻醉药品和精神药品应当按规定交回医疗机构，不得向他人转售。
+这是2025年2月19日拍摄的霍尔木兹海峡的资料照片。
 
-第三，骗购、套开、转售麻醉药品和精神药品可能涉嫌毒品犯罪，并要承担相应的法律责任。
+新华社记者汪强摄报道说，阿布扎比国家石油公司的部分长期客户接到通知，可以在富查伊拉港提取包括上扎库姆原油在内的货物。
 
-此外，愈美片、普瑞巴林等部分药品虽未纳入麻醉药品和精神药品的目录管理，但同样具有成瘾性风险，不合理使用也可能对神经、呼吸系统造成损害，甚至危及生命。
+上扎库姆原油产自上扎库姆海上油田，通常从位于波斯湾深处的泽尔库岛港口装运，没有通往陆地的输油管道。
 
-在购买、使用时要谨慎和警惕。
+彭博新闻社认为，这一消息意味着运载这些原油的油轮已经通过霍尔木兹海峡。
+
+目前，尚不清楚阿联酋是否与伊朗谈妥相关安排，伊朗方面也没有作出回应。
 
 ## 相关推荐
 
-- 2026-06-29 17:27 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 17:19 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 17:27 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 17:28 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 17:25 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 17:32 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 17:29 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 17:34 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 17:12 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 17:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 17:09 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 17:17 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 17:13 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 17:20 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 17:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 17:38 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 17:26 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 17:15 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 17:28 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 17:36 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 17:37 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 17:30 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 17:27 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 17:26 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 17:27 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 17:32 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 17:23 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:27 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/90844919805.shtml)
-- 2026-06-29 17:34 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/050293323.shtml)
-- 2026-06-29 17:36 - [海口塔吊事故处罚结果公布](http://www.blog.kurohicncr.top/Article/details/30093.shtml)
-- 2026-06-29 17:13 - [当我回母校教书](http://www.blog.minike.top/Article/details/172947279.shtml)
-- 2026-06-29 17:13 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/470823572288.shtml)
-- 2026-06-29 17:15 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/8746477617.shtml)
-- 2026-06-29 17:22 - [博主：AI泡沫必须破灭](http://www.share.minike.top/Article/details/28259.shtml)
-- 2026-06-29 17:23 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/280169.shtml)
-- 2026-06-29 17:14 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/5405436808.shtml)
-- 2026-06-29 17:25 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/405526199852.shtml)
-- 2026-06-29 17:17 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/62105.shtml)
-- 2026-06-29 17:11 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/30644.shtml)
-- 2026-06-29 17:17 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/960672425.shtml)
-- 2026-06-29 17:28 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/16146.shtml)
-- 2026-06-29 17:10 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/020267440.shtml)
+- 2026-06-29 17:31 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/66861049.shtml)
+- 2026-06-29 17:34 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/3186626908.shtml)
+- 2026-06-29 17:20 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/110317463800.shtml)
+- 2026-06-29 17:32 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/1492864028.shtml)
+- 2026-06-29 17:39 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/348053390535.shtml)
+- 2026-06-29 17:16 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/422022.shtml)
+- 2026-06-29 17:28 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/82259737.shtml)
+- 2026-06-29 17:33 - [首个靠AI躺赢的国家](https://www.share.minike.top/Article/details/0309014.shtml)
+- 2026-06-29 17:39 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/8687255.shtml)
+- 2026-06-29 17:23 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/97639.shtml)
+- 2026-06-29 17:31 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/9113038.shtml)
+- 2026-06-29 17:38 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/69153510.shtml)
+- 2026-06-29 17:23 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/8215792370.shtml)
+- 2026-06-29 17:16 - [美国大满贯首日国乒主力均取胜](http://www.blog.minike.top/Article/details/5356659201.shtml)
+- 2026-06-29 17:28 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/79510.shtml)

@@ -1,51 +1,56 @@
-# 缅甸总统乘高铁抵达杭州 将参观宇树科技
+# 阿里巴巴入选《时代》杂志“2026年最具影响力的10家人工智能公司”
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 21:10 来源：中国新闻网 6月18日下午，缅甸总统敏昂莱乘坐高铁抵达浙江杭州，杭州是他此次访华的最后一站。在杭州，敏昂莱将走访青士新材料、宇树科技等企业，考察中国在绿色新材料、人工智能领域的发展成果。(记者 孙杨洋 鲍梦妮 编辑 方敏） 责任编辑：【李季】
+《时代》杂志今日公布“2026年最具影响力的10家人工智能公司”名单，这10家公司分别为字节跳动、亚马逊、智谱、OpenAI、Alphabet、Meta、Anthropic、阿里巴巴、Mistral和Hugging Face。 国内公司占据其中三席，分别为字节跳动、智谱、阿里巴巴。 《时代》认为，字节跳动如今已转型为一家以人工智能为先的科技公司，产品涵盖聊天机器人、图像与视频生
 
 ## 正文
 
-发布时间：2026年06月18日 21:10 来源：中国新闻网 6月18日下午，缅甸总统敏昂莱乘坐高铁抵达浙江杭州，杭州是他此次访华的最后一站。
+《时代》杂志今日公布“2026年最具影响力的10家人工智能公司”名单，这10家公司分别为字节跳动、亚马逊、智谱、OpenAI、Alphabet、Meta、Anthropic、阿里巴巴、Mistral和Hugging Face。
 
-在杭州，敏昂莱将走访青士新材料、宇树科技等企业，考察中国在绿色新材料、人工智能领域的发展成果。
+国内公司占据其中三席，分别为字节跳动、智谱、阿里巴巴。
 
-(记者 孙杨洋 鲍梦妮 编辑 方敏） 责任编辑：【李季】
+《时代》认为，字节跳动如今已转型为一家以人工智能为先的科技公司，产品涵盖聊天机器人、图像与视频生成以及云基础设施。
+
+最能预示字节跳动未来方向的，是其AI助手豆包，该应用已积累了超过1.55亿周活跃用户，并在今年2月的农历新年假期期间日活用户突破1亿，使中国成为全球首批大规模应用AI助手的国家之一。
+
+谈及智谱，《时代》评价称，智谱GLM-5以开源许可发布，在某些基准测试中已超越谷歌的Gemini 3 Pro等竞争对手，并在编码和智能体任务方面接近Claude Opus 4.5和OpenAI的GPT-5.2。
+
+智谱的模型已经为全球218个国家和地区超过400万企业用户和开发者提供支持。
+
+《时代》表示，阿里巴巴已成为开源AI领域的主导力量，通义千问（Qwen）系列模型的累计下载量已突破10亿次，并衍生出超过20万个模型，成为全球最受欢迎的开源模型家族，影响力远不止于中国。
+
+目前，阿里巴巴正试图将其在开源模型领域的领先地位，转化为一个全栈式的AI帝国。
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 17:10 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 17:06 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 17:15 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 17:09 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 17:08 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 17:09 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 17:08 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 17:22 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 17:21 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 17:18 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 17:22 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 17:18 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 17:16 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 17:23 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 17:27 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 17:27 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 17:26 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 17:36 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 17:21 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 17:23 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 17:23 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 17:14 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 17:18 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 17:20 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:06 - [沙丘](http://www.blog.minike.top/Article/details/7743580.shtml)
-- 2026-06-29 17:25 - [世界杯预测史上最不吃压力之物](https://www.share.minike.top/Article/details/17380.shtml)
-- 2026-06-29 17:22 - [沉睡花园](https://www.share.minike.top/Article/details/02252521.shtml)
-- 2026-06-29 17:07 - [依法管制阻遏日方军事化危险动向](http://www.share.minike.top/Article/details/64271967671.shtml)
-- 2026-06-29 17:22 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/99196280.shtml)
-- 2026-06-29 17:15 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/65168.shtml)
-- 2026-06-29 17:14 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/113096431003.shtml)
-- 2026-06-29 17:16 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/5238589571.shtml)
-- 2026-06-29 17:20 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/81576346.shtml)
-- 2026-06-29 17:12 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/50257474.shtml)
-- 2026-06-29 17:35 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/980919204914.shtml)
-- 2026-06-29 17:19 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/7613348.shtml)
-- 2026-06-29 17:30 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/829264662687.shtml)
-- 2026-06-29 17:31 - [滾石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/5216855937.shtml)
-- 2026-06-29 17:23 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/28842.shtml)
+- 2026-06-29 17:27 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/69706.shtml)
+- 2026-06-29 17:14 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/346216998920.shtml)
+- 2026-06-29 17:39 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/31086916267.shtml)
+- 2026-06-29 17:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/63665816214.shtml)
+- 2026-06-29 17:33 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/5211414076.shtml)
+- 2026-06-29 17:31 - [四川达州发生一起交通事故致2死](https://www.share.kurohicncr.top/Article/details/6594258651.shtml)
+- 2026-06-29 17:20 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/14501876.shtml)
+- 2026-06-29 17:30 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/735022109.shtml)
+- 2026-06-29 17:39 - [朱必达辞去湖南人大常委会委员职务](https://www.share.minike.top/Article/details/8939234.shtml)
+- 2026-06-29 17:15 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/45986389.shtml)
+- 2026-06-29 17:28 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/62173.shtml)
+- 2026-06-29 17:25 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/556832353.shtml)
+- 2026-06-29 17:26 - [普京承认俄出现燃料危机](http://www.share.minike.top/Article/details/4105407.shtml)
+- 2026-06-29 17:23 - [美国大满贯首日国乒主力均取胜](https://www.blog.minike.top/Article/details/59888673514.shtml)
+- 2026-06-29 17:39 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/84459254480.shtml)

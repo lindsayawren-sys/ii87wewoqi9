@@ -1,42 +1,61 @@
-# 中国首条第8.6代AMOLED生产线正式量产
+# 因涉嫌信息披露违法违规，“玉米油第一股”西王食品及实控人王勇被证监会立案调查
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 15:01 来源：央视新闻 责任编辑：【王祎】
+登录新浪财经APP 搜索【信披】查看更多考评等级 4月28日，被称为“玉米油第一股”的西王食品（000639.SZ）披露关于收到中国证券监督管理委员会立案告知书的公告。 根据公告内容，西王食品于近日收到中国证券监督管理委员会分别对公司、实际控制人王勇下发的《立案告知书》（告知书编号分别为：证监立案字 0042026002 号、证监立案字0042026003 号）。因涉嫌信息披露
 
 ## 正文
 
-发布时间：2026年06月18日 15:01 来源：央视新闻 责任编辑：【王祎】
+登录新浪财经APP 搜索【信披】查看更多考评等级 4月28日，被称为“玉米油第一股”的西王食品（000639.SZ）披露关于收到中国证券监督管理委员会立案告知书的公告。
+
+根据公告内容，西王食品于近日收到中国证券监督管理委员会分别对公司、实际控制人王勇下发的《立案告知书》（告知书编号分别为：证监立案字 0042026002 号、证监立案字0042026003 号）。
+
+因涉嫌信息披露违法违规，根据《中华人民共和国证券法》、《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司、王勇进行立案调查。
+
+西王食品表示，公司及王勇将积极配合中国证监会的调查工作，并严格按照相关法律法规及监管要求及时履行信息披露义务。
+
+目前公司各项生产经营活动正常有序开展，本次立案不会对公司生产、经营和管理造成重大影响。
+
+官网资料显示，西王食品股份有限公司隶属于西王集团有限公司，主产品为西王牌玉米胚芽油及鲜胚玉米胚芽油，产品涉及葵花籽油、橄榄油、亚麻籽油、花生油等多个健康油种。
+
+2011年2月在深圳A股主板上市，成为国内A股主板的玉米油企业。
+
+而其控股股东西王集团始建于1986年，是一家以玉米深加工和特钢两大实体产业为主的大型民营企业，控股3家上市公司、1家财务公司、4家高新技术企业。
 
 ## 相关推荐
 
-- 2026-06-29 17:06 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 17:35 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 17:30 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 17:34 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 17:23 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 17:14 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 17:07 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 17:26 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 17:35 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 17:19 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 17:28 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 17:25 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 17:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 17:14 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 17:26 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 17:25 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 17:38 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 17:32 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 17:38 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 17:30 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 17:15 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 17:23 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 17:18 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 17:33 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 17:39 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:31 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/3222615040.shtml)
-- 2026-06-29 17:31 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/789445.shtml)
-- 2026-06-29 17:07 - [扬名立万](https://www.blog.minike.top/Article/details/315936947.shtml)
-- 2026-06-29 17:07 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/86231286.shtml)
-- 2026-06-29 17:35 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/9566494.shtml)
-- 2026-06-29 17:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/93387360646.shtml)
-- 2026-06-29 17:15 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/6649290787.shtml)
-- 2026-06-29 17:16 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/71387346939.shtml)
-- 2026-06-29 17:17 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/17481678078.shtml)
-- 2026-06-29 17:16 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/194027015.shtml)
-- 2026-06-29 17:26 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/6227491.shtml)
-- 2026-06-29 17:34 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/78459081.shtml)
-- 2026-06-29 17:34 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/63243761171.shtml)
-- 2026-06-29 17:34 - [医院大厅放钢琴是形式主义吗](http://www.blog.minike.top/Article/details/5522792121.shtml)
-- 2026-06-29 17:07 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/90125.shtml)
+- 2026-06-29 17:24 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/24315782402.shtml)
+- 2026-06-29 17:24 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/274079445305.shtml)
+- 2026-06-29 17:27 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/508324.shtml)
+- 2026-06-29 17:22 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/35979501.shtml)
+- 2026-06-29 17:41 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/6867570617.shtml)
+- 2026-06-29 17:37 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/7888771775.shtml)
+- 2026-06-29 17:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/03533627032.shtml)
+- 2026-06-29 17:37 - [金刚川](https://www.share.minike.top/Article/details/5453895.shtml)
+- 2026-06-29 17:21 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/18418228832.shtml)
+- 2026-06-29 17:21 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/9097978615.shtml)
+- 2026-06-29 17:33 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/96738110.shtml)
+- 2026-06-29 17:23 - [四川地震前夕 街头电线上站满燕子](http://www.blog.kurohicncr.top/Article/details/1634961.shtml)
+- 2026-06-29 17:26 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/42501988364.shtml)
+- 2026-06-29 17:16 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/079877735432.shtml)
+- 2026-06-29 17:39 - [周生如故](http://www.share.minike.top/Article/details/3075962.shtml)

@@ -1,56 +1,61 @@
-# 原油：油价小幅上涨 交易员在等待美伊签署协议
+# 宏辉果蔬拟7亿元收购施美药业41.128%股份，跨界切入医药领域
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-在经历了连续两天的大跌之后，油价周三小幅回升，但美国和伊朗之间即将签署临时和平协议仍然对油价构成压力。该协议可能会重新开放霍尔木兹海峡，并使数以百万桶原油回归市场。 WTI原油上涨1%，收于每桶77美元以下。国际基准的布伦特原油收于每桶80美元下方。美国总统唐纳德·特朗普周三为他与伊朗达成的临时协议辩护，并表示该协议最早可能于周四签署。 一份协议草案显示霍尔木兹海峡将迅速重新开
+4月27日，宏辉果蔬（603336.SH）公告，公司拟以自有及自筹资金7.00亿元，受让江西施美药业股份有限公司41.128%股权。交易对手方为自然人江鸿。本次交易已获董事会审议通过，尚需提交公司2026年5月18日召开的股东会审议。 公告显示，施美药业成立于2002年11月，注册资本1.05亿元，注册地位于江西省抚州市东乡区，法定代表人为江鸿。公司主要从事化学原料药及化学制剂
 
 ## 正文
 
-在经历了连续两天的大跌之后，油价周三小幅回升，但美国和伊朗之间即将签署临时和平协议仍然对油价构成压力。
+4月27日，宏辉果蔬（603336.SH）公告，公司拟以自有及自筹资金7.00亿元，受让江西施美药业股份有限公司41.128%股权。
 
-该协议可能会重新开放霍尔木兹海峡，并使数以百万桶原油回归市场。
+交易对手方为自然人江鸿。
 
-WTI原油上涨1%，收于每桶77美元以下。
+本次交易已获董事会审议通过，尚需提交公司2026年5月18日召开的股东会审议。
 
-国际基准的布伦特原油收于每桶80美元下方。
+公告显示，施美药业成立于2002年11月，注册资本1.05亿元，注册地位于江西省抚州市东乡区，法定代表人为江鸿。
 
-美国总统唐纳德·特朗普周三为他与伊朗达成的临时协议辩护，并表示该协议最早可能于周四签署。
+公司主要从事化学原料药及化学制剂的研发、生产与销售，业务聚焦心脑血管类药物，并在手性药物领域开展相关布局。
 
-一份协议草案显示霍尔木兹海峡将迅速重新开放，同时对伊朗石油的制裁也将立即解除。
+根据披露，施美药业核心产品包括苯磺酸左旋氨氯地平片等。
 
-由于交易员预计大量新的供应将涌入市场，这引发了原油价格急跌。
+公司拥有国家级企业技术中心及手性药物国家地方工程研究中心等研发平台。
 
-“市场仍然聚焦于正常化相关的消息，这些消息持续对风险溢价构成压力，并削弱了投资者追高油价的意愿，” CIBC Private Wealth Group高级能源交易员Rebecca Babin表示。
+在研方面，公司围绕心脑血管等领域推进相关项目，多款改良型创新药处于临床阶段。
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 17:29 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 17:22 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 17:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 17:34 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 17:34 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 17:32 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 17:18 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 17:11 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 17:15 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 17:23 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 17:20 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 17:19 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 17:23 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 17:18 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 17:18 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 17:13 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 17:15 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 17:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 17:21 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 17:28 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 17:31 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 17:18 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 17:21 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 17:16 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:18 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/05453893917.shtml)
-- 2026-06-29 17:14 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/3933436.shtml)
-- 2026-06-29 17:13 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/1770091859.shtml)
-- 2026-06-29 17:27 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/22832787.shtml)
-- 2026-06-29 17:22 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/492748680.shtml)
-- 2026-06-29 17:33 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/538676354.shtml)
-- 2026-06-29 17:07 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/9006862.shtml)
-- 2026-06-29 17:10 - [省市招考专家解读山西高考志愿政策](http://www.blog.kurohicncr.top/Article/details/374953.shtml)
-- 2026-06-29 17:14 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/059190533715.shtml)
-- 2026-06-29 17:14 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/428073757503.shtml)
-- 2026-06-29 17:29 - [叠纸](http://www.share.kurohicncr.top/Article/details/894806.shtml)
-- 2026-06-29 17:30 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/73920.shtml)
-- 2026-06-29 17:33 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.minike.top/Article/details/761271.shtml)
-- 2026-06-29 17:29 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/298258466522.shtml)
-- 2026-06-29 17:25 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/6357541217.shtml)
+- 2026-06-29 17:32 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/945996794.shtml)
+- 2026-06-29 17:36 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/40717252443.shtml)
+- 2026-06-29 17:18 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/24059181843.shtml)
+- 2026-06-29 17:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/4835189206.shtml)
+- 2026-06-29 17:33 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/413433583804.shtml)
+- 2026-06-29 17:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/487195688455.shtml)
+- 2026-06-29 17:22 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/87182.shtml)
+- 2026-06-29 17:37 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/631880549.shtml)
+- 2026-06-29 17:13 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/55122192387.shtml)
+- 2026-06-29 17:34 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/46763380482.shtml)
+- 2026-06-29 17:33 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/428314.shtml)
+- 2026-06-29 17:33 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/05998120348.shtml)
+- 2026-06-29 17:16 - [看大国重器“云端穿针引线”](http://www.share.minike.top/Article/details/782143.shtml)
+- 2026-06-29 17:14 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/35283.shtml)
+- 2026-06-29 17:32 - [博主：AI泡沫必须破灭](https://www.share.kurohicncr.top/Article/details/4009531.shtml)

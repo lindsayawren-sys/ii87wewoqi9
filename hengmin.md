@@ -1,48 +1,60 @@
-# 中大西洋海岭中部海域发生地震
+# 元气森林旗下外星人推出全新产品“超能水”，零售价3元
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据国家海洋环境预报中心消息，据中国地震台网正式测定，2026年06月18日02时56分(北京时间)，中大西洋海岭中部海域(0.25°S,19.95°W)发生6.6级地震，震源深度为10千米。自然资源部海啸预警中心根据监测数据分析，此次地震没有监测到海啸。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月28日，近日，元气森林旗下品牌“外星人”正式推出首款功能水产品——外星人超能水。 据悉，该款产品以“水+电解质”为核心，零售价为3元，明确“功能水”的定位。 公开信息显示，区别于市面以甜味为主的电解质饮料，外星人超能水产品配料表极为简洁：水（≥99%）、天然来源电解质、食用盐、柠檬提取物。其核心卖点聚焦
 
 ## 正文
 
-中新网6月18日电 据国家海洋环境预报中心消息，据中国地震台网正式测定，2026年06月18日02时56分(北京时间)，中大西洋海岭中部海域(0.25°S,19.95°W)发生6.6级地震，震源深度为10千米。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-自然资源部海啸预警中心根据监测数据分析，此次地震没有监测到海啸。
+4月28日，近日，元气森林旗下品牌“外星人”正式推出首款功能水产品——外星人超能水。
+
+据悉，该款产品以“水+电解质”为核心，零售价为3元，明确“功能水”的定位。
+
+公开信息显示，区别于市面以甜味为主的电解质饮料，外星人超能水产品配料表极为简洁：水（≥99%）、天然来源电解质、食用盐、柠檬提取物。
+
+其核心卖点聚焦于“科学补水”——通过钠、钾、镁、氯等天然来源电解质，让补水更有效；淡淡的柠檬风味，清爽无负担。
+
+同时，外星人超能水售价仅3元，容量为600ml，14道净水工艺保障纯净度。
+
+外星人超能水项目从研发到上市历时近三年。
+
+据了解，团队在原料选择上坚持以天然柠檬提取物呈现自然风味，曾花费半年时间持续寻找、测试和筛选，只为找到保留清新感的最佳平衡点。
 
 ## 相关推荐
 
-- 2026-06-29 17:31 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 17:23 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 17:27 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 17:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 17:19 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 17:19 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 17:10 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 17:13 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 17:20 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 17:34 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 17:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 17:12 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 17:09 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 17:07 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 17:30 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 17:21 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 17:19 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 17:29 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 17:34 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 17:17 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 17:23 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 17:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 17:38 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 17:33 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 17:32 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 17:38 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 17:21 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 17:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:20 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/596017511505.shtml)
-- 2026-06-29 17:31 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/9141804.shtml)
-- 2026-06-29 17:25 - [叠纸](http://www.blog.kurohicncr.top/Article/details/495931512142.shtml)
-- 2026-06-29 17:31 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/548208316341.shtml)
-- 2026-06-29 17:08 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/80934154.shtml)
-- 2026-06-29 17:14 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/807914736.shtml)
-- 2026-06-29 17:30 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.minike.top/Article/details/4830553.shtml)
-- 2026-06-29 17:33 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/79108855313.shtml)
-- 2026-06-29 17:31 - [王安宇尊重田曦薇的一切选择](http://www.share.kurohicncr.top/Article/details/665820752573.shtml)
-- 2026-06-29 17:22 - [税务总局披露5起合规申报个税案例](http://www.blog.minike.top/Article/details/683364.shtml)
-- 2026-06-29 17:25 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/855343180263.shtml)
-- 2026-06-29 17:11 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/38700071591.shtml)
-- 2026-06-29 17:08 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/357690.shtml)
-- 2026-06-29 17:10 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/473842.shtml)
-- 2026-06-29 17:27 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/1856260462.shtml)
+- 2026-06-29 17:28 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/33573778.shtml)
+- 2026-06-29 17:27 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/77667562564.shtml)
+- 2026-06-29 17:34 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/53920771047.shtml)
+- 2026-06-29 17:31 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/130063586.shtml)
+- 2026-06-29 17:23 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.kurohicncr.top/Article/details/86681412.shtml)
+- 2026-06-29 17:36 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/84286287910.shtml)
+- 2026-06-29 17:21 - [金牌调解](https://www.share.minike.top/Article/details/4248569227.shtml)
+- 2026-06-29 17:29 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/27341020.shtml)
+- 2026-06-29 17:22 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/51966951938.shtml)
+- 2026-06-29 17:25 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/785059.shtml)
+- 2026-06-29 17:22 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/40331.shtml)
+- 2026-06-29 17:41 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/432559335416.shtml)
+- 2026-06-29 17:35 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/378911932476.shtml)
+- 2026-06-29 17:21 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/611000172645.shtml)
+- 2026-06-29 17:14 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/35189.shtml)

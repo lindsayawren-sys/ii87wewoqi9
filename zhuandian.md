@@ -1,54 +1,60 @@
-# 今年前5月湖北水运建设投资同比增长74%
+# 早盘：美股走低 纳指下跌逾200点
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新网武汉6月18日电 (梁婷 孙勋 )记者18日从湖北省港航事业发展中心获悉，今年前5月，湖北累计完成水运建设固定资产投资67.8亿元，同比增长74%。 湖北推动重大项目开工，推动三峡水运新通道工程、武汉港车都散货码头、宜昌港姚家港液体化工码头等7个重点项目开工建设，全省水运投资增量持续释放。 此外，该省加速推进重大项目实施，今年以来，汉湘桂内河航运大通道湖北段核心项目“四船
+北京时间4月28日晚，美股周二早盘走低，纳指下跌逾200点。油价上涨以及OpenAI发布的疲软报告令科技股承压。阿联酋宣布退出OPEC。 道指跌73.03点，跌幅为0.15%，报49094.76点；纳指跌202.39点，跌幅为0.81%，报24684.71点；标普500指数跌36.66点，跌幅为0.51%，报7137.25点。 据报道，OpenAI近期营收和新用户增长均低于其内
 
 ## 正文
 
-中新网武汉6月18日电 (梁婷 孙勋 )记者18日从湖北省港航事业发展中心获悉，今年前5月，湖北累计完成水运建设固定资产投资67.8亿元，同比增长74%。
+北京时间4月28日晚，美股周二早盘走低，纳指下跌逾200点。
 
-湖北推动重大项目开工，推动三峡水运新通道工程、武汉港车都散货码头、宜昌港姚家港液体化工码头等7个重点项目开工建设，全省水运投资增量持续释放。
+油价上涨以及OpenAI发布的疲软报告令科技股承压。
 
-此外，该省加速推进重大项目实施，今年以来，汉湘桂内河航运大通道湖北段核心项目“四船闸三航道”全速推进，进展显著。
+阿联酋宣布退出OPEC。
 
-随着武穴港马口作业区铁水联运一期、武穴港固昌综合码头、荆州港盐卡三期多用途码头工程等项目建成投运，新增港口通过能力超1500万吨。
+道指跌73.03点，跌幅为0.15%，报49094.76点；纳指跌202.39点，跌幅为0.81%，报24684.71点；标普500指数跌36.66点，跌幅为0.51%，报7137.25点。
 
-其中，总投资5.6亿元的荆州港盐卡三期多用途码头工程，规划建设4个3000吨级(兼顾5000吨级)泊位，配套建设铁路集装箱、件杂、散货等专业化后方堆场。
+据报道，OpenAI近期营收和新用户增长均低于其内部目标。
 
-随着三期工程投用，盐卡港已形成8个标准化运营泊位，拥有1公里连续优质岸线，年设计货物吞吐能力达700万吨、集装箱吞吐能力20万标箱，港口规模化、集约化运营格局全面形成。
+报道称，首席财务官萨拉-弗里尔已向领导层表达担忧，若收入增长不够快，OpenAI未来可能无力支付算力合同。
 
-(完)
+这一消息拖累科技股走低。
+
+英伟达下跌逾2%，博通下跌逾4%，AMD和英特尔分别下跌近6%和4%，甲骨文下跌逾7%。
 
 ## 相关推荐
 
-- 2026-06-29 17:15 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 17:28 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 17:28 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 17:31 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 17:07 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 17:20 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 17:16 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 17:35 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 17:14 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 17:35 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 17:17 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 17:37 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 17:21 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 17:33 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 17:17 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 17:25 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 17:19 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 17:17 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 17:21 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 17:27 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 17:14 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 17:37 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 17:40 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 17:18 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:15 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/5395033.shtml)
-- 2026-06-29 17:18 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/923466010.shtml)
-- 2026-06-29 17:27 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/581322766797.shtml)
-- 2026-06-29 17:34 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/708560668.shtml)
-- 2026-06-29 17:06 - [东方风云榜](http://www.share.minike.top/Article/details/403663442952.shtml)
-- 2026-06-29 17:06 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/454398251972.shtml)
-- 2026-06-29 17:30 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/605201174717.shtml)
-- 2026-06-29 17:15 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/228909558112.shtml)
-- 2026-06-29 17:11 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/404268.shtml)
-- 2026-06-29 17:25 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/38552624.shtml)
-- 2026-06-29 17:27 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/552025101109.shtml)
-- 2026-06-29 17:17 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/376402.shtml)
-- 2026-06-29 17:11 - [世界杯1/16决赛对阵出炉](http://www.blog.kurohicncr.top/Article/details/645632296996.shtml)
-- 2026-06-29 17:06 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/36738.shtml)
-- 2026-06-29 17:29 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/57118223.shtml)
+- 2026-06-29 17:34 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/421185.shtml)
+- 2026-06-29 17:41 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/630178.shtml)
+- 2026-06-29 17:16 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/63564092.shtml)
+- 2026-06-29 17:22 - [王俊凯命名方式](http://www.share.kurohicncr.top/Article/details/0900971252.shtml)
+- 2026-06-29 17:15 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/311904613.shtml)
+- 2026-06-29 17:17 - [斗破苍穹](https://www.share.minike.top/Article/details/24199398450.shtml)
+- 2026-06-29 17:38 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.kurohicncr.top/Article/details/858008.shtml)
+- 2026-06-29 17:38 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/70009786.shtml)
+- 2026-06-29 17:41 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/49011.shtml)
+- 2026-06-29 17:36 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/504134421379.shtml)
+- 2026-06-29 17:15 - [急先锋](http://www.blog.kurohicncr.top/Article/details/0052416.shtml)
+- 2026-06-29 17:40 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/1794106.shtml)
+- 2026-06-29 17:34 - [起风了](https://www.share.minike.top/Article/details/4055736137.shtml)
+- 2026-06-29 17:20 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/902449539755.shtml)
+- 2026-06-29 17:32 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/74630.shtml)

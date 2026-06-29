@@ -1,59 +1,61 @@
-# “寒王”暴涨刷新历史新高，华宝基金科创增强ETF（589280）连涨四日！硬科技成绝对吸金主线！
+# 全国五一劳动奖章获得者程艳：科技兴农践初心
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-端午节假期前最后一个交易日，市场再度延续结构性分化格局，三大指数涨跌互现，截至收盘，沪指跌0.43%，深证成指收涨0.94%，创业板指大涨2.05%。硬科技板块继续强势表现，科创综指今日大涨3.29%，刷新历史新高。两市成交额放大至3.33万亿元，显示资金活跃度有所提升。 一键布局硬科技的科创增强ETF华宝（589280）今日再度强势表现，盘中持续上攻，收盘大涨2.05%，场内
+中新网咸宁4月28日电 题：全国五一劳动奖章获得者程艳：科技兴农践初心 作者 胡传林 马丽娅 4月28日，2026年全国五一劳动奖评选结果揭晓。湖北隽青农业科技有限公司技术员程艳，同时荣获全国五一劳动奖章与全国五一巾帼标兵两项殊荣。这位“80后”新农人，告别都市白领身份，返乡十二载、创业六年，扎根乡土，深耕科技农业，用实干盘活撂荒土地，带动乡邻共富，以脚步书写乡村振兴答卷。 2
 
 ## 正文
 
-端午节假期前最后一个交易日，市场再度延续结构性分化格局，三大指数涨跌互现，截至收盘，沪指跌0.43%，深证成指收涨0.94%，创业板指大涨2.05%。
+中新网咸宁4月28日电 题：全国五一劳动奖章获得者程艳：科技兴农践初心 作者 胡传林 马丽娅 4月28日，2026年全国五一劳动奖评选结果揭晓。
 
-硬科技板块继续强势表现，科创综指今日大涨3.29%，刷新历史新高。
+湖北隽青农业科技有限公司技术员程艳，同时荣获全国五一劳动奖章与全国五一巾帼标兵两项殊荣。
 
-两市成交额放大至3.33万亿元，显示资金活跃度有所提升。
+这位“80后”新农人，告别都市白领身份，返乡十二载、创业六年，扎根乡土，深耕科技农业，用实干盘活撂荒土地，带动乡邻共富，以脚步书写乡村振兴答卷。
 
-一键布局硬科技的科创增强ETF华宝（589280）今日再度强势表现，盘中持续上攻，收盘大涨2.05%，场内成交2354万元，收获日线四连阳！
+2010年大学毕业后，程艳曾远赴上海、深圳等地打拼，从基层品管员成长为区域销售经理，拥有稳定收入。
 
-前十大权重股绝大部分收涨，第一大权重股寒武纪暴涨超14%，股价刷新历史新高！
+然而，看到家乡青壮年外流、良田撂荒的景象，她决定辞去城市工作返乡，并当选吴城村妇联主席。
 
-来源：Wind，截至2026.6.18 消息面上，产业层面催化不断。
+为破解低效种植难题，2019年，程艳创办隽青家庭农场。
 
-SK海力士已向客户供应12层堆叠HBM4E样品，容量48GB，引脚速率16Gbps，能效提升20%，热阻降低17%。
+创业之初举步维艰，她抵押房产、车辆，多方筹措资金，在荒田搭起简易棚屋，吃住在田间。
 
-产品采用Advanced MR-MUF工艺，旨在提升AI数据中心性能，将与客户协作确保量产，解决系统瓶颈。
+传统种植附加值低，让她坚定了科技兴农的信念。
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 17:06 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 17:25 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 17:17 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 17:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 17:31 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 17:14 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 17:11 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 17:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 17:33 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 17:06 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 17:21 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 17:15 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 17:23 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 17:35 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 17:17 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 17:36 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 17:13 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 17:31 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 17:31 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 17:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 17:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 17:34 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 17:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 17:29 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 17:37 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 17:17 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 17:19 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:32 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/5639914.shtml)
-- 2026-06-29 17:13 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/6314751337.shtml)
-- 2026-06-29 17:35 - [恋与深空 731](http://www.share.minike.top/Article/details/94902.shtml)
-- 2026-06-29 17:13 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/456516.shtml)
-- 2026-06-29 17:24 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/7633940526.shtml)
-- 2026-06-29 17:06 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/878225378.shtml)
-- 2026-06-29 17:22 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/79377.shtml)
-- 2026-06-29 17:12 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/756367.shtml)
-- 2026-06-29 17:27 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/7062249.shtml)
-- 2026-06-29 17:31 - [世界杯1/16决赛对阵出炉](https://www.blog.kurohicncr.top/Article/details/4071797.shtml)
-- 2026-06-29 17:32 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/62128517.shtml)
-- 2026-06-29 17:32 - [唐艺昕告别浪姐千字长文](http://www.share.kurohicncr.top/Article/details/5737222211.shtml)
-- 2026-06-29 17:15 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/9629574171.shtml)
-- 2026-06-29 17:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/890132675.shtml)
-- 2026-06-29 17:08 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/339733285664.shtml)
+- 2026-06-29 17:27 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/1812852111.shtml)
+- 2026-06-29 17:21 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/1486024246.shtml)
+- 2026-06-29 17:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/52204751919.shtml)
+- 2026-06-29 17:29 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.kurohicncr.top/Article/details/2954719063.shtml)
+- 2026-06-29 17:39 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/70794586.shtml)
+- 2026-06-29 17:30 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.minike.top/Article/details/0704399.shtml)
+- 2026-06-29 17:39 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/99535.shtml)
+- 2026-06-29 17:21 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/28767.shtml)
+- 2026-06-29 17:19 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/04419573188.shtml)
+- 2026-06-29 17:16 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/899381672239.shtml)
+- 2026-06-29 17:28 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/5166986923.shtml)
+- 2026-06-29 17:16 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/813739.shtml)
+- 2026-06-29 17:27 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/986083.shtml)
+- 2026-06-29 17:31 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/865873.shtml)
+- 2026-06-29 17:20 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/234964928156.shtml)

@@ -1,56 +1,58 @@
-# AI给金融行业带来哪些机会与挑战？朱宁从微观个人、社会伦理、国际治理等方面展开探讨
+# 中国知识产权研究会征集光伏关键核心技术专利竞争态势研究需求
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，上海交通大学上海高级金融学院金融学教授朱宁出席2026陆家嘴论坛，并参加主题为“科技创新赋能金融高质量发展”的主题演讲。 朱宁主要探讨了AI给金融行业带来的机会与挑战。在机会方面，他指出，首先是知识平权的机会。AI极大地降低了获取信息的成本，并显著提升了信息分析的能力。因此，无论是普通消费者、
+4月28日消息，中国知识产权研究会官网近日发布《关于征集光伏行业关键核心技术专利竞争态势瞭望研究需求与建议的通知》，通知表示，为强化知识产权信息情报的科技服务支撑作用，助力光伏行业围绕关键核心技术培育提升专利竞争优势、增强专利风险防范应对能力，现组织开展“光伏行业关键核心技术专利竞争态势瞭望研究”战略咨询服务工作。2026年度研究重点聚焦钙钛矿太阳能电池与光储融合技术两个前沿细
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，上海交通大学上海高级金融学院金融学教授朱宁出席2026陆家嘴论坛，并参加主题为“科技创新赋能金融高质量发展”的主题演讲。
+4月28日消息，中国知识产权研究会官网近日发布《关于征集光伏行业关键核心技术专利竞争态势瞭望研究需求与建议的通知》，通知表示，为强化知识产权信息情报的科技服务支撑作用，助力光伏行业围绕关键核心技术培育提升专利竞争优势、增强专利风险防范应对能力，现组织开展“光伏行业关键核心技术专利竞争态势瞭望研究”战略咨询服务工作。
 
-朱宁主要探讨了AI给金融行业带来的机会与挑战。
+2026年度研究重点聚焦钙钛矿太阳能电池与光储融合技术两个前沿细分领域，目前面向钙钛矿太阳能电池、光储融合产业链相关企业、高校、科研院所公开征集研究需求及诉求建议。
 
-在机会方面，他指出，首先是知识平权的机会。
+征集内容包括：各领域亟待研究的关键议题；围绕关键议题的具体研究需求与建议；专利风险分析研判的重点对象或技术点；需要客观研究支撑的政策诉求建议；其他相关需求与建议。
 
-AI极大地降低了获取信息的成本，并显著提升了信息分析的能力。
+通知称，此研究旨在深度研判钙钛矿太阳能电池与光储融合技术的全球专利技术竞争格局，系统分析两个领域专利相关的关键问题，为行业创新主体战略决策与相关政策制定提供高质量研究支撑，研究形成的部分成果将公开发布。
 
-因此，无论是普通消费者、金融从业者，还是我们所服务的客户，都能明显感受到在获取信息和进行分析方面便利度的大幅提升，这也是许多专家和嘉宾共同强调的一点。
+中国知识产权研究会官网发布的通知显示，征集通过填写《研究需求与建议征集问卷》方式进行。
 
-其次是效率的提升。
+通知要求，问卷须于2026年5月15日前反馈，后续研究会将认真梳理各方反馈，并邀请提供高质量反馈的单位座谈交流。
 
-一方面，AI能够代替人们完成那些不想做或不愿意做的工作；另一方面，它进一步提升了人们获取信息和分析数据的能力，并最终提高了整合各类信息与进行决策的效率。
-
-这种效率的提升，是大家对金融行业未来发展的共同期待。
+（刘丽丽）责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 17:27 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 17:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 17:22 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 17:22 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 17:13 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 17:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 17:16 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 17:16 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-29 17:24 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 17:41 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 17:33 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 17:27 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 17:17 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 17:12 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 17:26 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 17:13 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 17:22 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 17:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 17:42 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 17:13 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 17:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 17:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 17:13 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:09 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/772364.shtml)
-- 2026-06-29 17:24 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/14825597987.shtml)
-- 2026-06-29 17:11 - [工作靠AI算不算职场作弊](https://www.blog.kurohicncr.top/Article/details/073219728986.shtml)
-- 2026-06-29 17:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/198370329791.shtml)
-- 2026-06-29 17:11 - [未成年少女长期吸毒导致卧床不起](http://www.share.minike.top/Article/details/844767831723.shtml)
-- 2026-06-29 17:20 - [夏天被这些虫子咬了可能致命](http://www.blog.minike.top/Article/details/796412483.shtml)
-- 2026-06-29 17:08 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/396290083689.shtml)
-- 2026-06-29 17:12 - [美国大满贯首日国乒主力均取胜](http://www.share.minike.top/Article/details/202030671697.shtml)
-- 2026-06-29 17:28 - [范志毅看好日本淘汰巴西](http://www.blog.kurohicncr.top/Article/details/3881250.shtml)
-- 2026-06-29 17:30 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/304427665.shtml)
-- 2026-06-29 17:06 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/8283886.shtml)
-- 2026-06-29 17:11 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/51676162.shtml)
-- 2026-06-29 17:32 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/17993935.shtml)
-- 2026-06-29 17:21 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/7310099.shtml)
-- 2026-06-29 17:25 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/1176802389.shtml)
+- 2026-06-29 17:17 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/702654861304.shtml)
+- 2026-06-29 17:27 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/80335924.shtml)
+- 2026-06-29 17:20 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/92438677981.shtml)
+- 2026-06-29 17:21 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/818430003317.shtml)
+- 2026-06-29 17:26 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/75618341.shtml)
+- 2026-06-29 17:13 - [扫黑风暴](https://www.blog.minike.top/Article/details/560722348008.shtml)
+- 2026-06-29 17:21 - [周生如故](http://www.share.minike.top/Article/details/105027521486.shtml)
+- 2026-06-29 17:23 - [12所大学更正招生目录](https://www.share.minike.top/Article/details/9238453.shtml)
+- 2026-06-29 17:15 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/99447.shtml)
+- 2026-06-29 17:39 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/2066450675.shtml)
+- 2026-06-29 17:34 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/374252703.shtml)
+- 2026-06-29 17:19 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/814159889.shtml)
+- 2026-06-29 17:38 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/08449602.shtml)
+- 2026-06-29 17:20 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/976882499.shtml)
+- 2026-06-29 17:35 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/89630.shtml)

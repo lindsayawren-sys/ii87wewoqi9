@@ -1,58 +1,50 @@
-# 受人工智能需求提振，BE半导体上调长期营收及盈利目标
+# 4月27日增减持汇总：七彩化学等2股拟减持，暂无A股增持（表）
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 人工智能相关数据中心、光子应用领域需求旺盛，叠加各类新兴应用场景落地，公司上调业绩预期 荷兰半导体封装设备厂商 BE 半导体（BESI）位于杜伊文总部砖墙上的企业标识 BE 半导体（股票代码：BESI，当日股价上涨 0.26%）表示，自 2025 年第二季度以来，整体市场环境与订单增长势头大幅回暖。 受益于人工智能相关产品需求持续攀升，荷兰
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据统计，4月27日，盘后，七彩化学、坤博精工在内的2家A股上市公司披露拟减持情况。当日暂无A股公司披露增持情况。 责任编辑：张乔松
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 人工智能相关数据中心、光子应用领域需求旺盛，叠加各类新兴应用场景落地，公司上调业绩预期 荷兰半导体封装设备厂商 BE 半导体（BESI）位于杜伊文总部砖墙上的企业标识 BE 半导体（股票代码：BESI，当日股价上涨 0.26%）表示，自 2025 年第二季度以来，整体市场环境与订单增长势头大幅回暖。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-受益于人工智能相关产品需求持续攀升，荷兰芯片封装设备供应商 BE 半导体（简称 Besi）于周四上调了公司长期营收与盈利目标。
+据统计，4月27日，盘后，七彩化学、坤博精工在内的2家A股上市公司披露拟减持情况。
 
-公司最新长期总营收目标区间上调至 17 亿 —22 亿欧元（折合 19.6 亿 —25.3 亿美元），此前原定目标为 15 亿 —19 亿欧元。
+当日暂无A股公司披露增持情况。
 
-Besi 2025 年全年实现营业收入 5.913 亿欧元。
-
-同时公司上调长期营业利润率目标：新目标区间为 45%—55%，此前目标区间为 40%—55%。
-
-公司总裁兼首席执行官理查德・W・布利克曼表示：“自 2025 年第二季度以来，整体市场环境显著改善，订单增长势头强劲。
-
-” 布利克曼称，人工智能驱动下的数据中心、光子技术相关应用需求高涨，再加上各类新兴落地应用场景，大幅改善了公司的经营前景预期。
-
-责任编辑：郭明煜
+责任编辑：张乔松
 
 ## 相关推荐
 
-- 2026-06-29 17:23 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 17:13 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 17:36 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 17:34 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 17:07 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 17:15 - [永远有话聊的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 17:32 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 17:32 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 17:06 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 17:33 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 17:31 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 17:35 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 17:21 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 17:12 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 17:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 17:32 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 17:23 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 17:29 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 17:13 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 17:25 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 17:14 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 17:34 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 17:36 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 17:35 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/02072459.shtml)
-- 2026-06-29 17:17 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/9502336126.shtml)
-- 2026-06-29 17:34 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/87217177592.shtml)
-- 2026-06-29 17:23 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/3981940242.shtml)
-- 2026-06-29 17:15 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/0187548.shtml)
-- 2026-06-29 17:35 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/408677750.shtml)
-- 2026-06-29 17:35 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.kurohicncr.top/Article/details/5897530.shtml)
-- 2026-06-29 17:30 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/49858.shtml)
-- 2026-06-29 17:19 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/446911549.shtml)
-- 2026-06-29 17:21 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/94068.shtml)
-- 2026-06-29 17:21 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/95553.shtml)
-- 2026-06-29 17:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/91481436172.shtml)
-- 2026-06-29 17:07 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/315660518320.shtml)
-- 2026-06-29 17:19 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/8228614.shtml)
-- 2026-06-29 17:32 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/095313367005.shtml)
+- 2026-06-29 17:36 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/182792068822.shtml)
+- 2026-06-29 17:21 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/7198911.shtml)
+- 2026-06-29 17:29 - [当我回母校教书](http://www.blog.minike.top/Article/details/080662857.shtml)
+- 2026-06-29 17:36 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/490506865.shtml)
+- 2026-06-29 17:27 - [王安宇尊重田曦薇的一切选择](http://www.blog.kurohicncr.top/Article/details/819386188.shtml)
+- 2026-06-29 17:21 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/7250411479.shtml)
+- 2026-06-29 17:41 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/617835071224.shtml)
+- 2026-06-29 17:19 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/4391060148.shtml)
+- 2026-06-29 17:22 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/52590103.shtml)
+- 2026-06-29 17:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/751481008.shtml)
+- 2026-06-29 17:37 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/264738.shtml)
+- 2026-06-29 17:19 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/454609489.shtml)
+- 2026-06-29 17:18 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/20834.shtml)
+- 2026-06-29 17:29 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/18419682.shtml)
+- 2026-06-29 17:25 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/7663889.shtml)

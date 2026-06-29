@@ -1,58 +1,59 @@
-# （乡村行·看振兴）山东多地深化移风易俗 涵养乡村文明新风
+# 历经17年 民族题材电影丰富中国故事新表达
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新网济南6月18日电(王采怡)近年来，山东持续深耕婚俗改革、推进移风易俗工作，聚焦陈规陋习，因地制宜创新宣传方式、优化服务举措、完善治理机制，持续破除婚嫁旧俗、重塑文明婚恋观念。 在菏泽市鄄城县引马镇北街村，一场别开生面的乡村接亲仪式上，10辆装点着彩带、气球的电动三轮车整齐列队，缓缓前行，新郎郭子垣亲自驾车，在新娘张欢安稳落座后，这支低碳简约又喜庆十足的车队，化作乡间一道流
+这些从中国内部生长出来的故事，呈现的已不只是地域风貌，而是一种理解中国的方式。 在2026北京民族电影展现场，不少观众提起了《五朵金花》《阿诗玛》《冰山上的来客》等定义了几代人对民族地区生活想象的经典作品。从那时到现在，已经过去了半个多世纪。今天的民族题材电影，在讲什么样的故事？自2010年创立以来，北京民族电影展已走过17年。本届共有19部影片入围参展。记者采访多位影片主创，
 
 ## 正文
 
-中新网济南6月18日电(王采怡)近年来，山东持续深耕婚俗改革、推进移风易俗工作，聚焦陈规陋习，因地制宜创新宣传方式、优化服务举措、完善治理机制，持续破除婚嫁旧俗、重塑文明婚恋观念。
+这些从中国内部生长出来的故事，呈现的已不只是地域风貌，而是一种理解中国的方式。
 
-在菏泽市鄄城县引马镇北街村，一场别开生面的乡村接亲仪式上，10辆装点着彩带、气球的电动三轮车整齐列队，缓缓前行，新郎郭子垣亲自驾车，在新娘张欢安稳落座后，这支低碳简约又喜庆十足的车队，化作乡间一道流动的文明风景线。
+在2026北京民族电影展现场，不少观众提起了《五朵金花》《阿诗玛》《冰山上的来客》等定义了几代人对民族地区生活想象的经典作品。
 
-张欢坦言：“婚嫁中的人情攀比，无形中给家庭增添了负担。
+从那时到现在，已经过去了半个多世纪。
 
-我十分支持婚事简办，简单真诚、轻松热闹的仪式，就是属于我们最好的婚礼。
+今天的民族题材电影，在讲什么样的故事？
 
-” 一场看似朴素的婚礼，背后是鄄城县持续深耕移风易俗、重塑乡村文明观念的长期努力。
+自2010年创立以来，北京民族电影展已走过17年。
 
-针对以往部分民众固守旧俗、婚嫁看重面子、盲目攀比的现状，鄄城县统筹各镇街常态化开展文明新风主题宣讲、身边榜样事迹分享、民情座谈交流等系列活动，同时用好村村响广播、村级微信群、村务公示栏等宣传阵地，多渠道、全覆盖普及文明婚嫁、节俭办事的新理念，持续浸润民心、转变思想。
+本届共有19部影片入围参展。
 
-近日，济南市莱芜区系列主题宣讲基层行走进和庄镇，开展“孝老爱亲传家风 移风易俗促和谐”专题宣讲活动。
+记者采访多位影片主创，寻找问题答案。
 
-济南市最美调解员陈雪紧扣孝老爱亲、家风建设、移风易俗核心内容，结合中华优秀传统文化与真实生活案例，用通俗易懂的语言，讲解优良家风的时代意义，普及移风易俗理念，为在场民众带来一堂接地气、有温度的文明实践课程。
+一个“不完美”的楷模 “他明明有更好的选择，为什么要留下来？
 
 ## 相关推荐
 
-- 2026-06-29 17:11 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 17:21 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 17:22 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 17:15 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 17:30 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 17:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 17:11 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 17:06 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 17:06 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 17:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 17:21 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 17:15 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 17:27 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 17:22 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 17:15 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 17:15 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 17:25 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 17:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 17:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 17:17 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 17:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 17:25 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 17:41 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 17:34 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 17:39 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:25 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/96366824734.shtml)
-- 2026-06-29 17:16 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/3889047.shtml)
-- 2026-06-29 17:07 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/39883.shtml)
-- 2026-06-29 17:10 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/306618536758.shtml)
-- 2026-06-29 17:30 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/615019.shtml)
-- 2026-06-29 17:17 - [沉睡花园](http://www.blog.minike.top/Article/details/18229864.shtml)
-- 2026-06-29 17:06 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/07861.shtml)
-- 2026-06-29 17:10 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/8013266315.shtml)
-- 2026-06-29 17:10 - [广东一地发现极危植物新物种](http://www.blog.kurohicncr.top/Article/details/89593372.shtml)
-- 2026-06-29 17:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/97427454727.shtml)
-- 2026-06-29 17:24 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/00709.shtml)
-- 2026-06-29 17:13 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/852386446.shtml)
-- 2026-06-29 17:32 - [叠纸](https://www.blog.kurohicncr.top/Article/details/39938867.shtml)
-- 2026-06-29 17:12 - [人类对空调和其他家电有多双标](https://www.blog.kurohicncr.top/Article/details/75857627871.shtml)
-- 2026-06-29 17:15 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/910747962.shtml)
+- 2026-06-29 17:26 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/73019.shtml)
+- 2026-06-29 17:22 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/6053126705.shtml)
+- 2026-06-29 17:18 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/754117.shtml)
+- 2026-06-29 17:37 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/2250519323.shtml)
+- 2026-06-29 17:14 - [女心理师](https://www.share.minike.top/Article/details/523549.shtml)
+- 2026-06-29 17:39 - [普京介绍前线战事](http://www.share.minike.top/Article/details/34482725855.shtml)
+- 2026-06-29 17:19 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/6926253666.shtml)
+- 2026-06-29 17:34 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/126413965166.shtml)
+- 2026-06-29 17:39 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/346860306238.shtml)
+- 2026-06-29 17:34 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/66914.shtml)
+- 2026-06-29 17:18 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/320889446.shtml)
+- 2026-06-29 17:20 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/20931348.shtml)
+- 2026-06-29 17:12 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/522918007110.shtml)
+- 2026-06-29 17:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/82144.shtml)
+- 2026-06-29 17:22 - [一生一世](https://www.blog.minike.top/Article/details/782544.shtml)

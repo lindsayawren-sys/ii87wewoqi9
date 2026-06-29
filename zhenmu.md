@@ -1,51 +1,56 @@
-# 两岸青年参访新疆昌吉州体验多项文化交流活动
+# 跟着亚沙会游海南：走进崖州千年古村 品味六百年传承古调
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 18:44 来源：中国新闻网 6月16日，“石榴花开·三山青年同心行”文化交流活动在乌鲁木齐市启动，来自台湾地区青年代表、福建省及新疆昌吉回族自治州各族青年代表约40人将在6天行程中，走进昌吉州木垒县、吉木萨尔县，通过非遗体验、家访互动、文化参访等形式，实地感知新疆多元一体的文化样貌。 当天下午，代表团走进新疆博物馆，在一件件珍贵文物前，了解新
+中新网三亚4月27日电 题：跟着亚沙会游海南：走进崖州千年古村 品味六百年传承古调 作者 张月和 第六届亚洲沙滩运动会(简称“三亚亚沙会”)正在三亚如火如荼地进行，不同于赛场内运动健儿们劈波逐浪，在三亚市崖州区，一座千年古村静静伫立，等待着世界各地人们前来探访。 近日，参与三亚亚沙会报道的中外媒体记者走进保平村采风，感受千年崖州文化的独特魅力。这座曾因古代海上丝绸之路兴盛的“天
 
 ## 正文
 
-发布时间：2026年06月18日 18:44 来源：中国新闻网 6月16日，“石榴花开·三山青年同心行”文化交流活动在乌鲁木齐市启动，来自台湾地区青年代表、福建省及新疆昌吉回族自治州各族青年代表约40人将在6天行程中，走进昌吉州木垒县、吉木萨尔县，通过非遗体验、家访互动、文化参访等形式，实地感知新疆多元一体的文化样貌。
+中新网三亚4月27日电 题：跟着亚沙会游海南：走进崖州千年古村 品味六百年传承古调 作者 张月和 第六届亚洲沙滩运动会(简称“三亚亚沙会”)正在三亚如火如荼地进行，不同于赛场内运动健儿们劈波逐浪，在三亚市崖州区，一座千年古村静静伫立，等待着世界各地人们前来探访。
 
-当天下午，代表团走进新疆博物馆，在一件件珍贵文物前，了解新疆悠久的历史脉络与深厚的文化底蕴。
+近日，参与三亚亚沙会报道的中外媒体记者走进保平村采风，感受千年崖州文化的独特魅力。
 
-随后，代表团在新疆大剧院观看了大型歌舞秀《千回西域》，演出不仅让代表们在艺术层面领略了新疆的多元文化，更加深了对这片土地及民众的认知与亲近。
+这座曾因古代海上丝绸之路兴盛的“天涯驿站”，正以岁月沉淀的悠然气质，向四海宾朋讲述海南独特的文化故事。
 
-未来几天行程中，两岸青年将通过沟通交流、增进彼此情感认同，让同根同源的血脉亲情在互动中升温，共同谱写新时代两岸青年心灵契合的崭新篇章。
+留住时光的古建筑群 保平村古称毕兰村，是古崖州的边关重镇，也是古代海上丝绸之路必经的歇脚之地。
 
-(左丹丹) 责任编辑：【李季】
+唐宋时期，宁远河水灾冲毁旧村，村民移居现址，取“保世代平安”之意更名为保平村。
+
+因港而兴的保平村在港口外移后逐渐归于沉静，却为三亚留下了宝贵的历史文化馈赠。
+
+走入村中，青石板路两侧的明清古宅林立。
+
+这40余座古宅是海南最有代表性、保存最集中的明清建筑群。
 
 ## 相关推荐
 
-- 2026-06-29 17:20 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 17:17 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 17:19 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 17:26 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 17:06 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 17:16 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 17:33 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 17:08 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 17:26 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 17:11 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 17:21 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 17:25 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 17:28 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 17:24 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 17:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 17:20 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 17:33 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 17:20 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 17:37 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 17:34 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 17:20 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:29 - [波兰创该国高温纪录](http://www.blog.kurohicncr.top/Article/details/21794803.shtml)
-- 2026-06-29 17:18 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/083521.shtml)
-- 2026-06-29 17:31 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/99335583.shtml)
-- 2026-06-29 17:08 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/72848031692.shtml)
-- 2026-06-29 17:09 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/937330.shtml)
-- 2026-06-29 17:14 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/4759316581.shtml)
-- 2026-06-29 17:34 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/1808556.shtml)
-- 2026-06-29 17:31 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/2689584305.shtml)
-- 2026-06-29 17:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/307951212.shtml)
-- 2026-06-29 17:06 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/98931422.shtml)
-- 2026-06-29 17:31 - [博主：黄金和原油回落不等于风险消失](https://www.blog.minike.top/Article/details/6158508.shtml)
-- 2026-06-29 17:08 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/03349131885.shtml)
-- 2026-06-29 17:35 - [逆天祖国人](https://www.share.minike.top/Article/details/48902.shtml)
-- 2026-06-29 17:29 - [李在镕：计划将光州作为芯片生产基地](https://www.share.kurohicncr.top/Article/details/23457.shtml)
-- 2026-06-29 17:11 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/89661431927.shtml)
+- 2026-06-29 17:38 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/7047904.shtml)
+- 2026-06-29 17:21 - [一见倾心](https://www.share.minike.top/Article/details/66016774777.shtml)
+- 2026-06-29 17:15 - [未成年少女长期吸毒导致卧床不起](https://www.blog.minike.top/Article/details/4837534597.shtml)
+- 2026-06-29 17:31 - [请回答王牌2019](https://www.share.minike.top/Article/details/986636071.shtml)
+- 2026-06-29 17:34 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/14909046.shtml)
+- 2026-06-29 17:20 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/691119501.shtml)
+- 2026-06-29 17:17 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/03066339261.shtml)
+- 2026-06-29 17:21 - [恋与深空 731](https://www.share.minike.top/Article/details/822976409272.shtml)
+- 2026-06-29 17:35 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/5718111.shtml)
+- 2026-06-29 17:39 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/610706211.shtml)
+- 2026-06-29 17:41 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/30080.shtml)
+- 2026-06-29 17:15 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/09585951198.shtml)
+- 2026-06-29 17:31 - [送你一朵小红花](http://www.share.minike.top/Article/details/84283590370.shtml)
+- 2026-06-29 17:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/486036792990.shtml)
+- 2026-06-29 17:40 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/98246.shtml)

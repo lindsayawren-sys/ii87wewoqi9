@@ -1,56 +1,55 @@
-# 从北服到北欧：“经纬新章”展览在瑞典掀起东方美学热
+# 中信里昂：新城发展目标价上调至3.3港元 维持“跑赢大市”评级
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-近日，“经纬新章——中华服饰基因的当代叙事”国际巡展(瑞典站)在斯德哥尔摩中国文化中心开幕。该展为国家艺术基金2026年度传播交流推广资助项目，由北京服装学院与斯德哥尔摩中国文化中心联合主办，北京服装学院民族服饰博物馆承办。 中国驻瑞典大使周立民、大使夫人张国英，中国驻瑞典大使馆文化参赞兼斯德哥尔摩中国文化中心主任李蕊；国家艺术基金管理中心活动处处长刘立明、监督处干部穆含章；斯
+中信里昂发布研报称，上调新城发展（01030）目标价13%，从2.92港元升至3.3港元，维持“跑赢大市”评级。该行认为，即将分拆两家购物中心成立中国房地产基金的措施，可能具有颠覆性意义，能够释放潜在资产价值，提升投资组合估值并降低融资成本，削该公司的盈利预测27.7%/17%，但是上调目标价，主要将估值伸延至2026年预期。 该行表示，以租金收入计算，新城发展已成为中国第三大
 
 ## 正文
 
-近日，“经纬新章——中华服饰基因的当代叙事”国际巡展(瑞典站)在斯德哥尔摩中国文化中心开幕。
+中信里昂发布研报称，上调新城发展（01030）目标价13%，从2.92港元升至3.3港元，维持“跑赢大市”评级。
 
-该展为国家艺术基金2026年度传播交流推广资助项目，由北京服装学院与斯德哥尔摩中国文化中心联合主办，北京服装学院民族服饰博物馆承办。
+该行认为，即将分拆两家购物中心成立中国房地产基金的措施，可能具有颠覆性意义，能够释放潜在资产价值，提升投资组合估值并降低融资成本，削该公司的盈利预测27.7%/17%，但是上调目标价，主要将估值伸延至2026年预期。
 
-中国驻瑞典大使周立民、大使夫人张国英，中国驻瑞典大使馆文化参赞兼斯德哥尔摩中国文化中心主任李蕊；国家艺术基金管理中心活动处处长刘立明、监督处干部穆含章；斯德哥尔摩中国文化中心副主任戴卫红、艺术总监罗梅雨(Maria NordsøLundberg)；瑞典艺术家厄兰・冯・霍夫斯滕(Erland von Hofsten) ，当代女诗人许九梅，以及北京服装学院师生、瑞典友人、华侨华人代表和媒体嘉宾出席开幕系列活动。
+该行表示，以租金收入计算，新城发展已成为中国第三大上市收租公司，仅次于新鸿基地产（00016）和华润置地（01109）。
 
-展览项目负责人、北京服装学院田辉教授作为主办方代表致辞。
+其位于低线城市稳健的购物中心组合已成为集团盈利的支柱。
 
-他表示，中华服饰是“穿在身上的史书”，承载着深厚的民族底蕴与历史文化基因。
+随着销售疲软导致开发业务缩减，盈利的主要驱动力来自于高质素的租金盈利。
 
-展览汇聚两百余件匠心之作，有机融合传统民族服饰与当代原创设计，生动展现了中华服饰文化的传承与创新。
-
-主办方特邀来自“中国冰雪之乡”吉林长春的女诗人许九梅，现场演绎其原创诗作《长春颂》。
-
-诗歌融汇冰雪文化、北国风情与东方气韵，与展出的冬奥服饰作品交相呼应，实现服饰之美与文字诗意的双向交融。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:18 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 17:16 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 17:16 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 17:18 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 17:17 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 17:28 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 17:29 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 17:07 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 17:11 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 17:24 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 17:14 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 17:34 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 17:17 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 17:26 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-29 17:23 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 17:37 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 17:18 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 17:27 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 17:29 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 17:22 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 17:28 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 17:28 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 17:21 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:32 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.kurohicncr.top/Article/details/561915832776.shtml)
-- 2026-06-29 17:26 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/418943931.shtml)
-- 2026-06-29 17:23 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/834647899939.shtml)
-- 2026-06-29 17:15 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/500116.shtml)
-- 2026-06-29 17:12 - [博主：AI泡沫必须破灭](http://www.share.kurohicncr.top/Article/details/5224473.shtml)
-- 2026-06-29 17:20 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/7447158.shtml)
-- 2026-06-29 17:12 - [金刚川](http://www.share.kurohicncr.top/Article/details/43416774.shtml)
-- 2026-06-29 17:10 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/023680555.shtml)
-- 2026-06-29 17:34 - [倪春青跨市履新苏州市委组织部部长](http://www.blog.minike.top/Article/details/5576332.shtml)
-- 2026-06-29 17:26 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/31555302794.shtml)
-- 2026-06-29 17:13 - [海口塔吊事故处罚结果公布](https://www.blog.kurohicncr.top/Article/details/038126.shtml)
-- 2026-06-29 17:26 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/5582497.shtml)
-- 2026-06-29 17:29 - [天道](https://www.share.minike.top/Article/details/113713.shtml)
-- 2026-06-29 17:19 - [媒体：听清自己内心的声音再填志愿](http://www.blog.kurohicncr.top/Article/details/7299395.shtml)
-- 2026-06-29 17:33 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/924487925891.shtml)
+- 2026-06-29 17:26 - [女心理师](http://www.share.kurohicncr.top/Article/details/4929156092.shtml)
+- 2026-06-29 17:14 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/321931773538.shtml)
+- 2026-06-29 17:28 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.minike.top/Article/details/527906765869.shtml)
+- 2026-06-29 17:40 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/4531995301.shtml)
+- 2026-06-29 17:28 - [美人鱼](https://www.share.kurohicncr.top/Article/details/99881.shtml)
+- 2026-06-29 17:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/21041864688.shtml)
+- 2026-06-29 17:21 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/882295484467.shtml)
+- 2026-06-29 17:18 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/4200061006.shtml)
+- 2026-06-29 17:33 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/104015363.shtml)
+- 2026-06-29 17:41 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/736604.shtml)
+- 2026-06-29 17:15 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/675685859.shtml)
+- 2026-06-29 17:37 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/3618903.shtml)
+- 2026-06-29 17:18 - [挪威王储妃长子2次强奸被判4年](https://www.blog.kurohicncr.top/Article/details/7821770349.shtml)
+- 2026-06-29 17:27 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/83018944.shtml)
+- 2026-06-29 17:33 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/9228604.shtml)

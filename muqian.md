@@ -1,61 +1,56 @@
-# 国家发改委：将会同有关部门印发实施现代物流领域“十五五”专项规划
+# 广东多地遇强降雨 珠江流域部分河流或有超警洪水
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新网6月18日电 国家发改委18日举行新闻发布会，国家发改委政策研究室副主任、新闻发言人李超在会上表示，国家发展改革委将会同有关部门，印发实施现代物流领域“十五五”专项规划。 李超介绍，物流网是由物流枢纽节点、骨干通道、装备载具、规则标准、信息数据有机融合的跨区域、跨领域综合性服务系统，是促进商品和资源高效流转的支撑性基础设施体系。具体到生活中，大家能在北方吃到新鲜的热带水果
+中新社广州4月28日电 (记者 王坚)受强对流云团影响，广东28日开启“倒水模式”，广州、深圳、佛山等地遭遇强降雨。当日下午仅三小时，全省已有27个镇街录得降雨量超50毫米的暴雨、大暴雨。 28日中午，广州乌云压城，暴雨倾盆。由于雨势太大，广州市中心珠江新城相隔仅数百米的高楼大厦都被雨幕遮挡起来，部分街道出现水浸。“这个雨太大了，行车视线很受影响。”网约车司机曹庆仁告诉记者，暴
 
 ## 正文
 
-中新网6月18日电 国家发改委18日举行新闻发布会，国家发改委政策研究室副主任、新闻发言人李超在会上表示，国家发展改革委将会同有关部门，印发实施现代物流领域“十五五”专项规划。
+中新社广州4月28日电 (记者 王坚)受强对流云团影响，广东28日开启“倒水模式”，广州、深圳、佛山等地遭遇强降雨。
 
-李超介绍，物流网是由物流枢纽节点、骨干通道、装备载具、规则标准、信息数据有机融合的跨区域、跨领域综合性服务系统，是促进商品和资源高效流转的支撑性基础设施体系。
+当日下午仅三小时，全省已有27个镇街录得降雨量超50毫米的暴雨、大暴雨。
 
-具体到生活中，大家能在北方吃到新鲜的热带水果、在内陆吃到平价的海鲜、在偏远山区收到来自全球的快递，都离不开物流网的支撑。
+28日中午，广州乌云压城，暴雨倾盆。
 
-系统建设物流网，目的就是优化全社会物流资源配置，加快形成网络规模经济效应，进一步降低全社会物流运行成本。
+由于雨势太大，广州市中心珠江新城相隔仅数百米的高楼大厦都被雨幕遮挡起来，部分街道出现水浸。
 
-李超指出，经过多年努力，我国的物流网建设取得了显著成效。
+“这个雨太大了，行车视线很受影响。
 
-从“硬”的基础设施看，“四横五纵”国内物流大通道加快建设，181个国家物流枢纽、105个国家骨干冷链物流基地加快互联成网，规模以上物流园区超过2700家，枢纽节点布局基本成型。
+”网约车司机曹庆仁告诉记者，暴雨时，他为了行车安全，暂停接单，将车停到了安全区域休息。
 
-从“软”的制度技术看，规则标准建设加快推进，“十四五”期间发布各类物流国家标准210项；物流公共数据加快开放共享，信息数据联通水平进一步提升。
+广东气象部门介绍，据气象监测显示，28日13至16时，全省有7个镇街录得超过100毫米的大暴雨，有20个镇街录得50至100毫米的暴雨，有60个镇街录得25至50毫米的大雨。
 
-与此同时，装备载具水平稳步提升，今年一季度，新能源重卡销量同比增长45%，无人物流装备快速发展。
+气象专家表示，预计28日夜间到29日白天，广东自西向东还将有大雨到暴雨局部大暴雨，部分市县伴有短时强降水、8至10级雷雨大风和局地冰雹等强对流天气，气温也将小幅下降。
 
 ## 相关推荐
 
-- 2026-06-29 17:31 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 17:10 - [恋与深空失控领地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 17:27 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 17:36 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 17:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 17:28 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 17:10 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 17:11 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 17:32 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 17:06 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 17:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 17:25 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 17:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 17:08 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 17:12 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 17:32 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 17:26 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 17:23 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 17:32 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 17:36 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 17:24 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 17:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 17:40 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 17:38 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 17:21 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/92340.shtml)
-- 2026-06-29 17:25 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/598562.shtml)
-- 2026-06-29 17:12 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/8936172.shtml)
-- 2026-06-29 17:16 - [中国战机大片上新](https://www.share.minike.top/Article/details/6603363657.shtml)
-- 2026-06-29 17:27 - [当我回母校教书](https://www.share.minike.top/Article/details/00989.shtml)
-- 2026-06-29 17:15 - [范志毅看好日本淘汰巴西](http://www.share.minike.top/Article/details/96756904563.shtml)
-- 2026-06-29 17:14 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.kurohicncr.top/Article/details/705858339.shtml)
-- 2026-06-29 17:06 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/7504361.shtml)
-- 2026-06-29 17:35 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/4682120540.shtml)
-- 2026-06-29 17:17 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/819520895380.shtml)
-- 2026-06-29 17:25 - [龟梨和也田中美奈实结婚](https://www.blog.kurohicncr.top/Article/details/918998292.shtml)
-- 2026-06-29 17:12 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/0064576484.shtml)
-- 2026-06-29 17:09 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/58819272593.shtml)
-- 2026-06-29 17:10 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/34391742397.shtml)
-- 2026-06-29 17:35 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/394974281694.shtml)
+- 2026-06-29 17:14 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/09439370430.shtml)
+- 2026-06-29 17:34 - [天价门票抬高美加墨世界杯观赛门槛](http://www.share.kurohicncr.top/Article/details/788928568356.shtml)
+- 2026-06-29 17:25 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/6800652455.shtml)
+- 2026-06-29 17:34 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/81903608559.shtml)
+- 2026-06-29 17:28 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/40699212.shtml)
+- 2026-06-29 17:34 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/678680778171.shtml)
+- 2026-06-29 17:12 - [重度抑郁女孩没钱去做心理咨询](http://www.share.minike.top/Article/details/949404462.shtml)
+- 2026-06-29 17:16 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/9439106869.shtml)
+- 2026-06-29 17:41 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/559432.shtml)
+- 2026-06-29 17:13 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/64070.shtml)
+- 2026-06-29 17:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/38940696.shtml)
+- 2026-06-29 17:32 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/335934685432.shtml)
+- 2026-06-29 17:29 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/05691071.shtml)
+- 2026-06-29 17:23 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.minike.top/Article/details/826077.shtml)
+- 2026-06-29 17:40 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/539529642130.shtml)

@@ -1,58 +1,51 @@
-# 一条黑帖挣6块钱，网络水军何以久治不绝
+# 北京今起调整两条快速公交专用道设置 社会车辆可限时通行
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-撰稿 / 流水（媒体人） 编辑 / 迟道华 校对 / 李立军 近段时间，互联网上的两件事，再次把网络水军暴露在公众视野中。 一则是，在国家网信办指导下，重点网站平台共同制定《整治涉企侵权信息 优化营商网络环境自律公约》，明确网站平台要及时清理侵犯企业家个人权益信息，主动清除已核实的涉企虚假不实信息，杜绝涉企负面信息“投流”行为等。 另一件事是，影石宣布启动“正义的6块钱”倡议活
+根据北京市交通委员会、北京市公安局交通管理局联合发布的《关于进一步优化调整公交专用道设置及通行管理的通告》，今天起，BRT2、BRT3运行线路公交专用道，统一调整为工作日7时—9时、17时—19时为公交专用道，其他时间可供社会车辆通行。 此次公交专用道优化调整涉及的BRT2运行线路，主要是针对朝阳门外大街、朝阳路一线公交专用道，从东大桥路至杨闸环岛路段，道路中央主路外侧车道原来
 
 ## 正文
 
-撰稿 / 流水（媒体人） 编辑 / 迟道华 校对 / 李立军 近段时间，互联网上的两件事，再次把网络水军暴露在公众视野中。
+根据北京市交通委员会、北京市公安局交通管理局联合发布的《关于进一步优化调整公交专用道设置及通行管理的通告》，今天起，BRT2、BRT3运行线路公交专用道，统一调整为工作日7时—9时、17时—19时为公交专用道，其他时间可供社会车辆通行。
 
-一则是，在国家网信办指导下，重点网站平台共同制定《整治涉企侵权信息 优化营商网络环境自律公约》，明确网站平台要及时清理侵犯企业家个人权益信息，主动清除已核实的涉企虚假不实信息，杜绝涉企负面信息“投流”行为等。
+此次公交专用道优化调整涉及的BRT2运行线路，主要是针对朝阳门外大街、朝阳路一线公交专用道，从东大桥路至杨闸环岛路段，道路中央主路外侧车道原来设计为24小时快速公交专用道，此次统一将启用时间调整为工作日7时—9时、17时—19时公交专用道，设置形式不变。
 
-另一件事是，影石宣布启动“正义的6块钱”倡议活动。
+BRT3运行线路的调整，主要是针对安定门外大街、安定路、安立路一线公交专用道，南起安定门桥、北至双营路，其中安定门桥至科荟路路段公交专用道启用时间由6时—22时调整至工作日7时—9时、17时—19时，科荟路至双营路路段公交专用车道设置与朝阳路类似，为道路中央主路外侧车道，由24小时快速公交车道调整为工作日7时—9时、17时—19时公交专用道，目前相关道路公交专用道标志、标线和非现场执法设备均已调整完毕，社会车辆可放心通行。
 
-自6月17日起，影石在全国部分线下门店分批派发6元红包及《绿色上网倡议书》，以此提醒公众关注网络黑产问题。
+据了解，从2023年起，北京市已陆续进行4批次公交专用车道优化，目前除长安街等个别道路外，全市公交专用道均已调整为早晚高峰启用或者早晚高峰潮汐启用，有效均衡了相关路段各条车道的车流量，道路通行效率普遍提升5%到10%。
 
-据影石相关负责人微博显示，一名热心用户在黑水军群里卧底一周，结果发现他们发一条黑帖就挣6块钱。
-
-为此，影石还线上悬赏征集线索，甚至设立价值10万元的“纯金拖鞋”作为终极奖励，高调向网络黑水军宣战。
-
-从国家机关、到平台、再到企业，相关表态和举措，恰恰构成了治理网络水军的一个切面。
-
-涉事企业的维权举措，不仅是对企业自身合法权益的捍卫，补上了网络水军“打击链”的最后一环，也向社会传递出打击网络水军和黑灰产，净化网络环境的明确信号。
+(总台央视记者 赵学荣) 来源：央视新闻客户端
 
 ## 相关推荐
 
-- 2026-06-29 17:09 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 17:17 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 17:33 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 17:20 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 17:28 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 17:24 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 17:09 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 17:31 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 17:32 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 17:09 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 17:32 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 17:26 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 17:36 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 17:18 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 17:29 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 17:36 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 17:28 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 17:17 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 17:36 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 17:16 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 17:23 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 17:24 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 17:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/742144260.shtml)
-- 2026-06-29 17:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/3666764920.shtml)
-- 2026-06-29 17:27 - [首个靠AI躺赢的国家](https://www.blog.minike.top/Article/details/53560741.shtml)
-- 2026-06-29 17:31 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/49489758.shtml)
-- 2026-06-29 17:25 - [天道](http://www.share.kurohicncr.top/Article/details/7702341.shtml)
-- 2026-06-29 17:29 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/407215166.shtml)
-- 2026-06-29 17:25 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/677315047.shtml)
-- 2026-06-29 17:16 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/27758076665.shtml)
-- 2026-06-29 17:20 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/008128127.shtml)
-- 2026-06-29 17:19 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/04060344.shtml)
-- 2026-06-29 17:24 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/007167.shtml)
-- 2026-06-29 17:16 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/65821098.shtml)
-- 2026-06-29 17:17 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/538424772.shtml)
-- 2026-06-29 17:34 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/983728412318.shtml)
-- 2026-06-29 17:06 - [重度抑郁女孩没钱去做心理咨询](http://www.share.kurohicncr.top/Article/details/822226398.shtml)
+- 2026-06-29 17:39 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/9991647.shtml)
+- 2026-06-29 17:38 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/892161.shtml)
+- 2026-06-29 17:34 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/4688868588.shtml)
+- 2026-06-29 17:19 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/221537669.shtml)
+- 2026-06-29 17:40 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/7579621.shtml)
+- 2026-06-29 17:35 - [斗破苍穹](https://www.blog.minike.top/Article/details/04243.shtml)
+- 2026-06-29 17:30 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/740021660133.shtml)
+- 2026-06-29 17:29 - [博主：黄金和原油回落不等于风险消失](http://www.blog.kurohicncr.top/Article/details/27207.shtml)
+- 2026-06-29 17:12 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/421379958.shtml)
+- 2026-06-29 17:18 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/3564906101.shtml)
+- 2026-06-29 17:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/442871.shtml)
+- 2026-06-29 17:27 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/292258629.shtml)
+- 2026-06-29 17:34 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/646962.shtml)
+- 2026-06-29 17:22 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.kurohicncr.top/Article/details/12414.shtml)
+- 2026-06-29 17:32 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/147406229926.shtml)

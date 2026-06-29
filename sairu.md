@@ -1,58 +1,42 @@
-# 恒科顽强收红 港股IPO再迎小高峰，港交所的锣又要不够用了
+# 国家税务总局依法查处“探店”网红白冰偷税案件
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-记者|曾子建 编辑|袁东 今日（6月17日），港股市场弱势调整，恒生指数小幅回落，恒生科技指数顽强收红。 截至收盘，恒生指数报24312.16点，下跌181.79点，跌幅0.74%；恒生科技指数报4669.07点，上涨10.42点，涨幅0.22%。 市场焦点方面，今天6家企业同时在港交所启动招股，将于6月26日同步上市，预计合计募资约197.95亿港元。加上此前已启动招股的5家
+发布时间：2026年04月28日 14:44 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 正文
 
-记者|曾子建 编辑|袁东 今日（6月17日），港股市场弱势调整，恒生指数小幅回落，恒生科技指数顽强收红。
-
-截至收盘，恒生指数报24312.16点，下跌181.79点，跌幅0.74%；恒生科技指数报4669.07点，上涨10.42点，涨幅0.22%。
-
-市场焦点方面，今天6家企业同时在港交所启动招股，将于6月26日同步上市，预计合计募资约197.95亿港元。
-
-加上此前已启动招股的5家，港交所预计下周将有11家新股上市，合共募资约251.49亿港元。
-
-具体来看，今日招股的公司分别是领益智造、圣邦股份、芯碁微装、中科闻歌、科拓股份和MERDEKAGOLD-DRS。
-
-其中，领益智造、圣邦股份和芯碁微装为A+H公司上市；MERDEKAGOLD-DRS为印尼上市公司以预托证券形式于港交所进行的第二上市；中科闻歌和科拓股份为18C特专科技公司招股。
-
-其他热点方面，芯片股集体走强，澜起科技（HK06809）涨超11%，华虹宏力涨超8%，兆易创新涨超14%。
-
-华泰证券认为，在上游成本全面上涨与本土算力供需失衡的双重驱动下，国产AI（人工智能）芯片正迎来涨价窗口，在自主可控刚需与议价权上移背景下，国内AI芯片企业仍具备成本转嫁能力，盈利弹性在规模优势下有望体现。
+发布时间：2026年04月28日 14:44 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 17:08 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 17:31 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 17:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 17:13 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 17:17 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 17:35 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 17:08 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 17:31 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-29 17:14 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 17:33 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 17:08 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 17:28 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 17:34 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 17:22 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 17:39 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 17:16 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 17:34 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 17:27 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 17:18 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 17:21 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 17:21 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 17:27 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:19 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/6751545885.shtml)
-- 2026-06-29 17:14 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/06625449.shtml)
-- 2026-06-29 17:11 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/61443917578.shtml)
-- 2026-06-29 17:27 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/26099656405.shtml)
-- 2026-06-29 17:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/39591323.shtml)
-- 2026-06-29 17:27 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/193735435.shtml)
-- 2026-06-29 17:23 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/5125661.shtml)
-- 2026-06-29 17:23 - [货车司机雨中帮交警挪树获表扬](https://www.share.kurohicncr.top/Article/details/726765059469.shtml)
-- 2026-06-29 17:09 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/477529.shtml)
-- 2026-06-29 17:35 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/1053520.shtml)
-- 2026-06-29 17:06 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/71444381791.shtml)
-- 2026-06-29 17:31 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/7474118654.shtml)
-- 2026-06-29 17:24 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/250743283.shtml)
-- 2026-06-29 17:32 - [逃狱兄弟](https://www.blog.minike.top/Article/details/592921.shtml)
-- 2026-06-29 17:13 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/14762.shtml)
+- 2026-06-29 17:22 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/9603777275.shtml)
+- 2026-06-29 17:35 - [请回答王牌2019](http://www.share.minike.top/Article/details/18419603.shtml)
+- 2026-06-29 17:41 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/597944355879.shtml)
+- 2026-06-29 17:37 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/19333.shtml)
+- 2026-06-29 17:36 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/968603.shtml)
+- 2026-06-29 17:12 - [逃狱兄弟](http://www.blog.minike.top/Article/details/60358564.shtml)
+- 2026-06-29 17:13 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/678852.shtml)
+- 2026-06-29 17:31 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/477082316102.shtml)
+- 2026-06-29 17:16 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/0873441.shtml)
+- 2026-06-29 17:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/079259630249.shtml)
+- 2026-06-29 17:20 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.minike.top/Article/details/70171646.shtml)
+- 2026-06-29 17:13 - [未成年少女长期吸毒导致卧床不起](https://www.share.kurohicncr.top/Article/details/346212.shtml)
+- 2026-06-29 17:15 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/389775.shtml)
+- 2026-06-29 17:39 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/5028680671.shtml)
+- 2026-06-29 17:19 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/07606.shtml)

@@ -1,55 +1,58 @@
-# 邱勇：着力打造“宽基+科创+红利”的指数体系 提升中长期资金入市便利
+# 上海市消保委：消费者权益保护需转向“事前预防+全程监管”
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，在2026陆家嘴论坛上，上海证券交易所理事长邱勇表示，着力推动投资端建设，营造长钱长投的市场生态。着力打造“宽基+科创+红利”的指数体系，持续丰富ETF产品供给，提升中长期资金入市便利，研究优化做市商机制，提升ETF市场流动性。积极创
+中新网上海4月28日电 (记者 陈静)上海市消保委28日披露的调查结果显示，AI技术正深刻重构消费决策逻辑，消费者对高效、透明、理性的AI消费服务需求迫切，但隐私安全、算法可信等问题仍需突破。 在当日举行的2026年第二期“提振消费维护权益”大讲堂上，上海市消保委发布《AI时代消费者认知与消费决策调查报告》(下称：调查报告)和《AI Agent时代消费者权益保护展望：从对抗信息
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网上海4月28日电 (记者 陈静)上海市消保委28日披露的调查结果显示，AI技术正深刻重构消费决策逻辑，消费者对高效、透明、理性的AI消费服务需求迫切，但隐私安全、算法可信等问题仍需突破。
 
-6月17日，在2026陆家嘴论坛上，上海证券交易所理事长邱勇表示，着力推动投资端建设，营造长钱长投的市场生态。
+在当日举行的2026年第二期“提振消费维护权益”大讲堂上，上海市消保委发布《AI时代消费者认知与消费决策调查报告》(下称：调查报告)和《AI Agent时代消费者权益保护展望：从对抗信息差到守护算力公平》。
 
-着力打造“宽基+科创+红利”的指数体系，持续丰富ETF产品供给，提升中长期资金入市便利，研究优化做市商机制，提升ETF市场流动性。
+本次活动由上海市消保委、上海市消保基金会主办，以“AI时代的消费者权益保护”为主题，汇聚政府部门、科技企业、相关平台、法律专家等各界代表。
 
-积极创造条件，构建中长期资金愿意来、留得住、发展得好的市场环境。
+为把握人工智能技术对消费行为的影响，在AI Agent快速渗透消费场景、传统流量经济向算力经济转型的行业背景下，针对当前消费领域算法诱导、信息不对称、新型权益风险等问题，上海市消保委开展了“AI时代消费决策认知专项调查”。
 
-加大境外推介宣传力度，吸引境外中长期资金配置中国资产。
+据悉，在流量经济模式下，低价引流、套路营销、明星代言是商家主流获客手段，消费者常因信息差和情绪煽动做出非理性决策。
 
-责任编辑：石秀珍 SF183
+调查显示，品质可靠以76.72%的占比成为首要决策依据。
+
+上海市消保委方面表示，这清晰反映出当前消费者心智日益成熟，消费决策呈现“重品质、轻诱导”的理性特征，品质安全已超越价格诱惑，成为消费决策的核心逻辑。
+
+本次调查设计“你主要通过哪些渠道获取消费信息？
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 17:34 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 17:29 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 17:11 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 17:28 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 17:29 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 17:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 17:30 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 17:21 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 17:06 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 17:21 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 17:28 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 17:08 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 17:18 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 17:19 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 17:27 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 17:19 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 17:27 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 17:19 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 17:32 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 17:33 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 17:34 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 17:36 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-29 17:40 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 17:32 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/082847824650.shtml)
-- 2026-06-29 17:34 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/126125034758.shtml)
-- 2026-06-29 17:25 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/50778401797.shtml)
-- 2026-06-29 17:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/69634.shtml)
-- 2026-06-29 17:06 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/420223448.shtml)
-- 2026-06-29 17:27 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/93173471870.shtml)
-- 2026-06-29 17:27 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/41489.shtml)
-- 2026-06-29 17:28 - [2026世界杯谁能一黑到底](https://www.share.minike.top/Article/details/21272047414.shtml)
-- 2026-06-29 17:25 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/03307.shtml)
-- 2026-06-29 17:21 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/95384.shtml)
-- 2026-06-29 17:29 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/9427203705.shtml)
-- 2026-06-29 17:32 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/0956690077.shtml)
-- 2026-06-29 17:07 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/80023.shtml)
-- 2026-06-29 17:23 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/394183.shtml)
-- 2026-06-29 17:27 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/758479157.shtml)
+- 2026-06-29 17:19 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/559949711.shtml)
+- 2026-06-29 17:19 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/008632.shtml)
+- 2026-06-29 17:32 - [波兰创该国高温纪录](https://www.blog.minike.top/Article/details/0502009.shtml)
+- 2026-06-29 17:22 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/7225282580.shtml)
+- 2026-06-29 17:22 - [毒液2](http://www.blog.minike.top/Article/details/759919398.shtml)
+- 2026-06-29 17:37 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/70787.shtml)
+- 2026-06-29 17:40 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/91040690530.shtml)
+- 2026-06-29 17:33 - [一生一世](https://www.blog.minike.top/Article/details/42187.shtml)
+- 2026-06-29 17:25 - [存储三巨头被告了](http://www.share.minike.top/Article/details/469527933689.shtml)
+- 2026-06-29 17:41 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/2000681.shtml)
+- 2026-06-29 17:37 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/403095840.shtml)
+- 2026-06-29 17:38 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/96755439.shtml)
+- 2026-06-29 17:21 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/0089249500.shtml)
+- 2026-06-29 17:30 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/94508.shtml)
+- 2026-06-29 17:41 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/185699.shtml)

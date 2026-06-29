@@ -1,60 +1,43 @@
-# （乡村行·看振兴）外籍“新农人”带货长粽出山 浙江遂昌借力直播拓销路
+# 时政微周刊丨总书记的一周（4月20日—4月26日）
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新网丽水6月17日电(黄彦君 刘岚 陈员)“家人们，你们见过这么长的粽子吗？这长粽可是遂昌一绝，一口下去，满嘴的糯米香！”端午临近，在浙江省遂昌县妙高街道创业创新孵化团的技能工作室，扎根遂昌十余年的非洲籍“洋媳妇”露丝(Rose)正熟练展示遂昌长粽。 火热的电商直播，正让这款传承百年的特色美食加速出山。 遂昌长粽又名“长情粽”“分享粽”，其制作技艺已被列入浙江省级非物质文化遗
+发布时间：2026年04月27日 14:56 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 正文
 
-中新网丽水6月17日电(黄彦君 刘岚 陈员)“家人们，你们见过这么长的粽子吗？
-
-这长粽可是遂昌一绝，一口下去，满嘴的糯米香！
-
-”端午临近，在浙江省遂昌县妙高街道创业创新孵化团的技能工作室，扎根遂昌十余年的非洲籍“洋媳妇”露丝(Rose)正熟练展示遂昌长粽。
-
-火热的电商直播，正让这款传承百年的特色美食加速出山。
-
-遂昌长粽又名“长情粽”“分享粽”，其制作技艺已被列入浙江省级非物质文化遗产代表性项目名录。
-
-其凭借高山箬叶包裹、龙须草手工捆扎的古法工艺独树一帜，长条形制承载着情谊长久、阖家安康的民俗寓意，是当地端午节庆的必备佳品。
-
-长久以来，受地域、渠道限制，这款特色农产品销售范围较窄，多局限于县域内部，难以打开外部市场。
-
-早已融入本地乡村生活的露丝，亲眼见证山里诸多优质土特产面临的销售困境。
+发布时间：2026年04月27日 14:56 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 17:31 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 17:18 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 17:23 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 17:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 17:22 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 17:26 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 17:30 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-29 17:32 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 17:31 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 17:20 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 17:34 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 17:25 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 17:06 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 17:16 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 17:12 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 17:14 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 17:28 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 17:22 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 17:20 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 17:24 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 17:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 17:18 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 17:35 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 17:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 17:16 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:27 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/45373193.shtml)
-- 2026-06-29 17:31 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/950829.shtml)
-- 2026-06-29 17:34 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/42369949054.shtml)
-- 2026-06-29 17:35 - [王俊凯命名方式](https://www.share.minike.top/Article/details/6550903.shtml)
-- 2026-06-29 17:07 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/175103809.shtml)
-- 2026-06-29 17:06 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/660692573987.shtml)
-- 2026-06-29 17:35 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/19961260.shtml)
-- 2026-06-29 17:31 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/56551.shtml)
-- 2026-06-29 17:19 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/070870151.shtml)
-- 2026-06-29 17:30 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/66401270.shtml)
-- 2026-06-29 17:32 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/447341779964.shtml)
-- 2026-06-29 17:26 - [A股割裂行情有变化了吗](https://www.share.minike.top/Article/details/996674.shtml)
-- 2026-06-29 17:15 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.minike.top/Article/details/217779554.shtml)
-- 2026-06-29 17:15 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/471052.shtml)
-- 2026-06-29 17:24 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/21330.shtml)
+- 2026-06-29 17:40 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/7642319.shtml)
+- 2026-06-29 17:40 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/4962150.shtml)
+- 2026-06-29 17:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/754421.shtml)
+- 2026-06-29 17:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/557586.shtml)
+- 2026-06-29 17:21 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/1910205.shtml)
+- 2026-06-29 17:41 - [美人鱼](http://www.blog.minike.top/Article/details/7934901.shtml)
+- 2026-06-29 17:30 - [普京承认俄出现燃料危机](https://www.blog.kurohicncr.top/Article/details/97470845.shtml)
+- 2026-06-29 17:41 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.minike.top/Article/details/12311475.shtml)
+- 2026-06-29 17:28 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/8160363.shtml)
+- 2026-06-29 17:18 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/39550293.shtml)
+- 2026-06-29 17:15 - [周生如故](https://www.share.kurohicncr.top/Article/details/10939345351.shtml)
+- 2026-06-29 17:35 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/980741164.shtml)
+- 2026-06-29 17:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/455602098.shtml)
+- 2026-06-29 17:13 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/60931041.shtml)
+- 2026-06-29 17:17 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/01535914717.shtml)

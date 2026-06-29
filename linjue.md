@@ -1,61 +1,60 @@
-# G217线独库公路北段采取预约制通行管理 预约指南请查收
+# 2025国际短视频大赛成果在山东日照发布
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-今年，独库高速进入主线施工阶段(预计2032年9月完成)，伊宁至阿克苏段铁路全线开工建设(预计2032年5月完成)。同时，独库公路也在进行安全改造，即将迎来一次“大升级”(预计2030年10月完成)。 为此，新疆维吾尔自治区公安厅、交通运输厅、文化和旅游厅、应急管理厅发布通告，对G217线独库公路北段，即K587+100(乌苏驿)至K773(G217线与G218线交汇处-那拉提
+中新网日照4月28日电 (记者 梁犇)4月28日，2025国际短视频大赛成果发布暨2026国际短视频大赛启动仪式在山东省日照市举行。目前，相关话题全网累计播放量突破41亿次，其中海外平台9.2亿次。参赛作品历经海选、初评、复评多轮遴选，共评出一、二、三等奖作品30部。 2025国际短视频大赛以“美好世界 视听共享”为主题，作品题材涵盖文明传承、产业共振、青春对话、科技向善等六个
 
 ## 正文
 
-今年，独库高速进入主线施工阶段(预计2032年9月完成)，伊宁至阿克苏段铁路全线开工建设(预计2032年5月完成)。
+中新网日照4月28日电 (记者 梁犇)4月28日，2025国际短视频大赛成果发布暨2026国际短视频大赛启动仪式在山东省日照市举行。
 
-同时，独库公路也在进行安全改造，即将迎来一次“大升级”(预计2030年10月完成)。
+目前，相关话题全网累计播放量突破41亿次，其中海外平台9.2亿次。
 
-为此，新疆维吾尔自治区公安厅、交通运输厅、文化和旅游厅、应急管理厅发布通告，对G217线独库公路北段，即K587+100(乌苏驿)至K773(G217线与G218线交汇处-那拉提入口)路段，总长约185公里，采取预约制通行管理。
+参赛作品历经海选、初评、复评多轮遴选，共评出一、二、三等奖作品30部。
 
-独库公路北段预约制通行管理自2026年6月25日起施行，预约通行启动后的前15天为试行期，取消预约制通行措施的时间将根据工程进度另行通告。
+2025国际短视频大赛以“美好世界 视听共享”为主题，作品题材涵盖文明传承、产业共振、青春对话、科技向善等六个赛道，吸引了海内外创作者广泛关注与踊跃参与。
 
-预约指南预约车型限制 独库公路北段(乌苏驿-乔尔玛-那拉提)仅限7座以下(包含7座)小型客车，核定载质量5吨(含)以下货车预约通行； 当地居民或工作人员完成长期通行备案的车辆及公路养护车辆、执行任务的军警车、应急救援车、工程救援车、救护车无需预约即可通行； 7座(不含)以上载客汽车、核定载质量5吨(不含)以上货车、危化品运输车、挂车(全挂车、中置轴挂车、半挂车)、三轮汽车、低速货车、拖拉机、农用机械设备不允许通行。
+大赛通过快手、抖音、视频号、Kwai等海内外重点平台，形成了覆盖国内、辐射海外的全媒体传播矩阵。
 
-预约通行入口及时段 独库公路北段预约通行入口为乌苏驿、乔尔玛、那拉提(G217线与G218线交汇处)。
+发布仪式上，为中外创作者代表颁发“日照城市国际推荐官”证书，依托创作者的国际化视角与传播力，持续提升日照城市形象的国际能见度。
 
-每日允许通行时间：8时-19时。
+数字经济产业战略合作协议、视听内容海外传播战略合作协议签约仪式相继举行。
 
-每日可预约时段分为8:00-10:00、10:00-12:00、12:00-14:00、14:00-16:00、16:00-19:00五个时段，请按预约入口、时段进入独库公路北段。
+现场，2026国际短视频大赛同步启动，新一届大赛将落地东营，依托已有品牌基础，进一步拓宽海外传播渠道，深化国际交流合作，创新赛事组织形式，持续提升赛事的国际影响力与传播实效。
 
 ## 相关推荐
 
-- 2026-06-29 17:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 17:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 17:10 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 17:15 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 17:31 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 17:10 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 17:34 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 17:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 17:34 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 17:09 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 17:07 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 17:11 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 17:29 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 17:35 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 17:22 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 17:30 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 17:25 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 17:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 17:27 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 17:20 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 17:18 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 17:25 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 17:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 17:34 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 17:27 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 17:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 17:15 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 17:27 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 17:40 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:06 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/523280954.shtml)
-- 2026-06-29 17:28 - [当我回母校教书](https://www.blog.minike.top/Article/details/9154033.shtml)
-- 2026-06-29 17:15 - [T1 KC](http://www.share.kurohicncr.top/Article/details/329294.shtml)
-- 2026-06-29 17:33 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/362790454084.shtml)
-- 2026-06-29 17:25 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/965455229951.shtml)
-- 2026-06-29 17:20 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/1580192465.shtml)
-- 2026-06-29 17:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/731671310859.shtml)
-- 2026-06-29 17:35 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/2822136307.shtml)
-- 2026-06-29 17:19 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/37077.shtml)
-- 2026-06-29 17:33 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/633305781382.shtml)
-- 2026-06-29 17:28 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/388785339.shtml)
-- 2026-06-29 17:11 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/99494000.shtml)
-- 2026-06-29 17:34 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/936884827223.shtml)
-- 2026-06-29 17:22 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/21977.shtml)
-- 2026-06-29 17:23 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/98726.shtml)
+- 2026-06-29 17:38 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/9121051.shtml)
+- 2026-06-29 17:24 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/191539.shtml)
+- 2026-06-29 17:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/40530557951.shtml)
+- 2026-06-29 17:14 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/66431871.shtml)
+- 2026-06-29 17:31 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/4875386.shtml)
+- 2026-06-29 17:39 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/421915.shtml)
+- 2026-06-29 17:16 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/140644.shtml)
+- 2026-06-29 17:35 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/04378939379.shtml)
+- 2026-06-29 17:13 - [倪春青跨市履新苏州市委组织部部长](http://www.share.minike.top/Article/details/5878057871.shtml)
+- 2026-06-29 17:15 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/7654846473.shtml)
+- 2026-06-29 17:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/9874481600.shtml)
+- 2026-06-29 17:33 - [恋与深空发放补偿未得到玩家认可](https://www.share.minike.top/Article/details/84301656.shtml)
+- 2026-06-29 17:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/809380.shtml)
+- 2026-06-29 17:16 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/60110772.shtml)
+- 2026-06-29 17:23 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.minike.top/Article/details/18611501020.shtml)

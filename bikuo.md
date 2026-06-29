@@ -1,56 +1,59 @@
-# 颠覆先进封装，帝尔激光、东威科技先吃肉！
+# 长城基金“科技+”视点：盈利驱动叙事下，关注AI基本面兑现
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：英才商业 为什么是玻璃基板？ 玻璃基板之所以被资本市场反复提及，本质上不是一个材料故事，而是一个先进封装故事。 01 为什么用玻璃基板？ 讲人话：未来芯片越来越大，互联越来越密，传统ABF载板开始接近物理极限，翘曲增加，信号损耗增加，散热压力增加，成本也越来越高，于是行业开始寻找新的载体，玻璃基板就在
+近期公募基金一季报披露完毕，基金经理们的投资思路也“跃然纸上”。从披露情况来看，科技成长方向持续成为关注主线，AI产业链下游应用、卫星通信及商业航天等成长赛道频繁被提及。 市场当前的普遍共识是：这一轮科技革命或将持续较长时间，在短期波折中不改长期向上发展趋势。在此背景下，长城“科技+”领域基金经理们又是如何把握机遇呢？ 陈良栋：关注能源化工等涨价板块 2026年一季度，国内宏观
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+近期公募基金一季报披露完毕，基金经理们的投资思路也“跃然纸上”。
 
-来源：英才商业 为什么是玻璃基板？
+从披露情况来看，科技成长方向持续成为关注主线，AI产业链下游应用、卫星通信及商业航天等成长赛道频繁被提及。
 
-玻璃基板之所以被资本市场反复提及，本质上不是一个材料故事，而是一个先进封装故事。
+市场当前的普遍共识是：这一轮科技革命或将持续较长时间，在短期波折中不改长期向上发展趋势。
 
-01 为什么用玻璃基板？
+在此背景下，长城“科技+”领域基金经理们又是如何把握机遇呢？
 
-讲人话：未来芯片越来越大，互联越来越密，传统ABF载板开始接近物理极限，翘曲增加，信号损耗增加，散热压力增加，成本也越来越高，于是行业开始寻找新的载体，玻璃基板就在这个背景下出现； 专业点：从芯片封装尺寸演进看，算力芯片大型化趋势非常明确：从Hopper 55×58mm，到Blackwell 80×75mm，再到Rubin 90×100mm，封装面积、信号数和供电密度不断上升，意味着传统有机芯层在翘曲控制与布线密度上的压力只会越来越大。
+陈良栋：关注能源化工等涨价板块 2026年一季度，国内宏观经济保持韧性，进出口数据表现超预期，市场流动性整体宽裕，风险偏好处于相对高位，结构性机会较为多元，特别是价格持续上涨的板块表现相对突出，包括有色金属、AI产业链上游材料、新老能源产业链等板块。
 
-因为AI/HPC封装尺寸持续放大后，ABF/有机载板和硅中介层同时暴露出边界条件。
+与此同时，宏观经济内部分化依然显著，内需复苏节奏整体温和，社会消费品零售总额稳步修复但斜率偏缓，CPI同比处于温和回升区间，PPI同比降幅持续收窄、逐步临近转正关口。
 
-ABF载板的热膨胀系数失配导致翘曲、线宽线距逼近极限、高频损耗偏高；硅中介层的问题则是尺寸受晶圆与reticle限制、介电损耗偏高、成本高、晶圆厂资源占用重。
+整体数据反映企业盈利仍处于渐进式修复通道，仍面临一定的需求与价格压力。
 
-这是玻璃基板被重新推到产业前端的根本原因，趋势已成。
+进入3月，受中东地缘冲突升级、美联储降息预期延后等海外因素影响，A股市场出现较大回调。
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 17:17 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 17:20 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 17:22 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 17:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 17:07 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 17:34 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 17:13 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 17:09 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 17:28 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 17:31 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 17:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 17:20 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 17:41 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 17:20 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 17:28 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 17:36 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 17:17 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 17:24 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 17:28 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 17:36 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 17:33 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 17:15 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:11 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/763437.shtml)
-- 2026-06-29 17:13 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/440549.shtml)
-- 2026-06-29 17:33 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.minike.top/Article/details/3931324.shtml)
-- 2026-06-29 17:17 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/70742832.shtml)
-- 2026-06-29 17:09 - [倪春青跨市履新苏州市委组织部部长](https://www.share.kurohicncr.top/Article/details/16514421697.shtml)
-- 2026-06-29 17:16 - [南部战区位南海海域进行例行巡航](http://www.share.kurohicncr.top/Article/details/9551988698.shtml)
-- 2026-06-29 17:17 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/135902.shtml)
-- 2026-06-29 17:24 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/73833.shtml)
-- 2026-06-29 17:21 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/31197643.shtml)
-- 2026-06-29 17:13 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/8434825.shtml)
-- 2026-06-29 17:18 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/08580505.shtml)
-- 2026-06-29 17:23 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/568483.shtml)
-- 2026-06-29 17:30 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/32910183740.shtml)
-- 2026-06-29 17:26 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/23461816.shtml)
-- 2026-06-29 17:11 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/62324.shtml)
+- 2026-06-29 17:35 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/95289684.shtml)
+- 2026-06-29 17:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/41395471.shtml)
+- 2026-06-29 17:32 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/73346108.shtml)
+- 2026-06-29 17:28 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/825386992538.shtml)
+- 2026-06-29 17:19 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/30703678.shtml)
+- 2026-06-29 17:14 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/886377589.shtml)
+- 2026-06-29 17:40 - [日本偶像龟梨和也宣布结婚](http://www.share.kurohicncr.top/Article/details/18597561548.shtml)
+- 2026-06-29 17:24 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/0922295.shtml)
+- 2026-06-29 17:28 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/122276451.shtml)
+- 2026-06-29 17:40 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/65331337.shtml)
+- 2026-06-29 17:15 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/315433675.shtml)
+- 2026-06-29 17:36 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/280912798.shtml)
+- 2026-06-29 17:25 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/630689.shtml)
+- 2026-06-29 17:29 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/0770679.shtml)
+- 2026-06-29 17:12 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/24185.shtml)

@@ -1,59 +1,49 @@
-# 安仕科技IPO前夜，核心创始人为何神隐？
+# 德祥地产遭执行董事兼联席副主席陈国强减持1567.5万股 每股作价0.74港元
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一个好汉三个帮。安仕科技，中泰盛（已注销）、比克（经营困难）帮。人们传统印象中一直在做ODM电池企业——安仕科技，最近提交了创业板IPO申请。其强调的商业标签，已变成了BBU备用电源，安仕科技也由此成为一家数据中心、AI产业链企业了。那么，安仕科技究竟是一家什么样的企业？它是真有技术，还是强蹭概念？其核心创始人员王景辉等重要股东
+香港联交所最新数据显示，4月22日，执行董事兼联席副主席陈国强减持德祥地产（00199）1567.5万股，每股作价0.74港元，总金额约为1159.95万港元。减持后最新持股数目为3.71亿股，最新持股比例为36.41%。责任编辑：卢昱君
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一个好汉三个帮。
+香港联交所最新数据显示，4月22日，执行董事兼联席副主席陈国强减持德祥地产（00199）1567.5万股，每股作价0.74港元，总金额约为1159.95万港元。
 
-安仕科技，中泰盛（已注销）、比克（经营困难）帮。
+减持后最新持股数目为3.71亿股，最新持股比例为36.41%。
 
-人们传统印象中一直在做ODM电池企业——安仕科技，最近提交了创业板IPO申请。
-
-其强调的商业标签，已变成了BBU备用电源，安仕科技也由此成为一家数据中心、AI产业链企业了。
-
-那么，安仕科技究竟是一家什么样的企业？
-
-它是真有技术，还是强蹭概念？
-
-其核心创始人员王景辉等重要股东，利用中泰盛、比克两家公司帮助安仕科技成长，为什么在IPO前夜，却选择了隐身幕后？
-
-01王景辉其人安仕科技的实际控制人是1988年出生的赵振超。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 17:33 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 17:07 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 17:13 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 17:35 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 17:09 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 17:27 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 17:17 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 17:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 17:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 17:08 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 17:16 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 17:11 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 17:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 17:29 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 17:27 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 17:26 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 17:38 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 17:36 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 17:28 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 17:30 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 17:16 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 17:25 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 17:26 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 17:41 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 17:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:15 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/1242947.shtml)
-- 2026-06-29 17:08 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/409313951084.shtml)
-- 2026-06-29 17:23 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/99420750.shtml)
-- 2026-06-29 17:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/19334315541.shtml)
-- 2026-06-29 17:06 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/6853651969.shtml)
-- 2026-06-29 17:31 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/29187.shtml)
-- 2026-06-29 17:08 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/0958933879.shtml)
-- 2026-06-29 17:33 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/14434056.shtml)
-- 2026-06-29 17:27 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/16943626.shtml)
-- 2026-06-29 17:10 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/419536283.shtml)
-- 2026-06-29 17:27 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/10659.shtml)
-- 2026-06-29 17:35 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/440913943.shtml)
-- 2026-06-29 17:10 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/1328029175.shtml)
-- 2026-06-29 17:24 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/43040410677.shtml)
-- 2026-06-29 17:34 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/891096.shtml)
+- 2026-06-29 17:25 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/75337.shtml)
+- 2026-06-29 17:25 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.kurohicncr.top/Article/details/2702607.shtml)
+- 2026-06-29 17:42 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/097777810.shtml)
+- 2026-06-29 17:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/28465666.shtml)
+- 2026-06-29 17:40 - [速度与激情9](http://www.blog.minike.top/Article/details/026445.shtml)
+- 2026-06-29 17:35 - [TLAW vs DCG MSI](https://www.share.kurohicncr.top/Article/details/9855335.shtml)
+- 2026-06-29 17:14 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/8831242668.shtml)
+- 2026-06-29 17:41 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/91098990.shtml)
+- 2026-06-29 17:28 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.kurohicncr.top/Article/details/9013674.shtml)
+- 2026-06-29 17:17 - [谢依霖夸杨幂靠谱](http://www.share.minike.top/Article/details/6078879812.shtml)
+- 2026-06-29 17:40 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/80806508.shtml)
+- 2026-06-29 17:32 - [看大国重器“云端穿针引线”](http://www.share.minike.top/Article/details/147553834.shtml)
+- 2026-06-29 17:13 - [起风了](http://www.blog.minike.top/Article/details/13377284848.shtml)
+- 2026-06-29 17:14 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.kurohicncr.top/Article/details/669379.shtml)
+- 2026-06-29 17:22 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/01478366662.shtml)

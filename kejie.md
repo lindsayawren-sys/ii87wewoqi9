@@ -1,49 +1,46 @@
-# 美兰空港获M&G Plc增持3.8万股 每股作价约4.74港元
+# 诺华因财报不及预期股价下跌
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，6月15日，M&G Plc增持美兰空港（00357）3.8万股，每股作价4.7371港元，总金额约为18万港元。增持后最新持股数目为4539.4万股，持股比例为20.01%。责任编辑：卢昱君
+诺华股价在公布第一季度营业收入低于预期后下跌，拖累了欧洲医疗保健类股。责任编辑：张俊 SF065
 
 ## 正文
 
-香港联交所最新数据显示，6月15日，M&G Plc增持美兰空港（00357）3.8万股，每股作价4.7371港元，总金额约为18万港元。
+诺华股价在公布第一季度营业收入低于预期后下跌，拖累了欧洲医疗保健类股。
 
-增持后最新持股数目为4539.4万股，持股比例为20.01%。
-
-责任编辑：卢昱君
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 17:08 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 17:22 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 17:09 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 17:34 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 17:23 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 17:20 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 17:22 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 17:35 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 17:30 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 17:12 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 17:25 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 17:11 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 17:22 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 17:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 17:19 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 17:19 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 17:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 17:24 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 17:29 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 17:15 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 17:22 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 17:22 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 17:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 17:19 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 17:22 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:23 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.minike.top/Article/details/54216.shtml)
-- 2026-06-29 17:26 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/4502742.shtml)
-- 2026-06-29 17:21 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/7158718.shtml)
-- 2026-06-29 17:36 - [速度与激情9](http://www.blog.minike.top/Article/details/5963834282.shtml)
-- 2026-06-29 17:13 - [波兰创该国高温纪录](http://www.blog.minike.top/Article/details/50152772122.shtml)
-- 2026-06-29 17:09 - [逆天祖国人](https://www.share.minike.top/Article/details/438497757.shtml)
-- 2026-06-29 17:30 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/022734192388.shtml)
-- 2026-06-29 17:28 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/910219701.shtml)
-- 2026-06-29 17:15 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/92094083279.shtml)
-- 2026-06-29 17:07 - [广东一地发现极危植物新物种](http://www.share.kurohicncr.top/Article/details/555653.shtml)
-- 2026-06-29 17:07 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/5138895828.shtml)
-- 2026-06-29 17:16 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/04694892.shtml)
-- 2026-06-29 17:16 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/91405418.shtml)
-- 2026-06-29 17:23 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/983118277.shtml)
-- 2026-06-29 17:28 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/27352645008.shtml)
+- 2026-06-29 17:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/183639140.shtml)
+- 2026-06-29 17:21 - [金牌调解](http://www.blog.minike.top/Article/details/2350900684.shtml)
+- 2026-06-29 17:32 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/09759201032.shtml)
+- 2026-06-29 17:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/000157.shtml)
+- 2026-06-29 17:36 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/7055080771.shtml)
+- 2026-06-29 17:36 - [送你一朵小红花](http://www.share.minike.top/Article/details/837491.shtml)
+- 2026-06-29 17:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/26987232.shtml)
+- 2026-06-29 17:25 - [省市招考专家解读山西高考志愿政策](https://www.share.kurohicncr.top/Article/details/082925286336.shtml)
+- 2026-06-29 17:27 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/969317.shtml)
+- 2026-06-29 17:35 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/233465.shtml)
+- 2026-06-29 17:25 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/19631.shtml)
+- 2026-06-29 17:29 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/102527.shtml)
+- 2026-06-29 17:39 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/204519614843.shtml)
+- 2026-06-29 17:34 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/0449326.shtml)
+- 2026-06-29 17:24 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/52013977893.shtml)

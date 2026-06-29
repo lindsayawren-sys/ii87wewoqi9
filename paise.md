@@ -1,56 +1,61 @@
-# 伊方消息人士：彭博社所刊美伊备忘录内容不准确
+# AMD获分析师上调评级，CPU需求成增长新引擎
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰6月17日电伊朗塔斯尼姆通讯社17日援引一名接近伊朗谈判团队消息人士的话报道称，彭博社此前发布的美伊谅解备忘录全文“并不准确”，存在“诸多缺陷”。 这名消息人士说，谅解备忘录包含14点内容，媒体此前已多次就此进行了报道，但彭博社对每点内容具体细节的描述“相当不完整”。他以备忘录第一点及涉及霍尔木
+AMD正迎来新一轮市场乐观情绪。戴维森投资公司（D.A． Davidson）上调了该股评级，指出其在中央处理器（CPU）领域面临的市场机遇远超此前预期。 英特尔的强劲财报似乎改变了整个芯片行业的气氛。分析师认为，对CPU的需求不仅仅是小幅攀升，而是在发生结构性变化，尤其是在代理式人工智能兴起的背景下。这类工作负载仍然高度依赖CPU，这意味着CPU在AI计算堆栈中的地位变得比人们
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+AMD正迎来新一轮市场乐观情绪。
 
-新华社德黑兰6月17日电伊朗塔斯尼姆通讯社17日援引一名接近伊朗谈判团队消息人士的话报道称，彭博社此前发布的美伊谅解备忘录全文“并不准确”，存在“诸多缺陷”。
+戴维森投资公司（D.A． Davidson）上调了该股评级，指出其在中央处理器（CPU）领域面临的市场机遇远超此前预期。
 
-这名消息人士说，谅解备忘录包含14点内容，媒体此前已多次就此进行了报道，但彭博社对每点内容具体细节的描述“相当不完整”。
+英特尔的强劲财报似乎改变了整个芯片行业的气氛。
 
-他以备忘录第一点及涉及霍尔木兹海峡的相关内容为例，指称彭博社的报道明显不准确，且其中遗漏了一些重要的关键词。
+分析师认为，对CPU的需求不仅仅是小幅攀升，而是在发生结构性变化，尤其是在代理式人工智能兴起的背景下。
 
-该消息人士还说，伊美双方约定，谅解备忘录文本将在19日正式签署后公布。
+这类工作负载仍然高度依赖CPU，这意味着CPU在AI计算堆栈中的地位变得比人们最初想象的更为关键。
 
-（完）责任编辑：宋雅芳
+对AMD而言，这恰好是其优势所在。
+
+该公司现在能够更清晰地认识到自己在数据中心建设中的角色，更重要的是，需求可能强劲到足以超过供应。
+
+如果这种情况成为现实，AMD不仅能销售更多芯片，还有提价空间，从而有助于长期改善利润率。
 
 ## 相关推荐
 
-- 2026-06-29 17:18 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 17:19 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 17:06 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 17:23 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 17:33 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 17:09 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 17:21 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 17:16 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 17:10 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 17:19 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 17:18 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 17:31 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 17:06 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 17:17 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 17:36 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 17:28 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 17:17 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 17:27 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 17:22 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 17:20 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 17:28 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 17:22 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 17:24 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 17:27 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 17:41 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 17:23 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 17:27 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 17:21 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 17:38 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:08 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/9642028882.shtml)
-- 2026-06-29 17:28 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/751806245.shtml)
-- 2026-06-29 17:09 - [看大国重器“云端穿针引线”](http://www.blog.kurohicncr.top/Article/details/707530.shtml)
-- 2026-06-29 17:23 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/427658350.shtml)
-- 2026-06-29 17:07 - [恋与深空失控领地](http://www.share.minike.top/Article/details/871035.shtml)
-- 2026-06-29 17:21 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/62962.shtml)
-- 2026-06-29 17:34 - [税务总局披露5起合规申报个税案例](http://www.share.minike.top/Article/details/894685.shtml)
-- 2026-06-29 17:20 - [绘画区你赢了](https://www.share.minike.top/Article/details/3627653.shtml)
-- 2026-06-29 17:14 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/8080249645.shtml)
-- 2026-06-29 17:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/247125082188.shtml)
-- 2026-06-29 17:10 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.kurohicncr.top/Article/details/28327197803.shtml)
-- 2026-06-29 17:08 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/533176.shtml)
-- 2026-06-29 17:32 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/353901878.shtml)
-- 2026-06-29 17:13 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/75881429.shtml)
-- 2026-06-29 17:23 - [挪威王储妃长子2次强奸被判4年](https://www.blog.minike.top/Article/details/81949.shtml)
+- 2026-06-29 17:13 - [普京承认俄出现燃料危机](https://www.share.kurohicncr.top/Article/details/45683152872.shtml)
+- 2026-06-29 17:14 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/3525984081.shtml)
+- 2026-06-29 17:39 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/34719.shtml)
+- 2026-06-29 17:41 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/706101.shtml)
+- 2026-06-29 17:29 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/180371527.shtml)
+- 2026-06-29 17:12 - [天道](https://www.blog.kurohicncr.top/Article/details/282908.shtml)
+- 2026-06-29 17:30 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.kurohicncr.top/Article/details/530613412176.shtml)
+- 2026-06-29 17:25 - [当地回应林区违规放羊遭豹啃食](http://www.blog.minike.top/Article/details/634302.shtml)
+- 2026-06-29 17:21 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/71246805.shtml)
+- 2026-06-29 17:22 - [未成年少女长期吸毒导致卧床不起](http://www.blog.minike.top/Article/details/892298742112.shtml)
+- 2026-06-29 17:34 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/2566743.shtml)
+- 2026-06-29 17:16 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/20041.shtml)
+- 2026-06-29 17:33 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/4062535193.shtml)
+- 2026-06-29 17:34 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/479289.shtml)
+- 2026-06-29 17:28 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/3073533788.shtml)

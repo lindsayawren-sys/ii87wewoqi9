@@ -1,48 +1,56 @@
-# 北控水务集团完成发行12亿元中期票据
+# 摩尔线程一季度扭亏，股价盘中上涨
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-北控水务集团（00371）发布公告，公司已于2026年6月17日完成向合资格投资者发行2026年度第三期中期票据。根据簿记建档结果，2026年度第三期中期票据发行总金额为人民币12亿元，期限为五年，于2031年6月到期，票面利率为每年1.82%。责任编辑：卢昱君
+今年第一季度，摩尔线程净利润2936万元，同比扭亏。 4月27日盘中，摩尔线程（688795.SH）涨超8%。此前一日，摩尔线程披露2026年第一季度财报，显示该季度公司营收7.38亿元，同比增长155.35%，净利润2936万元，同比扭亏。 摩尔线程是国产GPU上市公司中率先发布第一季度财报的。相比去年第一季度净利润亏损1.12亿元，今年第一季度摩尔线程盈利情况有所改善。摩尔
 
 ## 正文
 
-北控水务集团（00371）发布公告，公司已于2026年6月17日完成向合资格投资者发行2026年度第三期中期票据。
+今年第一季度，摩尔线程净利润2936万元，同比扭亏。
 
-根据簿记建档结果，2026年度第三期中期票据发行总金额为人民币12亿元，期限为五年，于2031年6月到期，票面利率为每年1.82%。
+4月27日盘中，摩尔线程（688795.SH）涨超8%。
 
-责任编辑：卢昱君
+此前一日，摩尔线程披露2026年第一季度财报，显示该季度公司营收7.38亿元，同比增长155.35%，净利润2936万元，同比扭亏。
+
+摩尔线程是国产GPU上市公司中率先发布第一季度财报的。
+
+相比去年第一季度净利润亏损1.12亿元，今年第一季度摩尔线程盈利情况有所改善。
+
+摩尔线程表示，营收增长主要是因为公司投入全功能GPU的研发与创新，产品实现规模化落地。
+
+国产AI芯片公司中，海光信息（688041.SH）也已公布了第一季度财报，该季度公司营收和净利润明显增长。
+
+该季度海光信息营收40.34亿元，同比增长68.06%，净利润6.87亿元，同比增长35.82%。
 
 ## 相关推荐
 
-- 2026-06-29 17:23 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 17:19 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 17:06 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 17:06 - [南昌市委书记调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 17:26 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 17:24 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 17:21 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 17:12 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 17:16 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 17:34 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 17:31 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 17:07 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 17:19 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 17:23 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 17:40 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 17:30 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 17:30 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 17:22 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 17:32 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 17:30 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 17:41 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 17:18 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:26 - [赵今麦时隔五年再演李诗情](http://www.share.minike.top/Article/details/334255147.shtml)
-- 2026-06-29 17:23 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/93045726365.shtml)
-- 2026-06-29 17:23 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/62630245.shtml)
-- 2026-06-29 17:08 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/587891.shtml)
-- 2026-06-29 17:34 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/343963416.shtml)
-- 2026-06-29 17:27 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.kurohicncr.top/Article/details/788808086.shtml)
-- 2026-06-29 17:17 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/005886.shtml)
-- 2026-06-29 17:28 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/52339469.shtml)
-- 2026-06-29 17:35 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/360422268773.shtml)
-- 2026-06-29 17:28 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/909964.shtml)
-- 2026-06-29 17:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/33535.shtml)
-- 2026-06-29 17:28 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/7633118.shtml)
-- 2026-06-29 17:14 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/1650893931.shtml)
-- 2026-06-29 17:11 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/0311987423.shtml)
-- 2026-06-29 17:08 - [和周杰伦在演唱会合唱了](https://www.blog.minike.top/Article/details/65316278.shtml)
+- 2026-06-29 17:41 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/911151130.shtml)
+- 2026-06-29 17:36 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/82483.shtml)
+- 2026-06-29 17:35 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/947778.shtml)
+- 2026-06-29 17:35 - [博主：黄金和原油回落不等于风险消失](https://www.blog.minike.top/Article/details/985635086.shtml)
+- 2026-06-29 17:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/72148719982.shtml)
+- 2026-06-29 17:42 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/88377782051.shtml)
+- 2026-06-29 17:28 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/7319449.shtml)
+- 2026-06-29 17:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/753671667245.shtml)
+- 2026-06-29 17:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/9698730854.shtml)
+- 2026-06-29 17:21 - [女心理师](https://www.share.kurohicncr.top/Article/details/516601.shtml)
+- 2026-06-29 17:12 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/28881682.shtml)
+- 2026-06-29 17:34 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/85639644.shtml)
+- 2026-06-29 17:16 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/084387738.shtml)
+- 2026-06-29 17:22 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/5706151.shtml)
+- 2026-06-29 17:35 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/95547.shtml)

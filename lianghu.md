@@ -1,48 +1,56 @@
-# 葡萄牙队迎美加墨世界杯首秀 英格兰对阵克罗地亚
+# 联合航空放弃收购竞争对手美国航空
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新网6月17日电 北京时间18日，美加墨世界杯将迎来四场小组赛争夺，分别为K组葡萄牙队对阵刚果(金)队、乌兹别克斯坦队迎战哥伦比亚队，L组英格兰队对阵克罗地亚队、加纳队迎战巴拿马队。 赛前，英格兰队与克罗地亚队的比赛被视为小组赛阶段最受关注的强强较量，拥有豪华阵容的葡萄牙队也将迎来赛事首秀。(完)
+美国航空已拒绝这项整合全球两大航司的合并提案 联合航空（UAL）正式放弃收购美国航空（AAL） 的计划，该项并购尚未正式启动便宣告终止。 周一，联合航空首席执行官斯科特・柯比此前曾阐述收购美国航空的方案。这一野心勃勃的交易，原本将整合美国两大头部航空公司。他同时承认，并购推进面临巨大阻碍，核心原因是美国航空拒绝协商，并正式宣布：联合航空与美国航空的并购洽谈已终止。 柯比表示，鉴
 
 ## 正文
 
-中新网6月17日电 北京时间18日，美加墨世界杯将迎来四场小组赛争夺，分别为K组葡萄牙队对阵刚果(金)队、乌兹别克斯坦队迎战哥伦比亚队，L组英格兰队对阵克罗地亚队、加纳队迎战巴拿马队。
+美国航空已拒绝这项整合全球两大航司的合并提案 联合航空（UAL）正式放弃收购美国航空（AAL） 的计划，该项并购尚未正式启动便宣告终止。
 
-赛前，英格兰队与克罗地亚队的比赛被视为小组赛阶段最受关注的强强较量，拥有豪华阵容的葡萄牙队也将迎来赛事首秀。
+周一，联合航空首席执行官斯科特・柯比此前曾阐述收购美国航空的方案。
 
-(完)
+这一野心勃勃的交易，原本将整合美国两大头部航空公司。
+
+他同时承认，并购推进面临巨大阻碍，核心原因是美国航空拒绝协商，并正式宣布：联合航空与美国航空的并购洽谈已终止。
+
+柯比表示，鉴于美国航空公开明确抵制，这项旨在合并全球两大航司的并购案，在可预见的未来彻底搁置。
+
+尽管如此，他仍为联合航空的收购尝试作出辩解，称双方合并后，将进一步拓展国际航线与下沉城市支线航线、增加经济舱席位供给以提升旅客权益，并强化航司对海外航空企业的竞争能力。
+
+他还提到，此次合并将提振美国经济：合并后的新企业会创造数万个新增就业岗位，同时大量新飞机采购需求，也将带动美国本土航空制造业发展。
+
+柯比坦言，该并购大概率会遭到监管部门质疑，但他强调，本次合并不同于过往航空业并购，核心导向是扩张增长，而非裁员缩减成本。
 
 ## 相关推荐
 
-- 2026-06-29 17:34 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 17:07 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 17:35 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 17:30 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 17:29 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 17:28 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 17:19 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 17:08 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 17:09 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 17:20 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 17:09 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-29 17:26 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 17:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 17:16 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 17:33 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 17:19 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 17:26 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 17:26 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 17:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 17:31 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 17:20 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 17:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:09 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/901375453125.shtml)
-- 2026-06-29 17:17 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/8573806352.shtml)
-- 2026-06-29 17:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/2468558986.shtml)
-- 2026-06-29 17:17 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/7319365212.shtml)
-- 2026-06-29 17:32 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.minike.top/Article/details/675325692.shtml)
-- 2026-06-29 17:12 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/41493.shtml)
-- 2026-06-29 17:26 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.minike.top/Article/details/184520.shtml)
-- 2026-06-29 17:19 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/2741934020.shtml)
-- 2026-06-29 17:29 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/32841.shtml)
-- 2026-06-29 17:24 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/28817729202.shtml)
-- 2026-06-29 17:24 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/31348977756.shtml)
-- 2026-06-29 17:15 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/202304522.shtml)
-- 2026-06-29 17:35 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/12558.shtml)
-- 2026-06-29 17:29 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/568995.shtml)
-- 2026-06-29 17:17 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/446785367.shtml)
+- 2026-06-29 17:27 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/3258801280.shtml)
+- 2026-06-29 17:30 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/7490925476.shtml)
+- 2026-06-29 17:27 - [12所大学更正招生目录](http://www.blog.minike.top/Article/details/96070566394.shtml)
+- 2026-06-29 17:29 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/04925577.shtml)
+- 2026-06-29 17:41 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/626735586.shtml)
+- 2026-06-29 17:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/2558202613.shtml)
+- 2026-06-29 17:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/7316205.shtml)
+- 2026-06-29 17:25 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/5249579936.shtml)
+- 2026-06-29 17:19 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/8454917871.shtml)
+- 2026-06-29 17:16 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/2020549.shtml)
+- 2026-06-29 17:32 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/2604716.shtml)
+- 2026-06-29 17:14 - [BB大王横店拍戏](https://www.share.kurohicncr.top/Article/details/3984561853.shtml)
+- 2026-06-29 17:19 - [倪春青跨市履新苏州市委组织部部长](http://www.share.minike.top/Article/details/10124.shtml)
+- 2026-06-29 17:17 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/126737598.shtml)
+- 2026-06-29 17:24 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/47700063456.shtml)

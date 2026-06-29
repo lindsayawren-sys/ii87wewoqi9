@@ -1,61 +1,53 @@
-# （活力中国调研行）以天津为样板 中国探路“新三样”固废回收利用
+# “五一”假期中国口岸日均出入境人员预计将达225万人次
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新社天津6月17日电 题：以天津为样板 中国探路“新三样”固废回收利用 中新社记者 周亚强 随着新能源产业快速发展，逐步迎来退役高峰的光伏组件、动力电池、风机叶片等“新三样”固废的回收利用备受关注。中新社记者近日走进位于天津的中国资源循环集团(下称“中国资环”)绿色低碳循环经济示范基地，探访相关产业实践。 这片占地26.6万平方米的基地由闲置厂房改造而成。2025年，中国资环
+中新社北京4月28日电 (记者 郭超凯)记者28日从中国国家移民管理局获悉，据预测，“五一”假期全国口岸将迎来出入境客流高峰，预计日均出入境人员将达225万人次，单日最高通关量将突破240万人次。 大型国际机场口岸出入境客流增长明显，上海浦东、广州白云、北京首都、成都天府、深圳宝安等口岸预计日均出入境人员分别为10.2万、5.5万、4.9万、2万、2万人次；毗邻港澳陆路口岸旅客
 
 ## 正文
 
-中新社天津6月17日电 题：以天津为样板 中国探路“新三样”固废回收利用 中新社记者 周亚强 随着新能源产业快速发展，逐步迎来退役高峰的光伏组件、动力电池、风机叶片等“新三样”固废的回收利用备受关注。
+中新社北京4月28日电 (记者 郭超凯)记者28日从中国国家移民管理局获悉，据预测，“五一”假期全国口岸将迎来出入境客流高峰，预计日均出入境人员将达225万人次，单日最高通关量将突破240万人次。
 
-中新社记者近日走进位于天津的中国资源循环集团(下称“中国资环”)绿色低碳循环经济示范基地，探访相关产业实践。
+大型国际机场口岸出入境客流增长明显，上海浦东、广州白云、北京首都、成都天府、深圳宝安等口岸预计日均出入境人员分别为10.2万、5.5万、4.9万、2万、2万人次；毗邻港澳陆路口岸旅客流量将持续高位运行，其中，深圳罗湖、福田、深圳湾、广深港高铁西九龙站、莲塘口岸预计日均出入境人员将分别达到23万、21万、18万、12万、10万人次，珠海拱北、港珠澳大桥、青茂、横琴口岸日均出入境人员预计将分别达到39.6万、12.9万、12.1万、11.6万人次。
 
-这片占地26.6万平方米的基地由闲置厂房改造而成。
+日前，国家移民管理局就做好“五一”假期口岸边防检查工作作出专门部署，要求全国边检机关加强出入境流量和口岸运行情况监测、及时发布本口岸出入境客流情况，为广大民众出行提供参考；加强勤务组织，开足查验通道，确保中国公民出入境通关排队不超过30分钟；密切与口岸联检单位和相关部门协作配合，稳妥做好高峰期客流疏导和交通配套综合保障，共同确保口岸通关安全高效顺畅。
 
-2025年，中国资环仅用百余天将其建成国内首个资源循环领域国家级示范基地，集资源循环、能源循环、数字循环、资产循环于一体。
-
-“我们正加快建设兼具回收储运与综合利用功能的大型区域回收利用中心，目标是形成千亿级循环经济产业集群。
-
-”中资环绿投循环科技投资(深圳)有限公司董事长罗晓光说，目前基地已集聚多家产业链上下游企业，推进从绿色分拣、梯级利用到再生循环的完整链条构建。
-
-罗晓光介绍，常规光伏板多为黑色或深蓝色，中国资环创新了全彩化涂层技术，使退役组件变身彩色发电建材，“既做建筑立面装饰，又能发电支持园区照明”，发电效率可达到标准光伏板的90%左右。
-
-基地已应用此类组件10296块，其中彩色化应用7171块；覆盖面积约2.7万平方米，年发电量约550万千瓦时。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:29 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 17:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 17:26 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 17:20 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 17:29 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 17:30 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 17:15 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 17:07 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 17:21 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 17:26 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 17:25 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 17:30 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 17:18 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 17:28 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 17:07 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 17:27 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 17:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 17:24 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 17:21 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 17:17 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 17:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 17:16 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 17:37 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 17:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 17:13 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 17:36 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 17:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 17:31 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 17:39 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 17:19 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/8596634.shtml)
-- 2026-06-29 17:08 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.kurohicncr.top/Article/details/29394372590.shtml)
-- 2026-06-29 17:31 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.kurohicncr.top/Article/details/89691760.shtml)
-- 2026-06-29 17:27 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/52133911714.shtml)
-- 2026-06-29 17:17 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/7144834.shtml)
-- 2026-06-29 17:16 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/511476456674.shtml)
-- 2026-06-29 17:15 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/82080.shtml)
-- 2026-06-29 17:28 - [当我回母校教书](http://www.share.minike.top/Article/details/3703390.shtml)
-- 2026-06-29 17:19 - [男孩复读一年减重20斤涨分111分](http://www.blog.kurohicncr.top/Article/details/2473328.shtml)
-- 2026-06-29 17:31 - [医院大厅放钢琴是形式主义吗](http://www.blog.kurohicncr.top/Article/details/8374844326.shtml)
-- 2026-06-29 17:18 - [极限挑战第一季](http://www.blog.minike.top/Article/details/880803749.shtml)
-- 2026-06-29 17:31 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/49338985.shtml)
-- 2026-06-29 17:15 - [滾石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/01269278443.shtml)
-- 2026-06-29 17:07 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/12932612.shtml)
-- 2026-06-29 17:27 - [首个靠AI躺赢的国家](https://www.share.minike.top/Article/details/80281.shtml)
+- 2026-06-29 17:24 - [断骨增高灰产拉一人提成1.5万元](http://www.share.kurohicncr.top/Article/details/864899939.shtml)
+- 2026-06-29 17:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/81877992.shtml)
+- 2026-06-29 17:20 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/091395.shtml)
+- 2026-06-29 17:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/0943688956.shtml)
+- 2026-06-29 17:20 - [永远有话聊的原因](http://www.share.minike.top/Article/details/90971.shtml)
+- 2026-06-29 17:41 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/6103232493.shtml)
+- 2026-06-29 17:32 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/844487234005.shtml)
+- 2026-06-29 17:39 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/092185637.shtml)
+- 2026-06-29 17:41 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/24314991931.shtml)
+- 2026-06-29 17:24 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/8675061.shtml)
+- 2026-06-29 17:20 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/9986037.shtml)
+- 2026-06-29 17:39 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.minike.top/Article/details/12358384.shtml)
+- 2026-06-29 17:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/4221308085.shtml)
+- 2026-06-29 17:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/834508354665.shtml)
+- 2026-06-29 17:37 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/7251782.shtml)

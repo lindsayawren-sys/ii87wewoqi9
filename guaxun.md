@@ -1,58 +1,59 @@
-# 德马科技6月17日大宗交易成交2047.50万元
+# 辽宁推动创建“东北超”第二现场 激活票根经济
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-德马科技6月17日大宗交易平台出现一笔成交，成交量117.00万股，成交金额2047.50万元，大宗交易成交价为17.50元，相对今日收盘价折价15.74%。该笔交易的买方营业部为光大证券股份有限公司湖州劳动路证券营业部，卖方营业部为浙商证券股份有限公司湖州分公司。进一步统计，近3个月内该股累计发生4笔大宗交易，合计成交金额为7163.78万元。证券时报·数据宝统计显示，德马科
+中新网沈阳4月28日电 (记者 韩宏)记者27日从辽宁省政府新闻办召开的2026年东北地区城市足球联赛(以下简称“东北超”)发布会上获悉，辽宁持续优化球迷第二现场观赛体验，培育“泡澡看球、撸串看球、逛街看球、夜市看球”等时尚IP，现场将开展比分竞猜、球员视频连线等环节，营造“观赛+消费”的燃动氛围。 据介绍，沈阳为广大观赛群众打造城市观赛站、球迷加油站近200个，把足球赛事深度
 
 ## 正文
 
-德马科技6月17日大宗交易平台出现一笔成交，成交量117.00万股，成交金额2047.50万元，大宗交易成交价为17.50元，相对今日收盘价折价15.74%。
+中新网沈阳4月28日电 (记者 韩宏)记者27日从辽宁省政府新闻办召开的2026年东北地区城市足球联赛(以下简称“东北超”)发布会上获悉，辽宁持续优化球迷第二现场观赛体验，培育“泡澡看球、撸串看球、逛街看球、夜市看球”等时尚IP，现场将开展比分竞猜、球员视频连线等环节，营造“观赛+消费”的燃动氛围。
 
-该笔交易的买方营业部为光大证券股份有限公司湖州劳动路证券营业部，卖方营业部为浙商证券股份有限公司湖州分公司。
+据介绍，沈阳为广大观赛群众打造城市观赛站、球迷加油站近200个，把足球赛事深度融入商圈、夜市、景区等生活消费场景。
 
-进一步统计，近3个月内该股累计发生4笔大宗交易，合计成交金额为7163.78万元。
+大连市构建东北超“3+12+100+N”第二现场点位网，为百姓带来特点鲜明的观赛体验。
 
-证券时报·数据宝统计显示，德马科技今日收盘价为20.77元，下跌2.85%，日换手率为3.51%，成交额为1.85亿元，全天主力资金净流出2468.84万元，近5日该股累计下跌2.94%，近5日资金合计净流出8600.41万元。
+各类商家踊跃开展第二现场创建，目前商务主管部门已在千余家申请商户中首批筛选确定第二现场点位434个。
 
-两融数据显示，该股最新融资余额为1.99亿元，近5日减少679.20万元，降幅为3.30%。
+据介绍，辽宁牵头搭建“东北超”票根经济官方服务小程序，球迷可在微信搜索关键字“东北超”登录平台一站式浏览“东北超”票根优惠门店，并实现检索、导航、打车等一系列服务功能。
 
-据天眼查APP显示，德马科技集团股份有限公司成立于2001年04月29日，注册资本26374.5667万人民币。
+各类金融机构积极参与东北超票根经济活动，通过“东北超”票根经济官方服务小程序发放“东北超”专属支付权益，票根实名认证球迷可在商户优惠的基础上享受额外支付补贴，实现票根经济“两重优惠，快乐翻倍”。
 
-（数据宝）6月17日德马科技大宗交易一览注：本文系新闻报道，不构成投资建议，股市有风险，投资需谨慎。
+赛事期间，辽宁将组织开展“东北超+”系列促销活动，包括“东北超+乐购辽宁”“东北超+夜经济”“东北超+线上嗨购”“东北超+会展”“东北超+老字号”等系列活动。
 
-（文章来源：证券时报网）
+主体活动“2026辽宁五彩生活消费季”将以“乐购辽宁超燃山海”为主题，与首届东北地区城市足球联赛全程同频共振，涵盖“夜间经济不夜辽城”“活力消费潮玩消费”“数字赋能云享辽品”等十大主题消费场景，预计6个月时间内各类促销活动达到3000场以上。
 
 ## 相关推荐
 
-- 2026-06-29 17:31 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 17:31 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 17:23 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 17:21 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 17:23 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 17:31 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 17:14 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 17:15 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 17:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 17:17 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 17:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 17:26 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 17:30 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 17:32 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 17:40 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 17:27 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 17:24 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 17:37 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 17:13 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 17:21 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 17:20 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 17:16 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 17:24 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 17:33 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 17:35 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:31 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/56120857.shtml)
-- 2026-06-29 17:27 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/584752340.shtml)
-- 2026-06-29 17:35 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/520848612469.shtml)
-- 2026-06-29 17:30 - [货车司机雨中帮交警挪树获表扬](https://www.blog.minike.top/Article/details/812970.shtml)
-- 2026-06-29 17:10 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/68714805.shtml)
-- 2026-06-29 17:19 - [起风了](http://www.blog.kurohicncr.top/Article/details/005735341929.shtml)
-- 2026-06-29 17:34 - [税务总局披露5起合规申报个税案例](https://www.share.minike.top/Article/details/04521657.shtml)
-- 2026-06-29 17:35 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/55671484.shtml)
-- 2026-06-29 17:19 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/16977091.shtml)
-- 2026-06-29 17:12 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/201977.shtml)
-- 2026-06-29 17:23 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/08263134.shtml)
-- 2026-06-29 17:31 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/114464324866.shtml)
-- 2026-06-29 17:16 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/96037.shtml)
-- 2026-06-29 17:21 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/38541576064.shtml)
-- 2026-06-29 17:21 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/5741174966.shtml)
+- 2026-06-29 17:37 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/5628813119.shtml)
+- 2026-06-29 17:21 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/62511099180.shtml)
+- 2026-06-29 17:28 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/8398903179.shtml)
+- 2026-06-29 17:29 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/76827884188.shtml)
+- 2026-06-29 17:12 - [四川达州发生一起交通事故致2死](http://www.share.minike.top/Article/details/31979.shtml)
+- 2026-06-29 17:21 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/110461704.shtml)
+- 2026-06-29 17:30 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.kurohicncr.top/Article/details/10702297.shtml)
+- 2026-06-29 17:41 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/44453475.shtml)
+- 2026-06-29 17:29 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/41180879272.shtml)
+- 2026-06-29 17:18 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/297861364.shtml)
+- 2026-06-29 17:40 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/4935620278.shtml)
+- 2026-06-29 17:26 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/0823630.shtml)
+- 2026-06-29 17:36 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/55299169484.shtml)
+- 2026-06-29 17:14 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/0514657.shtml)
+- 2026-06-29 17:33 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/8772394.shtml)

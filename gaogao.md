@@ -1,56 +1,57 @@
-# 回避比特币的投资者，如今被迫持有波动率高出比特币三倍的SpaceX股票
+# 拜耳迎战农达致癌诉讼：最高法院听证拉开责任对决帷幕
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-从很多方面来看，SpaceX 都和比特币十分相似：没有盈利、不产生收益、价格波动剧烈，反对者与忠实拥趸的数量不相上下。 但二者有一个显著区别：没有人会强迫投资者配置比特币。 可对于大量投资指数基金的理财顾问与基金管理人而言，SpaceX 的情况恰恰相反。今年夏季，该股票将被纳入多款主流交易所交易基金（ETF），而这类产品是绝大多数美国投资者的核心持仓，届时这些被动投资者将被动持
+美国最高法院周一就拜耳旗下农达除草剂“未尽到充分警告义务”的州际诉讼案举行听证。这起案件可能决定拜耳能否终结近十万起类似诉讼。与此同时，众议院正在审议的农业法案中新增条款，拟进一步限制农药制造商在产品标签方面的责任。 最高法院权衡联邦法律优先权 拜耳向最高法院提起上诉，该公司认为，由于美国环境保护署已批准农达的标签且认定草甘膦“不可能对人类致癌”，制造商依法不得擅自添加未经批准
 
 ## 正文
 
-从很多方面来看，SpaceX 都和比特币十分相似：没有盈利、不产生收益、价格波动剧烈，反对者与忠实拥趸的数量不相上下。
+美国最高法院周一就拜耳旗下农达除草剂“未尽到充分警告义务”的州际诉讼案举行听证。
 
-但二者有一个显著区别：没有人会强迫投资者配置比特币。
+这起案件可能决定拜耳能否终结近十万起类似诉讼。
 
-可对于大量投资指数基金的理财顾问与基金管理人而言，SpaceX 的情况恰恰相反。
+与此同时，众议院正在审议的农业法案中新增条款，拟进一步限制农药制造商在产品标签方面的责任。
 
-今年夏季，该股票将被纳入多款主流交易所交易基金（ETF），而这类产品是绝大多数美国投资者的核心持仓，届时这些被动投资者将被动持有这只承载着埃隆・马斯克宏大愿景的个股。
+最高法院权衡联邦法律优先权 拜耳向最高法院提起上诉，该公司认为，由于美国环境保护署已批准农达的标签且认定草甘膦“不可能对人类致癌”，制造商依法不得擅自添加未经批准的警告内容，因而州级诉讼主张应被联邦法律优先适用所驳回。
 
-伊利诺伊州奥兰多帕克市注册投资顾问公司 Strategic Investment Solutions 合伙人艾曼・赛义迪表示：“先锋领航以及其他遵从纳斯达克新规的大型资管机构，正在损害美国储蓄者的利益。
+此案源于密苏里州一名园艺师，他确诊非霍奇金淋巴瘤后起诉孟山都胜诉并获得赔偿。
 
-我持仓中的先锋成长型指数 ETF（VUG）很快就会纳入 SpaceX。
+特朗普政府已正式支持拜耳的抗辩立场，而环保组织则指责环保署的生物评估存在缺陷，试图削弱各州保护公众健康的能力。
 
-这也是我偏爱维度基金的原因，该公司不会单纯复刻指数成分股，本次指数调整将会造成严重的市场扭曲。
+此次裁决预计在6月底做出。
 
-” 注：VUG 即先锋领航成长型指数 ETF。
+农业法案拟固化责任豁免 随着国会加速起草新版农业法案，一项旨在“统一农药标签标准”的条款引发巨大争议。
 
 ## 相关推荐
 
-- 2026-06-29 17:06 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 17:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 17:32 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 17:20 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 17:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 17:10 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 17:32 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 17:24 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 17:18 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 17:36 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 17:35 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 17:35 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 17:28 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 17:25 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 17:28 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 17:25 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 17:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 17:32 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 17:41 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 17:17 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 17:30 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/0773231721.shtml)
-- 2026-06-29 17:32 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/801740720.shtml)
-- 2026-06-29 17:22 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/59655.shtml)
-- 2026-06-29 17:26 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.minike.top/Article/details/338879404.shtml)
-- 2026-06-29 17:19 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/83031597.shtml)
-- 2026-06-29 17:26 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/54816084055.shtml)
-- 2026-06-29 17:22 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/790716597.shtml)
-- 2026-06-29 17:28 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/5470221402.shtml)
-- 2026-06-29 17:20 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/756062086.shtml)
-- 2026-06-29 17:07 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.minike.top/Article/details/1604944551.shtml)
-- 2026-06-29 17:25 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/429339108.shtml)
-- 2026-06-29 17:26 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.minike.top/Article/details/15818708.shtml)
-- 2026-06-29 17:32 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/3884232243.shtml)
-- 2026-06-29 17:23 - [欧洲人驾车200公里抢购中国空调](http://www.blog.kurohicncr.top/Article/details/08539384.shtml)
-- 2026-06-29 17:21 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/369240043.shtml)
+- 2026-06-29 17:38 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/737661950.shtml)
+- 2026-06-29 17:18 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/79692529190.shtml)
+- 2026-06-29 17:36 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.kurohicncr.top/Article/details/136181942.shtml)
+- 2026-06-29 17:35 - [媒体：中国田径压力与期待并存](http://www.share.kurohicncr.top/Article/details/00487.shtml)
+- 2026-06-29 17:21 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/322159.shtml)
+- 2026-06-29 17:25 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/185736.shtml)
+- 2026-06-29 17:41 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/06722.shtml)
+- 2026-06-29 17:19 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/947944795.shtml)
+- 2026-06-29 17:16 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/301233.shtml)
+- 2026-06-29 17:21 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/3112187.shtml)
+- 2026-06-29 17:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/729552968.shtml)
+- 2026-06-29 17:35 - [舒行钢任湖南省交通运输厅厅长](https://www.share.kurohicncr.top/Article/details/5100579.shtml)
+- 2026-06-29 17:12 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/2460808.shtml)
+- 2026-06-29 17:26 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/387666.shtml)
+- 2026-06-29 17:32 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/9239107464.shtml)

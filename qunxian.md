@@ -1,47 +1,58 @@
-# 屈原故里民众包粽子迎端午
+# 操盘必读：影响股市利好或利空消息_2026年4月28日_财经新闻
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 10:54 来源：中国新闻网 6月17日，在湖北省秭归县，屈原故里非遗小巷粽叶飘香，当地民众与游客一起包粽子，迎接即将到来的端午佳节。秭归是屈原故里，传承了千年端午习俗，有着“端午比年大，一个端午三次过”的说法。(周星亮 陈涛 制作 董晓斌） 责任编辑：【罗攀】
+登录新浪财经APP 搜索【信披】查看更多考评等级 影响股市利好与利空消息 宏观新闻 1、外商投资安全审查工作机制办公室（国家发展改革委）依法依规对外资收购Manus项目作出禁止投资决定，要求当事人撤销该收购交易。 2、4月27日，穆迪国际信用评级公司发布报告，决定维持中国主权信用评级“A1”，并将展望调升至“稳定”。财政部有关负责同志对此表示，对穆迪作出维持中国主权信用评级并上
 
 ## 正文
 
-发布时间：2026年06月18日 10:54 来源：中国新闻网 6月17日，在湖北省秭归县，屈原故里非遗小巷粽叶飘香，当地民众与游客一起包粽子，迎接即将到来的端午佳节。
+登录新浪财经APP 搜索【信披】查看更多考评等级 影响股市利好与利空消息 宏观新闻 1、外商投资安全审查工作机制办公室（国家发展改革委）依法依规对外资收购Manus项目作出禁止投资决定，要求当事人撤销该收购交易。
 
-秭归是屈原故里，传承了千年端午习俗，有着“端午比年大，一个端午三次过”的说法。
+2、4月27日，穆迪国际信用评级公司发布报告，决定维持中国主权信用评级“A1”，并将展望调升至“稳定”。
 
-(周星亮 陈涛 制作 董晓斌） 责任编辑：【罗攀】
+财政部有关负责同志对此表示，对穆迪作出维持中国主权信用评级并上调展望至“稳定”的决定表示赞赏。
+
+这次评级体现了穆迪高度认可中国宏观经济和财政实力在外部冲击下展现出的强大韧性、以及中国经济高质量发展的新动能和新进展。
+
+3、外交部发言人林剑昨日主持例行记者会。
+
+记者提问称，美国以与伊朗存在关联为由，对中国企业实施制裁。
+
+林剑表示，中方一贯反对缺乏国际法依据的非法单边制裁，敦促美方停止滥施制裁和长臂管辖的错误做法。
+
+中方将坚决维护本国企业的合法权益。
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 17:19 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 17:11 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 17:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 17:15 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 17:23 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 17:31 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 17:31 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 17:33 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 17:07 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 17:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 17:23 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 17:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 17:39 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 17:22 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 17:28 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 17:29 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 17:24 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 17:12 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 17:13 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 17:27 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 17:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 17:39 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:24 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/7856439.shtml)
-- 2026-06-29 17:20 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/3554257590.shtml)
-- 2026-06-29 17:18 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/04149763.shtml)
-- 2026-06-29 17:11 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/12512080.shtml)
-- 2026-06-29 17:10 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/25145.shtml)
-- 2026-06-29 17:21 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/53316195170.shtml)
-- 2026-06-29 17:35 - [人形机器人](https://www.share.kurohicncr.top/Article/details/95077.shtml)
-- 2026-06-29 17:28 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.kurohicncr.top/Article/details/79048066.shtml)
-- 2026-06-29 17:13 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/50114310.shtml)
-- 2026-06-29 17:31 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/0150930553.shtml)
-- 2026-06-29 17:16 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/13924508.shtml)
-- 2026-06-29 17:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/71237038090.shtml)
-- 2026-06-29 17:11 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/9193976.shtml)
-- 2026-06-29 17:24 - [沉睡花园](http://www.share.minike.top/Article/details/32901971345.shtml)
-- 2026-06-29 17:22 - [起风了](http://www.blog.kurohicncr.top/Article/details/715664981109.shtml)
+- 2026-06-29 17:37 - [依法管制阻遏日方军事化危险动向](http://www.share.minike.top/Article/details/615829526254.shtml)
+- 2026-06-29 17:15 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/69061240090.shtml)
+- 2026-06-29 17:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/55605.shtml)
+- 2026-06-29 17:41 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/17124171445.shtml)
+- 2026-06-29 17:23 - [小娘惹](https://www.share.kurohicncr.top/Article/details/186731.shtml)
+- 2026-06-29 17:29 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/033256.shtml)
+- 2026-06-29 17:33 - [舒行钢任湖南省交通运输厅厅长](https://www.share.kurohicncr.top/Article/details/242884618429.shtml)
+- 2026-06-29 17:22 - [当地回应林区违规放羊遭豹啃食](http://www.share.minike.top/Article/details/41030589.shtml)
+- 2026-06-29 17:20 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/3031194327.shtml)
+- 2026-06-29 17:31 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/98426007.shtml)
+- 2026-06-29 17:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/144549076.shtml)
+- 2026-06-29 17:23 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/77188611475.shtml)
+- 2026-06-29 17:24 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/05116415.shtml)
+- 2026-06-29 17:29 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.minike.top/Article/details/17777747942.shtml)
+- 2026-06-29 17:29 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.kurohicncr.top/Article/details/259264772.shtml)

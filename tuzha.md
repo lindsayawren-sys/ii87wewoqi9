@@ -1,59 +1,44 @@
-# 在霍尔木兹海峡办“贵宾通航证”，特朗普又一次开脑洞
+# A股极致分化，创业板失守3600点，医疗等板块走强| 华宝基金3A日报（2026.4.28）
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-撰稿 / 徐立凡（专栏作家） 编辑 / 迟道华 校对 / 赵琳 据《参考消息》援引美媒报道，在美国和伊朗持续开展和平谈判之际，美国又为推动油轮恢复通航霍尔木兹海峡谋划了新招。 报道称，美国总统特朗普一直在努力劝说船企派遣更多油轮通行霍尔木兹海峡，却鲜有企业响应。为此，特朗普政府官员提出了各种方案。其中一个方案，是船舶可向美国付费，享受美军护航的快速通行服务。了解讨论内情的人士说
+责任编辑：周守来
 
 ## 正文
 
-撰稿 / 徐立凡（专栏作家） 编辑 / 迟道华 校对 / 赵琳 据《参考消息》援引美媒报道，在美国和伊朗持续开展和平谈判之际，美国又为推动油轮恢复通航霍尔木兹海峡谋划了新招。
-
-报道称，美国总统特朗普一直在努力劝说船企派遣更多油轮通行霍尔木兹海峡，却鲜有企业响应。
-
-为此，特朗普政府官员提出了各种方案。
-
-其中一个方案，是船舶可向美国付费，享受美军护航的快速通行服务。
-
-了解讨论内情的人士说：“这相当于给船只办一张贵宾通航证。
-
-” 另一名美国前政府官员称，这个向油轮收取护航通行费的方案，同时也是一个谈判筹码，意在施压欧洲各国，迫使欧洲加大参与中东地区事务的力度。
-
-6月14日，特朗普在社交媒体宣布美伊达成协议时曾欢呼：“世界各国的船只，发动引擎吧。
-
-让石油流动起来！
+责任编辑：周守来
 
 ## 相关推荐
 
-- 2026-06-29 17:23 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 17:31 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 17:09 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 17:19 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 17:08 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 17:07 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 17:17 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 17:34 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 17:28 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 17:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 17:21 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 17:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 17:15 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 17:21 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 17:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 17:30 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 17:26 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 17:30 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 17:34 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 17:13 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 17:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 17:28 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 17:38 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 17:28 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 17:42 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:11 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/049257307530.shtml)
-- 2026-06-29 17:31 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/97420.shtml)
-- 2026-06-29 17:11 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/05354.shtml)
-- 2026-06-29 17:12 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.kurohicncr.top/Article/details/36437146128.shtml)
-- 2026-06-29 17:21 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/47669.shtml)
-- 2026-06-29 17:22 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/148066039037.shtml)
-- 2026-06-29 17:21 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/95905.shtml)
-- 2026-06-29 17:07 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/423949.shtml)
-- 2026-06-29 17:28 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/022475731768.shtml)
-- 2026-06-29 17:06 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/55801560.shtml)
-- 2026-06-29 17:08 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/529658011.shtml)
-- 2026-06-29 17:29 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/375160201.shtml)
-- 2026-06-29 17:25 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/021208144294.shtml)
-- 2026-06-29 17:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/957343155.shtml)
-- 2026-06-29 17:24 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/799781007.shtml)
+- 2026-06-29 17:16 - [湖北钟祥市委书记张勇拟任新职](https://www.share.kurohicncr.top/Article/details/8342962249.shtml)
+- 2026-06-29 17:40 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/418655764217.shtml)
+- 2026-06-29 17:15 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/599764.shtml)
+- 2026-06-29 17:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/739551161722.shtml)
+- 2026-06-29 17:30 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/67283.shtml)
+- 2026-06-29 17:26 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/8681094465.shtml)
+- 2026-06-29 17:27 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/200423.shtml)
+- 2026-06-29 17:28 - [葛军谈AI时代理科生出路](https://www.share.minike.top/Article/details/915191160.shtml)
+- 2026-06-29 17:39 - [博主：AI泡沫必须破灭](https://www.blog.minike.top/Article/details/0521012646.shtml)
+- 2026-06-29 17:28 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/84523629.shtml)
+- 2026-06-29 17:28 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/094506.shtml)
+- 2026-06-29 17:39 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/5894854928.shtml)
+- 2026-06-29 17:15 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/2763665.shtml)
+- 2026-06-29 17:33 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/309421.shtml)
+- 2026-06-29 17:39 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/270850401185.shtml)

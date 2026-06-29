@@ -1,60 +1,60 @@
-# 张天闻转投大成背后，宝盈基金的“造星留不住星”怪圈
+# 记者手记：三亚亚沙会，中国文化“圈粉”世界
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：Y趣理说 沉寂近半年的张天闻，终于揭开了职业生涯下一站的谜底。 中国证券投资基金业协会最新公示信息显示，原宝盈基金明星基金经理张天闻已于6月3日正式登记入职大成基金。 张天闻曾以重仓半导体、人工智能等科技赛道闻名的基金经理，在去年底“清仓式”卸任全部在管产品后，正式完成职业转换。 对于大成基金而言，这
+中新网三亚4月28日电 题：记者手记：三亚亚沙会，中国文化“圈粉”世界 中新网记者 张茜翼 当体育赛事以竞技为名，将四海宾朋汇聚于一方热土，什么才是真正的“通用语言”？ 第六届亚洲沙滩运动会在海南三亚举行期间，答案在赛场之外悄然浮现——它不是奖牌，不是纪录，而是一根黎锦的丝线、一缕中草的艾香、一笔翰墨的余韵。 如果说赛场上是速度与力量的较量，那么运动员村里的非遗展示区、中医馆，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网三亚4月28日电 题：记者手记：三亚亚沙会，中国文化“圈粉”世界 中新网记者 张茜翼 当体育赛事以竞技为名，将四海宾朋汇聚于一方热土，什么才是真正的“通用语言”？
 
-来源：Y趣理说 沉寂近半年的张天闻，终于揭开了职业生涯下一站的谜底。
+第六届亚洲沙滩运动会在海南三亚举行期间，答案在赛场之外悄然浮现——它不是奖牌，不是纪录，而是一根黎锦的丝线、一缕中草的艾香、一笔翰墨的余韵。
 
-中国证券投资基金业协会最新公示信息显示，原宝盈基金明星基金经理张天闻已于6月3日正式登记入职大成基金。
+如果说赛场上是速度与力量的较量，那么运动员村里的非遗展示区、中医馆，则掀起了一场更为持久的“文化圈粉潮”。
 
-张天闻曾以重仓半导体、人工智能等科技赛道闻名的基金经理，在去年底“清仓式”卸任全部在管产品后，正式完成职业转换。
+亚洲各个国家和地区的运动员和随行人员，在海南的椰风海韵中，遇见了一种可触摸、可体验、可带走的中式温度。
 
-对于大成基金而言，这是一笔重要的人才补充；而对于宝盈基金来说，却更像是又一次熟悉的人才流失故事。
+一针一线，织出文化认同 这种“圈粉”，首先源于文化体验的参与性和对话性。
 
-近年来，从王茹远、彭敢，到杨思亮、张仲维，再到如今的张天闻，宝盈基金似乎始终摆脱不了“培养人才，却留不住人才”的循环。
+运动员村的非遗展示区，黎锦、椰雕、黎陶、藤编、书法、剪纸、拓印、纸鸢、沉香九大特色展区次第排布，成为赛事期间人气满满的文化打卡地。
 
-科技投资新星离场：三年时间跑出多只高收益产品 放眼近年来公募行业涌现出的科技基金经理，张天闻无疑是成长速度较快的一位。
+黎锦传承人端坐织机前，手把手指导外国运动员认识“大力神”图腾，娓娓讲述古法植物染色、手工织造的民族智慧。
 
-公开资料显示，张天闻毕业于复旦大学金融学专业，先后在海通证券、国泰君安证券从事研究工作。
+马来西亚运动员玛格达琳(MAGDALENE)是福建籍华裔，第一次来到中国的她，在椰雕体验区停留最久。
 
 ## 相关推荐
 
-- 2026-06-29 17:34 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 17:11 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 17:07 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 17:11 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 17:31 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 17:26 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 17:25 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 17:09 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 17:20 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 17:17 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 17:11 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 17:09 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 17:32 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 17:20 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 17:15 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 17:19 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 17:27 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 17:41 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 17:12 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 17:20 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 17:40 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 17:31 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 17:29 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 17:34 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 17:12 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 17:24 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 17:25 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 17:29 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:24 - [四川达州发生一起交通事故致2死](https://www.blog.minike.top/Article/details/38744750.shtml)
-- 2026-06-29 17:14 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/707982478545.shtml)
-- 2026-06-29 17:10 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/51786957.shtml)
-- 2026-06-29 17:14 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/5142558543.shtml)
-- 2026-06-29 17:26 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/347330475.shtml)
-- 2026-06-29 17:29 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/65360404165.shtml)
-- 2026-06-29 17:20 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/1262721.shtml)
-- 2026-06-29 17:30 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/3365871025.shtml)
-- 2026-06-29 17:16 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/97695137353.shtml)
-- 2026-06-29 17:20 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/392592434.shtml)
-- 2026-06-29 17:21 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/81280971434.shtml)
-- 2026-06-29 17:26 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/586564959378.shtml)
-- 2026-06-29 17:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/39525725.shtml)
-- 2026-06-29 17:26 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/99323.shtml)
-- 2026-06-29 17:23 - [青春环游记第三季](https://www.blog.minike.top/Article/details/16716268.shtml)
+- 2026-06-29 17:19 - [沙特外交大臣将访华](https://www.blog.minike.top/Article/details/015942299415.shtml)
+- 2026-06-29 17:26 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/9681427777.shtml)
+- 2026-06-29 17:14 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/32339.shtml)
+- 2026-06-29 17:12 - [20年前的周杰伦](http://www.share.minike.top/Article/details/12610.shtml)
+- 2026-06-29 17:23 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/3826649.shtml)
+- 2026-06-29 17:30 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/1140298691.shtml)
+- 2026-06-29 17:12 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/2426120.shtml)
+- 2026-06-29 17:41 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/9322371.shtml)
+- 2026-06-29 17:24 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/22070.shtml)
+- 2026-06-29 17:28 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/879422185.shtml)
+- 2026-06-29 17:31 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/826394238.shtml)
+- 2026-06-29 17:14 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/76882950043.shtml)
+- 2026-06-29 17:28 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/796569.shtml)
+- 2026-06-29 17:31 - [蔚来回应车漆洗车时被冲掉](https://www.share.minike.top/Article/details/3402656.shtml)
+- 2026-06-29 17:18 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/9963685.shtml)

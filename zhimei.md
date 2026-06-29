@@ -1,59 +1,56 @@
-# 古DNA研究：贝加尔湖周边发现约5500年前最古老鼠疫爆发证据
+# 工信部：将开展“人工智能+软件”专项行动 加快智能编程研发应用
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-中新网北京6月18日电(记者 孙自法)国际学术期刊《自然》最新发表一篇遗传学论文称，研究人员在西伯利亚东南部贝加尔湖周边的狩猎采集者社区中，基于古DNA分析发现约5500年前发生的鼠疫爆发，这项可能是迄今已知最古老的鼠疫证据，或能为鼠疫起源提供线索。该论文介绍，鼠疫是历史上致死率最高的疾病之一，古DNA研究有助于我们理解该疾病的起源与演变。此前研究已在史前欧洲发现了鼠疫的致病菌
+中新网4月28日电 工业和信息化部副部长柯吉欣28日在吹风会上就下一步如何加快产业创新发展作答时指出，在人工智能赋能信息服务业方面，工信部将开展“人工智能+软件”专项行动，加快智能编程研发应用，培育模型即服务、智能体即服务等相关新业态。4月28日，国务院新闻办公室举行国务院政策例行吹风会，介绍《关于推进服务业扩能提质的意见》有关情况，并答记者问。会上，有记者提问：随着“人工智能
 
 ## 正文
 
-中新网北京6月18日电(记者 孙自法)国际学术期刊《自然》最新发表一篇遗传学论文称，研究人员在西伯利亚东南部贝加尔湖周边的狩猎采集者社区中，基于古DNA分析发现约5500年前发生的鼠疫爆发，这项可能是迄今已知最古老的鼠疫证据，或能为鼠疫起源提供线索。
+中新网4月28日电 工业和信息化部副部长柯吉欣28日在吹风会上就下一步如何加快产业创新发展作答时指出，在人工智能赋能信息服务业方面，工信部将开展“人工智能+软件”专项行动，加快智能编程研发应用，培育模型即服务、智能体即服务等相关新业态。
 
-该论文介绍，鼠疫是历史上致死率最高的疾病之一，古DNA研究有助于我们理解该疾病的起源与演变。
+4月28日，国务院新闻办公室举行国务院政策例行吹风会，介绍《关于推进服务业扩能提质的意见》有关情况，并答记者问。
 
-此前研究已在史前欧洲发现了鼠疫的致病菌——鼠疫耶尔森菌，已知最古老的鼠疫菌株可追溯至距今5300年前，但这些菌株可能缺乏典型的致病基因(即引发疾病的基因序列)。
+会上，有记者提问：随着“人工智能+”多领域深度融合，新兴服务业正在蓬勃发展，请问工业和信息化部，在推动软件和信息技术服务业发展方面取得了怎样的成效？
 
-在本项研究中，论文共同通讯作者、英国牛津大学Ruairidh Macleod和丹麦哥本哈根大学Eske Willerslev、Martin Sikora等与合作者一起，分析了来自西伯利亚贝加尔湖周边四处墓地的42名狩猎采集者的古代DNA。
+下一步如何加快产业创新发展？
 
-研究人员在18名个体中检测到了鼠疫耶尔森菌，其检出率高于任何其他病原体，研究表明曾发生过两次独立的鼠疫疫情，时间分别可追溯至距今5520年-5265年前和5315年-4235年前。
+柯吉欣表示，党的十八大以来，软件和信息技术服务业经过多年的发展，已经成为我国服务业非常重要的力量，也可以认为是基石，是“支柱”产业。
 
-论文作者重建了这些个体之间的亲缘关系，并证实受影响的都是小型家庭群体，这与该疾病的人际传播特征相符。
+2025年，软件和信息技术服务业整体行业营收达到了15.48万亿元，这是2012年的6.2倍，年均复合增长率达到了15.1%。
 
-研究发现，具有亲缘关系的个体被埋葬在不同的墓穴中，这表明他们死于不同的事件，而非同一场疫情。
+这些成绩的取得，这些数据的背后，是我国整体产业的升级和技术迭代的生动写照，背后也是1100多万这个行业的从业人员的艰辛付出和艰苦奋斗。
 
-研究还表明，最严重的感染似乎发生在8至11岁的儿童身上。
+提及发展质效，柯吉欣称，“在软件方面，国产操作系统、数据库等基础软件水平是稳定提高的，我们感到，现在国产的软件在运用方面跟前几年是完全不一样的，现在越来越丝滑，越来越好用。
 
 ## 相关推荐
 
-- 2026-06-29 17:35 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 17:21 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 17:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 17:23 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 17:10 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 17:10 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 17:23 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 17:16 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 17:18 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 17:24 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 17:17 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 17:06 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 17:17 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 17:26 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 17:32 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 17:32 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 17:19 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 17:20 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 17:13 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 17:26 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 17:28 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 17:27 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 17:24 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:15 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.minike.top/Article/details/899216.shtml)
-- 2026-06-29 17:23 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/8812407.shtml)
-- 2026-06-29 17:33 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/2833783.shtml)
-- 2026-06-29 17:31 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/63923327.shtml)
-- 2026-06-29 17:14 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/33807186438.shtml)
-- 2026-06-29 17:17 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/2233450453.shtml)
-- 2026-06-29 17:18 - [急先锋](http://www.share.minike.top/Article/details/18272331668.shtml)
-- 2026-06-29 17:25 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/170798389986.shtml)
-- 2026-06-29 17:31 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/6104587.shtml)
-- 2026-06-29 17:13 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/1196624574.shtml)
-- 2026-06-29 17:14 - [刘扬任湖南省副省长](http://www.blog.minike.top/Article/details/0016146821.shtml)
-- 2026-06-29 17:25 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/20451.shtml)
-- 2026-06-29 17:16 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/36248391073.shtml)
-- 2026-06-29 17:25 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/7680818029.shtml)
-- 2026-06-29 17:17 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/54646239.shtml)
+- 2026-06-29 17:34 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/21051.shtml)
+- 2026-06-29 17:25 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/33275192673.shtml)
+- 2026-06-29 17:15 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/203348465859.shtml)
+- 2026-06-29 17:25 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/579674009211.shtml)
+- 2026-06-29 17:37 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/42126067.shtml)
+- 2026-06-29 17:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/8559793083.shtml)
+- 2026-06-29 17:41 - [AG 宫斗](https://www.blog.minike.top/Article/details/0495386436.shtml)
+- 2026-06-29 17:35 - [博主：AI泡沫必须破灭](http://www.share.minike.top/Article/details/7683847.shtml)
+- 2026-06-29 17:37 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/76707.shtml)
+- 2026-06-29 17:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/58217004.shtml)
+- 2026-06-29 17:38 - [一见倾心](https://www.share.kurohicncr.top/Article/details/2806205.shtml)
+- 2026-06-29 17:31 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/6728487524.shtml)
+- 2026-06-29 17:38 - [依法管制阻遏日方军事化危险动向](https://www.share.kurohicncr.top/Article/details/80365191662.shtml)
+- 2026-06-29 17:33 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/93206108.shtml)
+- 2026-06-29 17:39 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/04574756.shtml)

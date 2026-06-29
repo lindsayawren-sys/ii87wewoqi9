@@ -1,56 +1,56 @@
-# 陈翊庭：港交所将积极落实固定收益和货币市场发展路线图
+# 易米基金经理黄晓峰任职不到120天，接管四只基金已清盘两只
 
-> 更新时间：2026-06-29 17:36:02 UTC+8
+> 更新时间：2026-06-29 17:42:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛召开 ，香港交易所集团行政总裁陈翊庭出席“全体大会三：建立健全功能完善的资本市场”并发言。 陈翊庭表示，未来会积极落实香港固定收益和货币市场发展的路线图，从一级市场、二级市场两方面着手做，希望吸引更多类型的债券发行和交易。 她还提到，今天上午很高兴听到中国证监会主席吴清表示支持人民币国债
+记者|黄小聪 编辑|肖芮冬 今日，易米基金公告称，易米研究精选混合触发基金合同约定的自动终止情形，进入清算程序。《每日经济新闻》记者注意到，这距离基金经理黄晓峰接手这只产品仅过去了19天。 值得注意的是，黄晓峰从去年底开始管理公募产品，累计管理时间不到120天，但其先后接手的4只产品已经清盘了两只。其最早管理的易米低碳经济股票，在接手77天后清盘。 接手19天基金清盘 4月28
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛召开 ，香港交易所集团行政总裁陈翊庭出席“全体大会三：建立健全功能完善的资本市场”并发言。
+记者|黄小聪 编辑|肖芮冬 今日，易米基金公告称，易米研究精选混合触发基金合同约定的自动终止情形，进入清算程序。
 
-陈翊庭表示，未来会积极落实香港固定收益和货币市场发展的路线图，从一级市场、二级市场两方面着手做，希望吸引更多类型的债券发行和交易。
+《每日经济新闻》记者注意到，这距离基金经理黄晓峰接手这只产品仅过去了19天。
 
-她还提到，今天上午很高兴听到中国证监会主席吴清表示支持人民币国债期货在香港落地。
+值得注意的是，黄晓峰从去年底开始管理公募产品，累计管理时间不到120天，但其先后接手的4只产品已经清盘了两只。
 
-“我们希望可以尽早推出来，为境外投资者提供更多管理人民币利率风险的工具。
+其最早管理的易米低碳经济股票，在接手77天后清盘。
 
-”陈翊庭说。
+接手19天基金清盘 4月28日，易米基金发布公告，截至2026年4月27日日终，易米研究精选混合基金的资产净值低于2亿元，触发了基金合同约定的自动终止情形。
 
-责任编辑：石秀珍 SF183
+自2026年4月28日（含该日）起，基金进入清算程序。
+
+公开资料显示，该基金成立于2023年4月25日，成立时规模约0.79亿元，成立时基金公司高管和基金经理等人员跟投了1200多万元。
+
+但截至基金最后一个运作日2026年4月27日，A类份额累计净值仅有0.7866元，成立以来亏损超过20%。
 
 ## 相关推荐
 
-- 2026-06-29 17:12 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 17:21 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 17:32 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 17:20 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 17:27 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 17:07 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 17:21 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 17:27 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 17:16 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 17:21 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 17:33 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 17:29 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 17:21 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 17:24 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 17:39 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 17:14 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 17:26 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 17:18 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 17:16 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 17:34 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 17:31 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 17:40 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 17:16 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 17:28 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:18 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/82200977.shtml)
-- 2026-06-29 17:19 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/918767555.shtml)
-- 2026-06-29 17:07 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/5299307712.shtml)
-- 2026-06-29 17:28 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/5828913.shtml)
-- 2026-06-29 17:17 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/67428.shtml)
-- 2026-06-29 17:24 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/401001.shtml)
-- 2026-06-29 17:09 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/232990145.shtml)
-- 2026-06-29 17:35 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/8891475.shtml)
-- 2026-06-29 17:24 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/52563.shtml)
-- 2026-06-29 17:25 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/2047524.shtml)
-- 2026-06-29 17:16 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/2504536577.shtml)
-- 2026-06-29 17:12 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/935632919229.shtml)
-- 2026-06-29 17:14 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/56425365929.shtml)
-- 2026-06-29 17:15 - [恋与深空 731](http://www.share.minike.top/Article/details/43130982.shtml)
-- 2026-06-29 17:11 - [毒液2](http://www.share.kurohicncr.top/Article/details/8577891.shtml)
+- 2026-06-29 17:25 - [极限挑战第一季](https://www.share.minike.top/Article/details/030688173146.shtml)
+- 2026-06-29 17:18 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.kurohicncr.top/Article/details/315119.shtml)
+- 2026-06-29 17:38 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/362082.shtml)
+- 2026-06-29 17:30 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/137545519763.shtml)
+- 2026-06-29 17:15 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/699085.shtml)
+- 2026-06-29 17:17 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/07196645.shtml)
+- 2026-06-29 17:28 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/19781382.shtml)
+- 2026-06-29 17:19 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/95803.shtml)
+- 2026-06-29 17:24 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/23436860.shtml)
+- 2026-06-29 17:31 - [小娘惹](http://www.share.minike.top/Article/details/53103180205.shtml)
+- 2026-06-29 17:15 - [美的空调 卡bug](http://www.share.minike.top/Article/details/665191020.shtml)
+- 2026-06-29 17:18 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/207921969.shtml)
+- 2026-06-29 17:25 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/66240979.shtml)
+- 2026-06-29 17:35 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/4953241.shtml)
+- 2026-06-29 17:34 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/18409897719.shtml)
