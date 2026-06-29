@@ -1,57 +1,58 @@
-# “庄采芳·庄重文奖学金”在福州举行颁奖典礼
+# “高铁+研学”热度攀升 国铁太原局定制服务护航研学之旅
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网福州6月16日电 (叶秋云)第39届“庄采芳·庄重文奖学金”颁奖典礼16日在福建福州举行，200名福建优秀高中毕业生获奖。 庄士机构国际有限公司执行董事庄家蕙在颁奖典礼上致辞表示，奖学金的意义不仅在于为刻苦求学的同学们增添荣誉，更在于传递勤勉笃学、心怀感恩、不负韶华、回馈家国的精神。她勉励全体获奖学生，始终保持追梦与进取之心。 来自厦门第一中学的获奖学生林嘉麒说，自己将以
+中新网太原4月15日电(范丽芳 任丽娜)4月13日至14日，山西晋中800余名师生分两批次从太原南站出发，搭乘高铁前往济南东站，开启为期3天的研学之旅。 随着春日经济蓬勃向好，“高铁+研学”热度持续攀升。国铁太原局推出特色客运服务产品，为研学出行提供运输保障。 此次研学，师生将走进孔庙体验拜师礼，感受中华优秀传统文化，并围绕泉城文化与自然生态开展主题研学。针对研学师生较多、集中
 
 ## 正文
 
-中新网福州6月16日电 (叶秋云)第39届“庄采芳·庄重文奖学金”颁奖典礼16日在福建福州举行，200名福建优秀高中毕业生获奖。
+中新网太原4月15日电(范丽芳 任丽娜)4月13日至14日，山西晋中800余名师生分两批次从太原南站出发，搭乘高铁前往济南东站，开启为期3天的研学之旅。
 
-庄士机构国际有限公司执行董事庄家蕙在颁奖典礼上致辞表示，奖学金的意义不仅在于为刻苦求学的同学们增添荣誉，更在于传递勤勉笃学、心怀感恩、不负韶华、回馈家国的精神。
+随着春日经济蓬勃向好，“高铁+研学”热度持续攀升。
 
-她勉励全体获奖学生，始终保持追梦与进取之心。
+国铁太原局推出特色客运服务产品，为研学出行提供运输保障。
 
-来自厦门第一中学的获奖学生林嘉麒说，自己将以荣誉为动力，潜心钻研学识，锤炼个人品格，厚植家国情怀，把个人理想融入时代发展大局。
+此次研学，师生将走进孔庙体验拜师礼，感受中华优秀传统文化，并围绕泉城文化与自然生态开展主题研学。
 
-“庄采芳·庄重文奖学金”原名“庄采芳奖学金”，由香港著名爱国人士庄重文博士于1988年以其父亲庄采芳的名义在福建省设立。
+针对研学师生较多、集中出行、安全要求高等特点，太原南站开辟专属进站绿色通道，设置专属候车区域，安排专人全程跟进引导，实现进站、安检、候车、检票、登乘全环节闭环服务。
 
-1993年，庄重文博士逝世后，庄绍绥、庄秀霞等子女继承父亲的遗志，将“庄采芳奖学金”延续下来。
+此外，研学列车上还开展形式多样的互动活动。
 
-为纪念庄重文博士，自第21届起“庄采芳奖学金”更名为“庄采芳·庄重文奖学金”。
+担任研学运输任务的D1634次列车长陈宙介绍，将通过列车广播，适时播报研学目的地文化介绍与出行安全提示，让师生在旅途中提前了解泉城历史文化，真正实现“旅途即课堂”。
 
-30多年来，该奖学金已累计奖励8361名福建省优秀高中毕业生。
+后续，国铁太原局将根据市场需求开行研学、银发、歌迷等定制化主题列车，以高效铁路运力赋能文旅融合高质量发展。
 
 ## 相关推荐
 
-- 2026-06-30 06:06 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-30 06:10 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 06:02 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 06:09 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 06:05 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 05:57 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 05:51 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 05:59 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 06:13 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 05:54 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-30 06:12 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 06:20 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 05:54 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 06:18 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 06:09 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 06:17 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 06:15 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 06:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 06:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 06:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 06:07 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 06:18 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 06:01 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:04 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/0923928962.shtml)
-- 2026-06-30 05:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/71564.shtml)
-- 2026-06-30 06:08 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/93655.shtml)
-- 2026-06-30 06:04 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/601012900.shtml)
-- 2026-06-30 06:05 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/711085760924.shtml)
-- 2026-06-30 05:57 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/788211385.shtml)
-- 2026-06-30 06:08 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/681853698.shtml)
-- 2026-06-30 06:12 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/75919768217.shtml)
-- 2026-06-30 06:13 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/593996913161.shtml)
-- 2026-06-30 06:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/52121981673.shtml)
-- 2026-06-30 06:01 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/441131437.shtml)
-- 2026-06-30 06:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/32386042.shtml)
-- 2026-06-30 06:14 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/6265248453.shtml)
-- 2026-06-30 05:58 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/719611115682.shtml)
-- 2026-06-30 06:17 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/3943369.shtml)
+- 2026-06-30 06:07 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/4657009310.shtml)
+- 2026-06-30 06:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/734743287697.shtml)
+- 2026-06-30 06:17 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/5550959.shtml)
+- 2026-06-30 06:15 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/63247182269.shtml)
+- 2026-06-30 06:19 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/84619519654.shtml)
+- 2026-06-30 06:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/235778.shtml)
+- 2026-06-30 06:23 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/6356386.shtml)
+- 2026-06-30 06:14 - [苗族银饰](http://www.blog.minike.top/Article/details/051449290.shtml)
+- 2026-06-30 06:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/245450855507.shtml)
+- 2026-06-30 06:08 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/11649046.shtml)
+- 2026-06-30 06:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/47020136.shtml)
+- 2026-06-30 05:56 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/00189414.shtml)
+- 2026-06-30 06:23 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/302018.shtml)
+- 2026-06-30 06:12 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/866758.shtml)
+- 2026-06-30 05:59 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/5968731.shtml)

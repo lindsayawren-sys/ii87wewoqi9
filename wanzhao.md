@@ -1,44 +1,50 @@
-# 多元场景引客来 入境游热度攀升
+# 诺贝尔奖得主走进香港中学开讲：成功无捷径 必须脚踏实地
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 09:25 来源：央视综合 责任编辑：【王祎】
+发布时间：2026年04月15日 08:50 来源：中国新闻网 4月14日，“我与科学家在一起”主题活动在香港举行。3位诺贝尔奖、图灵奖得主走进香港培侨中学，与同学们分享科研经历与人生智慧。2020年诺贝尔生理学或医学奖得主哈维·阿尔特在做分享时表示，成功无捷径，必须脚踏实地，并要从失败中振作，持续攀登。(记者 孙悦） 责任编辑：【周驰】
 
 ## 正文
 
-发布时间：2026年06月16日 09:25 来源：央视综合 责任编辑：【王祎】
+发布时间：2026年04月15日 08:50 来源：中国新闻网 4月14日，“我与科学家在一起”主题活动在香港举行。
+
+3位诺贝尔奖、图灵奖得主走进香港培侨中学，与同学们分享科研经历与人生智慧。
+
+2020年诺贝尔生理学或医学奖得主哈维·阿尔特在做分享时表示，成功无捷径，必须脚踏实地，并要从失败中振作，持续攀登。
+
+(记者 孙悦） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-30 06:02 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 06:00 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 05:54 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 05:51 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 05:49 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 06:07 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 06:03 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 06:13 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 06:11 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 06:04 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 06:13 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 06:11 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 06:10 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 06:07 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 05:56 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 06:05 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 06:04 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 06:22 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 06:17 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 06:02 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 05:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 06:10 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 05:54 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 05:58 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:06 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/57687.shtml)
-- 2026-06-30 06:02 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/753698798736.shtml)
-- 2026-06-30 06:06 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/6125354.shtml)
-- 2026-06-30 06:05 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/4752772.shtml)
-- 2026-06-30 06:01 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/17831976.shtml)
-- 2026-06-30 06:09 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/7664260685.shtml)
-- 2026-06-30 06:06 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/32255429.shtml)
-- 2026-06-30 06:04 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/393724.shtml)
-- 2026-06-30 06:08 - [一见倾心](https://www.share.kurohicncr.top/Article/details/62808.shtml)
-- 2026-06-30 06:01 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/064998518.shtml)
-- 2026-06-30 05:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/598493.shtml)
-- 2026-06-30 05:59 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/31170.shtml)
-- 2026-06-30 05:49 - [千与千寻](http://www.blog.minike.top/Article/details/193887.shtml)
-- 2026-06-30 06:15 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/276204710506.shtml)
-- 2026-06-30 05:56 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/8795324.shtml)
+- 2026-06-30 06:18 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/395157.shtml)
+- 2026-06-30 06:18 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/017743010471.shtml)
+- 2026-06-30 05:59 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/7564329.shtml)
+- 2026-06-30 06:11 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/0190230.shtml)
+- 2026-06-30 06:20 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/2857488449.shtml)
+- 2026-06-30 06:03 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/40648.shtml)
+- 2026-06-30 06:05 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/591774711875.shtml)
+- 2026-06-30 05:55 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/983783.shtml)
+- 2026-06-30 05:55 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/547595454842.shtml)
+- 2026-06-30 05:56 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/9302888848.shtml)
+- 2026-06-30 05:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/7871157082.shtml)
+- 2026-06-30 06:06 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/09619549.shtml)
+- 2026-06-30 06:07 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/8485604111.shtml)
+- 2026-06-30 06:02 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/756439.shtml)
+- 2026-06-30 05:54 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/708702.shtml)

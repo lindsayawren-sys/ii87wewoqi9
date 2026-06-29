@@ -1,61 +1,61 @@
-# 国际油价跳水大跌4%，布油跌破80美元，特朗普称19日前将实现霍尔木兹海峡全面重开
+# 长江有色：14日氧化铝期价涨0.3% 今日交易疲弱
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日晚，国际油价加速下跌，截至20点35分，纽约原油跌4.05%，报76.23美元/桶；布伦特原油跌4.07%，报79.78美元/桶，跌破80美元大关。 黄金、白银短线上扬，现货黄金报4343.97美元/盎司，日内涨0.81%，现货白银报70.74美元/盎司，日内涨逾1%。 消息面上，据新华社报道，美
+长江有色网4月14日讯，今日氧化铝所有合约携手走强，主力月2605合约窄幅震荡；截止当日15：00收盘，氧化铝主力月2605合约报2641元，涨8元，涨幅0.30%；加权合约累计成交243277手，比前一交易日减少204964手，跌幅45.73%；持仓量525876手增加9225手，涨幅1.79%。 今日国内氧化铝现货价格下跌；据长江有色网ccmn数据，4月14日氧化铝华南地区
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+长江有色网4月14日讯，今日氧化铝所有合约携手走强，主力月2605合约窄幅震荡；截止当日15：00收盘，氧化铝主力月2605合约报2641元，涨8元，涨幅0.30%；加权合约累计成交243277手，比前一交易日减少204964手，跌幅45.73%；持仓量525876手增加9225手，涨幅1.79%。
 
-6月15日晚，国际油价加速下跌，截至20点35分，纽约原油跌4.05%，报76.23美元/桶；布伦特原油跌4.07%，报79.78美元/桶，跌破80美元大关。
+今日国内氧化铝现货价格下跌；据长江有色网ccmn数据，4月14日氧化铝华南地区每吨报2710-2760元之间，与前一交易日报价跌30元；华东地区氧化铝每吨报2700-2740元之间，与前一交易日报价持平；西南地区氧化铝每吨2785-2825元之间，与前一交易日报价跌5元；西北地区氧化铝每吨报2895-2935元之间，与前一交易日报价跌30元。
 
-黄金、白银短线上扬，现货黄金报4343.97美元/盎司，日内涨0.81%，现货白银报70.74美元/盎司，日内涨逾1%。
+今日上期所氧化铝期货主力2605合约高开后转窄幅震荡，日间交易收涨0.30%，国内氧化铝现货价格下跌。
 
-消息面上，据新华社报道，美国总统特朗普16日称，将在19日前实现霍尔木兹海峡全面重开。
+宏观层面，美伊局势胶着，特朗普宣布封锁霍尔木兹海峡引发能源供应危机与价格上涨，冲击全球经济，加剧高通胀担忧，牵制美联储降息空间，市场宽松利率预期降温。
 
-伊朗副外长拉万奇当天表示，美国解除对伊朗封锁“已在一定程度上得到落实”。
+不过，今日美元走弱、全球股市反弹提升风险偏好，加之国内宏观经济向好，期货市场氛围偏暖，带动氧化铝期货价格反弹。
 
-另据新华社报道，美国总统特朗普16日称，美国和伊朗协议谈判已进入第二阶段，“这应该比第一阶段更容易”。
+基本面，氧化铝过剩格局延续。
 
-特朗普表示，美国不会在伊朗投入任何资金。
+国内现货价走弱，运行产能增加，进口补充，供应过剩压力加剧。
 
-对他而言“唯一重要的事”是伊朗永远不会拥有核武器，如果伊朗政府企图获取核武器，伊朗将“遭受毁灭性打击”。
+但上期所仓单库存减少 1212 吨，厂库持平，远期合约受成本预期抬升支撑。
 
 ## 相关推荐
 
-- 2026-06-30 05:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 06:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 06:15 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 06:14 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 06:02 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 06:10 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 06:06 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 05:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 06:00 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 06:10 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 05:54 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 06:05 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 06:12 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-30 06:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 06:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 06:12 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 06:15 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 06:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 06:07 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 06:06 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 06:15 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 06:11 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 06:23 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 06:02 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 05:54 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-30 06:14 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 06:10 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 06:14 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 06:02 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 06:05 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:48 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/735586036.shtml)
-- 2026-06-30 05:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/80306280095.shtml)
-- 2026-06-30 05:52 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/3487463.shtml)
-- 2026-06-30 06:09 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/02638.shtml)
-- 2026-06-30 06:07 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/802971244893.shtml)
-- 2026-06-30 06:11 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/512145899771.shtml)
-- 2026-06-30 06:04 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/19314850.shtml)
-- 2026-06-30 05:55 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/830198586599.shtml)
-- 2026-06-30 06:16 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/188262.shtml)
-- 2026-06-30 06:08 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/31742963721.shtml)
-- 2026-06-30 06:07 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/6914102006.shtml)
-- 2026-06-30 05:50 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/538702.shtml)
-- 2026-06-30 06:16 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/8160657.shtml)
-- 2026-06-30 06:10 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/81285017221.shtml)
-- 2026-06-30 06:11 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/87640.shtml)
+- 2026-06-30 06:23 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/195702683781.shtml)
+- 2026-06-30 06:20 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/55581.shtml)
+- 2026-06-30 06:02 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/91427461.shtml)
+- 2026-06-30 06:16 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/8097471.shtml)
+- 2026-06-30 06:23 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/175940316801.shtml)
+- 2026-06-30 06:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/432038042897.shtml)
+- 2026-06-30 06:19 - [周生如故](https://www.share.minike.top/Article/details/40310997649.shtml)
+- 2026-06-30 06:22 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/18988.shtml)
+- 2026-06-30 05:54 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/644652.shtml)
+- 2026-06-30 06:17 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/538658718990.shtml)
+- 2026-06-30 06:18 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/4676610901.shtml)
+- 2026-06-30 05:59 - [德国vs巴拉圭](http://www.blog.minike.top/Article/details/0031961971.shtml)
+- 2026-06-30 06:14 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/9966330175.shtml)
+- 2026-06-30 06:19 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/105237038660.shtml)
+- 2026-06-30 06:19 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/8362512.shtml)

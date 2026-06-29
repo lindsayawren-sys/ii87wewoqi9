@@ -1,59 +1,57 @@
-# 民建西乡塘总支与广西贸促会开展企业出海交流活动
+# 瑞银上调特斯拉评级至中性，看好长期AI机遇
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-6月10日，民建南宁市西乡塘总支部与广西贸促会、广西国际商会开展企业出海交流活动。 西乡塘总支一行来到广西贸促会。广西贸促会、广西国际商会副会长刘树义介绍了广西贸促会在服务企业“走出去”方面的核心职能与资源优势。他说，广西贸促会及广西国际商会充分发挥好中国—东盟商务与投资峰会、中国—东盟商务理事会开放平台，可为企业出海提供商事认证、原产地证办理、经贸摩擦预警、企业合规风险评估等
+瑞银不再看空特斯拉，认为近期需求挑战与长期AI机遇"现在更加平衡"。 该机构周二将特斯拉股票评级上调至中性，并重申其352美元的目标价，该目标价较当前水平仅低约2%。 分析师约瑟夫·斯帕克在一份报告中表示："特斯拉股票的交易更多是基于情绪、叙事和动量，而非基本面。我们认为，近期对电动汽车需求、2026年第一季度能源业务缺口、成本上升、资本支出要求提高，以及机器人出租车和Opti
 
 ## 正文
 
-6月10日，民建南宁市西乡塘总支部与广西贸促会、广西国际商会开展企业出海交流活动。
+瑞银不再看空特斯拉，认为近期需求挑战与长期AI机遇"现在更加平衡"。
 
-西乡塘总支一行来到广西贸促会。
+该机构周二将特斯拉股票评级上调至中性，并重申其352美元的目标价，该目标价较当前水平仅低约2%。
 
-广西贸促会、广西国际商会副会长刘树义介绍了广西贸促会在服务企业“走出去”方面的核心职能与资源优势。
+分析师约瑟夫·斯帕克在一份报告中表示："特斯拉股票的交易更多是基于情绪、叙事和动量，而非基本面。
 
-他说，广西贸促会及广西国际商会充分发挥好中国—东盟商务与投资峰会、中国—东盟商务理事会开放平台，可为企业出海提供商事认证、原产地证办理、经贸摩擦预警、企业合规风险评估等全链条服务，助力企业用足用好自贸协定关税减免等政策红利，降低出海合规成本，为企业“出海”保驾护航。
+我们认为，近期对电动汽车需求、2026年第一季度能源业务缺口、成本上升、资本支出要求提高，以及机器人出租车和Optimus进展缓慢的担忧，已对股价造成压力。
 
-我们愿发挥好贸促会、国际商会的资源及渠道优势，助推民建企业拓展合作渠道，精准开拓国际市场。
+然而，我们确实预计机器人出租车和Optimus最终将取得进展，并继续将特斯拉视为物理AI领域的领导者。
 
-西乡塘总支主委俞华胜说，民建西乡塘总支立足西乡塘区产业特色，聚焦民营经济发展需求，搭建政企沟通桥梁、凝聚发展合力。
+" 特斯拉股价最新上涨逾3%。
 
-此次交流是总支服务会员企业、助力企业出海的一项举措，感谢广西贸促会的专业指导与政策赋能。
-
-未来，总支将持续发挥桥梁纽带作用，常态化开展此类政企对接活动，精准链接政策资源与企业需求，助力会员企业深耕国内市场、拓展国际空间，为广西高水平对外开放和民营经济高质量发展贡献民建力量。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 06:15 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 05:55 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 06:08 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 05:56 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 05:57 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 05:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 05:59 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 05:58 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 05:58 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 05:48 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 06:17 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 05:50 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 05:51 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 06:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 06:01 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 06:23 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 06:13 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 06:15 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 06:13 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 05:58 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 06:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-30 06:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 05:57 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 06:14 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 06:09 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 06:21 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:12 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/5992620.shtml)
-- 2026-06-30 06:07 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/075173.shtml)
-- 2026-06-30 06:17 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/291737360.shtml)
-- 2026-06-30 06:15 - [月亮](http://www.share.kurohicncr.top/Article/details/2186211.shtml)
-- 2026-06-30 06:08 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/827509013820.shtml)
-- 2026-06-30 05:57 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/957388.shtml)
-- 2026-06-30 06:07 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/021956575124.shtml)
-- 2026-06-30 06:13 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/196138142888.shtml)
-- 2026-06-30 05:53 - [一生一世](https://www.blog.minike.top/Article/details/44596778.shtml)
-- 2026-06-30 05:54 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/78649.shtml)
-- 2026-06-30 05:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/5150708695.shtml)
-- 2026-06-30 05:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/75573320668.shtml)
-- 2026-06-30 06:06 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/6898301.shtml)
-- 2026-06-30 05:57 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/96568071595.shtml)
-- 2026-06-30 06:00 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/2198911.shtml)
+- 2026-06-30 06:22 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/73305750191.shtml)
+- 2026-06-30 05:59 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/8244036544.shtml)
+- 2026-06-30 05:55 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/30250243.shtml)
+- 2026-06-30 06:23 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/9227925.shtml)
+- 2026-06-30 06:18 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/70443435065.shtml)
+- 2026-06-30 06:22 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/761811331602.shtml)
+- 2026-06-30 05:54 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/76420958752.shtml)
+- 2026-06-30 06:20 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/85677633.shtml)
+- 2026-06-30 06:13 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/820922717.shtml)
+- 2026-06-30 06:13 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/555867817.shtml)
+- 2026-06-30 06:09 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/5515840383.shtml)
+- 2026-06-30 06:01 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/52803933.shtml)
+- 2026-06-30 06:14 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/25232620010.shtml)
+- 2026-06-30 06:17 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/2921883637.shtml)
+- 2026-06-30 06:12 - [巴西绝杀](https://www.share.minike.top/Article/details/78842.shtml)

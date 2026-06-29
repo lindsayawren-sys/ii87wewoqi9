@@ -1,61 +1,61 @@
-# 哈郑直流年内外送电量突破200亿千瓦时
+# 政策定调“适度超前”，国产芯片“破茧成蝶”！同类规模最大港股通信息技术ETF（159131）放量收涨2.32%
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐6月17日电 (王殿雄)记者17日从国网新疆电力有限公司获悉，±800千伏哈密至郑州特高压直流输电工程(简称“哈郑直流”)2026年累计外送电量超200亿千瓦时，较去年同期提前8天实现突破200亿千瓦时关口，这条横贯东西的能源大通道输送效能持续提升。 哈郑直流是我国首个额定电压、额定输送功率均为800千伏、800万千瓦的“双八百”特高压直流工程。线路西起新疆哈密，
+4月14日，港股硬科技表现强势，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）早盘跳空高开，一度冲高逾3%，最终收涨2.32%，单日成交额2.46亿元。 国信证券研报指出，从芯片替代到系统架构创新，国产算力实现突破：1）英伟达市场份额被国产芯片替代，国产AI加速卡市场份额突破41%；2）华为昇腾950PR获字节、阿里订单，兼容CUDA加速生态迁移；3）“十
 
 ## 正文
 
-中新网乌鲁木齐6月17日电 (王殿雄)记者17日从国网新疆电力有限公司获悉，±800千伏哈密至郑州特高压直流输电工程(简称“哈郑直流”)2026年累计外送电量超200亿千瓦时，较去年同期提前8天实现突破200亿千瓦时关口，这条横贯东西的能源大通道输送效能持续提升。
+4月14日，港股硬科技表现强势，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）早盘跳空高开，一度冲高逾3%，最终收涨2.32%，单日成交额2.46亿元。
 
-哈郑直流是我国首个额定电压、额定输送功率均为800千伏、800万千瓦的“双八百”特高压直流工程。
+国信证券研报指出，从芯片替代到系统架构创新，国产算力实现突破：1）英伟达市场份额被国产芯片替代，国产AI加速卡市场份额突破41%；2）华为昇腾950PR获字节、阿里订单，兼容CUDA加速生态迁移；3）“十五五”规划建议明确提出“适度超前建设新型基础设施，推进信息通信网络、全国一体化算力网、重大科技基础设施等建设和集约高效利用，推进传统基础设施更新和数智化改造”，超节点成算力突围新路径。
 
-线路西起新疆哈密，东至河南郑州，全长2192公里，穿越新疆、甘肃、宁夏、陕西、山西、河南六省区，也是国家“疆电外送”战略首个建成投运的特高压直流项目。
+东吴证券最新周策略指出，近一周港股明显反弹，市场整体延续上周地缘政治、通胀预期与国内价格信号修复的共同驱动影响因素。
 
-工程自2014年投运以来，持续将新疆富余电力送往中原地区，截至目前总外送电量已超4691.83亿千瓦时，并且连续七年年外送电量稳定保持在400亿千瓦时以上。
+在美伊谈判未果，脆弱停火期，港股反弹之路仍颠簸，但不必过度悲观。
 
-今年以来，哈郑直流始终保持平稳高效运行状态，日均外送电量1.23亿千瓦时，单日最大外送电量达1.46亿千瓦时，通道大功率输电优势充分显现。
+现阶段配置策略：若回撤容忍度低，建议保持价值红利策略；若追求弹性，可关注AI上游硬件方向（半导体、光通信相关），把握阶段性反弹机会。
 
-随着夏季用电高峰临近，保供电任务逐步加重。
+支持T+0交易！
 
-国网新疆电力提前部署、全面启动迎峰度夏运维保障工作，全力守护这条千里输电大动脉安全稳定运行。
+直指港股芯片超级周期——同类规模最大、全市场首只聚焦“港股芯片”产业链的港股通信息技术ETF华宝（159131），场外联接基金代码026755，标的指数由“70%硬件+30%软件”构成，重仓港股“半导体+电子+计算机软件”，涵盖50只港股硬科技公司，其中小米集团-W权重13.25%，中芯国际权重达12.54%，联想集团权重达9.04%，华虹半导体权重7.09%；不含阿里巴巴、腾讯、美团等大市值互联网企业，锐度更高，更易捕捉港股AI硬科技行情。
 
-运维团队在入夏前完成全站百余项设备缺陷治理、散热系统升级及防汛隐患排查，针对高温高负荷工况下易出现问题的关键设备，建立专项监护机制。
+（截至2026.3.31） 数据来源：中证指数公司，沪深交易所。
 
 ## 相关推荐
 
-- 2026-06-30 06:04 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 05:53 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 05:48 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 05:59 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-30 06:03 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 06:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 06:01 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 06:10 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 06:01 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 05:54 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 05:58 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 06:15 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 05:51 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 05:56 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 06:09 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 05:54 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 06:09 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 06:07 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 06:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 05:56 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 06:17 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 06:03 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 06:08 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 06:17 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 06:03 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 05:59 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 06:02 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 06:01 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 06:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 06:01 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [起风了](https://www.blog.minike.top/Article/details/262849491013.shtml)
-- 2026-06-30 05:52 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/8758998.shtml)
-- 2026-06-30 06:04 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/928305843.shtml)
-- 2026-06-30 06:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/19432.shtml)
-- 2026-06-30 05:57 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/496632816361.shtml)
-- 2026-06-30 05:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/45386631073.shtml)
-- 2026-06-30 06:08 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/401707136.shtml)
-- 2026-06-30 06:02 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/2204938785.shtml)
-- 2026-06-30 05:55 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/01388629135.shtml)
-- 2026-06-30 05:56 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/25402.shtml)
-- 2026-06-30 06:08 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/742957084.shtml)
-- 2026-06-30 06:09 - [青春环游记第三季](http://www.blog.minike.top/Article/details/183813940.shtml)
-- 2026-06-30 06:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/73070333.shtml)
-- 2026-06-30 05:48 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/9891822885.shtml)
-- 2026-06-30 06:00 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/065714647.shtml)
+- 2026-06-30 06:02 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/4423732.shtml)
+- 2026-06-30 06:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/375341.shtml)
+- 2026-06-30 06:08 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/1747938.shtml)
+- 2026-06-30 06:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/1274867.shtml)
+- 2026-06-30 06:15 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/61973445.shtml)
+- 2026-06-30 05:55 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/0622835.shtml)
+- 2026-06-30 06:11 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/7049862.shtml)
+- 2026-06-30 06:05 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/4852093.shtml)
+- 2026-06-30 06:19 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/9084036351.shtml)
+- 2026-06-30 06:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/59479238.shtml)
+- 2026-06-30 06:18 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/290293060.shtml)
+- 2026-06-30 06:03 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/48726.shtml)
+- 2026-06-30 06:08 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/2601841161.shtml)
+- 2026-06-30 06:05 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/040540270.shtml)
+- 2026-06-30 06:13 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/609815297658.shtml)

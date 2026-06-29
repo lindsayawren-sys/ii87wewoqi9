@@ -1,61 +1,52 @@
-# 巨星之日！美加墨世界杯三大球星亮相，他们首战创下了哪些纪录？
+# 政策与算力协同发力 郑州探索“AI+微短剧”融合发展路径
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电 题：巨星之日！姆巴佩、哈兰德、梅西相继亮相，他们首战创下哪些纪录？ 作者 刘梦青 邢翀 当地时间16日，美加墨世界杯小组赛迎来巨星大放异彩的一天，本届杯赛三大顶级球星姆巴佩、哈兰德、梅西接连登场，姆巴佩、哈兰德先后完成双响，梅西上演帽子戏法，首战即表现出强大战力，各自更是创下一系列纪录。 姆巴佩：打破质疑，成就法国队史第一射手面对24年前爆冷击败自己的塞
+发布时间：2026年04月15日 10:22 来源：中国新闻网 4月14日，郑州高新区发布微短剧产业与算力产业支持政策，推出郑州首个算力产业OPC专项政策，同步上线AI短剧制作平台及产业社区，加快推动“AI+微短剧”产业发展。 据介绍，此次发布的政策从内容创作、技术研发、产业载体等方面加大支持力度，并通过算力补贴降低企业生产成本。同时，依托AIGC技术，相关平台已实现从剧本生成
 
 ## 正文
 
-中新网北京6月17日电 题：巨星之日！
+发布时间：2026年04月15日 10:22 来源：中国新闻网 4月14日，郑州高新区发布微短剧产业与算力产业支持政策，推出郑州首个算力产业OPC专项政策，同步上线AI短剧制作平台及产业社区，加快推动“AI+微短剧”产业发展。
 
-姆巴佩、哈兰德、梅西相继亮相，他们首战创下哪些纪录？
+据介绍，此次发布的政策从内容创作、技术研发、产业载体等方面加大支持力度，并通过算力补贴降低企业生产成本。
 
-作者 刘梦青 邢翀 当地时间16日，美加墨世界杯小组赛迎来巨星大放异彩的一天，本届杯赛三大顶级球星姆巴佩、哈兰德、梅西接连登场，姆巴佩、哈兰德先后完成双响，梅西上演帽子戏法，首战即表现出强大战力，各自更是创下一系列纪录。
+同时，依托AIGC技术，相关平台已实现从剧本生成到视频合成的自动化生产流程，推动微短剧产业向智能化、规模化方向发展。
 
-姆巴佩：打破质疑，成就法国队史第一射手面对24年前爆冷击败自己的塞内加尔队，夺冠热门法国队欲一雪前耻。
-
-然而上半场的姆巴佩和法国队的表现让人大跌眼镜，射门次数1:5落后，预期进球只有可怜的0.02。
-
-0次射门、3次尝试过人失败、丢失球权7次的姆巴佩，让球迷捏了一把汗。
-
-但下半场风云突变，第66分钟，奥利塞的直塞唤醒了沉睡的“高卢雄鸡”：姆巴佩接球转身一气呵成，低射远角打破僵局。
-
-补时最后时刻，塞内加尔刚扳回一城，姆巴佩就在禁区弧顶附近轰出一记石破天惊的世界波。
+(记者 范晓恒 韩章云） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-30 06:00 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 06:11 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 06:12 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 06:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 06:12 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 05:58 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 06:17 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 05:56 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-30 06:10 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 06:16 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 06:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 06:16 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-30 06:01 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 05:48 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 06:10 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 06:12 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 06:05 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 06:05 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 06:21 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 06:08 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 06:02 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 06:15 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 06:06 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 06:04 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 06:23 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 06:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 06:16 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 06:01 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 06:10 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/02532431.shtml)
-- 2026-06-30 06:09 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/9270389.shtml)
-- 2026-06-30 06:07 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/567422078.shtml)
-- 2026-06-30 06:08 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/14812.shtml)
-- 2026-06-30 06:07 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/66375595.shtml)
-- 2026-06-30 06:16 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/7043309525.shtml)
-- 2026-06-30 06:15 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/250252.shtml)
-- 2026-06-30 05:58 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/4972248.shtml)
-- 2026-06-30 06:02 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/904962506.shtml)
-- 2026-06-30 06:11 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/0013731.shtml)
-- 2026-06-30 05:58 - [《贺子珍》](http://www.blog.minike.top/Article/details/62604578387.shtml)
-- 2026-06-30 05:58 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/0315922.shtml)
-- 2026-06-30 06:14 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/3797036324.shtml)
-- 2026-06-30 05:57 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/03100785925.shtml)
-- 2026-06-30 05:56 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/40260.shtml)
+- 2026-06-30 06:10 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/83516.shtml)
+- 2026-06-30 06:14 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/19684080.shtml)
+- 2026-06-30 06:13 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/30378.shtml)
+- 2026-06-30 05:57 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/077230618017.shtml)
+- 2026-06-30 05:59 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/90598934.shtml)
+- 2026-06-30 06:17 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/67510.shtml)
+- 2026-06-30 05:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/153203915896.shtml)
+- 2026-06-30 06:12 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/1729467630.shtml)
+- 2026-06-30 06:05 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/5880913739.shtml)
+- 2026-06-30 06:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/6425110.shtml)
+- 2026-06-30 06:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/217483328.shtml)
+- 2026-06-30 06:08 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/5338336674.shtml)
+- 2026-06-30 05:55 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/050659.shtml)
+- 2026-06-30 06:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/991253.shtml)
+- 2026-06-30 06:19 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/0211686481.shtml)

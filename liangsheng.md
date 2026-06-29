@@ -1,58 +1,57 @@
-# 库迪失去王一博之后
+# 宁德时代创历史新高！华宝基金双创50ETF（588330）强势5连阳，刷新上市高点！机构：真正主线或在科技！
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品|虎嗅商业消费组 作者|刘纾含 最后一次参加世界杯的梅西，上演了本届世界杯的首个帽子戏法。 北京时间6月17日，在2026美加墨世界杯足球赛J组小组赛中，阿根廷队对阵阿尔及利亚队，在比赛的第76分钟，梅西打入个人本场比赛第三球，上演“帽子戏法”的同时，追平了世界杯纪录。对于阿根廷国家足球队全球赞助商库迪
+今日（4月13日）科技成长方向全天表现活跃，覆盖科创板+创业板高成长龙头的硬科技宽基——双创50ETF华宝（588330）场内涨幅最高上探1.82%，收盘劲涨1.11%，强势斩获日线5连阳，继续刷新上市以来的高点！ 成份股方面，权重股宁德时代一度涨超4%，股价创历史新高；PCB龙头生益电子领涨超11%，光伏龙头大全能源涨近8%，半导体龙头澜起科技涨超6%，海光信息涨逾5%。 拉
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+今日（4月13日）科技成长方向全天表现活跃，覆盖科创板+创业板高成长龙头的硬科技宽基——双创50ETF华宝（588330）场内涨幅最高上探1.82%，收盘劲涨1.11%，强势斩获日线5连阳，继续刷新上市以来的高点！
 
-出品|虎嗅商业消费组 作者|刘纾含 最后一次参加世界杯的梅西，上演了本届世界杯的首个帽子戏法。
+成份股方面，权重股宁德时代一度涨超4%，股价创历史新高；PCB龙头生益电子领涨超11%，光伏龙头大全能源涨近8%，半导体龙头澜起科技涨超6%，海光信息涨逾5%。
 
-北京时间6月17日，在2026美加墨世界杯足球赛J组小组赛中，阿根廷队对阵阿尔及利亚队，在比赛的第76分钟，梅西打入个人本场比赛第三球，上演“帽子戏法”的同时，追平了世界杯纪录。
+拉长时间来看，双创50ETF华宝（588330）标的指数（科创创业50）自2025年以来，截至2026年3月底，累计上涨54.54%，跑赢创业板指（48.72%）、科创综指（44.68%）、科创50（27.04%）等主要宽基指数。
 
-对于阿根廷国家足球队全球赞助商库迪来说，这是一个难得的品牌高光时刻。
+数据统计区间：2025.1.1-2026.3.31。
 
-失去王一博之后，库迪需要新的流量资产，也需要一个比“9.9元咖啡”更体面的品牌故事。
+科创创业50指数2021-2025分年度涨跌幅为：0.37%、-28.32%、-18.83%、13.63%、60.86%，指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
 
-只是，赛场上的高光，照不到所有门店。
+权重股层面，宁德时代股价创历史新高，自3月初至今一个多月时间，宁德时代累计涨超24%。
 
-6月，是夏季茶饮旺季即将到来的时刻，但库迪的联营商们正在准备闭店。
+宁德时代此前披露了2025年财报，实现营收、利润双增长。
 
-经营两年多后，山东联营商刘伟终于给自己的门店贴上了“停业闭店”的标识。
+在业绩拉升下，宁德时代的分红创下新纪录。
 
 ## 相关推荐
 
-- 2026-06-30 06:02 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 06:09 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 06:03 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 06:13 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 05:56 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 06:08 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 06:12 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-30 06:01 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 05:58 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 05:58 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 06:17 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 06:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 06:19 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 06:02 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 06:07 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 06:20 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 06:15 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 06:14 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 06:10 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 06:06 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 06:03 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 06:07 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 05:58 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:05 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/820792124504.shtml)
-- 2026-06-30 05:52 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/147750265.shtml)
-- 2026-06-30 06:13 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/416865339.shtml)
-- 2026-06-30 06:09 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/8362060119.shtml)
-- 2026-06-30 06:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/23864751273.shtml)
-- 2026-06-30 06:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/7242378.shtml)
-- 2026-06-30 06:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/79398939.shtml)
-- 2026-06-30 05:48 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/182717879.shtml)
-- 2026-06-30 05:53 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/80649080407.shtml)
-- 2026-06-30 06:13 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/44787604.shtml)
-- 2026-06-30 06:17 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/5199283134.shtml)
-- 2026-06-30 06:17 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/60405.shtml)
-- 2026-06-30 06:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/3351084437.shtml)
-- 2026-06-30 06:17 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/7938435681.shtml)
-- 2026-06-30 06:03 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/0928309.shtml)
+- 2026-06-30 06:01 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/623872.shtml)
+- 2026-06-30 06:13 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/00869.shtml)
+- 2026-06-30 05:59 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/9894837969.shtml)
+- 2026-06-30 06:02 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/76481367501.shtml)
+- 2026-06-30 06:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/99194.shtml)
+- 2026-06-30 06:15 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/4897284567.shtml)
+- 2026-06-30 06:10 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/19572.shtml)
+- 2026-06-30 05:57 - [恋与深空 日服](http://www.share.minike.top/Article/details/972248660.shtml)
+- 2026-06-30 06:07 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/90231881523.shtml)
+- 2026-06-30 06:21 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/692220592369.shtml)
+- 2026-06-30 06:10 - [《共患难》](https://www.share.kurohicncr.top/Article/details/984565984.shtml)
+- 2026-06-30 06:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/51244.shtml)
+- 2026-06-30 05:59 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/9219227.shtml)
+- 2026-06-30 06:07 - [啊啊啊](https://www.blog.minike.top/Article/details/0244307493.shtml)
+- 2026-06-30 06:11 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/2453224710.shtml)

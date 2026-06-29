@@ -1,56 +1,58 @@
-# 美国商务部暂缓将DeepSeek等中企加入限制清单，外交部回应
+# 全球第二储能企业海辰储能代表福建亮相香港国际创科展
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-6月17日，外交部发言人林剑主持例行记者会。 法新社记者提问，据报道，美国商务部为了避免与中国关系进一步紧张，已暂缓将包括DeepSeek和一家大型芯片制造商在内的多家中国企业列入其限制性实体清单。请问中国外交部对此有何评论？ 林剑表示，中方一贯反对美方泛化国家安全概念，滥用实体清单等出口管制的工具，遏制打压中方企业。美方应停止将经贸科技问题政治化、工具化、武器化。 来源：北京
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月13日，第四届香港国际创科展（InnoEX）在香港会议展览中心隆重举行。作为福建省唯一受邀的新能源储能科技代表企业，海辰储能在福建省科技厅与香港贸发局的联合邀请下，携∞Cell 1175Ah长时储能专用电池、∞Power 6.25MWh长时储能系统等前沿技术成果精彩亮相。展会期间，海辰储能深度参与观展交
 
 ## 正文
 
-6月17日，外交部发言人林剑主持例行记者会。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-法新社记者提问，据报道，美国商务部为了避免与中国关系进一步紧张，已暂缓将包括DeepSeek和一家大型芯片制造商在内的多家中国企业列入其限制性实体清单。
+4月13日，第四届香港国际创科展（InnoEX）在香港会议展览中心隆重举行。
 
-请问中国外交部对此有何评论？
+作为福建省唯一受邀的新能源储能科技代表企业，海辰储能在福建省科技厅与香港贸发局的联合邀请下，携∞Cell 1175Ah长时储能专用电池、∞Power 6.25MWh长时储能系统等前沿技术成果精彩亮相。
 
-林剑表示，中方一贯反对美方泛化国家安全概念，滥用实体清单等出口管制的工具，遏制打压中方企业。
+展会期间，海辰储能深度参与观展交流、闽港科创推介对接会等系列活动。
 
-美方应停止将经贸科技问题政治化、工具化、武器化。
+香港国际创科展由香港特别行政区政府创新科技及工业局与香港贸易发展局联合主办，是亚洲最具影响力的科技与创新盛会之一。
 
-来源：北京日报客户端 记者：刘晓琰责任编辑：刘万里 SF014
+本届展会以“创新·智动·起飞”为主题，聚焦AI+应用、机器人技术、低空经济、新能源等前沿领域，被誉为亚太区科技发展的“风向标”。
+
+全场景产品矩阵，释放储能多元价值 围绕“电芯—系统—场景”全链路能力，海辰储能展示了覆盖多容量、多技术路径与多应用场景的产品体系，全面展现从底层技术到系统集成的全栈能力。
+
+在电芯层面，公司构建锂电与钠电协同发展的多技术路线，涵盖314Ah、∞Cell 587Ah、∞Cell 1175Ah及∞Cell N162Ah钠离子电池。
 
 ## 相关推荐
 
-- 2026-06-30 06:03 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 06:05 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 05:50 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 05:52 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 06:02 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 05:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 06:05 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 05:49 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 06:07 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 05:55 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 06:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 06:06 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 06:04 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 06:09 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 05:54 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 06:06 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 05:56 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 06:07 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 06:12 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 06:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 06:13 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 05:54 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 06:18 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 06:18 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 06:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 06:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:54 - [毒液2](https://www.blog.minike.top/Article/details/1855636.shtml)
-- 2026-06-30 06:14 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/9557873.shtml)
-- 2026-06-30 06:04 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/400643891.shtml)
-- 2026-06-30 05:58 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/39388357.shtml)
-- 2026-06-30 05:56 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/74817738526.shtml)
-- 2026-06-30 06:17 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/4657802192.shtml)
-- 2026-06-30 06:14 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/608064824.shtml)
-- 2026-06-30 05:53 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/34323563998.shtml)
-- 2026-06-30 05:59 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/9056338095.shtml)
-- 2026-06-30 06:03 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/195883530.shtml)
-- 2026-06-30 05:59 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/523241.shtml)
-- 2026-06-30 05:54 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/99506.shtml)
-- 2026-06-30 05:58 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/03999.shtml)
-- 2026-06-30 06:00 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/3456077070.shtml)
-- 2026-06-30 06:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/83178916.shtml)
+- 2026-06-30 06:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/035213.shtml)
+- 2026-06-30 06:14 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/0423148917.shtml)
+- 2026-06-30 06:17 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/9292648558.shtml)
+- 2026-06-30 06:02 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/6535939787.shtml)
+- 2026-06-30 06:07 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/3701388658.shtml)
+- 2026-06-30 06:18 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/52040868850.shtml)
+- 2026-06-30 06:02 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/468303.shtml)
+- 2026-06-30 06:18 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/138946.shtml)
+- 2026-06-30 06:04 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/318081730341.shtml)
+- 2026-06-30 06:19 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/933737.shtml)
+- 2026-06-30 06:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/731615581191.shtml)
+- 2026-06-30 06:09 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/40422387.shtml)
+- 2026-06-30 06:15 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/640145480063.shtml)
+- 2026-06-30 06:12 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/39314320.shtml)
+- 2026-06-30 06:20 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/821064680.shtml)

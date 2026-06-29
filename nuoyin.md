@@ -1,58 +1,60 @@
-# 欧盟对俄制裁新增制裁中方企业 中方强调坚决反对欧方甩锅推责
+# 多空交织涨跌反复，碳酸锂短期看涨至20万元
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网布鲁塞尔6月17日电 中国驻欧盟使团17日回应欧盟对俄制裁新增制裁中方企业，强调坚决反对欧方在乌克兰危机问题上对中方甩锅推责、污蔑抹黑，将采取一切必要措施，坚定维护中方企业正当权益。 有记者问，6月15日，欧盟公布新一轮对俄罗斯制裁方案，新增制裁4家中方企业。中方对此有何评论？ 中国驻欧盟使团发言人表示，欧方不顾中方坚决反对和多次严正交涉，在对俄罗斯制裁中新增制裁中方企业
+界面新闻记者 | 高菁 近期，市场扰动频发之下，碳酸锂价格涨跌反复，走势扑朔迷离。 4月13日，碳酸锂期货主力合约2605低开高走，截至收盘，上涨5.85%，达16.36万元/吨。 本月以来，碳酸锂期货主力合约有五个工作日下滑，三个工作日上涨，整体较2月底上涨约4%。 现货方面，上海钢联数据显示，4月13日，电池级碳酸锂均价报15.61万元/吨，每吨价格较前一工作日上涨1350
 
 ## 正文
 
-中新网布鲁塞尔6月17日电 中国驻欧盟使团17日回应欧盟对俄制裁新增制裁中方企业，强调坚决反对欧方在乌克兰危机问题上对中方甩锅推责、污蔑抹黑，将采取一切必要措施，坚定维护中方企业正当权益。
+界面新闻记者 | 高菁 近期，市场扰动频发之下，碳酸锂价格涨跌反复，走势扑朔迷离。
 
-有记者问，6月15日，欧盟公布新一轮对俄罗斯制裁方案，新增制裁4家中方企业。
+4月13日，碳酸锂期货主力合约2605低开高走，截至收盘，上涨5.85%，达16.36万元/吨。
 
-中方对此有何评论？
+本月以来，碳酸锂期货主力合约有五个工作日下滑，三个工作日上涨，整体较2月底上涨约4%。
 
-中国驻欧盟使团发言人表示，欧方不顾中方坚决反对和多次严正交涉，在对俄罗斯制裁中新增制裁中方企业，中方对此强烈不满、坚决反对，并再次向欧方提出了严正交涉。
+现货方面，上海钢联数据显示，4月13日，电池级碳酸锂均价报15.61万元/吨，每吨价格较前一工作日上涨1350元。
 
-发言人强调，中国在乌克兰危机问题上一贯秉持客观公正立场，致力于劝和促谈，为推动政治解决乌克兰危机发挥建设性作用。
+在此之前，电池级碳酸锂已连续三个工作日下跌。
 
-中方坚决反对欧方在乌克兰危机问题上对中方甩锅推责、污蔑抹黑，坚决反对没有联合国安理会授权、缺乏国际法依据的非法单边制裁，将采取一切必要措施，坚定维护中方企业正当权益。
+碳酸锂价格震荡，主要是因为市场多空因素交织。
 
-(完)
+富宝资讯锂产业分析师汪霏菲向界面新闻表示，今日碳酸锂现货价格上涨，主要受国内外供应端扰动预期影响。
+
+一方面，在中东冲突局势的影响下，国际柴油价格高涨，且供应紧张。
 
 ## 相关推荐
 
-- 2026-06-30 05:59 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 06:14 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 06:04 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 06:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 06:14 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 05:59 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 06:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 06:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 05:48 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 06:02 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 05:48 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 05:56 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 06:04 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 05:56 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 05:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 06:07 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 06:16 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 06:08 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 06:21 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 05:57 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 05:59 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 06:03 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 05:55 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 06:05 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 06:06 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 05:55 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 05:56 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 05:55 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:04 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/32542483666.shtml)
-- 2026-06-30 05:53 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/2453208683.shtml)
-- 2026-06-30 05:59 - [巴西扳平比分](https://www.blog.minike.top/Article/details/579963240862.shtml)
-- 2026-06-30 05:58 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/90362596.shtml)
-- 2026-06-30 06:09 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/68423.shtml)
-- 2026-06-30 06:07 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/8652299195.shtml)
-- 2026-06-30 05:54 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/988037.shtml)
-- 2026-06-30 06:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/40304037525.shtml)
-- 2026-06-30 05:53 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/467528.shtml)
-- 2026-06-30 06:06 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/440339529.shtml)
-- 2026-06-30 06:03 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/502246372012.shtml)
-- 2026-06-30 05:55 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/902083733891.shtml)
-- 2026-06-30 06:08 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/08980275.shtml)
-- 2026-06-30 05:52 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/46545.shtml)
-- 2026-06-30 05:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/988253.shtml)
+- 2026-06-30 05:54 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/6617834.shtml)
+- 2026-06-30 06:06 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/06846.shtml)
+- 2026-06-30 05:59 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/7676789.shtml)
+- 2026-06-30 06:07 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/65334.shtml)
+- 2026-06-30 06:12 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/595604249780.shtml)
+- 2026-06-30 06:23 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/794895279.shtml)
+- 2026-06-30 06:08 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/1725346046.shtml)
+- 2026-06-30 06:03 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/521340881.shtml)
+- 2026-06-30 05:56 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/972243578.shtml)
+- 2026-06-30 06:01 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.kurohicncr.top/Article/details/06115344.shtml)
+- 2026-06-30 06:16 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/79642.shtml)
+- 2026-06-30 06:03 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/88840.shtml)
+- 2026-06-30 06:20 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/28375652872.shtml)
+- 2026-06-30 06:09 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/498792409.shtml)
+- 2026-06-30 06:01 - [内马尔替补](http://www.share.minike.top/Article/details/90438.shtml)

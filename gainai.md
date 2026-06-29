@@ -1,54 +1,56 @@
-# 周小川：电信诈骗已利用加密货币、AI手段 国际金融治理仍需关注
+# ZFX山海证券:代币化资产交易快速扩张趋势
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，2026陆家嘴论坛于今日召开，十二届全国政协副主席、中国人民银行原行长周小川出席并参加主题为“全球金融治理改革与合作”的会议讨论。 对于加密货币的金融安全问题，周小川指出，加密货币出现以后，有不少通过加密货币做非法资金转移、欺诈行为。“所谓电信诈骗，现在已经不是电信了，已经是数字化，也利用加密
+4月13日，全球金融市场正在经历一轮深层次的结构性重塑，最新行业研究显示，代币化大宗商品与股票永续合约的整体交易规模较此前阶段出现显著跃升，增幅超过500%。ZFX山海证券认为，这一变化并非短期投机推动，而是金融市场数字化进程加速的直接体现，传统资产与链上资产之间的边界正在不断被打破，市场正在向更高频、更高流动性以及更强跨市场联动的方向演进。 从资产结构来看，黄金、白银以及原油
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，2026陆家嘴论坛于今日召开，十二届全国政协副主席、中国人民银行原行长周小川出席并参加主题为“全球金融治理改革与合作”的会议讨论。
+4月13日，全球金融市场正在经历一轮深层次的结构性重塑，最新行业研究显示，代币化大宗商品与股票永续合约的整体交易规模较此前阶段出现显著跃升，增幅超过500%。
 
-对于加密货币的金融安全问题，周小川指出，加密货币出现以后，有不少通过加密货币做非法资金转移、欺诈行为。
+ZFX山海证券认为，这一变化并非短期投机推动，而是金融市场数字化进程加速的直接体现，传统资产与链上资产之间的边界正在不断被打破，市场正在向更高频、更高流动性以及更强跨市场联动的方向演进。
 
-“所谓电信诈骗，现在已经不是电信了，已经是数字化，也利用加密货币进行转移，同时甚至连AI都用上了。
+从资产结构来看，黄金、白银以及原油等传统大宗商品依旧在市场中占据核心地位，但其定价逻辑正在与数字化衍生品体系发生更深层次的融合。
 
-” 谁来监管这些问题？
+数据显示，在近期市场波动过程中，贵金属相关衍生品交易活跃度明显提升，同时波动率区间也较此前有所扩大，原油市场则在供需预期与地缘因素交织影响下保持高敏感特征。
 
-周小川认为，现存的防止欺诈行为的组织就只有FATF，只是反恐融资和反洗钱机构，其覆盖面仍存在争议。
+ZFX山海证券认为，这种跨资产联动增强意味着投资者正在通过多工具组合来实现风险分散与收益优化，市场定价机制也因此变得更加复杂。
 
-这是国际经济金融治理需要关注的问题。
+进一步来看，代币化资产的扩张不仅体现在交易规模增长，还体现在市场参与主体结构的变化。
 
-责任编辑：曹睿潼
+过去以零售交易者为主的结构，正在逐步转向机构与专业投资者参与度提升的格局。
+
+分析认为，这一转变与全球流动性环境变化以及交易工具升级密切相关，机构投资者更倾向于利用代币化产品的高流动性与灵活杠杆机制，以提升资金使用效率并增强策略执行能力。
 
 ## 相关推荐
 
-- 2026-06-30 05:56 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 06:08 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 06:04 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 05:58 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-30 06:13 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 06:15 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-30 06:01 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 05:55 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 06:16 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 06:08 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 06:14 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 06:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 06:08 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 06:15 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 06:22 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 06:01 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 06:00 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 06:08 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 06:04 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 06:09 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:17 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/150979.shtml)
-- 2026-06-30 06:00 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/41127149094.shtml)
-- 2026-06-30 06:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/8452199.shtml)
-- 2026-06-30 05:53 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/3943833413.shtml)
-- 2026-06-30 06:03 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/349401534802.shtml)
-- 2026-06-30 05:59 - [沙丘](https://www.blog.kurohicncr.top/Article/details/78329.shtml)
-- 2026-06-30 06:17 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/8715975.shtml)
-- 2026-06-30 05:54 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/6884438.shtml)
-- 2026-06-30 06:11 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/004893527664.shtml)
-- 2026-06-30 05:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/381529279723.shtml)
-- 2026-06-30 05:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/522447.shtml)
-- 2026-06-30 06:12 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/038897393.shtml)
-- 2026-06-30 06:05 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/81058665.shtml)
-- 2026-06-30 06:13 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/101407055.shtml)
-- 2026-06-30 05:50 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/799567798062.shtml)
+- 2026-06-30 06:03 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/5620158501.shtml)
+- 2026-06-30 06:05 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/3412332796.shtml)
+- 2026-06-30 05:59 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/37459734.shtml)
+- 2026-06-30 06:06 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/09709588.shtml)
+- 2026-06-30 06:09 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/92601.shtml)
+- 2026-06-30 05:59 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/73736.shtml)
+- 2026-06-30 05:57 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/010903506.shtml)
+- 2026-06-30 06:15 - [明星大侦探第四季](https://www.share.minike.top/Article/details/593205670204.shtml)
+- 2026-06-30 06:23 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/2834142.shtml)
+- 2026-06-30 06:09 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/594300838256.shtml)
+- 2026-06-30 06:11 - [日本进球](https://www.share.minike.top/Article/details/0705599852.shtml)
+- 2026-06-30 06:10 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/0365990.shtml)
+- 2026-06-30 06:02 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/3306250070.shtml)
+- 2026-06-30 06:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/266991192954.shtml)
+- 2026-06-30 05:59 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/455118.shtml)

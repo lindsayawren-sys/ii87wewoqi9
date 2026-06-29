@@ -1,58 +1,58 @@
-# 爱立信首席执行官鲍毅康即将卸任，公司资深高管纳文格将继任
+# 多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-现任核心网络业务负责人佩尔・纳文格将于 10 月正式接任首席执行官一职 爱立信宣布，执掌公司逾九年的首席执行官鲍毅康决定卸任，任命公司资深高管佩尔・纳文格接任这一职务。 这家瑞典电信设备制造商于周二公告称，现任核心网络业务负责人纳文格将于 10 月 1 日正式出任公司最高负责人。 纳文格 1997 年加入爱立信，历任多项高管职务：曾负责公司北欧及中欧区域业务、云软件与服务业务，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月13日，A股主要股指走势震荡，沪指先跌后涨，早盘一度下跌0.5%，收盘微涨0.06%，深证成指上涨0.69%，创业板指涨0.8%。板块上来看，玻璃纤维、锂矿概念领涨，此外盐湖提锂、多晶硅、光通信等概念涨幅居前，医疗服务、游戏、保险等概念回调。 多晶硅主力合约午后涨停 4月13日，多晶硅主力合约临近午间休
 
 ## 正文
 
-现任核心网络业务负责人佩尔・纳文格将于 10 月正式接任首席执行官一职 爱立信宣布，执掌公司逾九年的首席执行官鲍毅康决定卸任，任命公司资深高管佩尔・纳文格接任这一职务。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这家瑞典电信设备制造商于周二公告称，现任核心网络业务负责人纳文格将于 10 月 1 日正式出任公司最高负责人。
+4月13日，A股主要股指走势震荡，沪指先跌后涨，早盘一度下跌0.5%，收盘微涨0.06%，深证成指上涨0.69%，创业板指涨0.8%。
 
-纳文格 1997 年加入爱立信，历任多项高管职务：曾负责公司北欧及中欧区域业务、云软件与服务业务，去年年初开始执掌网络业务板块。
+板块上来看，玻璃纤维、锂矿概念领涨，此外盐湖提锂、多晶硅、光通信等概念涨幅居前，医疗服务、游戏、保险等概念回调。
 
-爱立信董事长扬・卡尔森表示：“他深耕通信行业，拥有扎实的专业技术储备与丰富的商业运营经验，在多个关键管理岗位上均交出了亮眼的业绩答卷。
+多晶硅主力合约午后涨停 4月13日，多晶硅主力合约临近午间休市快速拉升，午后封死涨停板。
 
-” 本次管理层更迭之际，爱立信正面临多重经营挑战。
+今年以来，多晶硅期货价格持续下滑，上周五（4月10日）最低价较年初最高价下跌48.39%，接近腰斩。
 
-受宏观经济、地缘政治不确定性影响，运营商资本开支前景不明，今年网络设备市场需求预计将陷入停滞；与此同时，人工智能产业爆发推高半导体等元器件价格，企业生产成本持续攀升。
+4月13日为该期货今年以来的首次涨停。
 
-爱立信押注，随着人工智能行业不断扩张、商业化落地提速，各大网络运营商将加大基础设施升级投入，以此承载海量激增的数据流量。
+现货方面，据安泰科数据，截至4月8日当周，多晶硅N型复投料成交价格区间为3.5万元—3.7万元/吨，成交均价为3.6万元/吨，环比下滑1.37%；N型颗粒硅成交价格区间为3.4万元—3.6万元/吨，成交均价为3.5万元/吨，环比下滑4.11%。
 
-在鲍毅康任职期间，爱立信还瞄准全球国防开支增长的机遇，加码防务及关键任务类产品布局，重点研发通信系统、基于 5G 的无人机探测传感系统等产品，拓展军工领域业务。
+多晶硅现货下滑或与行业库存过高有关，据硅业分会统计，3月份国内多晶硅产量为9.26万吨，环比小幅增加9.7%。
 
 ## 相关推荐
 
-- 2026-06-30 06:14 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 05:55 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 05:52 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 06:11 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 06:10 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 05:57 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 05:53 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 06:10 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 06:14 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 05:50 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 06:10 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 06:04 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 06:09 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 06:20 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 06:11 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 05:54 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 06:11 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 06:12 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 06:00 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 05:57 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 06:09 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 05:58 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 06:16 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 06:01 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:07 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/7814828544.shtml)
-- 2026-06-30 06:13 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/33162526638.shtml)
-- 2026-06-30 05:52 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/176094299629.shtml)
-- 2026-06-30 05:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/34476762.shtml)
-- 2026-06-30 05:50 - [日本进球](https://www.share.kurohicncr.top/Article/details/620607.shtml)
-- 2026-06-30 06:08 - [时光音乐会](https://www.blog.minike.top/Article/details/5586181.shtml)
-- 2026-06-30 06:13 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/53480.shtml)
-- 2026-06-30 06:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/260080.shtml)
-- 2026-06-30 06:13 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/5751577.shtml)
-- 2026-06-30 06:01 - [极限挑战第一季](http://www.blog.minike.top/Article/details/89075630.shtml)
-- 2026-06-30 05:55 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/265807097.shtml)
-- 2026-06-30 05:57 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/6033981863.shtml)
-- 2026-06-30 05:50 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/6069575.shtml)
-- 2026-06-30 06:07 - [恋与深空 巧合](http://www.share.minike.top/Article/details/16344586765.shtml)
-- 2026-06-30 05:54 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/8683460768.shtml)
+- 2026-06-30 06:17 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/87220654354.shtml)
+- 2026-06-30 05:58 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/29098641818.shtml)
+- 2026-06-30 05:58 - [日本淘汰](https://www.share.minike.top/Article/details/3139905794.shtml)
+- 2026-06-30 06:15 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/32274.shtml)
+- 2026-06-30 06:08 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/50849800467.shtml)
+- 2026-06-30 06:00 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/0231305140.shtml)
+- 2026-06-30 06:06 - [天道](http://www.share.kurohicncr.top/Article/details/80519930425.shtml)
+- 2026-06-30 06:04 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/54124176.shtml)
+- 2026-06-30 06:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/688219784.shtml)
+- 2026-06-30 06:08 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/2069014352.shtml)
+- 2026-06-30 06:18 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/059187932192.shtml)
+- 2026-06-30 06:18 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/7765508.shtml)
+- 2026-06-30 06:03 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/74934.shtml)
+- 2026-06-30 06:22 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/25600446.shtml)
+- 2026-06-30 06:20 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/9782400581.shtml)

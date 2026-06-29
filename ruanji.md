@@ -1,57 +1,58 @@
-# 外交部：威胁中国驻日使领馆安全的恶性事件还在不断发生
+# 光大期货：4月14日金融日报
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电 (记者 谢雁冰)中国外交部发言人林剑17日主持例行记者会。 有记者提问：据报道，针对日本自卫队现役官员村田晃大非法持刀闯入中国驻日本使馆，日本东京地方检察厅决定延长对村田的鉴定留置时间，继续调查其是否具备刑事责任能力。请问中方对此有何评论？ 林剑：日本自卫队现役官员村田晃大非法持刀闯入中国驻日本使馆案件发生已经过去将近3个月，日方调查处置进程缓慢，威胁中
+股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，全球股指市场多数收涨，窄幅波动。Wind全A上涨0.25%，成交额2.16万亿元。中证1000指数上涨0.34%，中证500指数下跌0.02%，沪深300指数上涨0.21%，上证50指数持平。美伊谈判陷入停滞后市场不确定性重新升高。短期来看，资产价格高波动仍是常态，不宜过分押注地缘冲突的
 
 ## 正文
 
-中新网北京6月17日电 (记者 谢雁冰)中国外交部发言人林剑17日主持例行记者会。
+股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，全球股指市场多数收涨，窄幅波动。
 
-有记者提问：据报道，针对日本自卫队现役官员村田晃大非法持刀闯入中国驻日本使馆，日本东京地方检察厅决定延长对村田的鉴定留置时间，继续调查其是否具备刑事责任能力。
+Wind全A上涨0.25%，成交额2.16万亿元。
 
-请问中方对此有何评论？
+中证1000指数上涨0.34%，中证500指数下跌0.02%，沪深300指数上涨0.21%，上证50指数持平。
 
-林剑：日本自卫队现役官员村田晃大非法持刀闯入中国驻日本使馆案件发生已经过去将近3个月，日方调查处置进程缓慢，威胁中国驻日使领馆安全的恶性事件还在不断发生，中方严重不满并已多次提出交涉。
+美伊谈判陷入停滞后市场不确定性重新升高。
 
-此次事件再次暴露出日本国内存在的诸多深层问题，包括日本国内右翼思潮和势力猖獗，客观理性的声音受到压制；日本政府在历史、台湾等涉及中日关系重大核心问题上的错误政策流毒深重；正确的历史教育严重缺失，错误史观大行其道；日本安保政策朝着进攻性、扩张性方向转变；日方对自卫队失管失控，自卫队内部失管失教。
+短期来看，资产价格高波动仍是常态，不宜过分押注地缘冲突的影响完全消散。
 
-我们注意到一段时间以来，不少日方有识之士要求日政府对中方道歉，还有的敦促日政府对自卫队内部管理、日方历史教育及对华政策认真反思和整改，从根本上解决问题，铲除背后的社会土壤。
+能源价格中枢上涨到来的通胀压力被广泛关注，市场预期年内美联储可能不降息，日本、欧洲等地可能进入加息周期，资本市场流动性仍需关注。
 
-我们再次敦促日方反思纠错、彻底整改，给中方一个负责任交代。
+在宏观不确定性的背景下，科技行业的确定性越发明显。
 
-(完)
+包括三星、Anthropic等AI行业上下游巨头近日均发布一季报，运营利润大幅增长，预计此后市场风格会重新回到科技题材上来。
 
 ## 相关推荐
 
-- 2026-06-30 06:09 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 06:12 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 05:55 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 05:58 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 05:58 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 05:54 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-30 05:54 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 06:09 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 06:01 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 06:11 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-30 06:15 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 06:15 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 05:58 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 06:01 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 06:00 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 06:23 - [日本领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 06:02 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 06:22 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 06:10 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 06:16 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 06:01 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 06:22 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 06:16 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:50 - [世界杯](http://www.share.minike.top/Article/details/1983824896.shtml)
-- 2026-06-30 06:16 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/788289208.shtml)
-- 2026-06-30 06:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/62247.shtml)
-- 2026-06-30 05:52 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/075297250.shtml)
-- 2026-06-30 06:01 - [恋与深空 日服](http://www.share.minike.top/Article/details/446706.shtml)
-- 2026-06-30 05:50 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/574533246501.shtml)
-- 2026-06-30 06:13 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/79947437518.shtml)
-- 2026-06-30 05:55 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/446375307.shtml)
-- 2026-06-30 06:14 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/9868081.shtml)
-- 2026-06-30 05:57 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/1351728805.shtml)
-- 2026-06-30 06:16 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/21286589.shtml)
-- 2026-06-30 06:10 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/10314944353.shtml)
-- 2026-06-30 05:49 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/6031784.shtml)
-- 2026-06-30 05:56 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/525445007.shtml)
-- 2026-06-30 06:17 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/5403552520.shtml)
+- 2026-06-30 06:09 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/38188485.shtml)
+- 2026-06-30 06:20 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/310082290.shtml)
+- 2026-06-30 06:03 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/013214.shtml)
+- 2026-06-30 06:10 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/68498.shtml)
+- 2026-06-30 06:03 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/129467.shtml)
+- 2026-06-30 05:59 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/59694541.shtml)
+- 2026-06-30 06:03 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/734107741.shtml)
+- 2026-06-30 06:07 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/803359163.shtml)
+- 2026-06-30 06:07 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/924265112970.shtml)
+- 2026-06-30 06:21 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/23201116.shtml)
+- 2026-06-30 06:05 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/8120877.shtml)
+- 2026-06-30 06:14 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/5228529.shtml)
+- 2026-06-30 06:13 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/700429.shtml)
+- 2026-06-30 05:54 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/01102504.shtml)
+- 2026-06-30 06:18 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/49287565.shtml)

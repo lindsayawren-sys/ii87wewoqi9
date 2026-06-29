@@ -1,57 +1,55 @@
-# 尾盘突变！多只大牛股，跳水
+# 第二届“苏超”开赛网络信息量达首届120倍
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】多只牛股尾盘突变 中国基金报记者 泰勒 大家好啊，今天市场的表现，应该说是“五五开”，涨跌个股数量基本持平！ 6月16日，沪指全天窄幅震荡，创业板指走势较强。截至收盘，沪指跌0.11%，深成指涨0.93%，创业板指涨1.72%。 两市共2730只个股上涨，138只个股涨停，2677
+中新网4月15日电(吴家驹)2026年“苏超”刚开赛就收获巨大关注。 第三方机构数据显示，统计两届“苏超”开赛网络数据，2025年“苏超”开赛24小时，全网相关信息量1829条；2026年“苏超”开赛24小时，全网相关信息量激增至21.99万条，是上届的120倍。 对比信息类型占比可见，2026年开赛后，“苏超”相关评论信息量较2025年增长5.38%，表明网民讨论意愿增强；转
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网4月15日电(吴家驹)2026年“苏超”刚开赛就收获巨大关注。
 
-来源：中国基金报 【导读】多只牛股尾盘突变 中国基金报记者 泰勒 大家好啊，今天市场的表现，应该说是“五五开”，涨跌个股数量基本持平！
+第三方机构数据显示，统计两届“苏超”开赛网络数据，2025年“苏超”开赛24小时，全网相关信息量1829条；2026年“苏超”开赛24小时，全网相关信息量激增至21.99万条，是上届的120倍。
 
-6月16日，沪指全天窄幅震荡，创业板指走势较强。
+对比信息类型占比可见，2026年开赛后，“苏超”相关评论信息量较2025年增长5.38%，表明网民讨论意愿增强；转发信息量增长近20%，侧面表明“苏超”网络关注度大幅攀升。
 
-截至收盘，沪指跌0.11%，深成指涨0.93%，创业板指涨1.72%。
+分析媒体信息占比情况可见，2025年“苏超”开赛后，媒体信息量占全网信息量的28.43%，2026年“苏超”开赛后媒体信息量占比下降至5.94%，表明“苏超”的网络传播主力已由媒体转为普通网络用户。
 
-两市共2730只个股上涨，138只个股涨停，2677只个股下跌。
+统计媒体信息发布量，各级媒体关于“苏超”开赛的信息发布量均有较高增长，其中，地市级媒体信息发布量增长达27.59倍，表明“苏超”在各级媒体的影响力显著提升。
 
-AI硬件股持续爆发，其中铜箔方向表现较好，诺德股份（维权）、双星新材均实现2连板。
-
-超级电容方向，江海股份、华锋股份等涨停。
-
-PCB方向，大族激光、宝鼎科技（维权）等涨停。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:59 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 06:13 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 06:04 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-30 06:07 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 05:48 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 06:01 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 05:49 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 06:01 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 05:54 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 06:10 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 05:55 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 06:15 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 06:18 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 06:16 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 06:02 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 05:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 05:56 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 05:54 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 06:20 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 06:13 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 06:06 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 06:21 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 06:18 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 06:13 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:13 - [周生如故](http://www.blog.minike.top/Article/details/34188525783.shtml)
-- 2026-06-30 05:49 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/99761992.shtml)
-- 2026-06-30 06:13 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/5620717538.shtml)
-- 2026-06-30 06:09 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/10475431.shtml)
-- 2026-06-30 05:56 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/142439.shtml)
-- 2026-06-30 06:15 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/7579546.shtml)
-- 2026-06-30 05:50 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/660394146551.shtml)
-- 2026-06-30 05:53 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/695033939790.shtml)
-- 2026-06-30 06:08 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/84983.shtml)
-- 2026-06-30 06:12 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/895114542028.shtml)
-- 2026-06-30 06:06 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/866732.shtml)
-- 2026-06-30 06:11 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/870268765787.shtml)
-- 2026-06-30 06:15 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/50654405.shtml)
-- 2026-06-30 06:13 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/2144592289.shtml)
-- 2026-06-30 06:16 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/69685845.shtml)
+- 2026-06-30 06:11 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/415223.shtml)
+- 2026-06-30 05:59 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/472428936808.shtml)
+- 2026-06-30 06:11 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/687051983987.shtml)
+- 2026-06-30 06:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/725539.shtml)
+- 2026-06-30 06:08 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/2172669.shtml)
+- 2026-06-30 06:15 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/256011872942.shtml)
+- 2026-06-30 06:07 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/14318.shtml)
+- 2026-06-30 05:55 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/53867990322.shtml)
+- 2026-06-30 06:02 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/4590804108.shtml)
+- 2026-06-30 05:57 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/025368652.shtml)
+- 2026-06-30 06:18 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/0097209085.shtml)
+- 2026-06-30 05:54 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/7791874159.shtml)
+- 2026-06-30 06:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/91882.shtml)
+- 2026-06-30 06:01 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/98781.shtml)
+- 2026-06-30 05:59 - [日本淘汰](https://www.blog.minike.top/Article/details/733242.shtml)

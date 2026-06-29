@@ -1,58 +1,61 @@
-# 存储“一哥”、光模块“一哥”、PCB“一哥”，A股前三
+# 中金：维持腾讯控股“跑赢行业”评级 目标价666港元
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，A股市场全线飘红。今日收盘，上证指数涨0.4%，深证成指涨1.31%，创业板指涨1.56%，科创综指涨3.21%。全市场1723只个股上涨，3734只个股下跌，全天成交额31140亿元，较上一交易日增加277亿元。 同花顺数据显示，今日电子化学品、元件、存储芯片、半导体设备、面板板块涨幅居前；影
+中金发布研报称，维持腾讯控股（00700）26、27年盈利预测不变。维持“跑赢行业”评级及目标价666港元，对应20x 26eNon-IFRS P/E，较当前股价有32%上行空间。当前交易于15x/13x 26e/27e Non-IFRS P/E。如果将长周期AI布局看成一场战役，确保不败者，更有概率获胜，该行认为腾讯恰是那个不败者。只要腾讯坚持弱者心态，微信坚持价值创造原则，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中金发布研报称，维持腾讯控股（00700）26、27年盈利预测不变。
 
-6月17日，A股市场全线飘红。
+维持“跑赢行业”评级及目标价666港元，对应20x 26eNon-IFRS P/E，较当前股价有32%上行空间。
 
-今日收盘，上证指数涨0.4%，深证成指涨1.31%，创业板指涨1.56%，科创综指涨3.21%。
+当前交易于15x/13x 26e/27e Non-IFRS P/E。
 
-全市场1723只个股上涨，3734只个股下跌，全天成交额31140亿元，较上一交易日增加277亿元。
+如果将长周期AI布局看成一场战役，确保不败者，更有概率获胜，该行认为腾讯恰是那个不败者。
 
-同花顺数据显示，今日电子化学品、元件、存储芯片、半导体设备、面板板块涨幅居前；影视院线、旅游及酒店、煤炭开采加工、养鸡、小金属板块跌幅居前。
+只要腾讯坚持弱者心态，微信坚持价值创造原则，中国科技巨头不陷入非理性扩张竞争的投资困境，腾讯过度的投资的概率不高。
 
-今日，PCB概念延续强势表现，宏昌电子7天5板，华正新材3连板。
+中金主要观点如下： 腾讯布局AI为何看起来“有些慢”？
 
-市场消息称，在供给端，高端覆铜板产线建设周期长（超过18个月），叠加下游客户严格的认证体系（周期长达1—2年），导致新增高端产能落地缓慢，供需缺口持续扩大，推高了产品价格。
+如将布局AI简化为AI组织优先级、资本开支和产品产出，相对于同行，腾讯AI动作看似较慢，该行认为原因可能来自腾讯独特的产品基因（社交），以及偏自下而上的组织架构和文化等因素：本轮AI需要千亿级资本开支、集中式组织调整，高度依赖自上而下的快速决策。
 
-存储芯片板块今日走出亮眼行情。
+腾讯AI战略为何首先强调主业韧性？
 
 ## 相关推荐
 
-- 2026-06-30 06:06 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 06:10 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 06:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 06:05 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 05:58 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 06:10 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 06:15 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 06:14 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 06:00 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 06:13 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 06:07 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 05:50 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 05:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 06:17 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-30 06:06 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 05:59 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 05:57 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 06:10 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 05:57 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 06:09 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 06:00 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 06:01 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 06:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 06:23 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 06:08 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 06:07 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 06:00 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:17 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/754206465490.shtml)
-- 2026-06-30 05:53 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/86203962104.shtml)
-- 2026-06-30 06:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/492433.shtml)
-- 2026-06-30 06:05 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/43165204.shtml)
-- 2026-06-30 05:55 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/193516591.shtml)
-- 2026-06-30 06:09 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/971529259905.shtml)
-- 2026-06-30 06:16 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/02412.shtml)
-- 2026-06-30 06:16 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/369704702730.shtml)
-- 2026-06-30 05:54 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/2159973.shtml)
-- 2026-06-30 06:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/92475727492.shtml)
-- 2026-06-30 06:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/998957152.shtml)
-- 2026-06-30 06:16 - [这一刀 会很帅](https://www.share.minike.top/Article/details/1743789.shtml)
-- 2026-06-30 05:48 - [恋与深空 日服](https://www.blog.minike.top/Article/details/52855.shtml)
-- 2026-06-30 06:00 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/300741770601.shtml)
-- 2026-06-30 05:49 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/3936572.shtml)
+- 2026-06-30 05:55 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/368657868.shtml)
+- 2026-06-30 06:17 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/313229086.shtml)
+- 2026-06-30 06:01 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/39229684634.shtml)
+- 2026-06-30 05:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/22933817.shtml)
+- 2026-06-30 06:14 - [毒液2](http://www.share.kurohicncr.top/Article/details/08816940832.shtml)
+- 2026-06-30 06:20 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/2767171.shtml)
+- 2026-06-30 06:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/88593967.shtml)
+- 2026-06-30 06:19 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/929282277.shtml)
+- 2026-06-30 06:18 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/074143998.shtml)
+- 2026-06-30 06:10 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/1135997143.shtml)
+- 2026-06-30 06:20 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/30844418956.shtml)
+- 2026-06-30 06:00 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/338004835.shtml)
+- 2026-06-30 06:03 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/249394418.shtml)
+- 2026-06-30 06:09 - [《贺子珍》](https://www.share.minike.top/Article/details/6219577.shtml)
+- 2026-06-30 06:08 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/9321220084.shtml)

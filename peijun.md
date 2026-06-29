@@ -1,56 +1,57 @@
-# 上海无党派人士开展专项民主监督 加快构建现代化产业体系
+# 泰国宋干节旅游业总收入预计超300亿泰铢
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网上海6月16日电(范宇斌)近日，无党派人士依托上海中青年知识分子联谊会(简称“上海市知联会”)，赴上海市松江区开展“巩固壮大实体经济根基，加快构建现代化产业体系”专项民主监督。 根据工作方案，专项民主监督工作组在上海市委统战部召开专项民主监督工作启动会。上海市委统战部副部长沈立新作动员讲话，上海市知联会会长、中国科学院院士俞飚主持启动会。 启动会后，俞飚、沈立新带领23名
+中新社曼谷4月14日电 (李映民 刘宇博)泰国曼谷市政府在4月14日召开的新闻发布会上透露，10日至13日，曼谷各大宋干节活动区域累计参与人数突破138万人次，创下近年新高；与此同时，泰国国家旅游局透露，预计11日至15日全国宋干节旅游业总收入将突破303.5亿泰铢，同比增长6%，刷新历年宋干节经济收益纪录。曼谷市长查察·西提潘表示，今年宋干节曼谷节庆气氛异常火爆，暹罗广场、是
 
 ## 正文
 
-中新网上海6月16日电(范宇斌)近日，无党派人士依托上海中青年知识分子联谊会(简称“上海市知联会”)，赴上海市松江区开展“巩固壮大实体经济根基，加快构建现代化产业体系”专项民主监督。
+中新社曼谷4月14日电 (李映民 刘宇博)泰国曼谷市政府在4月14日召开的新闻发布会上透露，10日至13日，曼谷各大宋干节活动区域累计参与人数突破138万人次，创下近年新高；与此同时，泰国国家旅游局透露，预计11日至15日全国宋干节旅游业总收入将突破303.5亿泰铢，同比增长6%，刷新历年宋干节经济收益纪录。
 
-根据工作方案，专项民主监督工作组在上海市委统战部召开专项民主监督工作启动会。
+曼谷市长查察·西提潘表示，今年宋干节曼谷节庆气氛异常火爆，暹罗广场、是隆路、暹罗天地、音乐节现场、班塔通路及考山路等6大热门区域吸引大量民众及游客。
 
-上海市委统战部副部长沈立新作动员讲话，上海市知联会会长、中国科学院院士俞飚主持启动会。
+从全国范围来看，今年宋干节旅游市场同样全面升温。
 
-启动会后，俞飚、沈立新带领23名无党派人士组成专项民主监督工作组赴松江区调研座谈。
+泰国国家旅游局局长塔佩妮透露，外国游客约50万人次，同比增长4%，贡献收入约81亿泰铢；国内游客约596.3万人次，同比增长7%，创收约222.5亿泰铢。
 
-松江区委副书记、区长王靖，松江区委常委、统战部部长朱大章，松江副区长陈容以及松江区相关职能部门负责人出席座谈会。
+塔佩妮表示，2026年宋干节不仅创下亮眼经济成绩，更再次展现泰国作为“世界级泼水节节庆目的地”的吸引力。
 
-“松江区要积极抢抓转型发展机遇，聚力重塑主导产业核心竞争力，聚焦‘四个区’功能定位，坚持工业立区战略方针，加快建设先进制造业发展集聚区、新质生产力发展先行区，推动区域产业经济企稳回升。
+从曼谷超百万狂欢人潮到全国旅游收入突破300亿泰铢，反映出泰国旅游业持续强劲复苏，也体现出政府在大型节庆管理、安全保障及游客服务方面的综合能力显著提升。
 
-”王靖表示，松江区将以此次专项民主监督为契机，切实把监督成果转化为推动产业高质量发展的务实举措。
+宋干节是泰国新年节，已被列入联合国教科文组织人类非物质文化遗产代表作名录，体现了泰国文化的独特价值。
 
-俞飚表示，作为上海西南重要的产业集聚区，松江区紧扣“四个区”功能定位，加快构建以实体经济为支撑的“2+4”现代化产业体系，产业规模持续壮大、特色赛道集群成势，成绩令人鼓舞。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:59 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 06:03 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 06:04 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-30 06:01 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 05:51 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 05:50 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 06:00 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 05:49 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 05:54 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 05:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 06:09 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 06:15 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 06:03 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 06:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 06:20 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 05:54 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 06:08 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 06:03 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 06:23 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 05:58 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 05:54 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:14 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/53053.shtml)
-- 2026-06-30 05:52 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/32839750612.shtml)
-- 2026-06-30 06:17 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/348144.shtml)
-- 2026-06-30 06:05 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/7021544.shtml)
-- 2026-06-30 05:59 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/46523572.shtml)
-- 2026-06-30 06:04 - [日本反击率先破门](http://www.blog.minike.top/Article/details/0913129760.shtml)
-- 2026-06-30 06:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/597195704530.shtml)
-- 2026-06-30 06:17 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/88944.shtml)
-- 2026-06-30 05:56 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/0227188.shtml)
-- 2026-06-30 06:01 - [第一炉香](http://www.share.minike.top/Article/details/77218.shtml)
-- 2026-06-30 06:04 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/8476604203.shtml)
-- 2026-06-30 06:02 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/8871310.shtml)
-- 2026-06-30 06:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/49172.shtml)
-- 2026-06-30 06:02 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/4059281.shtml)
-- 2026-06-30 06:04 - [天道](http://www.share.minike.top/Article/details/0678866494.shtml)
+- 2026-06-30 06:08 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/1344175.shtml)
+- 2026-06-30 06:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/965542174040.shtml)
+- 2026-06-30 06:03 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/62492890965.shtml)
+- 2026-06-30 06:12 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/46341343.shtml)
+- 2026-06-30 06:10 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/678314.shtml)
+- 2026-06-30 06:13 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/49134034413.shtml)
+- 2026-06-30 06:01 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/3789209.shtml)
+- 2026-06-30 05:54 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/57092785657.shtml)
+- 2026-06-30 06:02 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/93737226761.shtml)
+- 2026-06-30 06:18 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/369443500459.shtml)
+- 2026-06-30 06:07 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/2603940776.shtml)
+- 2026-06-30 06:00 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/4006704531.shtml)
+- 2026-06-30 06:05 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/402451176.shtml)
+- 2026-06-30 06:20 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/05335000878.shtml)
+- 2026-06-30 06:03 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/5856365865.shtml)

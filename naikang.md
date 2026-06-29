@@ -1,58 +1,56 @@
-# 沈阳发布“十五五”规划纲要 锚定2030年经济总量破万亿
+# 科学认识把握“党的自我革命重在治权”
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网沈阳6月16日电(杨茜茜)“开局起步‘十五五’奋力推动新时代辽宁全面振兴取得新突破”系列主题新闻发布会沈阳专场16日举行。沈阳市人民政府市长吕志成现场介绍《沈阳市国民经济和社会发展第十五个五年规划纲要》相关情况，明确未来五年振兴发展的任务书与施工图，提出加快建设东北亚国际化中心城市，谋划超480个重大项目，推动2030年经济总量迈入万亿元行列。 据介绍，沈阳市“十五五”规
+科学认识把握“党的自我革命重在治权”(深入学习贯彻习近平新时代中国特色社会主义思想) 习近平总书记在二十届中央纪委五次全会上发表重要讲话强调：“党的自我革命重在治权，把权力关进制度笼子是新时代全面从严治党的一项重要任务。”这一重要论述，深化了我们党对党的自我革命的规律性认识，为深入推进党的自我革命和全面从严治党提供了根本遵循、指明了前进方向。 推进党的自我革命，关键是在法治轨道
 
 ## 正文
 
-中新网沈阳6月16日电(杨茜茜)“开局起步‘十五五’奋力推动新时代辽宁全面振兴取得新突破”系列主题新闻发布会沈阳专场16日举行。
+科学认识把握“党的自我革命重在治权”(深入学习贯彻习近平新时代中国特色社会主义思想) 习近平总书记在二十届中央纪委五次全会上发表重要讲话强调：“党的自我革命重在治权，把权力关进制度笼子是新时代全面从严治党的一项重要任务。
 
-沈阳市人民政府市长吕志成现场介绍《沈阳市国民经济和社会发展第十五个五年规划纲要》相关情况，明确未来五年振兴发展的任务书与施工图，提出加快建设东北亚国际化中心城市，谋划超480个重大项目，推动2030年经济总量迈入万亿元行列。
+”这一重要论述，深化了我们党对党的自我革命的规律性认识，为深入推进党的自我革命和全面从严治党提供了根本遵循、指明了前进方向。
 
-据介绍，沈阳市“十五五”规划纲要设置5类25项主要发展指标，部署15个领域重点任务，紧扣东北亚国际化中心城市定位，重点打造“四个中心、一个枢纽”。
+推进党的自我革命，关键是在法治轨道上规范和制约公权力 “党的自我革命重在治权”，是习近平总书记关于党的自我革命的重要思想的重要内容，深刻揭示了“治权”与“党的自我革命”之间的内在联系。
 
-建设具有国际竞争力的国家先进制造中心是核心抓手。
+完善党的自我革命制度规范体系、健全全面从严治党体系，其中一项重要内容在于加强对权力的制约和监督。
 
-作为全国重要先进制造业基地，沈阳将构建“3+4+3”现代化产业体系：推动汽车及零部件、装备制造、食品三大传统产业转型升级；培育壮大航空航天、生物医药及医疗装备、新一代信息技术、新能源四大战略性新兴产业；前瞻布局具身智能、未来材料、深地深海空天装备三大未来产业。
+破解腐败这一最大威胁，推进党的自我革命，关键是在法治轨道上规范和制约公权力。
 
-同步推进数字沈阳建设，大力发展人工智能，力争2027年实现工业企业数字化改造应改尽改，打造更多大国重器。
+这深刻表明，推进党的自我革命的重点和关键环节是“治权”。
 
-其余三个中心与枢纽协同推进：建设具有全国影响力的区域科技创新中心，依托浑南科技城集聚创新资源，布局三大国家实验室基地，目标2030年科技型企业突破5万家；做强优质高效的东北现代服务业中心，推动生产性服务业向价值链高端延伸、生活性服务业提质升级，2030年全市服务业增加值突破7300亿元；塑造独具魅力的区域性文化中心，推动文旅体商深度融合，持续打响四季文旅品牌；全面提升国际化现代综合枢纽能级，实施“枢纽+开放”战略，推动交通、物流、信息三大枢纽扩容提质，“十五五”末期全市算力规模突破30000P。
+对党的自我革命内在规律的深刻把握。
 
-发布会上，相关负责人还就营商环境、城市建设、民生保障等热点问题回应媒体关切。
+腐败的本质是权力滥用，权力一旦脱离有效制约和监督，权力滥用、贪污腐化现象就在所难免。
 
 ## 相关推荐
 
-- 2026-06-30 05:50 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 05:56 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 05:58 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 06:14 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 06:08 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 05:51 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 06:13 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 05:58 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 06:03 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 05:54 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 05:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 05:57 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 06:11 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 06:14 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 06:23 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 06:20 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 06:19 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 06:13 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 06:14 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 06:08 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 05:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 06:19 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:07 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/64308976719.shtml)
-- 2026-06-30 06:03 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/646164.shtml)
-- 2026-06-30 06:13 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/711600.shtml)
-- 2026-06-30 05:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/86825318929.shtml)
-- 2026-06-30 06:15 - [刘必安等16人非法集资案二审宣判](https://www.blog.kurohicncr.top/Article/details/8711477.shtml)
-- 2026-06-30 06:00 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/2227204.shtml)
-- 2026-06-30 06:07 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/438714983688.shtml)
-- 2026-06-30 06:03 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/5975688706.shtml)
-- 2026-06-30 06:10 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/631705665.shtml)
-- 2026-06-30 06:00 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/4285617128.shtml)
-- 2026-06-30 06:17 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/05749818.shtml)
-- 2026-06-30 06:02 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/7687389972.shtml)
-- 2026-06-30 05:58 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/397634253106.shtml)
-- 2026-06-30 05:59 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/1169743.shtml)
-- 2026-06-30 06:09 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/53105130378.shtml)
+- 2026-06-30 06:13 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/836054653633.shtml)
+- 2026-06-30 06:19 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/05431923.shtml)
+- 2026-06-30 06:11 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/501404872.shtml)
+- 2026-06-30 06:06 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/134849.shtml)
+- 2026-06-30 06:06 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/964126.shtml)
+- 2026-06-30 06:07 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/694809.shtml)
+- 2026-06-30 06:11 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/80046.shtml)
+- 2026-06-30 05:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/35832250.shtml)
+- 2026-06-30 05:57 - [巴西2比1日本](https://www.share.minike.top/Article/details/323784488.shtml)
+- 2026-06-30 06:00 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/154126.shtml)
+- 2026-06-30 06:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/2933479419.shtml)
+- 2026-06-30 06:14 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/108798477423.shtml)
+- 2026-06-30 06:09 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/447436246119.shtml)
+- 2026-06-30 05:56 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/4877423814.shtml)
+- 2026-06-30 06:14 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/45236.shtml)

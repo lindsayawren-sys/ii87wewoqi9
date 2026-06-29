@@ -1,61 +1,61 @@
-# 端午小长假深圳铁路预计发送旅客173万人次
+# 民进党前民代陈欧珀涉贪污等罪 一审被判16年
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网深圳6月16日电 (索有为 马鑫宇 岳千琳)深圳铁路部门16日发布消息称，2026年端午小长假深圳铁路预计发送旅客173.0万人次，较2025年同期增长6.7%，端午节当天(6月19日)为客流最高峰日，深圳北站预计发送旅客37.9万人次，深圳铁路预计发送旅客55.3万人次，有望创下端午假期运输历史新高。 今年端午假期，旅客出行需求旺盛，学生流、旅游流将成为本次假期客流的核
+中新社台北4月14日电 台当局立法机构民进党籍前民意代表陈欧珀被控收贿、诈领助理费，犯罪所得逾874万元(新台币，下同)。台北地方法院14日对此作出一审宣判，依贪污等罪判处陈欧珀16年徒刑、褫夺公权6年。 陈欧珀为台湾宜兰县人，2012年起连续担任三届台立法机构宜兰县选区民代，后因卷入台湾互联网借贷平台“im.B”诈骗案退出2024年的立法机构选举。“im.B诈骗案”被台媒称为
 
 ## 正文
 
-中新网深圳6月16日电 (索有为 马鑫宇 岳千琳)深圳铁路部门16日发布消息称，2026年端午小长假深圳铁路预计发送旅客173.0万人次，较2025年同期增长6.7%，端午节当天(6月19日)为客流最高峰日，深圳北站预计发送旅客37.9万人次，深圳铁路预计发送旅客55.3万人次，有望创下端午假期运输历史新高。
+中新社台北4月14日电 台当局立法机构民进党籍前民意代表陈欧珀被控收贿、诈领助理费，犯罪所得逾874万元(新台币，下同)。
 
-今年端午假期，旅客出行需求旺盛，学生流、旅游流将成为本次假期客流的核心增长点。
+台北地方法院14日对此作出一审宣判，依贪污等罪判处陈欧珀16年徒刑、褫夺公权6年。
 
-据深圳铁路部门相关负责人介绍，铁路部门6月15日起推出“乘高铁、品荔枝、粤游粤精彩”活动，特定群体购买指定动车组二等座车票，在虎门站、茂名南站、湛江北站出站后，凭相关证件可至指定窗口退还已购车票票价的20%(即在执行票价的基础上打八折)，活动将进一步带来客流增量。
+陈欧珀为台湾宜兰县人，2012年起连续担任三届台立法机构宜兰县选区民代，后因卷入台湾互联网借贷平台“im.B”诈骗案退出2024年的立法机构选举。
 
-为满足旅客出行需要，深圳铁路部门将在端午假期运输期间实行高峰运行图，加大对重点时段和热门方向的运力投放，计划增开深圳往返香港、广州、潮汕、汕头、厦门、福州、湛江、桂林、南昌、长沙、岳阳等方向旅客列车804趟，其中夜间高铁149趟。
+“im.B诈骗案”被台媒称为台湾首宗大型P2P诈骗案，受害者超5000人、涉案金额逾90亿元。
 
-针对端午假期客流量大、旅客出行需求多样化的特点，深圳北站、深圳站、深圳东站等车站提前优化旅客进出站流线，高峰时段将增开安检通道和验证口，动态调整人工窗口数量，每日增派60名志愿者，联合铁路派出所加强候车区、进出站口等重点区域巡逻。
+综合中央社、联合新闻网和中时新闻网等台媒报道，台北地检署表示，陈欧珀涉嫌自2016年至2023年间，借民代职权，以召开协调会、公开质询等方式多次护航业者，借此收受不当利益逾463万元。
 
-各车站“迎春花”服务队重点做好老幼病残孕等重点旅客的“一对一”预约帮扶。
+此外，陈欧珀和妻子在2012年至2022年间，涉嫌浮报助理薪资，向立法机构诈领补助逾411万元，作为办公室零用金使用。
 
-据悉，深圳铁路部门与属地交通部门建立信息共享和应急联动机制，夜间列车到达高峰时段，地铁将延长运营服务时间，公交增开夜班专线，全力保障到达旅客“最后一公里”畅通无忧。
+2025年8月，检方依收受贿赂等5项罪名共求处陈欧珀有期徒刑24年2个月。
 
-(完)
+同年11月24日，陈欧珀被台北地方法院裁定以500万元交保，并被限制出境、出海，另被施以电子监控。
 
 ## 相关推荐
 
-- 2026-06-30 06:12 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 06:00 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 05:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 05:57 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-30 06:08 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 06:06 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 05:53 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 05:55 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 06:10 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 06:15 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-30 05:48 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 06:02 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 05:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 06:17 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 06:00 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 06:07 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 06:06 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 06:02 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 06:21 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 05:57 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 06:12 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 05:57 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 05:58 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 06:02 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 06:07 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 06:16 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 05:59 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 06:05 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 05:55 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 06:00 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:00 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/495624716.shtml)
-- 2026-06-30 06:02 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/42054634189.shtml)
-- 2026-06-30 06:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/922847.shtml)
-- 2026-06-30 06:15 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/55319.shtml)
-- 2026-06-30 06:03 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/977912179600.shtml)
-- 2026-06-30 06:14 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/657857944.shtml)
-- 2026-06-30 05:53 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/382388.shtml)
-- 2026-06-30 06:08 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/26250922.shtml)
-- 2026-06-30 05:50 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/9742149119.shtml)
-- 2026-06-30 05:50 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/042374.shtml)
-- 2026-06-30 06:13 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/39836.shtml)
-- 2026-06-30 05:57 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/298955.shtml)
-- 2026-06-30 05:58 - [日本进球](https://www.blog.kurohicncr.top/Article/details/4990192.shtml)
-- 2026-06-30 05:52 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/95929.shtml)
-- 2026-06-30 05:56 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/062178.shtml)
+- 2026-06-30 06:14 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/973621090097.shtml)
+- 2026-06-30 05:54 - [美股](https://www.share.kurohicncr.top/Article/details/7827513.shtml)
+- 2026-06-30 06:15 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/79119.shtml)
+- 2026-06-30 06:10 - [巴西补时绝杀日本](http://www.share.minike.top/Article/details/870956791198.shtml)
+- 2026-06-30 06:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/10982331.shtml)
+- 2026-06-30 06:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/806716415.shtml)
+- 2026-06-30 06:23 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/6103405.shtml)
+- 2026-06-30 06:05 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/29324.shtml)
+- 2026-06-30 06:15 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/567058.shtml)
+- 2026-06-30 06:09 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/3503062.shtml)
+- 2026-06-30 06:15 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/647574.shtml)
+- 2026-06-30 06:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/251990.shtml)
+- 2026-06-30 06:05 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/489345358909.shtml)
+- 2026-06-30 06:12 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/99440.shtml)
+- 2026-06-30 06:00 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/0351939.shtml)

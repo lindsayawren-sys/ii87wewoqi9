@@ -1,54 +1,56 @@
-# 麦记牛奶总经理谢永亮证实3-4月整体业绩下滑20%多
+# 从临危受命到周期穿越，招行王良的履职答卷与新帅悬念
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-针对近期关于品牌团队跑路、总部对加盟商有罚款KPI等一系列传闻，糖水连锁品牌麦记牛奶总经理谢永亮独家对界面新闻表示，是恶意诽谤。 他对界面新闻称，食品安全卫生是核心要素，对于违反食品安全的门店确实有适当处罚，这也是必须手段，同时也是所有连锁品牌的常规管理措施，不存在不恰当之处。 麦记牛奶目前门店数量在1000家左右。谢永亮对界面新闻称，2026年3-4月整体业绩确实下滑20%多
+究竟谁能接掌招行？ 在中国股份制银行的发展史上，招商银行的每一次掌门更迭，从来都不只是一家银行的内部人事变动，而是牵动整个中国金融圈与资本市场的标志性事件。 从马蔚华时代奠定“零售之王”的行业底色，到田惠宇任期内开启大财富管理的战略探索，再到2022年突发人事震荡后王良临危受命，这家总资产突破13万亿的股份行龙头，其掌舵人的进退之间，映照着的是中国银行业的周期变迁。 近日，银行
 
 ## 正文
 
-针对近期关于品牌团队跑路、总部对加盟商有罚款KPI等一系列传闻，糖水连锁品牌麦记牛奶总经理谢永亮独家对界面新闻表示，是恶意诽谤。
+究竟谁能接掌招行？
 
-他对界面新闻称，食品安全卫生是核心要素，对于违反食品安全的门店确实有适当处罚，这也是必须手段，同时也是所有连锁品牌的常规管理措施，不存在不恰当之处。
+在中国股份制银行的发展史上，招商银行的每一次掌门更迭，从来都不只是一家银行的内部人事变动，而是牵动整个中国金融圈与资本市场的标志性事件。
 
-麦记牛奶目前门店数量在1000家左右。
+从马蔚华时代奠定“零售之王”的行业底色，到田惠宇任期内开启大财富管理的战略探索，再到2022年突发人事震荡后王良临危受命，这家总资产突破13万亿的股份行龙头，其掌舵人的进退之间，映照着的是中国银行业的周期变迁。
 
-谢永亮对界面新闻称，2026年3-4月整体业绩确实下滑20%多，有淡季和大环境的影响因素。
+近日，银行人事获悉，接替到龄退休的王良，招行原副行长王小青拟任招行党委书记，并在相关监管流程后正式出任行长。
 
-（界面新闻记者 马越）责任编辑：梁斌 SF055
+“底色” 招行的零售银行底色，成型于第二任行长马蔚华长达14年的执掌期。
+
+1999年，从央行系统调任的马蔚华接棒招行，直至2013年5月因年龄原因正式卸任，这位被称为“中国最具创新意识的银行家”，把招行从一家偏居深圳的区域性银行，打造成了国内零售银行的标杆，“一卡通”“一网通”“金葵花理财”等标志性创新，彻底改写了国内银行业的服务逻辑与竞争格局。
+
+接棒马蔚华的，是有着建行背景的田惠宇。
+
+在其9年任期中，招行资产规模从2013年的4万亿跃升至2021年的9.25万亿，归母净利润实现翻倍增长，同时启动了“零售金融3.0”战略，2021年末，招行零售AUM突破10.76万亿，市值站稳万亿大关，坐稳了国内股份行“头把交椅”。
 
 ## 相关推荐
 
-- 2026-06-30 06:14 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 06:15 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 06:09 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-30 05:56 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 05:53 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 06:16 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 06:08 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 05:55 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 06:00 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 06:05 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 06:00 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 06:08 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 06:16 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-30 06:07 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 05:55 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 05:58 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 06:18 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 06:15 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 06:12 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 06:22 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 06:13 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 05:54 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 06:21 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 06:03 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:17 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/018755202.shtml)
-- 2026-06-30 06:13 - [扬名立万](http://www.blog.minike.top/Article/details/86752199.shtml)
-- 2026-06-30 06:16 - [小娘惹](https://www.share.minike.top/Article/details/31666035879.shtml)
-- 2026-06-30 05:54 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/45106.shtml)
-- 2026-06-30 05:49 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/979652706473.shtml)
-- 2026-06-30 05:54 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/53031313193.shtml)
-- 2026-06-30 06:04 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/1601482120.shtml)
-- 2026-06-30 06:16 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/5560525508.shtml)
-- 2026-06-30 06:13 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/97694434.shtml)
-- 2026-06-30 06:11 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/079318595.shtml)
-- 2026-06-30 05:50 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/22727.shtml)
-- 2026-06-30 05:52 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/560894038.shtml)
-- 2026-06-30 05:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/16035.shtml)
-- 2026-06-30 06:11 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/48364.shtml)
-- 2026-06-30 06:07 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/1696702105.shtml)
+- 2026-06-30 05:54 - [日本进球](https://www.blog.minike.top/Article/details/840232035552.shtml)
+- 2026-06-30 06:00 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/722094410.shtml)
+- 2026-06-30 05:58 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/0460640.shtml)
+- 2026-06-30 06:01 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/09204537.shtml)
+- 2026-06-30 06:09 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/49150.shtml)
+- 2026-06-30 06:21 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/2225601.shtml)
+- 2026-06-30 06:23 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/3064696.shtml)
+- 2026-06-30 05:55 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/632019204410.shtml)
+- 2026-06-30 06:17 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/91659.shtml)
+- 2026-06-30 06:17 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/6608081.shtml)
+- 2026-06-30 06:23 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/4234025.shtml)
+- 2026-06-30 06:07 - [月亮](http://www.share.minike.top/Article/details/20147737.shtml)
+- 2026-06-30 05:54 - [明星大侦探第四季](https://www.share.minike.top/Article/details/59844995.shtml)
+- 2026-06-30 05:56 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/25578514550.shtml)
+- 2026-06-30 06:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/03364234.shtml)

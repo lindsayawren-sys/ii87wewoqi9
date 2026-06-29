@@ -1,61 +1,60 @@
-# 邱勇：科创成长层占科创板公司总数6% 总市值达到11% 成为资本市场支持科技创新的前沿阵地
+# 新华基金到底哪里出了问题？
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，在2026陆家嘴论坛上，上海证券交易所理事长邱勇表示，科创板“1+6”落地见效，试验田作用进一步发挥。 对于这一年来的工作，邱勇着重介绍了以下几个方面： 第一，科创改革效应不断显现。科创成长层落地以来，沐曦股份等8家未盈利企业成功登陆
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：资市会 连续不断的监管处罚。 作者|资市分子 老牌公募新华基金因一则约谈公告备受关注。 近日，央行重庆分行发布公告称约谈了新华基金。约谈中，该行通报了新华基金近年在金融统计工作中的差错情况，宣讲了防范和惩治统计造假、弄虚作假有关文件精神。针对数据报送差错较多、约谈后整改不力等问题，该行要求新华基金提高政治站位，压实整改责任
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：资市会 连续不断的监管处罚。
 
-6月17日，在2026陆家嘴论坛上，上海证券交易所理事长邱勇表示，科创板“1+6”落地见效，试验田作用进一步发挥。
+作者|资市分子 老牌公募新华基金因一则约谈公告备受关注。
 
-对于这一年来的工作，邱勇着重介绍了以下几个方面： 第一，科创改革效应不断显现。
+近日，央行重庆分行发布公告称约谈了新华基金。
 
-科创成长层落地以来，沐曦股份等8家未盈利企业成功登陆，寒武纪等6家企业首次盈利，实现了从孵化到毕业的闭环。
+约谈中，该行通报了新华基金近年在金融统计工作中的差错情况，宣讲了防范和惩治统计造假、弄虚作假有关文件精神。
 
-目前科创成长层占科创板公司总数6%，总市值达到11%，成为资本市场支持科技创新的前沿阵地。
+针对数据报送差错较多、约谈后整改不力等问题，该行要求新华基金提高政治站位，压实整改责任，加强源头数据质量管理，切实做好金融统计数据报送工作。
 
-二是前沿产业集聚效应持续放大，第五套标准重启，禾元生物等3家使用标准企业成功上市，商业航天领域配套规则落地并实现首单受理，人工智能领域的配套规则也在今天要发布。
+与此同时，新华基金就数据质量管理机制不健全、数据报送差错进行了深刻检讨，并汇报了下一步整改计划。
 
-预先审阅标杆案例长鑫科技、宇树科技成功过会，引入资深专业机构投资者在未盈利企业增资扩股等配套机制均有案例落地。
+后续，该行将向有关部门报送新华基金数据报送差错、管理失职等问题，并根据新华基金数据质量管控整改情况采取针对性措施，切实履行好金融业综合统计管理职责。
 
-三是审核效率明显提升，在严把入口关的基础上，不断完善审核流程，科创板IPO审核注册发行环节的平均用时压缩了50%，市场切实感受到科创板速度。
+（央行重庆分行官网，“资市会”截图） “资市会”发现，近几年，新华基金已多次因内控管理、信息披露等问题受到监管部门处罚，处罚措施包括但不限于警示函、责令改正等。
 
 ## 相关推荐
 
-- 2026-06-30 05:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 06:06 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 06:03 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 06:11 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 05:59 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 06:08 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 06:03 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 06:16 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 06:08 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 06:05 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 06:07 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 06:13 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 06:04 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 06:06 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 06:06 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 06:02 - [刘念回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 06:19 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 05:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 06:06 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 06:18 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 06:11 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 06:22 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 06:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 06:07 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 06:03 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 05:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 06:12 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 06:06 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 06:09 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:50 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/9608999.shtml)
-- 2026-06-30 05:58 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/16899.shtml)
-- 2026-06-30 06:07 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/866977025.shtml)
-- 2026-06-30 06:02 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/381636276.shtml)
-- 2026-06-30 06:08 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/10562492.shtml)
-- 2026-06-30 06:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/14592.shtml)
-- 2026-06-30 06:05 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/668519121.shtml)
-- 2026-06-30 06:17 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/239199.shtml)
-- 2026-06-30 06:03 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/9856825.shtml)
-- 2026-06-30 06:12 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/88511.shtml)
-- 2026-06-30 06:07 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/923056351.shtml)
-- 2026-06-30 06:10 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/339009833206.shtml)
-- 2026-06-30 05:52 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/0263404992.shtml)
-- 2026-06-30 06:01 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/81638124036.shtml)
-- 2026-06-30 05:53 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/23733669664.shtml)
+- 2026-06-30 05:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/00194291.shtml)
+- 2026-06-30 06:15 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/5361399.shtml)
+- 2026-06-30 06:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/129542.shtml)
+- 2026-06-30 06:08 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/006495.shtml)
+- 2026-06-30 06:04 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/88415.shtml)
+- 2026-06-30 05:57 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/519502.shtml)
+- 2026-06-30 06:23 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/43012597.shtml)
+- 2026-06-30 06:18 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/553031838.shtml)
+- 2026-06-30 06:00 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/719719877.shtml)
+- 2026-06-30 06:12 - [刘念回应](https://www.share.minike.top/Article/details/5877110303.shtml)
+- 2026-06-30 05:56 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/52957560.shtml)
+- 2026-06-30 06:17 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/848449887588.shtml)
+- 2026-06-30 06:03 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/61688397695.shtml)
+- 2026-06-30 06:14 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/06967.shtml)
+- 2026-06-30 06:19 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/246302.shtml)

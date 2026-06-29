@@ -1,58 +1,58 @@
-# 连涨三天市值狂增万亿美元！SpaceX一度超越亚马逊跻身全球前五
+# 季节性需求释放 中国多城住房租金现阶段性回升
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-来源：财联社 SpaceX股价继续走高，这家刚刚完成轰动性IPO的公司，在上市第三天就超越了亚马逊，成为全球市值第五大上市公司。 周二（6月16日）美股早盘，SpaceX股价一度涨超16%至224.77美元。截至收盘，涨幅收窄至4.83%报201.80美元，市值超2.6万亿美元。 这意味着，SpaceX市值一度已超过亚马逊，成为全球最具价值的第五大上市公司。在前两个交易日中，该
+中新社北京4月14日电 (记者 庞无忌)今年春节假期过后，中国多个重点城市住宅租金出现了阶段性回升态势。 中指研究院研究主管程威14日对媒体表示，根据该机构对中国50个重点城市住宅租赁价格的监测，2月份，50城住宅租金环比跌幅明显收窄，3月份50城住宅平均租金环比转为上涨0.09%，涨幅处于近24个月来高位。其中，人口净流入、产业支撑能力较强的核心城市租金回升幅度更明显。3月份
 
 ## 正文
 
-来源：财联社 SpaceX股价继续走高，这家刚刚完成轰动性IPO的公司，在上市第三天就超越了亚马逊，成为全球市值第五大上市公司。
+中新社北京4月14日电 (记者 庞无忌)今年春节假期过后，中国多个重点城市住宅租金出现了阶段性回升态势。
 
-周二（6月16日）美股早盘，SpaceX股价一度涨超16%至224.77美元。
+中指研究院研究主管程威14日对媒体表示，根据该机构对中国50个重点城市住宅租赁价格的监测，2月份，50城住宅租金环比跌幅明显收窄，3月份50城住宅平均租金环比转为上涨0.09%，涨幅处于近24个月来高位。
 
-截至收盘，涨幅收窄至4.83%报201.80美元，市值超2.6万亿美元。
+其中，人口净流入、产业支撑能力较强的核心城市租金回升幅度更明显。
 
-这意味着，SpaceX市值一度已超过亚马逊，成为全球最具价值的第五大上市公司。
+3月份，一线城市住宅租金集体上涨，其中北京、上海、深圳的住宅租金环比涨幅均在0.4%左右，涨幅在50个城市中排名前三。
 
-在前两个交易日中，该股已累涨42.59%，市值较IPO时增加近1万亿美元。
+另据克而瑞租赁住房研究中心监测数据，2026年3月，55城个人租赁市场套均总价约为每月2243元人民币，环比上涨2.9%，同比下降6.1%；其中，武汉、成都、长沙三城套均总价同环比齐涨。
 
-SpaceX持续的上涨反映投资者对该股需求旺盛，也缓解了市场此前对于这场史上最大规模IPO“体量过大、市场难以消化”的担忧。
+从集中式公寓租金价格来看，3月份，北上广等一线城市因外来人口租赁需求集中释放，推动公寓租金环比有所提升。
 
-与此同时，SpaceX的亮眼表现，也为今年其他人工智能巨头——估值接近1万亿美元的Anthropic和OpenAI——的上市铺平道路。
+程威分析称，当前住房租金价格环比回升，直接驱动要素是春节后季节性租赁需求的集中释放。
 
-发稿前不久，SpaceX宣布，已达成收购AI编程初创公司Cursor的协议，交易对Cursor的估值达到600亿美元。
+每年春节后都是中国住房租赁市场的传统旺季，务工人员返城就业、在职人员工作变动、高校毕业生进入实习求职阶段等多重要素推动下，租住需求集中释放，推动市场活跃度提升，进而实现租金回升。
 
 ## 相关推荐
 
-- 2026-06-30 06:07 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 06:07 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 06:15 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 06:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 06:12 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 05:55 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 05:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 05:51 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-30 06:02 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 06:16 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 06:17 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 05:59 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 05:54 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 05:59 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 06:05 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 06:20 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 06:07 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 06:03 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 06:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 06:02 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 05:55 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 06:20 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 05:59 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 06:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:55 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/445796.shtml)
-- 2026-06-30 06:07 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/402982252870.shtml)
-- 2026-06-30 05:57 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/59805659.shtml)
-- 2026-06-30 06:02 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/399669.shtml)
-- 2026-06-30 05:51 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/38927.shtml)
-- 2026-06-30 06:09 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/37677134.shtml)
-- 2026-06-30 06:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/68054723.shtml)
-- 2026-06-30 06:03 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/81623.shtml)
-- 2026-06-30 06:09 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/35724532.shtml)
-- 2026-06-30 05:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/4785794.shtml)
-- 2026-06-30 06:06 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/15069.shtml)
-- 2026-06-30 06:00 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/39564926.shtml)
-- 2026-06-30 05:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/35439113.shtml)
-- 2026-06-30 05:56 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/313660.shtml)
-- 2026-06-30 06:01 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/45548482.shtml)
+- 2026-06-30 06:20 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/29332.shtml)
+- 2026-06-30 06:04 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/6733201980.shtml)
+- 2026-06-30 06:20 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/83371415113.shtml)
+- 2026-06-30 05:58 - [千香](https://www.blog.kurohicncr.top/Article/details/590590154.shtml)
+- 2026-06-30 06:14 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/269478647430.shtml)
+- 2026-06-30 06:14 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/565194033.shtml)
+- 2026-06-30 06:03 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/1001816163.shtml)
+- 2026-06-30 06:10 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/71124.shtml)
+- 2026-06-30 05:56 - [扬名立万](http://www.share.kurohicncr.top/Article/details/982101445573.shtml)
+- 2026-06-30 06:17 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/2184141976.shtml)
+- 2026-06-30 06:15 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/68479581405.shtml)
+- 2026-06-30 05:58 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/4744078.shtml)
+- 2026-06-30 05:54 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/042810823643.shtml)
+- 2026-06-30 06:01 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/87172665.shtml)
+- 2026-06-30 06:10 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/07686931951.shtml)

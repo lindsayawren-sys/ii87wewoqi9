@@ -1,56 +1,60 @@
-# 美联储决议前获利了结升温，白银回落至70美元下方等待政策信号
+# 火爆朋友圈的SBTI测试究竟准不准
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 现货白银（XAG/USD）周二欧洲交易时段延续回调走势，价格运行在69.85美元附近。在此前一轮反弹触及阶段高位后，市场进入获利调整阶段。随着美联储即将公布最新利率决议，投资者整体交易情绪趋于谨慎，贵金属市场短期缺乏新的上涨催化因素。 市场预计，美联储将在本周货币政策会议上继续维持联邦基金利率于3.50%至3.75%区间不变。作为新任主席凯文·沃什首次主持的
+火爆朋友圈的SBTI测试究竟准不准 专家提醒：理性看待性格标签的价值与局限 许倩倩 杨璞 扬子晚报近期，SBTI(Silly Big Personality Test，直译为“傻乎乎大人格测试”)测试在全网掀起热潮，从社交平台的个人分享到职场团队的性格分析，成为大众探索自我、理解他人的热门工具。有人将其视为自我认知的“密钥”，也有人质疑其科学性与实用性。南京市中西医结合医院脑病
 
 ## 正文
 
-文章来源：汇通财经 现货白银（XAG/USD）周二欧洲交易时段延续回调走势，价格运行在69.85美元附近。
+火爆朋友圈的SBTI测试究竟准不准 专家提醒：理性看待性格标签的价值与局限 许倩倩 杨璞 扬子晚报近期，SBTI(Silly Big Personality Test，直译为“傻乎乎大人格测试”)测试在全网掀起热潮，从社交平台的个人分享到职场团队的性格分析，成为大众探索自我、理解他人的热门工具。
 
-在此前一轮反弹触及阶段高位后，市场进入获利调整阶段。
+有人将其视为自我认知的“密钥”，也有人质疑其科学性与实用性。
 
-随着美联储即将公布最新利率决议，投资者整体交易情绪趋于谨慎，贵金属市场短期缺乏新的上涨催化因素。
+南京市中西医结合医院脑病科(神经内科)副主任医师、国家二级心理咨询师张林提醒，从医学心理学角度而言，其价值与局限需要结合科学理论与现实场景客观审视。
 
-市场预计，美联储将在本周货币政策会议上继续维持联邦基金利率于3.50%至3.75%区间不变。
+通讯员 杨璞 扬子晚报/紫牛新闻记者 许倩倩 测试局限性与潜在风险并存 张林介绍，SBTI测试的理论根基可追溯至瑞士心理学家卡尔·荣格1921年提出的《心理类型学》，其类型学属于“特质论”范畴，强调人格的稳定性与分类性。
 
-作为新任主席凯文·沃什首次主持的重要政策会议，投资者将重点关注其对于未来通胀走势、经济增长以及利率路径的最新判断。
+“SBTI测试通过简化荣格的复杂理论，将抽象的心理特质转化为易于理解的标签，契合了大众对‘快速自我定位’的心理需求。
 
-若美联储释放偏鸽派信号，美元及美国国债收益率可能进一步回落，从而为包括白银在内的无息资产带来支撑。
+”张林表示，但信度(测试结果的稳定性)与效度(测试结果的准确性)是评估心理测试科学性的核心指标。
 
-与此同时，美国与伊朗达成初步和平框架协议，中东紧张局势明显降温，降低了此前能源供应中断带来的通胀风险。
+目前，SBTI测试的信效度并未得到广泛认可的学术验证。
 
-不过，由于最终协议内容以及霍尔木兹海峡未来全面恢复正常通航的具体安排仍存在不确定性，市场仍保留一定谨慎情绪，这有助于限制白银短线跌幅。
+” 在效度方面，SBTI测试的“类型划分”过于绝对化，忽略了人格的连续性与复杂性。
 
 ## 相关推荐
 
-- 2026-06-30 05:56 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 06:05 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-30 06:05 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 05:49 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 05:52 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 06:06 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 05:53 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 06:10 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 05:57 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 05:48 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 05:57 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 06:03 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 06:17 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 06:00 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 05:54 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 06:10 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 06:00 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 05:59 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 06:07 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 06:00 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 06:18 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-30 06:14 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 06:03 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-30 06:23 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:48 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/87217929423.shtml)
-- 2026-06-30 05:58 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/6426429960.shtml)
-- 2026-06-30 05:50 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/35415387591.shtml)
-- 2026-06-30 06:13 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/66678.shtml)
-- 2026-06-30 05:58 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/15319295.shtml)
-- 2026-06-30 06:17 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/20280431.shtml)
-- 2026-06-30 05:48 - [日本进球](http://www.share.kurohicncr.top/Article/details/939408120259.shtml)
-- 2026-06-30 06:06 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/794567280.shtml)
-- 2026-06-30 05:58 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/201280644113.shtml)
-- 2026-06-30 06:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/156761336193.shtml)
-- 2026-06-30 06:12 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/44574461.shtml)
-- 2026-06-30 06:16 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/997316.shtml)
-- 2026-06-30 06:02 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/51689960.shtml)
-- 2026-06-30 05:55 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/4103157190.shtml)
-- 2026-06-30 06:02 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/425197950249.shtml)
+- 2026-06-30 06:00 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/796301640.shtml)
+- 2026-06-30 06:11 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/183749932.shtml)
+- 2026-06-30 06:22 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/2531491.shtml)
+- 2026-06-30 06:21 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/9460715474.shtml)
+- 2026-06-30 06:10 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/712762.shtml)
+- 2026-06-30 06:00 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/3306696603.shtml)
+- 2026-06-30 06:17 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/74515531886.shtml)
+- 2026-06-30 06:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/36180940086.shtml)
+- 2026-06-30 06:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/20327278.shtml)
+- 2026-06-30 06:05 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/880441.shtml)
+- 2026-06-30 06:10 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/5057253402.shtml)
+- 2026-06-30 06:15 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/626233814.shtml)
+- 2026-06-30 06:08 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/28805.shtml)
+- 2026-06-30 06:16 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/454389990.shtml)
+- 2026-06-30 06:20 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/366289710.shtml)

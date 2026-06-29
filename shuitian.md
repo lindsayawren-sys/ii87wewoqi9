@@ -1,56 +1,61 @@
-# ST广糖（000911）涉嫌信披违法违规，受损股民可索赔
+# 人民币汇率创三年多新高，大涨原因找到了
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月12日晚间，ST广糖（原广农糖业/南宁糖业，000911）发布《关于收到中国证券监督管理委员会立案告知书的公告》。公告显示，公司于2026年6月12日收到中国证券监督管理委员会下发的《立案告知书》（编号：证监立案字0272026007号），因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政
+记者丨叶麦穗 编辑丨包芳鸣 江佩霞 近期，人民币汇率走势节节高。 4月14日，在岸、离岸人民币兑美元汇率双双上涨（截至北京时间16点，下同），离岸价一度触及6.81188，在岸价则是6.8165，双双站上年内新高，也创下2023年3月23日以来新高。当日，人民币兑美元中间价较上日调升64点至6.8593，中间价升至2023年3月24日以来最高水平。 人民币走势稳中偏强 美元指数
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月12日晚间，ST广糖（原广农糖业/南宁糖业，000911）发布《关于收到中国证券监督管理委员会立案告知书的公告》。
+记者丨叶麦穗 编辑丨包芳鸣 江佩霞 近期，人民币汇率走势节节高。
 
-公告显示，公司于2026年6月12日收到中国证券监督管理委员会下发的《立案告知书》（编号：证监立案字0272026007号），因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。
+4月14日，在岸、离岸人民币兑美元汇率双双上涨（截至北京时间16点，下同），离岸价一度触及6.81188，在岸价则是6.8165，双双站上年内新高，也创下2023年3月23日以来新高。
 
-据公开信息，此次立案可能与此前公司自查披露的会计差错更正事项有关。
+当日，人民币兑美元中间价较上日调升64点至6.8593，中间价升至2023年3月24日以来最高水平。
 
-2025年4月，公司在内部核查中发现全资子公司南宁云鸥物流此前开展的物流仓储业务存在营业收入及营业成本跨期确认问题，导致合并财务报表相关数据出现会计差错，公司随后对2023年至2025年已披露的定期报告进行了追溯调整。
+人民币走势稳中偏强 美元指数已经连续6个交易日下跌。
 
-此前，公司已于2026年4月30日起被实施退市风险警示（*ST）。
+4月13日，美元指数下跌，截至纽约汇市尾盘，衡量美元对六种主要货币的美元指数当天下跌0.28%，尾市收于98.370。
 
-上海百悦律师事务所牛彬律师表示，ST广糖遭证监会立案，投资者或可索赔。
+4月14日，美元指数继续走弱，最低跌至98.114。
 
-暂定：于2026年6月13日之前买入ST广糖（000911）股票，且在2026年6月13日之后卖出或仍持有该股票的亏损投资者符合索赔条件。
+据CME“美联储观察”的数据，美联储4月加息25个基点的概率为1%，维持利率不变的概率为99%。
 
-初步索赔范围：在2026年6月13日之前买入，且在2026年6月13日收盘时卖出或仍持有。
+美联储到6月累计降息25个基点的概率为1.5%，维持利率不变的概率为97.5%，累计加息25个基点的概率为1%。
 
 ## 相关推荐
 
-- 2026-06-30 05:51 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 05:56 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 05:57 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-30 06:04 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 05:51 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 06:00 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-30 06:08 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 05:48 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 05:59 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 06:03 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-30 06:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 06:16 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 06:11 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 06:19 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 06:14 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 05:57 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 06:13 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 06:14 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 06:18 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 06:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 05:58 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 06:05 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 06:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 06:14 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 06:00 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/02450973.shtml)
-- 2026-06-30 06:04 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/89134.shtml)
-- 2026-06-30 06:10 - [起风了](http://www.blog.kurohicncr.top/Article/details/490619844175.shtml)
-- 2026-06-30 06:01 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/17674373984.shtml)
-- 2026-06-30 06:08 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/9921889.shtml)
-- 2026-06-30 06:08 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/31049640030.shtml)
-- 2026-06-30 05:52 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/053416.shtml)
-- 2026-06-30 05:58 - [流金岁月](http://www.blog.minike.top/Article/details/73779822.shtml)
-- 2026-06-30 06:11 - [女心理师](http://www.share.minike.top/Article/details/9167780.shtml)
-- 2026-06-30 05:58 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/5385082028.shtml)
-- 2026-06-30 05:49 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/44352.shtml)
-- 2026-06-30 05:50 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/931395134.shtml)
-- 2026-06-30 06:11 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/17590200.shtml)
-- 2026-06-30 06:10 - [时光音乐会](http://www.share.minike.top/Article/details/30387053.shtml)
-- 2026-06-30 06:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/73457.shtml)
+- 2026-06-30 06:12 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/323199193993.shtml)
+- 2026-06-30 06:01 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/88801.shtml)
+- 2026-06-30 06:22 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/92135550771.shtml)
+- 2026-06-30 06:13 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/060699.shtml)
+- 2026-06-30 06:03 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/551315041.shtml)
+- 2026-06-30 06:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/2592127.shtml)
+- 2026-06-30 06:20 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/12184.shtml)
+- 2026-06-30 06:08 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/413157712001.shtml)
+- 2026-06-30 06:05 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/256802248304.shtml)
+- 2026-06-30 06:08 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/7138400864.shtml)
+- 2026-06-30 06:07 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/6967880.shtml)
+- 2026-06-30 06:13 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/62894379641.shtml)
+- 2026-06-30 05:57 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/01273980.shtml)
+- 2026-06-30 06:11 - [啊啊啊](https://www.share.minike.top/Article/details/42999.shtml)
+- 2026-06-30 06:12 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/40422727517.shtml)

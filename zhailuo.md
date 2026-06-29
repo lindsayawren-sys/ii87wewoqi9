@@ -1,57 +1,55 @@
-# 白条猪肉：供需两不旺 6月上半月价格趋稳运行
+# 伊朗总统：愿在国际法框架内继续谈判
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-卓创资讯 【导语】6月国内多高温、多雨天气，猪肉市场步入传统消费淡季，行业呈现供应、需求双向走弱的格局。生猪出栏节奏放缓，终端家庭、餐饮采购需求同步回落，供需互为掣肘，6月上半月全国白条猪肉价格低位趋稳运行。预计6月下半月价格难有明显好转，7-8月随着供应收紧，白条猪肉价格有上涨可能。 从图1看到，2026年6月上半月国内白条猪肉价格趋稳运行。据卓创资讯统计，截至2026年6月
+转自：新华社 新华社德黑兰4月14日电 据伊朗总统办公室13日发布的声明，伊朗总统佩泽希齐扬当天与法国总统马克龙通话时表示，伊朗愿继续在国际法框架内与美方进行谈判，并将遵守停火条款，此前美方的“过度野心”阻碍了协议达成。 佩泽希齐扬在通话中说，伊方认为，外交是解决争端的首选途径，“基于威胁、施压和军事行动的手段不仅无法解决问题，反而会使问题更加复杂，并加剧美方一手造成的问题”。
 
 ## 正文
 
-卓创资讯 【导语】6月国内多高温、多雨天气，猪肉市场步入传统消费淡季，行业呈现供应、需求双向走弱的格局。
+转自：新华社 新华社德黑兰4月14日电 据伊朗总统办公室13日发布的声明，伊朗总统佩泽希齐扬当天与法国总统马克龙通话时表示，伊朗愿继续在国际法框架内与美方进行谈判，并将遵守停火条款，此前美方的“过度野心”阻碍了协议达成。
 
-生猪出栏节奏放缓，终端家庭、餐饮采购需求同步回落，供需互为掣肘，6月上半月全国白条猪肉价格低位趋稳运行。
+佩泽希齐扬在通话中说，伊方认为，外交是解决争端的首选途径，“基于威胁、施压和军事行动的手段不仅无法解决问题，反而会使问题更加复杂，并加剧美方一手造成的问题”。
 
-预计6月下半月价格难有明显好转，7-8月随着供应收紧，白条猪肉价格有上涨可能。
+谈及日前在巴基斯坦举行的伊美谈判，佩泽希齐扬说，伊方代表团为达成持久协议表现出了认真与诚意，尽管双方在技术专家层面取得了一定共识，但美方高级官员的“过度野心”和缺乏政治意愿阻碍了协议的最终达成。
 
-从图1看到，2026年6月上半月国内白条猪肉价格趋稳运行。
+针对美方封锁霍尔木兹海峡的威胁，佩泽希齐扬说，任何对这一战略要道安全的威胁都将对全球贸易产生广泛影响，伊朗为维护国家利益，已做好充分准备应对任何不利局面。
 
-据卓创资讯统计，截至2026年6月16日，膘厚在2.5-3.5厘米的白条猪肉成交均价12.40元/公斤，较去年同期下降30.81%，月内价格调整空间在0.10元/公斤之内。
+美国总统特朗普13日证实，美国已于美国东部时间13日10时起对所有进出伊朗港口船只实施封锁。
 
-长周期来看，当下猪肉价格处于偏低水平。
-
-图1 2024-2026年全国白条猪肉成交均价走势图 数据来源：卓创资讯 6月上半月白条猪肉市场供需皆有减少，供需处于博弈状态，是导致价格几无调整的重要原因。
-
-供应方面，前期集中出栏告一段落，养殖户对下半年行情有温和看涨预期，存一定惜售情绪。
+（完）责任编辑：凌辰
 
 ## 相关推荐
 
-- 2026-06-30 06:04 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 06:12 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 06:12 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 06:16 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 05:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 06:06 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 05:53 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 05:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 05:50 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 06:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-30 05:48 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 06:10 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 06:09 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 06:17 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 05:54 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 06:15 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 06:09 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 06:08 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 06:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 06:13 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 06:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 06:08 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 06:20 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 06:12 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/828455464.shtml)
-- 2026-06-30 06:11 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/231799.shtml)
-- 2026-06-30 06:13 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/80780.shtml)
-- 2026-06-30 05:59 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/19478.shtml)
-- 2026-06-30 06:07 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/5462055.shtml)
-- 2026-06-30 06:02 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/653996386.shtml)
-- 2026-06-30 05:51 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/17064.shtml)
-- 2026-06-30 05:50 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/82828811.shtml)
-- 2026-06-30 06:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/232140413.shtml)
-- 2026-06-30 06:02 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/93137778806.shtml)
-- 2026-06-30 06:15 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/95676.shtml)
-- 2026-06-30 06:08 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/83152.shtml)
-- 2026-06-30 06:01 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/4870783.shtml)
-- 2026-06-30 06:12 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/75679351.shtml)
-- 2026-06-30 05:56 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/6867272.shtml)
+- 2026-06-30 06:03 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/892959.shtml)
+- 2026-06-30 06:02 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/09303504789.shtml)
+- 2026-06-30 06:14 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/92546.shtml)
+- 2026-06-30 06:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/47486.shtml)
+- 2026-06-30 06:00 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/104184850487.shtml)
+- 2026-06-30 06:20 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/805935672.shtml)
+- 2026-06-30 06:16 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/66237653.shtml)
+- 2026-06-30 06:05 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/3917712.shtml)
+- 2026-06-30 06:23 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/8302823.shtml)
+- 2026-06-30 05:56 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/449251.shtml)
+- 2026-06-30 06:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/78158739.shtml)
+- 2026-06-30 05:59 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/47609.shtml)
+- 2026-06-30 06:17 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/70254946092.shtml)
+- 2026-06-30 06:07 - [巴西绝杀](https://www.share.minike.top/Article/details/4399554574.shtml)
+- 2026-06-30 06:21 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/6963665.shtml)

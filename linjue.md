@@ -1,56 +1,58 @@
-# 广西桂林：粽叶飘香迎端午 军民鱼水暖兵心
+# 深圳龙华楼盘开盘现场使用辣椒水驱散人群的保安已被行拘
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东盟？“新疆小羊”爆火，折射哪些文旅市场新变化？美伊确认达成协议 “难缠”的以色列会否搅局？封关半年看海南：“老外”为何喜欢来“追箭”？访南京“空翻哥”孟新艺：望有朝一日跨进世界杯赛场以发展权赋能气候正义 深化中欧绿色伙伴关系年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球
+中新网深圳4月14日电 (记者 索有为)深圳一楼盘13日开盘现场因人流拥挤发生混乱，一名保安使用辣椒水驱散人群，相关视频在网络上引起关注。深圳市龙华区联合调查组13日深夜发布情况通报称，警方已依法对涉事保安人员杨某某予以行政拘留。 通报如下： 4月13日，龙华区幸福城臻园项目销售现场秩序混乱，有保安人员向人群喷洒刺激性液体情况，相关现场视频引发舆论关注。 龙华区高度重视，立即成
 
 ## 正文
 
-外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东盟？
+中新网深圳4月14日电 (记者 索有为)深圳一楼盘13日开盘现场因人流拥挤发生混乱，一名保安使用辣椒水驱散人群，相关视频在网络上引起关注。
 
-“新疆小羊”爆火，折射哪些文旅市场新变化？
+深圳市龙华区联合调查组13日深夜发布情况通报称，警方已依法对涉事保安人员杨某某予以行政拘留。
 
-美伊确认达成协议 “难缠”的以色列会否搅局？
+通报如下： 4月13日，龙华区幸福城臻园项目销售现场秩序混乱，有保安人员向人群喷洒刺激性液体情况，相关现场视频引发舆论关注。
 
-封关半年看海南：“老外”为何喜欢来“追箭”？
+龙华区高度重视，立即成立由区住建、市监、公安等部门组成的联合调查组，对该楼盘涉及的现场销售相关情况进行调查。
 
-访南京“空翻哥”孟新艺：望有朝一日跨进世界杯赛场以发展权赋能气候正义 深化中欧绿色伙伴关系年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！
+目前，公安机关已依法对涉事保安人员杨某某予以行政拘留。
 
-“世界杯魔咒”失灵了？
+住建部门已约谈项目开发企业深圳市鸿耀泰实业有限公司，责令其立即采取整改措施。
 
-“微笑天使”江豚逐浪嬉戏 长江大保护与十年禁渔成效显著这群刚毕业的藏族学生用特别的方式踏上回家路河南灵宝：端午将至 村民制作传统槲叶粽台青初到大陆被震撼：怎么发展这么快！
+市监部门已对该项目开发企业价格备案情况进行调查。
 
-感觉遍地是机会直击武警多课目比武竞赛现场西藏羊卓雍错：夏日限定高原盛景《给阿嬷的情书》登陆马来西亚 每日排片将超500场走进脑机接口实验室：大脑的想法，如何被“读懂”？
+涉事企业已就现场秩序管理失当问题公开致歉，并表示将严肃处理相关责任人，全力配合调查整改。
 
 ## 相关推荐
 
-- 2026-06-30 06:08 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 06:04 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 05:48 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 05:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 06:03 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 06:02 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 06:10 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 05:57 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-30 06:11 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 05:49 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-30 06:14 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 05:57 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 06:19 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 05:58 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 06:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 06:22 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 06:09 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 06:17 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 06:13 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 06:02 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 05:56 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 05:58 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:49 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/915847.shtml)
-- 2026-06-30 06:10 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/602042.shtml)
-- 2026-06-30 05:54 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/538534343944.shtml)
-- 2026-06-30 05:53 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/497890769.shtml)
-- 2026-06-30 05:57 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/16824189.shtml)
-- 2026-06-30 05:55 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/6427398216.shtml)
-- 2026-06-30 05:53 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/89967.shtml)
-- 2026-06-30 05:53 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/0831635.shtml)
-- 2026-06-30 06:11 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/21061969233.shtml)
-- 2026-06-30 06:00 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/74417331.shtml)
-- 2026-06-30 06:15 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/2257965.shtml)
-- 2026-06-30 06:08 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/588347606815.shtml)
-- 2026-06-30 06:06 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/987513.shtml)
-- 2026-06-30 05:55 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/293707.shtml)
-- 2026-06-30 06:07 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/5216091511.shtml)
+- 2026-06-30 06:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/083915678137.shtml)
+- 2026-06-30 06:06 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/313698.shtml)
+- 2026-06-30 05:59 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/908361365004.shtml)
+- 2026-06-30 06:06 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/45655232.shtml)
+- 2026-06-30 06:15 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/19047993.shtml)
+- 2026-06-30 06:07 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/62542011.shtml)
+- 2026-06-30 05:55 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/46379963347.shtml)
+- 2026-06-30 06:23 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/255717.shtml)
+- 2026-06-30 06:23 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/30944476.shtml)
+- 2026-06-30 06:13 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/501826352.shtml)
+- 2026-06-30 06:05 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/650602.shtml)
+- 2026-06-30 06:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/852512693.shtml)
+- 2026-06-30 06:12 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/30584233.shtml)
+- 2026-06-30 06:11 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/847087122.shtml)
+- 2026-06-30 06:02 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/828800499.shtml)

@@ -1,51 +1,59 @@
-# 美国“小非农”：截至5月30日的四周 美国私营部门就业人数平均每周增加25500人
+# 京东工业午前涨超12% 工业AI大模型跃升至2.0阶段
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-根据ADP Research和斯坦福数字经济实验室的初步估计，在截至5月30日的四周，美国私营部门就业人数平均每周增加25500人。 ADP此前公布的5月份就业人数变化为增加12.2万人。 ADP与斯坦福数字经济实验室于去年10月28日推出周度统计计划。责任编辑：刘明亮
+京东工业（07618）午前涨超12%，截至发稿，股价上涨12.32%，现报13.77港元，成交额5645.43万港元。 4月9日，京东工业发布工业AI大模型能力建设规划和技术成果，宣布正在从1.0阶段的AI工具跃迁到2.0阶段的AI专家。京东工业的AI专家具备工作闭环能力，可独立完成商品、履约、售后等核心场景任务，从按需调用升级为自主进化，能主动洞察需求、参与决策、推进组织协同
 
 ## 正文
 
-根据ADP Research和斯坦福数字经济实验室的初步估计，在截至5月30日的四周，美国私营部门就业人数平均每周增加25500人。
+京东工业（07618）午前涨超12%，截至发稿，股价上涨12.32%，现报13.77港元，成交额5645.43万港元。
 
-ADP此前公布的5月份就业人数变化为增加12.2万人。
+4月9日，京东工业发布工业AI大模型能力建设规划和技术成果，宣布正在从1.0阶段的AI工具跃迁到2.0阶段的AI专家。
 
-ADP与斯坦福数字经济实验室于去年10月28日推出周度统计计划。
+京东工业的AI专家具备工作闭环能力，可独立完成商品、履约、售后等核心场景任务，从按需调用升级为自主进化，能主动洞察需求、参与决策、推进组织协同。
 
-责任编辑：刘明亮
+国内首个工业供应链垂直AI大模型JoyIndustrial，将再次引领行业技术和应用升级。
+
+京东工业技术负责人表示，京东工业AI能力已经基本完成AI工具的建设和应用布局，在内外部业务实践中取得了扎实的成果，目前正处于向AI专家跃迁的过程中。
+
+面向未来，京东工业认为AI专家会跃迁到3.0阶段的AI超脑，即可以实现生态进化，全链协同，和工业大模型构建数智化的供应链大脑，通过AI需求大脑、AI商品大脑、AI履约大脑等产品和服务，根本性地提升工业供应链水平。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:02 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 06:01 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 05:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-30 06:11 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 05:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 05:51 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 05:57 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-30 06:12 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 06:11 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 06:15 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 06:01 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 05:53 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 05:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 06:14 - [巴西2比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 06:12 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 06:10 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 06:00 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 06:14 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 06:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 06:02 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 06:05 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 06:00 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 06:18 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 06:05 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 06:20 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 06:17 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 05:59 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 06:14 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:11 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/074083.shtml)
-- 2026-06-30 06:07 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/747154.shtml)
-- 2026-06-30 06:12 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/839757059811.shtml)
-- 2026-06-30 06:03 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/28082.shtml)
-- 2026-06-30 06:00 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/134925250.shtml)
-- 2026-06-30 06:15 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/99802627466.shtml)
-- 2026-06-30 05:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/238933026951.shtml)
-- 2026-06-30 06:01 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/99716.shtml)
-- 2026-06-30 06:06 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.kurohicncr.top/Article/details/6848359241.shtml)
-- 2026-06-30 05:49 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/62779.shtml)
-- 2026-06-30 06:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/242271973.shtml)
-- 2026-06-30 06:09 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/1073605219.shtml)
-- 2026-06-30 05:53 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/9592095827.shtml)
-- 2026-06-30 05:48 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/7138709896.shtml)
-- 2026-06-30 05:52 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/97777289400.shtml)
+- 2026-06-30 06:14 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/71438987.shtml)
+- 2026-06-30 06:10 - [日本淘汰](https://www.blog.minike.top/Article/details/18155.shtml)
+- 2026-06-30 06:15 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/8327668522.shtml)
+- 2026-06-30 06:00 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/06258960783.shtml)
+- 2026-06-30 05:58 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/927227.shtml)
+- 2026-06-30 06:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/77140340.shtml)
+- 2026-06-30 06:12 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/02976158931.shtml)
+- 2026-06-30 05:56 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/4184318.shtml)
+- 2026-06-30 06:19 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/00294255.shtml)
+- 2026-06-30 06:21 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/49372579.shtml)
+- 2026-06-30 06:05 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/93041356869.shtml)
+- 2026-06-30 05:54 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/533356795.shtml)
+- 2026-06-30 06:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/319804.shtml)
+- 2026-06-30 06:09 - [天道](https://www.blog.minike.top/Article/details/14863.shtml)
+- 2026-06-30 06:12 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/899200.shtml)

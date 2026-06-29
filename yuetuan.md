@@ -1,55 +1,50 @@
-# ZFX山海证券:回调过后金银等待确认
+# 德信服务集团：德清凯思博完成向德信盛全物业服务增资约9691.24万元
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-6月16日，贵金属在经历快速回调后出现技术性修复，ZFX山海证券表示当前更值得关注的是反弹是否具备持续性，而不是单日回升幅度本身。 从策略角度看，ZFX山海证券认为价格在关键支撑附近企稳，有助于改善市场信心，但买盘若缺少进一步确认，反弹仍可能反复。 黄金与白银的联动表现也很关键，若两者能够同步止跌，贵金属板块的修复节奏会更清晰，否则市场仍会保持谨慎观望。 综合而言，ZFX山海证
+德信服务集团（02215）发布公告，就有关德清凯思博拟再向目标公司德信盛全物业服务增资约人民币9691.24万元的相关事宜。增资协议项下的所有条件均已达成或获豁免，且完成已根据增资协议的条款及条件于2026年4月14日落实。完成后，目标公司仍为公司非全资附属公司，且其财务业绩将继续于集团的财务报表中综合入账。责任编辑：卢昱君
 
 ## 正文
 
-6月16日，贵金属在经历快速回调后出现技术性修复，ZFX山海证券表示当前更值得关注的是反弹是否具备持续性，而不是单日回升幅度本身。
+德信服务集团（02215）发布公告，就有关德清凯思博拟再向目标公司德信盛全物业服务增资约人民币9691.24万元的相关事宜。
 
-从策略角度看，ZFX山海证券认为价格在关键支撑附近企稳，有助于改善市场信心，但买盘若缺少进一步确认，反弹仍可能反复。
+增资协议项下的所有条件均已达成或获豁免，且完成已根据增资协议的条款及条件于2026年4月14日落实。
 
-黄金与白银的联动表现也很关键，若两者能够同步止跌，贵金属板块的修复节奏会更清晰，否则市场仍会保持谨慎观望。
+完成后，目标公司仍为公司非全资附属公司，且其财务业绩将继续于集团的财务报表中综合入账。
 
-综合而言，ZFX山海证券分析称后续需要继续跟踪确认信号是否增多，只有承接力量稳定增强，金银价格才更容易展开更顺畅的修复。
-
-责任编辑：陈平
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:01 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 05:55 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 05:55 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 05:59 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 06:00 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 06:03 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 05:48 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 06:00 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 06:11 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 06:07 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 05:56 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 05:57 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 05:58 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 05:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 05:56 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 06:20 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 06:14 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 06:07 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 06:11 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 06:22 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 06:15 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 06:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 06:13 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 05:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 06:17 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 06:00 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 06:08 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:05 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/6108306.shtml)
-- 2026-06-30 06:17 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/77612604.shtml)
-- 2026-06-30 05:56 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/557264799590.shtml)
-- 2026-06-30 06:10 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/163642.shtml)
-- 2026-06-30 05:57 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/0485045390.shtml)
-- 2026-06-30 06:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/285652124613.shtml)
-- 2026-06-30 06:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/5681421078.shtml)
-- 2026-06-30 05:52 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/106972477.shtml)
-- 2026-06-30 06:14 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/2828596005.shtml)
-- 2026-06-30 06:10 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/902064464815.shtml)
-- 2026-06-30 06:10 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/426184.shtml)
-- 2026-06-30 06:14 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/247830518.shtml)
-- 2026-06-30 05:59 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/24986.shtml)
-- 2026-06-30 05:52 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/739432.shtml)
-- 2026-06-30 06:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/698470.shtml)
+- 2026-06-30 05:58 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/63502933239.shtml)
+- 2026-06-30 06:06 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/809440416.shtml)
+- 2026-06-30 05:56 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/7137808886.shtml)
+- 2026-06-30 06:14 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/2583009914.shtml)
+- 2026-06-30 06:23 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/73175519245.shtml)
+- 2026-06-30 06:12 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/880773899.shtml)
+- 2026-06-30 06:22 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/23670911958.shtml)
+- 2026-06-30 06:16 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/22970.shtml)
+- 2026-06-30 06:12 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/181520417.shtml)
+- 2026-06-30 06:13 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/074639139488.shtml)
+- 2026-06-30 05:58 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/4788184.shtml)
+- 2026-06-30 05:57 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/3150329.shtml)
+- 2026-06-30 06:02 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/313985825.shtml)
+- 2026-06-30 05:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/182078.shtml)
+- 2026-06-30 06:15 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/80456233225.shtml)

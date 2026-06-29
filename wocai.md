@@ -1,51 +1,61 @@
-# 《给阿嬷的情书》登陆马来西亚 每日排片将超500场
+# 日媒称与那国町长告知政府同意部署导弹 民众表达反对
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 11:16 来源：中国新闻网 当地时间6月15日，《给阿嬷的情书》马来西亚特别展映活动在马来西亚首都吉隆坡TGVSuria KLCC影院举行。影片发行方表示，电影将于6月18日正式上市，将会在马来西亚超过100家院线影院上映，每天排片量会超过500场。(刘育英 制作 王嘉怡) 责任编辑：【罗攀】
+中新网4月14日电 据日本共同社报道，当地时间13日，日本冲绳县与那国町的町长上地常夫在防卫省与防卫相小泉进次郎会面，告知了同意在该町的防空导弹部队部署计划。 据报道，会面后他向媒体表示，“也与町民、议员交换了意见，决定不就部署部队提出异议。” 报道同时提出，鉴于居民中也存在反对意见，上地要求防卫省方面继续认真细致地提供信息。他还表示，如果追加部署部队，“不得不谨慎为之”。 对
 
 ## 正文
 
-发布时间：2026年06月16日 11:16 来源：中国新闻网 当地时间6月15日，《给阿嬷的情书》马来西亚特别展映活动在马来西亚首都吉隆坡TGVSuria KLCC影院举行。
+中新网4月14日电 据日本共同社报道，当地时间13日，日本冲绳县与那国町的町长上地常夫在防卫省与防卫相小泉进次郎会面，告知了同意在该町的防空导弹部队部署计划。
 
-影片发行方表示，电影将于6月18日正式上市，将会在马来西亚超过100家院线影院上映，每天排片量会超过500场。
+据报道，会面后他向媒体表示，“也与町民、议员交换了意见，决定不就部署部队提出异议。
 
-(刘育英 制作 王嘉怡) 责任编辑：【罗攀】
+” 报道同时提出，鉴于居民中也存在反对意见，上地要求防卫省方面继续认真细致地提供信息。
+
+他还表示，如果追加部署部队，“不得不谨慎为之”。
+
+对此，日本民众在社交媒体上表达质疑和反对。
+
+有日本网民称，对该决定表示“不理解”；还有人称，对与那国町的町长上地常夫“很失望”。
+
+还有日本民众表示，反对在与那国岛部署导弹部队。
+
+“日本唯独在战争准备层面不断稳步扩张，日本真的受到威胁了吗？
 
 ## 相关推荐
 
-- 2026-06-30 06:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 05:56 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 05:50 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 06:07 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 05:55 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 05:52 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 06:04 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 05:58 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 06:06 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 06:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 05:53 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 05:51 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 05:58 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-30 06:08 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 06:01 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 05:57 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 06:04 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 05:56 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 06:20 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 06:08 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 06:18 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 06:12 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 06:10 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-30 05:54 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 06:19 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 06:07 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 06:09 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 06:08 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-30 05:59 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 06:06 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:58 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/9931505087.shtml)
-- 2026-06-30 06:14 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/656941376.shtml)
-- 2026-06-30 06:06 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/40679416.shtml)
-- 2026-06-30 06:00 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/63177539.shtml)
-- 2026-06-30 06:10 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/3710617.shtml)
-- 2026-06-30 05:55 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/9380958.shtml)
-- 2026-06-30 05:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/6876460469.shtml)
-- 2026-06-30 05:49 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/233683633821.shtml)
-- 2026-06-30 05:54 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/40139.shtml)
-- 2026-06-30 05:56 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/56376.shtml)
-- 2026-06-30 06:00 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/845074.shtml)
-- 2026-06-30 06:14 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/276608909.shtml)
-- 2026-06-30 05:50 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/60727557.shtml)
-- 2026-06-30 06:15 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/607295.shtml)
-- 2026-06-30 05:50 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/5015818.shtml)
+- 2026-06-30 06:03 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/081325086323.shtml)
+- 2026-06-30 06:07 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/876956226.shtml)
+- 2026-06-30 06:08 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/944703571676.shtml)
+- 2026-06-30 05:55 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/589906.shtml)
+- 2026-06-30 06:02 - [天道](http://www.blog.minike.top/Article/details/76130.shtml)
+- 2026-06-30 05:58 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/016336.shtml)
+- 2026-06-30 06:07 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/328526.shtml)
+- 2026-06-30 06:09 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/709736.shtml)
+- 2026-06-30 06:15 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/0445092.shtml)
+- 2026-06-30 05:55 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/70234.shtml)
+- 2026-06-30 06:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/314193873341.shtml)
+- 2026-06-30 06:05 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/34047531205.shtml)
+- 2026-06-30 06:22 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/973771466.shtml)
+- 2026-06-30 06:17 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/2180349913.shtml)
+- 2026-06-30 05:56 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/265554.shtml)

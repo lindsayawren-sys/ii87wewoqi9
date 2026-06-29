@@ -1,46 +1,59 @@
-# 国家消防救援局：坚决整治消防管网无水等突出问题
+# 酒价内参4月14日价格发布 国窖1573上涨1元/瓶
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网6月17日电(记者 邵萌)6月17日，国家消防救援局例行新闻发布会介绍，针对高层建筑，深刻吸取近年来高层建筑的火灾教训，拟以国务院安委会的名义，在全国部署开展高层建筑消防隐患排查整治工作，坚决整治消防设施瘫痪、控制室无人值班、消防管网无水，还有防火分隔不到位、占用消防通道等突出问题，强化人防、物防和技防的措施，提高灭火救援能力。针对小型餐饮场所，指导定期清理油烟管道，鼓励
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月14日整体小幅回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9888元，较昨日下跌7元。市场仍呈现分化走势，整体价格仍以区间调整为主。 今日白酒市场11大单品五涨五跌一平。上涨方面，习酒君品上涨5元/瓶，涨幅居前，价格创下近20
 
 ## 正文
 
-中新网6月17日电(记者 邵萌)6月17日，国家消防救援局例行新闻发布会介绍，针对高层建筑，深刻吸取近年来高层建筑的火灾教训，拟以国务院安委会的名义，在全国部署开展高层建筑消防隐患排查整治工作，坚决整治消防设施瘫痪、控制室无人值班、消防管网无水，还有防火分隔不到位、占用消防通道等突出问题，强化人防、物防和技防的措施，提高灭火救援能力。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月14日整体小幅回落。
 
-针对小型餐饮场所，指导定期清理油烟管道，鼓励增设“第二安全出口”，拆除影响逃生和救援的防盗网、广告牌，筑牢防火墙、守住烟火气。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9888元，较昨日下跌7元。
+
+市场仍呈现分化走势，整体价格仍以区间调整为主。
+
+今日白酒市场11大单品五涨五跌一平。
+
+上涨方面，习酒君品上涨5元/瓶，涨幅居前，价格创下近20天新高；五粮液普五八代上涨4元/瓶；青花郎上涨2元/瓶；国窖1573、水晶剑南春均上涨1元/瓶。
+
+下跌方面，洋河梦之蓝M6+下跌6元/瓶，跌幅居前，终端促销力度有所加大；青花汾20、古井贡古20均下跌4元/瓶；飞天茅台、精品茅台均下跌3元/瓶。
+
+五粮液1618价格环比保持不变。
+
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-30 05:56 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 05:53 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 05:57 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 05:58 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 06:11 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-30 05:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 06:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 06:04 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 06:13 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 06:08 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 05:53 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 05:50 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-30 06:22 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 06:20 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 05:58 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 06:04 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 06:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 06:19 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 06:03 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 05:56 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 05:59 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 05:56 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 06:10 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 06:10 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 06:01 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:09 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/06752481.shtml)
-- 2026-06-30 06:07 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/9742853180.shtml)
-- 2026-06-30 06:03 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/407006738114.shtml)
-- 2026-06-30 06:05 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/487156.shtml)
-- 2026-06-30 05:57 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/7813389.shtml)
-- 2026-06-30 05:54 - [内马尔替补](http://www.share.minike.top/Article/details/875836761368.shtml)
-- 2026-06-30 05:54 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/89649392690.shtml)
-- 2026-06-30 05:54 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/31318279.shtml)
-- 2026-06-30 06:01 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/74245681846.shtml)
-- 2026-06-30 05:53 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/16005996734.shtml)
-- 2026-06-30 06:11 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/659043.shtml)
-- 2026-06-30 06:05 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/287176.shtml)
-- 2026-06-30 06:06 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/550450480.shtml)
-- 2026-06-30 05:55 - [流金岁月](https://www.share.minike.top/Article/details/8818055.shtml)
-- 2026-06-30 05:50 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/5131688.shtml)
+- 2026-06-30 06:01 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/449688246.shtml)
+- 2026-06-30 06:15 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/534693.shtml)
+- 2026-06-30 05:57 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/751552856.shtml)
+- 2026-06-30 05:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/87032670.shtml)
+- 2026-06-30 06:10 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/3432577149.shtml)
+- 2026-06-30 06:11 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/7002673.shtml)
+- 2026-06-30 06:18 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/00446984.shtml)
+- 2026-06-30 06:23 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/84347505861.shtml)
+- 2026-06-30 06:22 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/181049.shtml)
+- 2026-06-30 06:08 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/282217.shtml)
+- 2026-06-30 06:22 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/65213609696.shtml)
+- 2026-06-30 06:13 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/483447625.shtml)
+- 2026-06-30 06:17 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/778986021070.shtml)
+- 2026-06-30 06:15 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/771297980112.shtml)
+- 2026-06-30 05:59 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/764289504487.shtml)

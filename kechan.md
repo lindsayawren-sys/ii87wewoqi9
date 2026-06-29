@@ -1,44 +1,59 @@
-# 巴克莱将欧洲斯托克600指数年底目标上调至670点
+# 刘伟谈创立米哈游：创业失败后被老同学邀请
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-巴克莱银行周三将欧洲斯托克600指数的年底目标位从620点上调至670点，并结束了对该地区股票的“低配”评级，原因是油价下跌和潜在的美伊协议可能会降低欧元区滞胀风险，并改善宏观经济前景。责任编辑：于健 SF069
+4月13日，米哈游联合创始人、总裁刘伟在上海交通大学发表演讲。 谈及自己的成长经历，刘伟直言到，自己就是一个典型的“小镇做题家”，母校上海交通大学塑造了其三观，也给他打开了很大的世界。 刘伟坦言，2005年刚进入上海交通大学时，内心充满惶恐。面对来自大城市的同学在英语和计算机上的优势，他一度感到巨大压力，大学相当长时间里都是循规蹈矩地刷题、刷GPA，甚至在第一次数学分析考试中不
 
 ## 正文
 
-巴克莱银行周三将欧洲斯托克600指数的年底目标位从620点上调至670点，并结束了对该地区股票的“低配”评级，原因是油价下跌和潜在的美伊协议可能会降低欧元区滞胀风险，并改善宏观经济前景。
+4月13日，米哈游联合创始人、总裁刘伟在上海交通大学发表演讲。
 
-责任编辑：于健 SF069
+谈及自己的成长经历，刘伟直言到，自己就是一个典型的“小镇做题家”，母校上海交通大学塑造了其三观，也给他打开了很大的世界。
+
+刘伟坦言，2005年刚进入上海交通大学时，内心充满惶恐。
+
+面对来自大城市的同学在英语和计算机上的优势，他一度感到巨大压力，大学相当长时间里都是循规蹈矩地刷题、刷GPA，甚至在第一次数学分析考试中不及格。
+
+“我们05级电院正好赶上教改，我选了较难的数学分析，第一次考试就不及格，生活非常灰暗，后来靠着在图书馆狂刷俄罗斯数学家吉米多维奇的四本习题集，才把分数提上来。
+
+” 他自嘲：“在学霸云集的交大电院，我再怎么努力也只是前20%的水平。
+
+” 但是，事情的转机发生在2009年。
+
+2008年因金融危机未拿到出国offer，刘伟选择直研。
 
 ## 相关推荐
 
-- 2026-06-30 05:55 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 05:52 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 06:14 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 06:09 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 05:51 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 06:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 06:00 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 06:02 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 06:06 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 05:52 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 06:02 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 05:59 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 06:09 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 06:04 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 06:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 05:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 06:22 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 05:59 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 06:23 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 06:07 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 06:10 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 06:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 06:05 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:49 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/683765.shtml)
-- 2026-06-30 06:16 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/334945.shtml)
-- 2026-06-30 06:08 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/38223.shtml)
-- 2026-06-30 06:01 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/3505011.shtml)
-- 2026-06-30 05:55 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/97163.shtml)
-- 2026-06-30 05:58 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/56960.shtml)
-- 2026-06-30 05:58 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/60787218.shtml)
-- 2026-06-30 06:10 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/01722489450.shtml)
-- 2026-06-30 05:50 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/81217.shtml)
-- 2026-06-30 05:55 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/58219134914.shtml)
-- 2026-06-30 06:08 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/069063.shtml)
-- 2026-06-30 06:04 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/842948.shtml)
-- 2026-06-30 05:58 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/132582132128.shtml)
-- 2026-06-30 06:03 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/4729919241.shtml)
-- 2026-06-30 06:05 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/46478617924.shtml)
+- 2026-06-30 06:17 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/949372272.shtml)
+- 2026-06-30 06:21 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/76276090.shtml)
+- 2026-06-30 06:21 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/656944736.shtml)
+- 2026-06-30 06:19 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/20788.shtml)
+- 2026-06-30 06:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/13353372.shtml)
+- 2026-06-30 06:15 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/12798290820.shtml)
+- 2026-06-30 06:05 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/65106286.shtml)
+- 2026-06-30 05:59 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/42962873.shtml)
+- 2026-06-30 05:57 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/98978404.shtml)
+- 2026-06-30 05:59 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/483829267.shtml)
+- 2026-06-30 06:18 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/2878013000.shtml)
+- 2026-06-30 06:08 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/755156732867.shtml)
+- 2026-06-30 06:07 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/763958002595.shtml)
+- 2026-06-30 05:58 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/21965736572.shtml)
+- 2026-06-30 06:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/782526.shtml)

@@ -1,56 +1,60 @@
-# 17家企业、参展面积近700平方米，链博会“全勤生”杭州今年再赴北京
+# 美国股市：标普500指数接近创纪录新高 受美伊进一步和谈前景提振
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-杭州日报记者 蔡杨洋 第四届中国国际供应链促进博览会(以下简称“‌第四届链博会”‌)将于6月22日至26日在北京中国国际展览中心(顺义馆)举行。 本届展会以“链接世界，共创未来”为主题，将以更大力度、更高水平推动全球产业链供应链开放合作。 杭州是链博会创办以来的“全勤生”。今年，杭州市贸促会将组织17家优质杭企参加第四届链博会，杭州展团总参展面积近700平方米。从首届的品牌破冰
+美股周二飙升，标普500指数收盘距离创纪录高位仅一步之遥，市场对美伊可能进一步举行和谈的乐观情绪推动油价下跌，美国低于预期的批发价格涨幅缓解了对通胀冲击的担忧。 标普500指数继前一日抹去受战争以来的跌幅后，周二收盘上涨1.2%，延续了反弹势头；这是该美股基准指数自2025年4月以来首次连续两个交易日涨幅超过1%。 航空股表现亮眼，提出与美国航空合并可能性的美联航走高。 花旗实
 
 ## 正文
 
-杭州日报记者 蔡杨洋 第四届中国国际供应链促进博览会(以下简称“‌第四届链博会”‌)将于6月22日至26日在北京中国国际展览中心(顺义馆)举行。
+美股周二飙升，标普500指数收盘距离创纪录高位仅一步之遥，市场对美伊可能进一步举行和谈的乐观情绪推动油价下跌，美国低于预期的批发价格涨幅缓解了对通胀冲击的担忧。
 
-本届展会以“链接世界，共创未来”为主题，将以更大力度、更高水平推动全球产业链供应链开放合作。
+标普500指数继前一日抹去受战争以来的跌幅后，周二收盘上涨1.2%，延续了反弹势头；这是该美股基准指数自2025年4月以来首次连续两个交易日涨幅超过1%。
 
-杭州是链博会创办以来的“全勤生”。
+航空股表现亮眼，提出与美国航空合并可能性的美联航走高。
 
-今年，杭州市贸促会将组织17家优质杭企参加第四届链博会，杭州展团总参展面积近700平方米。
+花旗实现十年来最高的季度收入，这家华尔街银行股价上涨。
 
-从首届的品牌破冰，到第二届的精准匹配，再到第三届的链式组团，杭州一步一个台阶，层层递进，为杭州企业深度融入全球产业链供应链体系奠定坚实基础。
+与此同时，随着油价回落，美国能源股势将回吐特朗普发动对伊朗战争以来的全部涨幅。
 
-今年，杭州将再度升级参展策略，创新推出“专区组展”模式，在“‌第四届链博会杭州人工智能专区”集中呈现杭州在人工智能与数字领域的创新实力与领先成果。
+科技股在成份股中比重较高的纳斯达克100指数连续第十个交易日上涨，走高1.8%，创自2021年以来最长连涨。
 
-当前，杭州正奋力打造“全国人工智能创新发展第一城”，人工智能已成为杭州最具辨识度的产业标签。
+美国和伊朗正寻求在未来几天安排第二轮和谈，而霍尔木兹海峡的对峙加剧了全球能源危机，并使外交前景更加复杂。
 
-顺势而生的“第四届链博会杭州人工智能专区”，将以“杭行四海·贸通全球”为核心主题，精心布局“工业赋能”和“生活智享”两大板块，将展示中控信息、海康威视、宇树科技、强脑科技、太希智能等13家企业的创新成果，推动“杭州智造”品牌走向世界。
+知情人士称，目标是在4月7日宣布的停火协议于下周到期前举行进一步会谈。
 
 ## 相关推荐
 
-- 2026-06-30 06:14 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-30 05:52 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 05:55 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 05:50 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 05:48 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 06:14 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 05:50 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 06:16 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 05:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 05:49 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 06:16 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 06:01 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 05:58 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 06:15 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 06:03 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 06:22 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 06:06 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 06:15 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-30 06:07 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 06:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 06:11 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 06:11 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 05:56 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 06:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:04 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/243267498695.shtml)
-- 2026-06-30 06:13 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/513871.shtml)
-- 2026-06-30 06:11 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/667233362727.shtml)
-- 2026-06-30 06:06 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/5228241.shtml)
-- 2026-06-30 06:10 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/4081786.shtml)
-- 2026-06-30 05:54 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/092306952148.shtml)
-- 2026-06-30 06:00 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/6530935158.shtml)
-- 2026-06-30 06:08 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/330802429.shtml)
-- 2026-06-30 06:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/1880657.shtml)
-- 2026-06-30 06:16 - [房价什么时候能涨](http://www.share.minike.top/Article/details/4929644.shtml)
-- 2026-06-30 05:48 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/7587804.shtml)
-- 2026-06-30 06:08 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/824784432.shtml)
-- 2026-06-30 06:00 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/25010549917.shtml)
-- 2026-06-30 05:57 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/6759542.shtml)
-- 2026-06-30 05:51 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/94772950910.shtml)
+- 2026-06-30 06:08 - [青春环游记第三季](http://www.blog.minike.top/Article/details/092595.shtml)
+- 2026-06-30 06:20 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/298745193.shtml)
+- 2026-06-30 06:12 - [流金岁月](http://www.blog.minike.top/Article/details/936387892369.shtml)
+- 2026-06-30 05:58 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/97623.shtml)
+- 2026-06-30 05:56 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/72397917894.shtml)
+- 2026-06-30 06:23 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/2185115310.shtml)
+- 2026-06-30 06:14 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/52329026887.shtml)
+- 2026-06-30 06:14 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/97709.shtml)
+- 2026-06-30 06:06 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/85964443736.shtml)
+- 2026-06-30 06:05 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/12814.shtml)
+- 2026-06-30 06:23 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/6165455.shtml)
+- 2026-06-30 05:56 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/901393634.shtml)
+- 2026-06-30 06:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/6621674259.shtml)
+- 2026-06-30 06:05 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/008079.shtml)
+- 2026-06-30 06:01 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/4003932422.shtml)

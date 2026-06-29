@@ -1,47 +1,52 @@
-# 浩柏国际遭张元亮减持900万股 每股作价1.44港元
+# 美国检察官突查美联储总部施工区，对鲍威尔调查升级
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，6月12日，张元亮减持浩柏国际（08431）900万股，每股作价1.44港元，总金额为1296万港元。减持后最新持股数目为3900万股，最新持股比例为16.49%。责任编辑：卢昱君
+中新网4月15日电 据《华盛顿邮报》援引知情人士消息，当地时间14日，美国华盛顿特区联邦检察官珍妮・皮罗办公室的调查人员未事先通报，突然现身美联储总部，要求查看一处施工现场。报道称，此举标志着对美联储调查的进一步升级。据知情人士透露，皮罗办公室的两名检察官与一名特工在与施工人员交涉后，被告知需预先获得许可方可进入，并被转介至美联储法务团队。 报道称，此举表明，美国司法部并未放弃
 
 ## 正文
 
-香港联交所最新数据显示，6月12日，张元亮减持浩柏国际（08431）900万股，每股作价1.44港元，总金额为1296万港元。
+中新网4月15日电 据《华盛顿邮报》援引知情人士消息，当地时间14日，美国华盛顿特区联邦检察官珍妮・皮罗办公室的调查人员未事先通报，突然现身美联储总部，要求查看一处施工现场。
 
-减持后最新持股数目为3900万股，最新持股比例为16.49%。
+报道称，此举标志着对美联储调查的进一步升级。
 
-责任编辑：卢昱君
+据知情人士透露，皮罗办公室的两名检察官与一名特工在与施工人员交涉后，被告知需预先获得许可方可进入，并被转介至美联储法务团队。
+
+报道称，此举表明，美国司法部并未放弃对美联储主席鲍威尔的调查。
+
+此前报道，美国哥伦比亚特区联邦地区法院首席法官博斯伯格4月3日表示，维持撤销针对美国联邦储备委员会主席鲍威尔传票的裁决。
+
+1月，美国司法部向鲍威尔发出传票，就美联储总部大楼翻新工程有关问题进行刑事调查。
 
 ## 相关推荐
 
-- 2026-06-30 05:49 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 05:50 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 06:11 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-30 06:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 06:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 05:58 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-30 06:10 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 06:01 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 06:00 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 06:08 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 06:07 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 06:03 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 06:12 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 06:05 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-30 05:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 06:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 05:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 06:00 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 06:18 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 06:23 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 06:20 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:13 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/906174435692.shtml)
-- 2026-06-30 05:57 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/408066.shtml)
-- 2026-06-30 05:54 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/8057875.shtml)
-- 2026-06-30 06:06 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/2997543801.shtml)
-- 2026-06-30 06:00 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/056509704339.shtml)
-- 2026-06-30 06:12 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/40260.shtml)
-- 2026-06-30 06:14 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/670281.shtml)
-- 2026-06-30 06:01 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/1308126.shtml)
-- 2026-06-30 05:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/44005.shtml)
-- 2026-06-30 05:51 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/031400407946.shtml)
-- 2026-06-30 06:13 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/931140961.shtml)
-- 2026-06-30 06:11 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/494472.shtml)
-- 2026-06-30 05:50 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/1141398237.shtml)
-- 2026-06-30 05:53 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/4422602110.shtml)
-- 2026-06-30 06:16 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/5073374517.shtml)
+- 2026-06-30 05:58 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/003492723.shtml)
+- 2026-06-30 06:23 - [千与千寻](https://www.blog.minike.top/Article/details/3410314451.shtml)
+- 2026-06-30 06:16 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/70614582432.shtml)
+- 2026-06-30 06:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/06804442.shtml)
+- 2026-06-30 06:04 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/4414663.shtml)
+- 2026-06-30 05:55 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/284271025109.shtml)
+- 2026-06-30 05:58 - [日本进球](https://www.blog.minike.top/Article/details/7978051301.shtml)
+- 2026-06-30 06:15 - [沙丘](https://www.share.minike.top/Article/details/893674079.shtml)
+- 2026-06-30 06:00 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/006291979336.shtml)
+- 2026-06-30 05:54 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/67885077.shtml)
+- 2026-06-30 06:12 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/54193.shtml)
+- 2026-06-30 05:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/99334619.shtml)
+- 2026-06-30 06:22 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/401973089.shtml)
+- 2026-06-30 05:57 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/6123853254.shtml)
+- 2026-06-30 06:05 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/0762108.shtml)

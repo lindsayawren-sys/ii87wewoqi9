@@ -1,50 +1,54 @@
-# vivo X Fold6，蓝洞配色你心动了吗？
+# 轩竹生物-B盘初涨超25% 安奈拉唑钠新适应症获批开展III期临床试验
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-朱珠法网同款 “蓝洞” 配色，会呼吸的深海蓝高级感拉满。经典圆环设计 + 依旧轻薄的手感，大屏体验超惊艳。最惊喜的是大折叠也能装外挂增距镜了！你们觉得这颜值打几分？
+轩竹生物-B（02575）盘初涨超25%，截至发稿，股价上涨11.95%，报36.82港元，成交额1.17亿港元。 轩竹生物发布公告，本集团自主研发的创新药安奈拉唑钠肠溶片（商品名：安久卫）近日获得中国国家药品监督管理局药品审评中心（CDE）批准，开展含安奈拉唑钠肠溶片的铋剂四联疗法根除幽门螺杆菌的III期临床研究。 该研究计划纳入556例幽门螺杆菌阳性成人受试者，主要终点为治
 
 ## 正文
 
-朱珠法网同款 “蓝洞” 配色，会呼吸的深海蓝高级感拉满。
+轩竹生物-B（02575）盘初涨超25%，截至发稿，股价上涨11.95%，报36.82港元，成交额1.17亿港元。
 
-经典圆环设计 + 依旧轻薄的手感，大屏体验超惊艳。
+轩竹生物发布公告，本集团自主研发的创新药安奈拉唑钠肠溶片（商品名：安久卫）近日获得中国国家药品监督管理局药品审评中心（CDE）批准，开展含安奈拉唑钠肠溶片的铋剂四联疗法根除幽门螺杆菌的III期临床研究。
 
-最惊喜的是大折叠也能装外挂增距镜了！
+该研究计划纳入556例幽门螺杆菌阳性成人受试者，主要终点为治疗结束后第28天经13C-尿素呼气试验确认的幽门螺杆菌根除率。
 
-你们觉得这颜值打几分？
+本次安奈拉唑钠新适应症III期临床试验申请获批，有助于拓展产品适应症范围，提升本公司在消化疾病治疗领域的影响力，对本公司长远发展及商业化布局具有重要意义。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 06:10 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 06:11 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 06:17 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-30 06:12 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 06:14 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 05:49 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 06:08 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 05:57 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 06:06 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 05:57 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 06:06 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 06:17 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 06:16 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 06:12 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 05:58 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 06:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 06:05 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 06:19 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 06:08 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 06:16 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 05:59 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 06:09 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 06:10 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 06:14 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 05:57 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:13 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/5795463.shtml)
-- 2026-06-30 06:15 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/854889820.shtml)
-- 2026-06-30 05:51 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/834995217854.shtml)
-- 2026-06-30 05:55 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/1030747.shtml)
-- 2026-06-30 06:10 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/351559236.shtml)
-- 2026-06-30 06:02 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/3416982.shtml)
-- 2026-06-30 06:14 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/332917077971.shtml)
-- 2026-06-30 05:52 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.kurohicncr.top/Article/details/068484.shtml)
-- 2026-06-30 05:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/663763351906.shtml)
-- 2026-06-30 06:04 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/70445112.shtml)
-- 2026-06-30 05:51 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/99967.shtml)
-- 2026-06-30 06:07 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/230894.shtml)
-- 2026-06-30 06:06 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/3543659.shtml)
-- 2026-06-30 06:00 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/58691.shtml)
-- 2026-06-30 06:15 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/63123946.shtml)
+- 2026-06-30 06:22 - [请回答王牌2019](http://www.blog.minike.top/Article/details/81007.shtml)
+- 2026-06-30 06:03 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/2219518010.shtml)
+- 2026-06-30 06:00 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/892229587160.shtml)
+- 2026-06-30 06:16 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/5792681264.shtml)
+- 2026-06-30 05:57 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/3019149431.shtml)
+- 2026-06-30 05:55 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/97537307.shtml)
+- 2026-06-30 06:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/426200478889.shtml)
+- 2026-06-30 06:13 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/7967761269.shtml)
+- 2026-06-30 06:04 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/913720993646.shtml)
+- 2026-06-30 05:56 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/133217752449.shtml)
+- 2026-06-30 06:17 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/29580151337.shtml)
+- 2026-06-30 05:54 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/8684042.shtml)
+- 2026-06-30 06:20 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/92399795741.shtml)
+- 2026-06-30 06:04 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.minike.top/Article/details/52119953.shtml)
+- 2026-06-30 06:16 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/47453.shtml)

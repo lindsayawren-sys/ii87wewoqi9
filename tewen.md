@@ -1,54 +1,61 @@
-# 2026陆家嘴论坛召开 上海离岸金融行动方案发布
+# 沙特恢复日产700万桶管道运力，此前袭击导致日减70万桶
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 18:18 来源：中国新闻网 6月17日，2026陆家嘴论坛在上海开幕。中国人民银行行长潘功胜在论坛上表示，在上海自贸区开展离岸人民币外汇交易试点。将授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。未来，将根据试点情况，进一步推动离岸人民币外汇交易市场发展。 潘功胜介绍，人民银行即将
+沙特阿拉伯已将其东西管道的全部700万桶/日运力恢复，从而稳定了一条关键的出口通道。此前，该管道因近期地区敌对行动而中断。这条全长746英里的管道沿线共有11个泵站，其中一个在伊朗战争宣布停火后不久遭到破坏，导致输送量每日减少约70万桶。作为回应，沙特王国一直在将石油流向从霍尔木兹海峡转移出去，自2月底以来，随着通过海湾的油轮运输仍受到严重限制，从红海终端运出的原油大幅增加。
 
 ## 正文
 
-发布时间：2026年06月17日 18:18 来源：中国新闻网 6月17日，2026陆家嘴论坛在上海开幕。
+沙特阿拉伯已将其东西管道的全部700万桶/日运力恢复，从而稳定了一条关键的出口通道。
 
-中国人民银行行长潘功胜在论坛上表示，在上海自贸区开展离岸人民币外汇交易试点。
+此前，该管道因近期地区敌对行动而中断。
 
-将授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。
+这条全长746英里的管道沿线共有11个泵站，其中一个在伊朗战争宣布停火后不久遭到破坏，导致输送量每日减少约70万桶。
 
-未来，将根据试点情况，进一步推动离岸人民币外汇交易市场发展。
+作为回应，沙特王国一直在将石油流向从霍尔木兹海峡转移出去，自2月底以来，随着通过海湾的油轮运输仍受到严重限制，从红海终端运出的原油大幅增加。
 
-潘功胜介绍，人民银行即将出台多项政策举措，包括完善短端利率调控机制，创设境外央行回购工具，研究设立特定情景非银流动性支持宏观审慎工具，会同上海市政府和有关部门出台《上海国际金融中心发展离岸金融行动方案》，以及银行间市场数据报告库正式挂牌等内容。
+恢复工作似乎也延伸到了上游资产。
 
-据介绍，《上海国际金融中心发展离岸金融行动方案》从支持在浦东新区开展离岸金融先行先试、资金流动与账户管理、数字化应用、离岸金融业务、离岸金融法律制度体系、离岸金融监管和风险防控、统筹推进实施等方面提出重点举措，对加快上海国际金融中心建设和在更深层次、更宽领域推进金融高水平开放具有重要意义。
+沙特官员表示，海上Manifa油田的产量已经恢复，而陆上Khurais综合设施的修复工作仍在进行中。
 
-高志苗 康玉湛 徐银上海报道 责任编辑：【李季】
+这两个设施此前在遭受袭击后，各自的日产量均减少了约30万桶。
+
+Khurais生产通常通过东西管道输送的轻质原油，而Manifa则产出重质原油，这可能表明该系统在中断期间管理不同原油流时保持了一定的灵活性。
 
 ## 相关推荐
 
-- 2026-06-30 05:59 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 05:53 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 06:04 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 06:16 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 05:55 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 05:48 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 06:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 06:16 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 06:10 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 05:53 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 06:02 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 06:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 06:07 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 06:07 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 05:56 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 05:56 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 06:02 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 06:13 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 06:11 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 05:57 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 06:07 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 06:12 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 06:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 06:01 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 06:07 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:09 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/7253396.shtml)
-- 2026-06-30 06:08 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/2161494966.shtml)
-- 2026-06-30 06:16 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/5848593823.shtml)
-- 2026-06-30 06:05 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/02041099.shtml)
-- 2026-06-30 06:07 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/82269674.shtml)
-- 2026-06-30 06:07 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/17754884.shtml)
-- 2026-06-30 05:57 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/7465660370.shtml)
-- 2026-06-30 06:04 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/06799.shtml)
-- 2026-06-30 05:52 - [毒液2](http://www.share.kurohicncr.top/Article/details/972971797.shtml)
-- 2026-06-30 05:54 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/786371.shtml)
-- 2026-06-30 05:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/222307746683.shtml)
-- 2026-06-30 06:17 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/148818.shtml)
-- 2026-06-30 05:52 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/1336752.shtml)
-- 2026-06-30 06:08 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/4050901253.shtml)
-- 2026-06-30 06:11 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/42592.shtml)
+- 2026-06-30 06:23 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/00917972.shtml)
+- 2026-06-30 06:17 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/08277914385.shtml)
+- 2026-06-30 06:22 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/00961663733.shtml)
+- 2026-06-30 06:11 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/15559300165.shtml)
+- 2026-06-30 06:17 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/474198627.shtml)
+- 2026-06-30 06:15 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/083809.shtml)
+- 2026-06-30 06:05 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/16669.shtml)
+- 2026-06-30 06:00 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/439919297251.shtml)
+- 2026-06-30 06:10 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/0232618.shtml)
+- 2026-06-30 05:54 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/7019669889.shtml)
+- 2026-06-30 06:07 - [世界杯](http://www.share.kurohicncr.top/Article/details/1266408757.shtml)
+- 2026-06-30 05:58 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/8901954.shtml)
+- 2026-06-30 06:23 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/0046471962.shtml)
+- 2026-06-30 06:14 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/050576408.shtml)
+- 2026-06-30 06:17 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/307111900.shtml)

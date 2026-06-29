@@ -1,57 +1,60 @@
-# 科技上行速度或加快！半导体爆发，科创芯片ETF大涨近6%！科技ETF、电子ETF携手涨超4%！集体创新高！
+# 烟火气中，东北青年情绪消费升温
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-今日（6月17日）A股主要指数悉数上涨，沪指站上4100点，创业板指、深证成指放量涨超1%，科技成长风格明显占优。覆盖创业板+科创板高成长龙头的硬科技宽基——双创50ETF华宝（588330）场内价格大涨3.26%逼近前高。沪深京三市成交额3.11万亿元，较昨日放量278亿元。 盘面上，半导体产业链全线爆发，盛美上海20CM涨停，全“芯”布局芯片产业的科创芯片ETF华宝（589
+音乐集市、光影汤泉、烧烤+脱口秀……年轻人热衷多样态、多场景、沉浸式体验—— 烟火气中，东北青年情绪消费升温 近日，中青报·中青网记者采访了十余位来自不同行业的00后东北青年，切身感受到，在东北，充满烟火气、人情味与幽默感的场景和活动，颇受当地青年青睐。音乐集市、沉浸式话剧、脱口秀，以及升级焕新的传统烧烤店、洗浴中心，成为东北青年情绪消费的热门选择。 初春的长春，乍暖还寒。职场
 
 ## 正文
 
-今日（6月17日）A股主要指数悉数上涨，沪指站上4100点，创业板指、深证成指放量涨超1%，科技成长风格明显占优。
+音乐集市、光影汤泉、烧烤+脱口秀……年轻人热衷多样态、多场景、沉浸式体验—— 烟火气中，东北青年情绪消费升温 近日，中青报·中青网记者采访了十余位来自不同行业的00后东北青年，切身感受到，在东北，充满烟火气、人情味与幽默感的场景和活动，颇受当地青年青睐。
 
-覆盖创业板+科创板高成长龙头的硬科技宽基——双创50ETF华宝（588330）场内价格大涨3.26%逼近前高。
+音乐集市、沉浸式话剧、脱口秀，以及升级焕新的传统烧烤店、洗浴中心，成为东北青年情绪消费的热门选择。
 
-沪深京三市成交额3.11万亿元，较昨日放量278亿元。
+初春的长春，乍暖还寒。
 
-盘面上，半导体产业链全线爆发，盛美上海20CM涨停，全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格强势拉升5.98%，刷新上市高点；PCB、存储芯片、半导体设备等概念多重共振，科技ETF华宝（515000）、电子ETF华宝（515260）携手涨超4%，双双创历史新高！
+职场新人张倩下班后和好友一起，前往长春动植物公园打卡西游主题夜场活动。
 
-上周五以来券商板块迎来连续上涨，吸引市场目光，关于“券商补涨”的讨论再起。
+夜晚的室外，张倩被冻得“直跺脚”，看着“雪饼猴”(公园里一名网红演职人员——记者注)与观众欢乐互动、笑声不断，张倩笑得前仰后合，“很开心、解压”。
 
-规模374亿元+的顶流券商ETF华宝（512000）此前日线3连阳后，今日场内震荡收平。
+每到周末，在长春工作的林爽会背起双肩包，前往周边城市游玩。
 
-基金经理丰晨成表示，“双背离”（行情走势与市场交投热度背离、基本面与估值背离）构筑性价比，估值修复行情有望继续。
+沈阳八经街的咖啡小巷、哈尔滨中央大街等热门打卡地，是她常去之处。
 
-创历史新高！
+“点一杯咖啡，挑几件小物件，花费不多，却能舒缓、放松身心。
 
 ## 相关推荐
 
-- 2026-06-30 06:17 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 06:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 06:07 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 05:50 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 05:58 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-30 06:08 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 05:50 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 06:07 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 05:56 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 06:13 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 05:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 05:58 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 06:01 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 05:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 06:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 06:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 05:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 06:00 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 06:00 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 06:15 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 06:01 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 05:59 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 05:59 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 06:16 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 06:19 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:03 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/162934.shtml)
-- 2026-06-30 05:56 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/835754.shtml)
-- 2026-06-30 06:15 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/8722754.shtml)
-- 2026-06-30 06:09 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/06471933360.shtml)
-- 2026-06-30 05:51 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/01269.shtml)
-- 2026-06-30 06:03 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/0863215301.shtml)
-- 2026-06-30 05:53 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/359797434.shtml)
-- 2026-06-30 05:51 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/58177555474.shtml)
-- 2026-06-30 06:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/0798885.shtml)
-- 2026-06-30 06:06 - [一见倾心](http://www.share.minike.top/Article/details/62846.shtml)
-- 2026-06-30 05:57 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/5748560.shtml)
-- 2026-06-30 06:15 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/1897238916.shtml)
-- 2026-06-30 06:00 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/950185553437.shtml)
-- 2026-06-30 05:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/4321544.shtml)
-- 2026-06-30 06:10 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/318532.shtml)
+- 2026-06-30 06:01 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/465218105015.shtml)
+- 2026-06-30 06:02 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/9852067729.shtml)
+- 2026-06-30 06:10 - [时光音乐会](http://www.share.minike.top/Article/details/30343.shtml)
+- 2026-06-30 06:10 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/47643322349.shtml)
+- 2026-06-30 06:20 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/299413.shtml)
+- 2026-06-30 05:55 - [爱很美味](http://www.share.kurohicncr.top/Article/details/55435088.shtml)
+- 2026-06-30 05:57 - [沉睡花园](http://www.share.minike.top/Article/details/023334.shtml)
+- 2026-06-30 06:04 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/224189743.shtml)
+- 2026-06-30 06:14 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/538856316.shtml)
+- 2026-06-30 06:07 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/4273784411.shtml)
+- 2026-06-30 05:58 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/55394.shtml)
+- 2026-06-30 06:11 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/38355276431.shtml)
+- 2026-06-30 06:07 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/7233085162.shtml)
+- 2026-06-30 06:15 - [一生一世](http://www.share.kurohicncr.top/Article/details/7326891407.shtml)
+- 2026-06-30 06:13 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/16440858.shtml)

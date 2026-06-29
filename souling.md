@@ -1,56 +1,49 @@
-# 部分省份工业经济运行座谈交流活动在京召开
+# 伊朗总统赞扬中国等6国反战立场
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-6月17日，工业和信息化部党组成员、副部长辛国斌在北京主持召开部分省份工业经济运行座谈交流活动，深入学习贯彻中央政治局会议精神，了解各地区当前工业经济运行情况，分析研判二季度工业经济形势，研究提出工作举措及政策建议。会议指出，今年以来，在全系统共同努力下，工业经济总体实现良好开局。要切实把思想和行动统一到党中央对经济形势的科学判断和关于经济工作的决策部署上来，坚持稳中求进工作总
+新华社德黑兰4月14日电 伊朗总统佩泽希齐扬14日在社交媒体发文，赞扬西班牙、中国、俄罗斯、土耳其、意大利、埃及6国所展现的反战立场。 佩泽希齐扬在帖文中说，“文明的本质会在关键的历史节点上得以彰显”。上述6国的立场“源于它们深厚的文化和历史根基”。
 
 ## 正文
 
-6月17日，工业和信息化部党组成员、副部长辛国斌在北京主持召开部分省份工业经济运行座谈交流活动，深入学习贯彻中央政治局会议精神，了解各地区当前工业经济运行情况，分析研判二季度工业经济形势，研究提出工作举措及政策建议。
+新华社德黑兰4月14日电 伊朗总统佩泽希齐扬14日在社交媒体发文，赞扬西班牙、中国、俄罗斯、土耳其、意大利、埃及6国所展现的反战立场。
 
-会议指出，今年以来，在全系统共同努力下，工业经济总体实现良好开局。
+佩泽希齐扬在帖文中说，“文明的本质会在关键的历史节点上得以彰显”。
 
-要切实把思想和行动统一到党中央对经济形势的科学判断和关于经济工作的决策部署上来，坚持稳中求进工作总基调，更好统筹国内经济工作和国际经贸斗争，统筹发展和安全，不断巩固工业经济运行良好态势。
-
-会议强调，当前工业经济运行中还存在一些困难和问题，但工业经济发展的基本面和长期向好的趋势没有变。
-
-要推动供需适配，深入挖掘内需潜力，扩大优质商品供给，以高质量供给创造和引领需求。
-
-要加快培育新动能，深入实施“人工智能+制造”专项行动，加快新一代信息技术全方位全链条普及应用，持续培育壮大新质生产力，深入整治“内卷式”竞争，推动工业经济实现质的有效提升和量的合理增长相统一。
-
-要坚持底线思维，强化形势研判和政策储备，穿透数据表象准确分析经济运行的实际情况和趋势性变化，扎实做好重点企业纾困帮扶，谋划好迎峰度夏期间能源保供和应急防灾减灾工作，切实推动二季度工业经济平稳运行，努力完成全年目标任务，为“十五五”良好开局奠定基础。
-
-会上，河北、江苏、浙江、安徽、福建、山东、河南、湖北、湖南、广东、四川等11个省份工业和信息化主管部门负责同志作交流发言。
+上述6国的立场“源于它们深厚的文化和历史根基”。
 
 ## 相关推荐
 
-- 2026-06-30 06:06 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 05:48 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 05:58 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 06:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 05:53 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 05:49 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-30 06:13 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 06:08 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 05:52 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 05:55 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 06:19 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 06:17 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 06:21 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 06:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 05:57 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 06:05 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 06:12 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 06:03 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 06:23 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 06:03 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 06:18 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 06:07 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 06:22 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/428202516409.shtml)
-- 2026-06-30 05:59 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/12097.shtml)
-- 2026-06-30 05:52 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/954216157.shtml)
-- 2026-06-30 05:50 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/332177.shtml)
-- 2026-06-30 06:06 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/69575.shtml)
-- 2026-06-30 06:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/08416740878.shtml)
-- 2026-06-30 05:49 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/907249.shtml)
-- 2026-06-30 05:52 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/6635383701.shtml)
-- 2026-06-30 05:52 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/05575473410.shtml)
-- 2026-06-30 06:08 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/518323.shtml)
-- 2026-06-30 06:12 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/675431760.shtml)
-- 2026-06-30 06:17 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/92690954.shtml)
-- 2026-06-30 05:59 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/434411326.shtml)
-- 2026-06-30 06:15 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/1864618.shtml)
-- 2026-06-30 06:11 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/991267.shtml)
+- 2026-06-30 06:01 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/95469643.shtml)
+- 2026-06-30 06:14 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/30942746080.shtml)
+- 2026-06-30 05:58 - [85花告别古偶](https://www.blog.minike.top/Article/details/70397858.shtml)
+- 2026-06-30 06:21 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/81779.shtml)
+- 2026-06-30 06:02 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/903775599.shtml)
+- 2026-06-30 06:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/67102431996.shtml)
+- 2026-06-30 06:00 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/530213493884.shtml)
+- 2026-06-30 05:56 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/25257425.shtml)
+- 2026-06-30 06:23 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/039911247194.shtml)
+- 2026-06-30 06:13 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/7194235.shtml)
+- 2026-06-30 05:57 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/4970741.shtml)
+- 2026-06-30 06:09 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/0133033.shtml)
+- 2026-06-30 06:01 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/91029790040.shtml)
+- 2026-06-30 05:54 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/786471.shtml)
+- 2026-06-30 06:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/478270314271.shtml)

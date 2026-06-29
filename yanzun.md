@@ -1,59 +1,61 @@
-# 重庆林业产业对接活动在璧山举行 签约331.47亿元
+# 中国（东莞）—吉尔吉斯斯坦建筑行业商务对接会举行
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月17日电 (张旭)青山叠翠，碧水含情。6月17日，“万企重庆行·渝林惠八方”林业产业对接活动在重庆市璧山区举行，来自行业主管部门、企业的约400名嘉宾齐聚一堂，共谋林业发展新机遇。活动现场，164个优质项目成功签约，总投资额达331.47亿元。 这些项目遍布重庆各区县，覆盖国储林、特色经济林、木竹加工、林下经济、森林康养、自然教育六大核心赛道。其中，既有百亿级全产
+中新网东莞4月14日电 (记者 许青青)中国(东莞)—吉尔吉斯斯坦建筑行业商务对接会13日在东莞举办。本次活动是东莞市贸促会“我为企业找订单”系列活动之一，旨在搭建两地建材行业高效对接平台，推动东莞优质建材产品“走出去”。 对接会由东莞市贸促会、吉尔吉斯共和国驻广州总领事馆、中亚广东总商会联合主办。现场活动中，东莞市贸促会与吉尔吉斯共和国工商会签署合作备忘录，为两地经贸往来搭建
 
 ## 正文
 
-中新网重庆6月17日电 (张旭)青山叠翠，碧水含情。
+中新网东莞4月14日电 (记者 许青青)中国(东莞)—吉尔吉斯斯坦建筑行业商务对接会13日在东莞举办。
 
-6月17日，“万企重庆行·渝林惠八方”林业产业对接活动在重庆市璧山区举行，来自行业主管部门、企业的约400名嘉宾齐聚一堂，共谋林业发展新机遇。
+本次活动是东莞市贸促会“我为企业找订单”系列活动之一，旨在搭建两地建材行业高效对接平台，推动东莞优质建材产品“走出去”。
 
-活动现场，164个优质项目成功签约，总投资额达331.47亿元。
+对接会由东莞市贸促会、吉尔吉斯共和国驻广州总领事馆、中亚广东总商会联合主办。
 
-这些项目遍布重庆各区县，覆盖国储林、特色经济林、木竹加工、林下经济、森林康养、自然教育六大核心赛道。
+现场活动中，东莞市贸促会与吉尔吉斯共和国工商会签署合作备忘录，为两地经贸往来搭建起长效合作机制。
 
-其中，既有百亿级全产业链龙头项目，适合大型集团系统布局；也有百千万级特色精品项目，适配中小企业深耕细作。
+采购对接洽谈环节，现场按瓷砖、暖通空调、电梯设备等细分领域划分对接区域，吉尔吉斯斯坦采购团成员与东莞企业代表展开了面对面的精准洽谈，现场氛围热烈。
 
-值得一提的是，签约项目中近三成来自重庆市外企业，投资额占比超过三分之一，充分彰显了“万企重庆行”跨区域招商的辐射力与吸引力。
+吉尔吉斯共和国工商会主席萨里耶夫·捷米尔介绍，当前吉国建筑业发展迅速，基础设施及公共设施需求持续提升，中方企业技术先进、经验丰富，是吉方值得信赖的优质合作伙伴。
 
-据重庆市林业局介绍，除了现场签约项目外，另有34个项目处于深度洽谈阶段，投资额达73.11亿元。
+吉尔吉斯斯坦工商会愿全力为中国企业提供支持，希望以此次建设发展热潮为契机，携手开启两地长期务实合作的崭新篇章。
 
-活动现场，重庆市林业局党组书记、局长曹春华通过“走进重庆、扎根重庆、兴业重庆”三个篇章，向与会嘉宾全面推介重庆林业的发展机遇。
+吉尔吉斯共和国驻广州总领事扎曼库洛夫·耶尔尼斯特表示，吉尔吉斯斯坦高度重视与东莞的经贸合作，期待通过本次对接会，进一步深化双方建材领域合作，拓宽合作渠道，推动更多东莞优质建材进入吉尔吉斯斯坦市场，助力吉方基础设施建设升级。
 
 ## 相关推荐
 
-- 2026-06-30 05:54 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 06:09 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 06:02 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 05:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 06:10 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 05:55 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 06:02 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 05:52 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 06:08 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 06:16 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 06:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 05:55 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 06:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 05:59 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 06:16 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 06:07 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 06:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 05:55 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 06:12 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 06:20 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 06:16 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 06:06 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 06:12 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 06:17 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 06:11 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 06:08 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 06:14 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 05:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/1363386.shtml)
-- 2026-06-30 05:55 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/2972622.shtml)
-- 2026-06-30 06:09 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/71380909357.shtml)
-- 2026-06-30 05:51 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/3640009502.shtml)
-- 2026-06-30 05:53 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/660540.shtml)
-- 2026-06-30 06:06 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/74390237290.shtml)
-- 2026-06-30 05:52 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/5547283.shtml)
-- 2026-06-30 06:04 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/202429849379.shtml)
-- 2026-06-30 06:00 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/55301867.shtml)
-- 2026-06-30 05:58 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/899373895.shtml)
-- 2026-06-30 06:17 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/33567675407.shtml)
-- 2026-06-30 06:01 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/51504783328.shtml)
-- 2026-06-30 06:02 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/98062.shtml)
-- 2026-06-30 05:58 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/80915.shtml)
-- 2026-06-30 06:06 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/44473312.shtml)
+- 2026-06-30 06:23 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/11663.shtml)
+- 2026-06-30 06:13 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/39881.shtml)
+- 2026-06-30 06:08 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/60057748.shtml)
+- 2026-06-30 05:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/47308741.shtml)
+- 2026-06-30 06:17 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/8913798649.shtml)
+- 2026-06-30 05:55 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/714181423133.shtml)
+- 2026-06-30 06:06 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/5821752803.shtml)
+- 2026-06-30 06:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/03910909.shtml)
+- 2026-06-30 06:17 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/37859.shtml)
+- 2026-06-30 06:14 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/5680396218.shtml)
+- 2026-06-30 05:57 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/5217843827.shtml)
+- 2026-06-30 06:06 - [日本淘汰](http://www.blog.minike.top/Article/details/818019.shtml)
+- 2026-06-30 06:16 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/704476538678.shtml)
+- 2026-06-30 06:21 - [美股](https://www.blog.minike.top/Article/details/716659681594.shtml)
+- 2026-06-30 06:13 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/9862638.shtml)

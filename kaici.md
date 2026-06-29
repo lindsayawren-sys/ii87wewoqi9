@@ -1,42 +1,51 @@
-# 伊朗称美方承诺解冻伊朗被冻结资产
+# 复锐医疗科技获Fosun Pharma Industrial Pte.Ltd.增持约3.35亿股 每股作价3.34港元
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 10:17 来源：央视新闻 责任编辑：【王祎】
+香港联交所最新资料显示，4月8日，Fosun Pharma Industrial Pte.Ltd．增持复锐医疗科技（01696）3.345048亿股，每股作价3.34港元，总金额约11.17亿港元。增持后最新持股数目约3.34亿股，最新持股比例为71.42%。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年06月16日 10:17 来源：央视新闻 责任编辑：【王祎】
+香港联交所最新资料显示，4月8日，Fosun Pharma Industrial Pte.Ltd．增持复锐医疗科技（01696）3.345048亿股，每股作价3.34港元，总金额约11.17亿港元。
+
+增持后最新持股数目约3.34亿股，最新持股比例为71.42%。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:17 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 06:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 06:05 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 06:07 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 06:07 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 06:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 05:51 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 06:15 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 05:52 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 05:56 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 06:21 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 06:06 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 05:57 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 06:00 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 06:16 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 06:14 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 06:09 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 06:03 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 06:19 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 06:09 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 06:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 05:54 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 06:22 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-30 06:19 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 05:54 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:53 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/574805.shtml)
-- 2026-06-30 06:01 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/203726830996.shtml)
-- 2026-06-30 06:09 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/560680948.shtml)
-- 2026-06-30 05:49 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/7073153.shtml)
-- 2026-06-30 06:15 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/89486181395.shtml)
-- 2026-06-30 06:07 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/4636395487.shtml)
-- 2026-06-30 06:18 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/25593.shtml)
-- 2026-06-30 05:57 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/133715145204.shtml)
-- 2026-06-30 06:11 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/143104371603.shtml)
-- 2026-06-30 06:08 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/2859214316.shtml)
-- 2026-06-30 05:56 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/50049.shtml)
-- 2026-06-30 06:15 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/222678.shtml)
-- 2026-06-30 06:14 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/70790899.shtml)
-- 2026-06-30 06:08 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/59129.shtml)
-- 2026-06-30 05:59 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/350685.shtml)
+- 2026-06-30 06:05 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/686461.shtml)
+- 2026-06-30 06:09 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/33570.shtml)
+- 2026-06-30 06:20 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/379043770.shtml)
+- 2026-06-30 05:55 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/100526579.shtml)
+- 2026-06-30 06:08 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/38832.shtml)
+- 2026-06-30 06:13 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/0987098964.shtml)
+- 2026-06-30 06:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/7315550024.shtml)
+- 2026-06-30 06:23 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/426330.shtml)
+- 2026-06-30 06:23 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/4182435458.shtml)
+- 2026-06-30 06:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/137799950707.shtml)
+- 2026-06-30 06:22 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/814438567538.shtml)
+- 2026-06-30 06:01 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/217944995983.shtml)
+- 2026-06-30 05:54 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/65575885.shtml)
+- 2026-06-30 06:18 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/80982543600.shtml)
+- 2026-06-30 06:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/0948495.shtml)

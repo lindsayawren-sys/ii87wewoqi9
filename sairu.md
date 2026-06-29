@@ -1,56 +1,55 @@
-# 人工智能如何赋能制造业？党外知识分子建言献策专家组赴苏沪开展专题调研
+# 2026海峡两岸（湖南）青年交流发展大会即将举办 国台办回应
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 16:32 来源：中国新闻网 6月13日至17日，中央统战部党外知识分子建言献策专家组科学技术组一行先后赴无锡、常州、南京、上海等地，围绕人工智能促进制造业发展、科技评价与科技人才计划相关问题开展专题调研。调研期间，专家组先后走访了无锡一棉纺织集团有限公司、航亚科技股份有限公司(无锡)、理想汽车常州智能制造基地等，实地察看人工智能赋能制造业的实
+中新网4月15日电 4月15日，国务院台办举行例行新闻发布会。有记者问：2026海峡两岸(湖南)青年交流发展大会即将举办，引发两岸青年朋友关注。请介绍有关情况。 国台办发言人陈斌华表示，2026海峡两岸(湖南)青年交流发展大会开幕式将于4月16日在长沙举办，大会以“友好湖南 青春‘湘’约”为主题，依托湖南建设年轻人友好省份政策红利、完备产业基础、良好营商环境、深厚文化底蕴和“低
 
 ## 正文
 
-发布时间：2026年06月16日 16:32 来源：中国新闻网 6月13日至17日，中央统战部党外知识分子建言献策专家组科学技术组一行先后赴无锡、常州、南京、上海等地，围绕人工智能促进制造业发展、科技评价与科技人才计划相关问题开展专题调研。
+中新网4月15日电 4月15日，国务院台办举行例行新闻发布会。
 
-调研期间，专家组先后走访了无锡一棉纺织集团有限公司、航亚科技股份有限公司(无锡)、理想汽车常州智能制造基地等，实地察看人工智能赋能制造业的实践成效。
+有记者问：2026海峡两岸(湖南)青年交流发展大会即将举办，引发两岸青年朋友关注。
 
-党外知识分子建言献策专家组科技组组长、全国人大常委会委员、中国科学院院士郭雷在受访时表示，人工智能赋能制造业已从概念走向实践，带来了实实在在的生产力提升。
+请介绍有关情况。
 
-AI技术仍在发展中，亟待消除企业与行业间的数据壁垒，并解决复合型人才短缺问题。
+国台办发言人陈斌华表示，2026海峡两岸(湖南)青年交流发展大会开幕式将于4月16日在长沙举办，大会以“友好湖南 青春‘湘’约”为主题，依托湖南建设年轻人友好省份政策红利、完备产业基础、良好营商环境、深厚文化底蕴和“低成本创业、高品质生活”地区优势，进一步促进湘台青年交流交往，深化两地各领域交流交融。
 
-党外知识分子建言献策专家组科学技术组将充分发挥平台优势，为科技强国建设贡献智慧与力量。
-
-(记者 迟瀚宇 罗鲁峤） 责任编辑：【罗攀】
+陈斌华指出，大会期间，将举办2026两岸企业家携手青年创新创业交流、“春在湘江”湘台两岸艺术交流周、两岸青年电竞音乐潮流文化交流营等活动，并推介支持台湾青年来湘学习生活、就业创业的有关政策措施，为广大台青来湖南学习、实习、就业、创业提供全方位支持。
 
 ## 相关推荐
 
-- 2026-06-30 06:09 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 05:50 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 05:55 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 06:00 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 05:54 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 05:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 06:16 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 06:00 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 05:53 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 06:08 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 05:51 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 06:09 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 05:56 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 06:12 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 06:17 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 05:58 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-30 05:58 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 06:03 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 06:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 06:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 06:13 - [月亮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 05:57 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 06:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 05:55 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 05:59 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 05:57 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 06:00 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 05:54 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 05:57 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:52 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/03146.shtml)
-- 2026-06-30 05:52 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/358572022345.shtml)
-- 2026-06-30 06:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/03098538.shtml)
-- 2026-06-30 05:51 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/2807490087.shtml)
-- 2026-06-30 05:58 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/9130752.shtml)
-- 2026-06-30 06:01 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/3694615314.shtml)
-- 2026-06-30 06:08 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/940096671786.shtml)
-- 2026-06-30 05:49 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/790736446.shtml)
-- 2026-06-30 05:49 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/56407341.shtml)
-- 2026-06-30 06:07 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/409117840291.shtml)
-- 2026-06-30 05:55 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/76447339825.shtml)
-- 2026-06-30 06:08 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/57840773819.shtml)
-- 2026-06-30 05:50 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/076964.shtml)
-- 2026-06-30 06:05 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/08654.shtml)
-- 2026-06-30 06:07 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/37166.shtml)
+- 2026-06-30 06:17 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/27178654540.shtml)
+- 2026-06-30 06:13 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.kurohicncr.top/Article/details/28024.shtml)
+- 2026-06-30 06:10 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/98428.shtml)
+- 2026-06-30 06:17 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/08492.shtml)
+- 2026-06-30 06:21 - [巴西扳平比分](http://www.blog.minike.top/Article/details/49252612222.shtml)
+- 2026-06-30 06:21 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/844383.shtml)
+- 2026-06-30 06:14 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/93937.shtml)
+- 2026-06-30 06:07 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/278474.shtml)
+- 2026-06-30 06:01 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/980742469.shtml)
+- 2026-06-30 06:05 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/719183560479.shtml)
+- 2026-06-30 06:01 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/706115.shtml)
+- 2026-06-30 06:11 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/52948716.shtml)
+- 2026-06-30 06:15 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/3635010530.shtml)
+- 2026-06-30 06:23 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/85428135.shtml)
+- 2026-06-30 06:15 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/1589120379.shtml)

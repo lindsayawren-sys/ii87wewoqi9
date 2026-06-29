@@ -1,57 +1,56 @@
-# 内蒙古乌兰布和沙漠治沙进行时
+# 台当局拟引进印度移工引发岛内巨大争议
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网阿拉善6月17日电 题：内蒙古乌兰布和沙漠治沙进行时 作者 陈峰 包云峰 6月17日是第32个世界防治荒漠化与干旱日。在乌兰布和沙漠腹地的内蒙古阿拉善盟高新区，站在沙丘极目远眺，一个月前一片荒芜的沙地，如今已被规整的草方格覆盖。这片治沙区距黄河直线距离仅30公里，锁住流沙，就是守护黄河安澜。 清晨，裹挟细沙的清风掠过沙丘，巴音敖包嘎查牧民刘继光已忙活多时，他用铁锹熟练地将
+中新网4月14日电(燕新台)台当局劳动部门负责人洪申翰日前在台立法机构称，首批来自印度的移工(即外籍劳工)最快将于今年底到台湾，此举引发岛内社会高度关注，已有3万人联署要求立即中止该项措施。 台湾“中时新闻网”援引岛内社交频道一项网络投票结果显示，参与投票的2.5万人中，高达93%的民众对引进印度移工表示反对。 据台湾《中国时报》报道，中国国民党台立法机构党团13日就此提出三项
 
 ## 正文
 
-中新网阿拉善6月17日电 题：内蒙古乌兰布和沙漠治沙进行时 作者 陈峰 包云峰 6月17日是第32个世界防治荒漠化与干旱日。
+中新网4月14日电(燕新台)台当局劳动部门负责人洪申翰日前在台立法机构称，首批来自印度的移工(即外籍劳工)最快将于今年底到台湾，此举引发岛内社会高度关注，已有3万人联署要求立即中止该项措施。
 
-在乌兰布和沙漠腹地的内蒙古阿拉善盟高新区，站在沙丘极目远眺，一个月前一片荒芜的沙地，如今已被规整的草方格覆盖。
+台湾“中时新闻网”援引岛内社交频道一项网络投票结果显示，参与投票的2.5万人中，高达93%的民众对引进印度移工表示反对。
 
-这片治沙区距黄河直线距离仅30公里，锁住流沙，就是守护黄河安澜。
+据台湾《中国时报》报道，中国国民党台立法机构党团13日就此提出三项主张：一是在失联移工问题未得到改善前，全面反对引进印度移工；二是要求台行政机构说明该项政策动机与产业需求来源；三是在管理机制与配套政策未完善前，不得扩大任何移工来源地。
 
-清晨，裹挟细沙的清风掠过沙丘，巴音敖包嘎查牧民刘继光已忙活多时，他用铁锹熟练地将干草压入沙中，身后留下齐整的草方格。
+面对岛内民意的强烈反弹，据台湾《联合报》报道，洪申翰13日松口，辩称是否引进印度移工需满足两个前提，即岛内企业端需求，且印方执行方案能否符合台方要求。
 
-“以前养牛、养羊靠天吃饭，现在在家门口治沙，以工代赈每年能增收好几万元。
+民进党民意代表对此反驳，声称是国民党要求“加速引进印度移工”。
 
-”刘继光直起腰，掸了掸裤腿上的沙土说道。
+台湾“中时新闻网”报道称，国民党民意代表王鸿薇在社交媒体发文，批评民进党在印度移工引进议题上模糊焦点。
 
-自2026年5月上旬该锁边项目开工以来，一个多月时间，项目区已铺设草方格7.4万亩。
+她表示，印度移工问题已造成岛内民怨沸腾，其已发函至台当局劳动部门，询问是否会中止引进印度移工，并要求公开目前的相关进度与细节。
 
-嘎查里，像刘继光这样参与治沙的牧民不在少数。
+岛内舆论指出，印度移工议题争议迅速发酵，关键不在于移工来源地为印度，而是台湾地区现有移工制度长期错乱失序。
 
 ## 相关推荐
 
-- 2026-06-30 06:06 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 06:09 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 05:50 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 06:17 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 06:09 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 05:49 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 05:52 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 06:09 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 06:04 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 05:54 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 06:17 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 06:20 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 05:59 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 06:22 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 06:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 05:55 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 06:15 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 05:55 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 05:57 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 06:22 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 06:04 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:03 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/83353815.shtml)
-- 2026-06-30 06:06 - [请回答王牌2019](https://www.share.minike.top/Article/details/48530808.shtml)
-- 2026-06-30 05:52 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/443104962108.shtml)
-- 2026-06-30 06:15 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/44092740461.shtml)
-- 2026-06-30 06:11 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/680065.shtml)
-- 2026-06-30 06:01 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/7276416258.shtml)
-- 2026-06-30 06:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/74822.shtml)
-- 2026-06-30 06:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/283324723802.shtml)
-- 2026-06-30 06:02 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/208936496.shtml)
-- 2026-06-30 06:01 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/781580.shtml)
-- 2026-06-30 06:02 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/248773989.shtml)
-- 2026-06-30 06:01 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/46322.shtml)
-- 2026-06-30 06:11 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/9259508404.shtml)
-- 2026-06-30 05:55 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/19849550.shtml)
-- 2026-06-30 05:51 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/555767.shtml)
+- 2026-06-30 06:22 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/3018345.shtml)
+- 2026-06-30 06:11 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/8151625742.shtml)
+- 2026-06-30 06:13 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/3538941325.shtml)
+- 2026-06-30 06:05 - [金牌调解](https://www.share.kurohicncr.top/Article/details/1196111.shtml)
+- 2026-06-30 06:00 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/14694804498.shtml)
+- 2026-06-30 06:13 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/654295943.shtml)
+- 2026-06-30 06:19 - [绘画区你赢了](https://www.blog.minike.top/Article/details/683079918766.shtml)
+- 2026-06-30 05:59 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/534287331036.shtml)
+- 2026-06-30 06:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/265526817.shtml)
+- 2026-06-30 06:23 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/5372351877.shtml)
+- 2026-06-30 06:11 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/05719.shtml)
+- 2026-06-30 05:59 - [美股](https://www.blog.kurohicncr.top/Article/details/40520415.shtml)
+- 2026-06-30 06:12 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/346325950.shtml)
+- 2026-06-30 06:01 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/21704903.shtml)
+- 2026-06-30 06:22 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/505653004.shtml)

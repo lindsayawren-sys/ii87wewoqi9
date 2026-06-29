@@ -1,56 +1,59 @@
-# 新智认知（603869）股民索赔已有胜诉还可起诉，龙宇股份（603003）索赔案已有胜诉再提立案
+# 加拿大暂停征收联邦燃油消费税
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-上海久诚律师事务所股票索赔律师许峰提示，新智认知（603869）虚假陈述引发的投资者索赔案还在推进中，如果投资者符合条件，目前还可起诉。（许峰律师专栏） 新智认知投资者索赔案已有投资者胜诉先例，许峰律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 此前2024年12月27日晚，新智认知公告收到证监会《行政处罚决定书》，经查明，新智认知2019年年度报告
+中新社北京4月15日电 渥太华消息：加拿大总理马克·卡尼当地时间14日宣布，解决生活成本问题将成为加拿大政府的主要优先事项，暂停征收联邦燃油消费税是首个具体措施。 综合加拿大广播公司(CBC)、《环球邮报》、美联社等媒体报道，该措施规定，2026年4月20日至9月7日期间，暂停征收汽油、柴油和航空燃料的全部联邦消费税。此举预计将使普通汽油价格每升下降约0.1加元(1加元约合0.
 
 ## 正文
 
-上海久诚律师事务所股票索赔律师许峰提示，新智认知（603869）虚假陈述引发的投资者索赔案还在推进中，如果投资者符合条件，目前还可起诉。
+中新社北京4月15日电 渥太华消息：加拿大总理马克·卡尼当地时间14日宣布，解决生活成本问题将成为加拿大政府的主要优先事项，暂停征收联邦燃油消费税是首个具体措施。
 
-（许峰律师专栏） 新智认知投资者索赔案已有投资者胜诉先例，许峰律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+综合加拿大广播公司(CBC)、《环球邮报》、美联社等媒体报道，该措施规定，2026年4月20日至9月7日期间，暂停征收汽油、柴油和航空燃料的全部联邦消费税。
 
-此前2024年12月27日晚，新智认知公告收到证监会《行政处罚决定书》，经查明，新智认知2019年年度报告、2020年年度报告、2021年年度报告存在虚假记载。
+此举预计将使普通汽油价格每升下降约0.1加元(1加元约合0.73美元)，柴油价格每升下降约0.04加元。
 
-许峰律师认为，综合以上违法事实，根据证券法规定，在2020年4月25日到2024年4月30日之间买入新智认知股票，并在2024年4月30日后卖出或继续持有股票的投资者，目前还可发起索赔。
+加拿大政府估计，此举将使联邦政府财政收入减少约24亿加元。
 
-（ST智知维权入口） 除了新智认知投资者索赔案还可起诉，2026年6月15日，许峰律师代理的龙宇股份（603003）股民索赔案再提交一次上海金融法院立案。
+伊朗冲突引发全球油价大幅上涨，最近几周加拿大汽油价格显著攀升。
 
-2026年5月29日，许峰律师代理的龙宇股份投资者索赔案收到投资者一审胜诉判决。
+卡尼称，加拿大新政府一直专注于减轻加拿大人的生活负担。
 
-2026年6月22日，再有部分案件将在上海金融法院开庭审理。
+此次燃油税减免是一项负责任的临时措施，也是加政府减轻民众负担更广泛议程的一部分。
 
-许峰律师提示，部分投资者诉龙宇股份虚假陈述索赔案已有两审胜诉判决，目前该案还在索赔诉讼时效内，符合条件的投资者还可发起索赔。
+他还提到2025年加拿大取消消费者碳税，进一步证明政府致力于减轻民众负担。
 
 ## 相关推荐
 
-- 2026-06-30 06:01 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 06:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 05:58 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 06:08 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 06:15 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 05:53 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 05:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 06:01 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 06:07 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 05:53 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 06:07 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 06:10 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 06:02 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 06:12 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 06:11 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 06:13 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 06:07 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 06:18 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 06:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 06:19 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 06:02 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 05:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 06:08 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:09 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/3113788.shtml)
-- 2026-06-30 06:09 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/398391.shtml)
-- 2026-06-30 06:10 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/57297008.shtml)
-- 2026-06-30 06:10 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/240123.shtml)
-- 2026-06-30 06:07 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/7284505.shtml)
-- 2026-06-30 06:15 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/90110.shtml)
-- 2026-06-30 06:13 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/4474078533.shtml)
-- 2026-06-30 06:00 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/50696779092.shtml)
-- 2026-06-30 06:12 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/1062280423.shtml)
-- 2026-06-30 06:03 - [日本反击率先破门](http://www.share.minike.top/Article/details/847847777294.shtml)
-- 2026-06-30 05:54 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/3532142206.shtml)
-- 2026-06-30 05:52 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/31537960.shtml)
-- 2026-06-30 05:51 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/4624450037.shtml)
-- 2026-06-30 06:12 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/51728998.shtml)
-- 2026-06-30 06:12 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.kurohicncr.top/Article/details/319330.shtml)
+- 2026-06-30 06:15 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/5918158.shtml)
+- 2026-06-30 06:00 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/10881098108.shtml)
+- 2026-06-30 06:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/58544337742.shtml)
+- 2026-06-30 06:18 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/2480452.shtml)
+- 2026-06-30 05:57 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/01552610818.shtml)
+- 2026-06-30 05:58 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/4101890031.shtml)
+- 2026-06-30 06:11 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/377633.shtml)
+- 2026-06-30 06:14 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/47969.shtml)
+- 2026-06-30 05:54 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/441060651378.shtml)
+- 2026-06-30 05:55 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/23384603.shtml)
+- 2026-06-30 06:08 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/64376100.shtml)
+- 2026-06-30 05:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/43182798031.shtml)
+- 2026-06-30 06:18 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/5424261816.shtml)
+- 2026-06-30 05:58 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/32262.shtml)
+- 2026-06-30 06:15 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/17893255277.shtml)

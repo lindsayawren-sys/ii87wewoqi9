@@ -1,57 +1,53 @@
-# AI正在填平足球鸿沟：联想如何参与打造“首届AI世界杯”？
+# Lululemon回应涉嫌含致癌物调查：目前所有产品均不含PFAS
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间6月17日，世界杯小组赛J组第1轮，梅西率领阿根廷3-0击败阿尔及利亚取得开门红。然而，比赛第5分钟的一次判罚，却引发球迷热议：梅西接队友直塞后单刀破门，帮助阿根廷率先取得进球。但边裁第一时间示意越位，数字人越位判罚随即介入复核——转播画面中，梅西的3D数字人模型出现在屏幕上，以三维动画还原球员位置
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月14日消息，当地时间4月13日，美国得克萨斯州总检察长肯·帕克斯顿（Ken Paxton）公开宣布，已对Lululemon美国公司发起民事调查，以核实其产品中是否含有俗称“永久性化学品”的全氟和多氟烷基物质（PFAS），以及该公司是否在此问题上误导了消费者。 得克萨斯州总检察长办公室在声明中指出，PFA
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-北京时间6月17日，世界杯小组赛J组第1轮，梅西率领阿根廷3-0击败阿尔及利亚取得开门红。
+4月14日消息，当地时间4月13日，美国得克萨斯州总检察长肯·帕克斯顿（Ken Paxton）公开宣布，已对Lululemon美国公司发起民事调查，以核实其产品中是否含有俗称“永久性化学品”的全氟和多氟烷基物质（PFAS），以及该公司是否在此问题上误导了消费者。
 
-然而，比赛第5分钟的一次判罚，却引发球迷热议：梅西接队友直塞后单刀破门，帮助阿根廷率先取得进球。
+得克萨斯州总检察长办公室在声明中指出，PFAS因其极难在环境中降解而得名，已有研究将其与内分泌紊乱、不孕不育甚至某些癌症等健康问题相关联。
 
-但边裁第一时间示意越位，数字人越位判罚随即介入复核——转播画面中，梅西的3D数字人模型出现在屏幕上，以三维动画还原球员位置、跑动轨迹与关键瞬间的空间关系，越位依据一目了然，主裁判最终判定进球无效。
+对此，lululemon官方客服回应表示，“lululemon目前所有产品均不含全氟和多氟烷基物质（PFAS）。
 
-相比判罚本身，更值得关注的是判罚过程背后的黑科技，揭示了本届赛事的本质：这是全球首届真正由AI深度赋能的世界杯，AI正以前所未有的方式进入足球世界。
+客人的健康和安全对lululemon至关重要，我们的产品均符合所在运营市场的标准。
 
-然而这一过程中，很少有观众知道，当比赛在墨西哥、美国和加拿大的16座城市同时进行时，支撑赛事运转的两个核心中枢正在昼夜不停地工作。
-
-位于迈阿密的FIFA智能指挥中心（Intelligent Command Center）负责赛事运营管理，而位于达拉斯的国际广播中心（IBC）则承担全球媒体信号汇聚与分发工作。
-
-近日，记者与身处FIFA核心中枢一线的联想集团方案服务业务团队数字方案服务和交付总监王珣进行了对话。
+”责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 05:59 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 05:48 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 05:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 05:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 06:12 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 06:00 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 05:56 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 06:14 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 06:06 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 05:58 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 06:01 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 06:01 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 06:23 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 06:11 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 05:55 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 05:58 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 06:20 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 05:54 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 06:18 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 05:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 05:54 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 06:11 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:16 - [85花告别古偶](http://www.blog.minike.top/Article/details/484192252.shtml)
-- 2026-06-30 06:16 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/67591505510.shtml)
-- 2026-06-30 05:48 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/7000240316.shtml)
-- 2026-06-30 06:08 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/900810294.shtml)
-- 2026-06-30 05:50 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/9287954197.shtml)
-- 2026-06-30 06:13 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/52440272.shtml)
-- 2026-06-30 06:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/209731.shtml)
-- 2026-06-30 06:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/191154639.shtml)
-- 2026-06-30 06:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/571464.shtml)
-- 2026-06-30 06:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/6318859714.shtml)
-- 2026-06-30 05:48 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/96236.shtml)
-- 2026-06-30 05:55 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/7434264376.shtml)
-- 2026-06-30 06:01 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/7876003131.shtml)
-- 2026-06-30 05:49 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/579458172.shtml)
-- 2026-06-30 06:04 - [第一炉香](http://www.share.minike.top/Article/details/2585626.shtml)
+- 2026-06-30 06:17 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/1297176.shtml)
+- 2026-06-30 06:20 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/68663282451.shtml)
+- 2026-06-30 05:59 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/143050.shtml)
+- 2026-06-30 06:22 - [周生如故](http://www.share.kurohicncr.top/Article/details/938353447.shtml)
+- 2026-06-30 06:08 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/2696031561.shtml)
+- 2026-06-30 06:16 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/90179831402.shtml)
+- 2026-06-30 06:00 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/7813424.shtml)
+- 2026-06-30 06:10 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/424470382844.shtml)
+- 2026-06-30 06:06 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/287579423.shtml)
+- 2026-06-30 06:16 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/69139680.shtml)
+- 2026-06-30 06:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/79759527.shtml)
+- 2026-06-30 06:23 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/89712.shtml)
+- 2026-06-30 06:02 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/0193219836.shtml)
+- 2026-06-30 06:14 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/13066391.shtml)
+- 2026-06-30 06:20 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/66252751487.shtml)

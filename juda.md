@@ -1,56 +1,59 @@
-# 德勤：2026年港交所料将跻身全球新股融资额三甲
+# 中国政府中东问题特使翟隽会见巴西总统外事顾问伊布拉因
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新社北京6月17日电 德勤中国资本市场服务部17日发布报告称，香港交易及结算所有限公司(港交所)凭借2026年上半年的“成绩单”，具备足够的条件在今年年底时保持全球新股融资额排行榜的前三名。 随着史上最大规模新股美国太空探索技术公司(SpaceX)在美国上市，2026年上半年全球新股的表现超越2025年上半年。港交所在2026年一季度迎来三宗超大型H股上市后，二季度又迎来另一
+2026年4月14日，中国政府中东问题特使翟隽在北京会见巴西总统外事顾问伊布拉因，重点就伊朗局势交换意见。 伊布拉因表示，当前中东局势高度紧张，应全力避免冲突升级外溢。巴中两国在伊朗局势等问题上立场相近，都认为政治外交手段是解决分歧的唯一正确途径。巴方赞赏中国和巴基斯坦提出的关于恢复海湾和中东地区和平稳定的五点倡议，愿同中方一道，支持推动局势缓和的外交努力，共同维护以国际法为基
 
 ## 正文
 
-中新社北京6月17日电 德勤中国资本市场服务部17日发布报告称，香港交易及结算所有限公司(港交所)凭借2026年上半年的“成绩单”，具备足够的条件在今年年底时保持全球新股融资额排行榜的前三名。
+2026年4月14日，中国政府中东问题特使翟隽在北京会见巴西总统外事顾问伊布拉因，重点就伊朗局势交换意见。
 
-随着史上最大规模新股美国太空探索技术公司(SpaceX)在美国上市，2026年上半年全球新股的表现超越2025年上半年。
+伊布拉因表示，当前中东局势高度紧张，应全力避免冲突升级外溢。
 
-港交所在2026年一季度迎来三宗超大型H股上市后，二季度又迎来另一家知名中国印制电路板(PCB)制造商的新股，融资额超过200亿港元。
+巴中两国在伊朗局势等问题上立场相近，都认为政治外交手段是解决分歧的唯一正确途径。
 
-上述报告预计，2026年上半年，香港将有78只新股融资2033亿港元，较2025年上半年的42只新股融资1071亿港元大幅攀升，新股数量上升约86%，融资金额增加近90%。
+巴方赞赏中国和巴基斯坦提出的关于恢复海湾和中东地区和平稳定的五点倡议，愿同中方一道，支持推动局势缓和的外交努力，共同维护以国际法为基础的国际秩序。
 
-报告认为，香港新股市场由AI(人工智能)价值链、半导体、机器人、消费、生物科技等企业推动。
+翟隽表示，中方高度关注当前中东局势，认为冲突当事方应把握住争取和平的机会，相向而行，通过对话谈判找到解决问题的办法。
 
-德勤中国资本市场服务部上市业务华北及华西区主管合伙人任绍文表示，展望未来，香港可进一步完善航天科技及相关产业链企业的上市融资机制，为商业航天、卫星应用及其他前沿科技企业提供更适切的资本市场支持。
+中方始终秉持客观、公正立场，积极劝和促谈，愿同巴方密切协作，推动国际社会就停火止战、政治解决形成更大共识，为中东地区尽早恢复和平稳定作出贡献。
 
-这不仅配合了国家科技创新及产业升级方向，亦有助于香港培育新的增长动能，提升市场深度及国际竞争力。
-
-德勤中国资本市场服务部香港上市业务全国主管合伙人及上市业务华东区主管合伙人谢明辉表示，半导体、AI价值链公司、机器人、生物科技、创新科技公司，以及来自A股市场的新经济公司占2026年上半年香港新股数量逾七成，所募集的金额占香港新股融资总额近八成，这表明香港近几年推出的吸引创新公司来港上市以及简化大型A股上市公司来港上市审批流程等多项监管改革取得了成功。
+双方还就巴勒斯坦、黎巴嫩等地区热点问题交换看法。
 
 ## 相关推荐
 
-- 2026-06-30 05:56 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 06:08 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 06:01 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 06:09 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 06:04 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 05:58 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 06:06 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 05:54 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 06:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 06:07 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 06:19 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 05:56 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 06:17 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 06:09 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 06:02 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 06:22 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 06:22 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 06:13 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 06:20 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 06:11 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 06:21 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 06:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 06:20 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 06:06 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 06:11 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:05 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/43135.shtml)
-- 2026-06-30 06:09 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/509942.shtml)
-- 2026-06-30 05:58 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/843025424.shtml)
-- 2026-06-30 06:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/20933.shtml)
-- 2026-06-30 06:06 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/069933959.shtml)
-- 2026-06-30 06:15 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/1904831187.shtml)
-- 2026-06-30 06:08 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/021488.shtml)
-- 2026-06-30 05:51 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/62038530543.shtml)
-- 2026-06-30 05:57 - [一见倾心](http://www.blog.minike.top/Article/details/1783807791.shtml)
-- 2026-06-30 06:15 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/1445312.shtml)
-- 2026-06-30 05:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/07319494650.shtml)
-- 2026-06-30 05:50 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/877423120.shtml)
-- 2026-06-30 06:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/0692704650.shtml)
-- 2026-06-30 05:50 - [TOP Prada](http://www.share.minike.top/Article/details/949671.shtml)
-- 2026-06-30 05:52 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/40276.shtml)
+- 2026-06-30 06:10 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/19097743205.shtml)
+- 2026-06-30 06:17 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/932969869492.shtml)
+- 2026-06-30 06:04 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/48841346466.shtml)
+- 2026-06-30 06:11 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/8880159066.shtml)
+- 2026-06-30 06:02 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/765968.shtml)
+- 2026-06-30 05:54 - [美人鱼](https://www.share.kurohicncr.top/Article/details/18212.shtml)
+- 2026-06-30 06:12 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/3810035200.shtml)
+- 2026-06-30 06:19 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/5410004494.shtml)
+- 2026-06-30 05:54 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/681344520.shtml)
+- 2026-06-30 06:07 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/4704250.shtml)
+- 2026-06-30 05:58 - [天道](http://www.blog.kurohicncr.top/Article/details/30371132.shtml)
+- 2026-06-30 05:55 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/9550708.shtml)
+- 2026-06-30 06:14 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/110427910916.shtml)
+- 2026-06-30 06:22 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/8614635.shtml)
+- 2026-06-30 06:00 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/633113839.shtml)

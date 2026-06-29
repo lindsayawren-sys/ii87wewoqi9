@@ -1,58 +1,59 @@
-# 专家：台当局设网页诱导大陆民众提供“情报”，暴露其深层困境
+# 扬特色之长，走差异之路（现场评论）
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网6月16日电(燕新台)台“国安局”日前宣布设立所谓针对大陆民众的“联系窗口”，妄图向大陆“撒网”收集情报，遭到岛内舆论质疑和网友嘲讽。 据台湾《联合报》报道，台“国安局”14日称，为广泛搜集大陆政治、军事、经济及社会情报，依据所谓“情报工作法”规定，并参考美国、英国、以色列等情报机构做法，设立大陆民众“联系窗口”网页，“便利大陆民众主动联系、提供情报”。 台“国安局”还声
+人民日报 程 焕 乌蒙山腹地，贵州六盘水，随着滑雪场相继关闭滑雪项目，这个雪季的冰雪旅游暂告段落，迎来春意盎然的新景象。 过去认为，“南方无雪趣”。低纬度地带，何以银装素裹？又何以发展冰雪经济？前不久，笔者深入六盘水，深感走差异化发展之路，是竞逐冰雪赛道的底气所在。发展冰雪经济，关键在冰雪资源。六盘水地处云贵高原阶梯过渡地带，冷暖空气在此交汇，每到冬季便呈现一派“北国风光”。冰
 
 ## 正文
 
-中新网6月16日电(燕新台)台“国安局”日前宣布设立所谓针对大陆民众的“联系窗口”，妄图向大陆“撒网”收集情报，遭到岛内舆论质疑和网友嘲讽。
+人民日报 程 焕 乌蒙山腹地，贵州六盘水，随着滑雪场相继关闭滑雪项目，这个雪季的冰雪旅游暂告段落，迎来春意盎然的新景象。
 
-据台湾《联合报》报道，台“国安局”14日称，为广泛搜集大陆政治、军事、经济及社会情报，依据所谓“情报工作法”规定，并参考美国、英国、以色列等情报机构做法，设立大陆民众“联系窗口”网页，“便利大陆民众主动联系、提供情报”。
+过去认为，“南方无雪趣”。
 
-台“国安局”还声称，该网页重视“资通安全”与“身份保密”，同时针对大陆民众提供的“情报”，将通过科技手段“严谨筛滤”，并由专业团队进行评估与查证，以执行后续联系工作。
+低纬度地带，何以银装素裹？
 
-然而，岛内网友对此却不以为然。
+又何以发展冰雪经济？
 
-有网友批评称“又找理由搞钱”“预算还是太多了”，还有网友猜测此举“将用于年底制造抹黑议题，选举将近，民进党不抹黑抹红就不会选”。
+前不久，笔者深入六盘水，深感走差异化发展之路，是竞逐冰雪赛道的底气所在。
 
-针对台“国安局”声称的“近年大陆经济发展面临困境、政治统治维持高压，加上社会民生问题丛生，激发民众对现况不满……”，也有网友嘲讽：把“大陆”换成“台湾”似乎才贴切。
+发展冰雪经济，关键在冰雪资源。
 
-北京联合大学政治学研究所所长、台湾研究院教授朱松岭接受中新网“燕新台”工作室采访时指出，眼看着岛内选举临近，民进党当局急需用这种高调动作转移内部矛盾、抹黑大陆，“说到底就是炮制选举工具，为制造‘奥步’(闽南语‘烂招’)创造条件”。
+六盘水地处云贵高原阶梯过渡地带，冷暖空气在此交汇，每到冬季便呈现一派“北国风光”。
 
-岛内政坛也纷纷质疑。
+冰雪底子好，让特色产业有了扎根可能。
 
 ## 相关推荐
 
-- 2026-06-30 06:01 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 06:01 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 05:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 05:55 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 06:18 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 06:10 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 06:08 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 06:11 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 06:01 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 06:13 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 06:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 06:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 06:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 06:02 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 06:16 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 06:07 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 06:07 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 06:13 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 06:16 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 06:07 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 06:06 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 06:07 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 06:13 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 06:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 06:12 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:02 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/01595.shtml)
-- 2026-06-30 06:05 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/94764571.shtml)
-- 2026-06-30 06:17 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/208870823635.shtml)
-- 2026-06-30 05:50 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/30017223.shtml)
-- 2026-06-30 05:58 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/50100416.shtml)
-- 2026-06-30 05:51 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/058353209.shtml)
-- 2026-06-30 06:10 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/865726446617.shtml)
-- 2026-06-30 05:50 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/492570347.shtml)
-- 2026-06-30 05:59 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/05505781026.shtml)
-- 2026-06-30 06:02 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/3514858.shtml)
-- 2026-06-30 05:48 - [巴西绝杀](http://www.share.minike.top/Article/details/3018677.shtml)
-- 2026-06-30 06:15 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/1142942.shtml)
-- 2026-06-30 06:03 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/9210043.shtml)
-- 2026-06-30 05:51 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/65908.shtml)
-- 2026-06-30 05:58 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/227851.shtml)
+- 2026-06-30 06:00 - [毒液2](http://www.blog.minike.top/Article/details/30392433.shtml)
+- 2026-06-30 05:58 - [沙丘](http://www.share.minike.top/Article/details/74536186.shtml)
+- 2026-06-30 06:05 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/4344694.shtml)
+- 2026-06-30 06:04 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/97226520.shtml)
+- 2026-06-30 06:06 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/331144320264.shtml)
+- 2026-06-30 05:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/2256336.shtml)
+- 2026-06-30 05:56 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/70066001.shtml)
+- 2026-06-30 06:15 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/92511933727.shtml)
+- 2026-06-30 06:05 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/89960373.shtml)
+- 2026-06-30 06:10 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/395108465.shtml)
+- 2026-06-30 05:59 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/81820.shtml)
+- 2026-06-30 05:55 - [日本16强魔咒](https://www.share.minike.top/Article/details/11002721330.shtml)
+- 2026-06-30 06:01 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/72121260257.shtml)
+- 2026-06-30 06:01 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/80625863.shtml)
+- 2026-06-30 05:56 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/59799.shtml)

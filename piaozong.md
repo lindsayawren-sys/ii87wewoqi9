@@ -1,49 +1,49 @@
-# 6月16日增减持汇总：盛泰集团、新里程披露增持情况，播恩集团等4股拟减持（表）
+# 大族数控获Schroders PLC增持33万股 每股作价约119.68港元
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据不完全统计，6月16日盘后，盛泰集团、新里程披露增持情况，播恩集团、福达合金、和远气体、百合花4家A股上市公司披露拟减持情况。 责任编辑：宋雅芳
+据香港联交所最新数据显示，4月10日，Schroders PLC增持大族数控（03200）33万股，每股作价119.682港元，总金额约为3949.51万港元。增持后最新持股数目为889.43万股，持股比例为15.33%。责任编辑：卢昱君
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+据香港联交所最新数据显示，4月10日，Schroders PLC增持大族数控（03200）33万股，每股作价119.682港元，总金额约为3949.51万港元。
 
-据不完全统计，6月16日盘后，盛泰集团、新里程披露增持情况，播恩集团、福达合金、和远气体、百合花4家A股上市公司披露拟减持情况。
+增持后最新持股数目为889.43万股，持股比例为15.33%。
 
-责任编辑：宋雅芳
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:14 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 06:11 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 06:05 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 05:49 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 05:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 05:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-30 06:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 06:02 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 05:54 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 06:01 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 06:11 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 06:05 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 06:14 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 06:21 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 06:22 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 06:04 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 06:04 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 06:00 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 06:19 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 05:55 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 06:08 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 06:03 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 06:14 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 06:07 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 06:21 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 06:12 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:05 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/1704031.shtml)
-- 2026-06-30 06:04 - [世界杯](http://www.share.minike.top/Article/details/476300977845.shtml)
-- 2026-06-30 06:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/398584690611.shtml)
-- 2026-06-30 06:07 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/92815494.shtml)
-- 2026-06-30 06:02 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/865173599.shtml)
-- 2026-06-30 05:49 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/04894.shtml)
-- 2026-06-30 06:09 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/821274410446.shtml)
-- 2026-06-30 05:58 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/5502608702.shtml)
-- 2026-06-30 05:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/38480.shtml)
-- 2026-06-30 06:17 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/8499381591.shtml)
-- 2026-06-30 05:51 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/637479804.shtml)
-- 2026-06-30 05:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/472435023859.shtml)
-- 2026-06-30 05:57 - [小娘惹](https://www.share.kurohicncr.top/Article/details/79884735.shtml)
-- 2026-06-30 06:07 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/682853500829.shtml)
-- 2026-06-30 05:55 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/2748465.shtml)
+- 2026-06-30 05:58 - [苗族银饰](https://www.blog.minike.top/Article/details/444578.shtml)
+- 2026-06-30 06:10 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/31671722.shtml)
+- 2026-06-30 06:17 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/06555282.shtml)
+- 2026-06-30 06:15 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/97027.shtml)
+- 2026-06-30 05:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/977434520254.shtml)
+- 2026-06-30 06:03 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/29931130.shtml)
+- 2026-06-30 06:20 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/8779311.shtml)
+- 2026-06-30 06:18 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/860420.shtml)
+- 2026-06-30 06:21 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/40230312.shtml)
+- 2026-06-30 06:04 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/73917930450.shtml)
+- 2026-06-30 06:14 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/230269.shtml)
+- 2026-06-30 06:21 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/20293.shtml)
+- 2026-06-30 06:02 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/2437698083.shtml)
+- 2026-06-30 06:01 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/3778097.shtml)
+- 2026-06-30 06:09 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/17004.shtml)

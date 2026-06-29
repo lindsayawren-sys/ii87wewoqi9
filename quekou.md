@@ -1,60 +1,51 @@
-# 涉高考诈骗进入高发期 防诈要点请记牢
+# 陕西西安：校园版“武林大会”上演 舞狮武术齐上阵
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-高考结束，骗子常利用考生和家长焦急的心态，冒充所谓教育局或者高校招生办等机构的工作人员，号称可以提前查分，甚至提供所谓“特殊补录名额”“特招通道”等。 这些提前查分、特招通道是真的吗？怎么鉴别这类套路？公安部门提示，高考结束后会出现几类常见的诈骗手法。 第一类，要警惕“提前查分”骗局。诈骗分子利用家长焦急心态，通过短信发送虚假查分链接，点击后可能导致手机中毒、个人信息泄露甚至财
+发布时间：2026年04月15日 10:22 来源：中国新闻网 4月14日，陕西省西安市，西咸新区沣东新城高新学校的操场早已沸腾。六年级舞龙队的金色长龙翻腾盘旋，鼓点急促；啦啦操社团的花球翻飞，口号清脆；三年级的“小狮子”跃扑间已有模有样——这是学校清晨的固定图景。自陕西省推行体质健康提升计划以来，该校以“阶梯式”体育社团体系作答，让不同学段学生各得其所。(作者：陈飞波） 责任
 
 ## 正文
 
-高考结束，骗子常利用考生和家长焦急的心态，冒充所谓教育局或者高校招生办等机构的工作人员，号称可以提前查分，甚至提供所谓“特殊补录名额”“特招通道”等。
+发布时间：2026年04月15日 10:22 来源：中国新闻网 4月14日，陕西省西安市，西咸新区沣东新城高新学校的操场早已沸腾。
 
-这些提前查分、特招通道是真的吗？
+六年级舞龙队的金色长龙翻腾盘旋，鼓点急促；啦啦操社团的花球翻飞，口号清脆；三年级的“小狮子”跃扑间已有模有样——这是学校清晨的固定图景。
 
-怎么鉴别这类套路？
+自陕西省推行体质健康提升计划以来，该校以“阶梯式”体育社团体系作答，让不同学段学生各得其所。
 
-公安部门提示，高考结束后会出现几类常见的诈骗手法。
-
-第一类，要警惕“提前查分”骗局。
-
-诈骗分子利用家长焦急心态，通过短信发送虚假查分链接，点击后可能导致手机中毒、个人信息泄露甚至财产损失。
-
-还有的诈骗分子宣称认识考试院内部人员，能够从后台修改卷面分数。
-
-实际上，高考成绩数据采用多重备份与加密技术，任何个人或机构均无权也无法篡改。
+(作者：陈飞波） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 06:01 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 05:50 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 05:58 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 06:10 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 05:56 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-30 05:51 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 05:57 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 06:14 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 05:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 06:04 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 05:56 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 05:50 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 06:04 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 06:10 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 05:55 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 06:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 05:58 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 06:12 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 06:07 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 06:08 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 06:10 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 06:03 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 06:14 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 06:02 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 06:15 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 06:16 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 06:19 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:08 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/95959267.shtml)
-- 2026-06-30 05:51 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/0160298.shtml)
-- 2026-06-30 05:56 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/29367580125.shtml)
-- 2026-06-30 06:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/6482534287.shtml)
-- 2026-06-30 05:56 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/9770427.shtml)
-- 2026-06-30 06:03 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/9508900.shtml)
-- 2026-06-30 06:12 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/793517348.shtml)
-- 2026-06-30 05:52 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/9454954662.shtml)
-- 2026-06-30 06:00 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/4998332.shtml)
-- 2026-06-30 05:57 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/80545822623.shtml)
-- 2026-06-30 06:11 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/9277962.shtml)
-- 2026-06-30 06:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/317512912271.shtml)
-- 2026-06-30 06:14 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/93904.shtml)
-- 2026-06-30 06:10 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/041273.shtml)
-- 2026-06-30 06:02 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/54938.shtml)
+- 2026-06-30 06:14 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/596187812.shtml)
+- 2026-06-30 06:09 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/04038612.shtml)
+- 2026-06-30 06:00 - [一见倾心](https://www.blog.minike.top/Article/details/02973.shtml)
+- 2026-06-30 06:13 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/1371030865.shtml)
+- 2026-06-30 05:54 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/90759316.shtml)
+- 2026-06-30 06:09 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/95655968.shtml)
+- 2026-06-30 06:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/53673.shtml)
+- 2026-06-30 06:04 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/22662.shtml)
+- 2026-06-30 06:06 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/912085024.shtml)
+- 2026-06-30 06:22 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/40454509.shtml)
+- 2026-06-30 06:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/63726620834.shtml)
+- 2026-06-30 06:19 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/83765137.shtml)
+- 2026-06-30 05:57 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.kurohicncr.top/Article/details/312265333.shtml)
+- 2026-06-30 06:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/632910.shtml)
+- 2026-06-30 06:05 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/9891553.shtml)

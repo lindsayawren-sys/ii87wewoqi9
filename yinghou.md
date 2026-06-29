@@ -1,61 +1,57 @@
-# 超三千万股邯郸银行股权拟拍卖！较评估价折让30%、市净率仅0.5倍
+# 植物医生冲刺IPO，“0加盟费”模式的弊端，也藏不住了
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-来源：机构之家 机构之家注意到，一笔涉及邯郸银行超三千万股股权，正悄然出现于拍卖平台上。根据京东司法平台显示，本次拍卖涉及股权总量共计32419052股，起拍价为62406675.1元。这笔股权出让正处预告中：将于6月29日上午10点正式开拍，目前已吸引了近千次围观。 图片系邯郸银行32419052股股权即将拍卖 起拍价较评估价折让30% 进一步来看本次拍卖细节。根据邯郸万信资
+来源：镁经 国货护肤品牌植物医生冲击IPO。加盟模式曾助力其快速崛起，如今却使其面临诸多挑战。上市能否成为其破局的关键？ “国货护肤品牌”植物医生，正冲刺“A股美妆单品牌店第一股”。 6月27日，深交所官网显示，北京植物医生化妆品股份有限公司（下称“植物医生”）主板IPO申请已获受理，保荐机构为中信证券股份有限公司。 成立31年的植物医生，在化妆品这条赛道上，走出了一条与众不同
 
 ## 正文
 
-来源：机构之家 机构之家注意到，一笔涉及邯郸银行超三千万股股权，正悄然出现于拍卖平台上。
+来源：镁经 国货护肤品牌植物医生冲击IPO。
 
-根据京东司法平台显示，本次拍卖涉及股权总量共计32419052股，起拍价为62406675.1元。
+加盟模式曾助力其快速崛起，如今却使其面临诸多挑战。
 
-这笔股权出让正处预告中：将于6月29日上午10点正式开拍，目前已吸引了近千次围观。
+上市能否成为其破局的关键？
 
-图片系邯郸银行32419052股股权即将拍卖 起拍价较评估价折让30% 进一步来看本次拍卖细节。
+“国货护肤品牌”植物医生，正冲刺“A股美妆单品牌店第一股”。
 
-根据邯郸万信资产评估报告内容所示，本次拍卖涉中国恒天集团有限公司与王铁朋保证合同纠纷一案。
+6月27日，深交所官网显示，北京植物医生化妆品股份有限公司（下称“植物医生”）主板IPO申请已获受理，保荐机构为中信证券股份有限公司。
 
-对于涉及共计32419052股股权，其采用市场法进行估值，对应金额89152393元。
+成立31年的植物医生，在化妆品这条赛道上，走出了一条与众不同的路径，在全国开出了4000多家门店。
 
-由此可见，本次拍卖起拍价已然较评估价有所“折让”，进而增强吸引力：起拍总价（62406675.1元）约为评估总价（89152393元）的70%。
+然而，庞大的规模背后，暗藏风险。
 
-而以每股起拍单价来看，则为1.925元/股（62406675.1元/32419052股）。
+翻开招股书，其过度依赖线下加盟模式的隐患、研发投入不足的短板，暴露无遗。
 
 ## 相关推荐
 
-- 2026-06-30 05:58 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 05:56 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 05:48 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 06:04 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 05:56 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 06:16 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 06:17 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 06:13 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 05:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 06:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 05:53 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-30 06:02 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 06:13 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 05:51 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 06:02 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 06:17 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 06:08 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 06:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 06:21 - [电影后室值得看吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 06:17 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 06:22 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-30 06:11 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 05:58 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 05:57 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 05:59 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 06:07 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:14 - [85花告别古偶](http://www.share.minike.top/Article/details/24901.shtml)
-- 2026-06-30 06:06 - [周生如故](http://www.share.kurohicncr.top/Article/details/90124658.shtml)
-- 2026-06-30 05:51 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/41345987.shtml)
-- 2026-06-30 05:53 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/9542842893.shtml)
-- 2026-06-30 06:13 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/326372491.shtml)
-- 2026-06-30 05:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/11399427715.shtml)
-- 2026-06-30 05:57 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/947246220752.shtml)
-- 2026-06-30 06:15 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/2050316046.shtml)
-- 2026-06-30 06:11 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/722558683527.shtml)
-- 2026-06-30 06:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/69758815.shtml)
-- 2026-06-30 05:48 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/4989951.shtml)
-- 2026-06-30 06:15 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/12412.shtml)
-- 2026-06-30 05:58 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/762745779690.shtml)
-- 2026-06-30 06:08 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/3226365.shtml)
-- 2026-06-30 05:51 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/7956039236.shtml)
+- 2026-06-30 06:09 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/57388161251.shtml)
+- 2026-06-30 06:19 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/0666890108.shtml)
+- 2026-06-30 06:16 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/08875686716.shtml)
+- 2026-06-30 06:06 - [千香](http://www.share.minike.top/Article/details/683347706983.shtml)
+- 2026-06-30 06:00 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/8974582145.shtml)
+- 2026-06-30 06:05 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/782082.shtml)
+- 2026-06-30 06:13 - [速度与激情9](http://www.share.minike.top/Article/details/3973937502.shtml)
+- 2026-06-30 06:16 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/3310645333.shtml)
+- 2026-06-30 06:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/9507724.shtml)
+- 2026-06-30 06:22 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/618640787349.shtml)
+- 2026-06-30 06:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/48511015025.shtml)
+- 2026-06-30 06:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/94563160272.shtml)
+- 2026-06-30 05:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/29644929771.shtml)
+- 2026-06-30 06:00 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/29785801326.shtml)
+- 2026-06-30 05:59 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/320002.shtml)

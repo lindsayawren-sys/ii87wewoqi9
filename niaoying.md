@@ -1,58 +1,58 @@
-# 大学生返乡创业12年：从“省标杆家庭农场”到被强制清退，行政诉讼被驳后上诉
+# 美国联合航空公司首席执行官提出与竞争对手美国航空合并的可能性
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-入围“广东省标杆家庭农场”仅一年后，广东茂名“新农人”林华杰与父亲林海经营的蓝海湾家庭农场，在2025年8月被强制清退。虾塘被停水停电，鱼虾低价急售，看护房随后被拆除。 面对清退，林海提起行政诉讼。电白博贺镇政府回应称，清退依据是2023年发布的《养殖水域滩涂规划》，该农场位于博贺内湾红树林保护区禁养区范围内。镇政府表示，已两次送达限期清理通知，程序合法正当，并强调“当私人经营
+媒体周一援引熟悉谈判情况的人士的话报道称，美国联合航空公司首席执行官斯科特-科比（Scott Kirby）提出了与竞争对手美国航空集团合并的可能性。 报道补充说，柯比已向高级政府官员提出了这一想法，但目前还不清楚是否已经作出了任何姿态，也不清楚是否正在进行实际的交易探讨。 美国联合航空公司拒绝发表评论。美国航空公司和白宫没有立即回应置评请求。 潜在的合并将进一步巩固由四家美国航
 
 ## 正文
 
-入围“广东省标杆家庭农场”仅一年后，广东茂名“新农人”林华杰与父亲林海经营的蓝海湾家庭农场，在2025年8月被强制清退。
+媒体周一援引熟悉谈判情况的人士的话报道称，美国联合航空公司首席执行官斯科特-科比（Scott Kirby）提出了与竞争对手美国航空集团合并的可能性。
 
-虾塘被停水停电，鱼虾低价急售，看护房随后被拆除。
+报道补充说，柯比已向高级政府官员提出了这一想法，但目前还不清楚是否已经作出了任何姿态，也不清楚是否正在进行实际的交易探讨。
 
-面对清退，林海提起行政诉讼。
+美国联合航空公司拒绝发表评论。
 
-电白博贺镇政府回应称，清退依据是2023年发布的《养殖水域滩涂规划》，该农场位于博贺内湾红树林保护区禁养区范围内。
+美国航空公司和白宫没有立即回应置评请求。
 
-镇政府表示，已两次送达限期清理通知，程序合法正当，并强调“当私人经营权益与生态环境保护公共利益发生冲突时，私人权益应依法让位于公共利益”。
+潜在的合并将进一步巩固由四家美国航空公司（美国航空、达美航空、联合航空和西南航空）控制的美国国内客运市场。
 
-林海一方则认为，根据规划文本，现状有养殖的范围应划为“限养区”而非“禁养区”，且镇政府存在补偿主体错误、补偿标准偏低、未落实“先补偿后清退”等问题。
+收盘后，美国航空股价上涨超过 5%，而美国联合航空公司股价持平。
 
-公共利益当然重要，但原则适用也是有前提的，“不能成为程序违法和补偿不公的挡箭牌”。
-
-2026年5月，茂名市茂南区法院一审裁定驳回林海一方起诉，认为《限期清理通知》已被后续强制清退行为“吸收”，不属于行政诉讼受案范围。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 06:07 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 05:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 06:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 05:59 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 05:59 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 06:02 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 06:14 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 06:00 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 05:56 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 06:17 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 05:59 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 05:56 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 06:00 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 06:04 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 06:23 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 05:57 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 06:10 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 06:21 - [《共患难》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 05:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 06:18 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 06:22 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 06:13 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 06:00 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 06:15 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 06:02 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 06:23 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/3291618.shtml)
-- 2026-06-30 05:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/578843.shtml)
-- 2026-06-30 06:13 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/72348.shtml)
-- 2026-06-30 06:16 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/96893499848.shtml)
-- 2026-06-30 05:54 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/88685.shtml)
-- 2026-06-30 05:48 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/721655478447.shtml)
-- 2026-06-30 06:04 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/81514415.shtml)
-- 2026-06-30 06:16 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/29629016481.shtml)
-- 2026-06-30 05:54 - [速度与激情9](https://www.share.minike.top/Article/details/2970988.shtml)
-- 2026-06-30 06:06 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/730050.shtml)
-- 2026-06-30 06:05 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/554298.shtml)
-- 2026-06-30 05:55 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/12124087550.shtml)
-- 2026-06-30 06:06 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/337789970.shtml)
-- 2026-06-30 05:59 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/268748936973.shtml)
-- 2026-06-30 05:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/04332.shtml)
+- 2026-06-30 06:17 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/6144564122.shtml)
+- 2026-06-30 06:08 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/747210077038.shtml)
+- 2026-06-30 06:00 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/747136217.shtml)
+- 2026-06-30 06:10 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/522013907288.shtml)
+- 2026-06-30 06:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/227452.shtml)
+- 2026-06-30 06:18 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/189679953292.shtml)
+- 2026-06-30 06:15 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/70182.shtml)
+- 2026-06-30 06:21 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/888613.shtml)
+- 2026-06-30 06:10 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/045753116.shtml)
+- 2026-06-30 06:01 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/3554931.shtml)
+- 2026-06-30 06:13 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/3050536940.shtml)
+- 2026-06-30 06:04 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/35751.shtml)
+- 2026-06-30 06:14 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/534443.shtml)
+- 2026-06-30 05:57 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/987464.shtml)
+- 2026-06-30 06:01 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/0017727.shtml)

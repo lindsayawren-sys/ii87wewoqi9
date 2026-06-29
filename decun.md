@@ -1,58 +1,57 @@
-# 爬土路、挖水晶……流量争夺下研学市场亟待规范
+# 燃烧瓶+枪击接连上门，OpenAI CEO成了AI时代第一个被极端盯上的科技大佬
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-无证经营、安全失防、生态破坏，亲子研学勿被流量裹挟 沙漠徒步、海岛生存、探洞冒险……近年来，我国未成年人研学游市场呈现爆发式增长，部分研学机构“野蛮生长”，各类刺激惊险的户外研学项目屡见不鲜，不仅存在安全隐患，还对当地生态环境造成了破坏。无证经营、安全失防、生态破坏，亲子研学市场乱象丛生，亟待规范。 研学机构爆发式增长带来安全风险 近期，个别研学机构以“自然教育”“研学团”等名
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：TechWeb 4月14日消息，据外媒报道，美国警方称，就在一名男子因涉嫌向 OpenAI 首席执行官萨姆・奥尔特曼位于旧金山的住所投掷燃烧瓶被捕两天后，其住宅再度遭枪击。奥尔特曼似乎成了AI时代第一个被极端人群盯上的科技大佬。 旧金山警方表示，周日凌晨，有两人涉嫌从一辆车内朝奥尔特曼住所开枪，警方已
 
 ## 正文
 
-无证经营、安全失防、生态破坏，亲子研学勿被流量裹挟 沙漠徒步、海岛生存、探洞冒险……近年来，我国未成年人研学游市场呈现爆发式增长，部分研学机构“野蛮生长”，各类刺激惊险的户外研学项目屡见不鲜，不仅存在安全隐患，还对当地生态环境造成了破坏。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-无证经营、安全失防、生态破坏，亲子研学市场乱象丛生，亟待规范。
+来源：TechWeb 4月14日消息，据外媒报道，美国警方称，就在一名男子因涉嫌向 OpenAI 首席执行官萨姆・奥尔特曼位于旧金山的住所投掷燃烧瓶被捕两天后，其住宅再度遭枪击。
 
-研学机构爆发式增长带来安全风险 近期，个别研学机构以“自然教育”“研学团”等名义组团前往广东省广州市黄埔区暹岗大山“采石挖矿”，导致山体多处点位零星林地被破坏，树根裸露，地表出现孔洞。
+奥尔特曼似乎成了AI时代第一个被极端人群盯上的科技大佬。
 
-社交媒体上有大量关于“暹岗大山挖水晶”的攻略信息，如“广州亲子自然教育，广州1小时直达的山野矿坑”“广州免费亲子徒步团，冲暹岗大山，挖水晶、爬土路”等，均以野路进山为主。
+旧金山警方表示，周日凌晨，有两人涉嫌从一辆车内朝奥尔特曼住所开枪，警方已将这两人逮捕。
 
-社交媒体上发布的图片显示，参加该徒步团的孩子，有的拿着工具敲打、挖泥土，有的全身趴在泥坑里。
+警方通报，25 岁的阿曼达・汤姆与 23 岁的穆罕默德・塔里克・侯赛因在旧金山另一处住所被顺利抓获，警方对该住所执行搜查令，查获三支枪支。
 
-地质专家提醒，这类无序开挖不仅直接破坏山林原生植被，还会改变山体原有结构，大幅增加滑坡、塌方等地质灾害风险。
+目前尚不清楚嫌疑人是否刻意针对奥尔特曼住所作案。
 
-一旦发生意外，参与活动人员的自身安全也难以得到保障。
+据旧金山警方与 OpenAI 方面消息，周日这起枪击案发生前，奥尔特曼的住宅刚于上周五（4 月 10 日）遭遇燃烧瓶袭击。
 
-“我们都是在微信群里报名的，这种一日团，参加的大多是小学生，且需要家人陪伴。
+警方介绍，周五凌晨 4 时左右，有人向该住宅投掷纵火破坏性装置，导致外部门栏起火，所幸无人受伤。
 
 ## 相关推荐
 
-- 2026-06-30 06:07 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 05:58 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 06:03 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 06:02 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 06:16 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 06:03 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 06:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 06:17 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 06:12 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 06:16 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 06:09 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 05:59 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 06:05 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 06:14 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 06:16 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 05:59 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 06:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 06:08 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 06:00 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 05:58 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 06:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 06:18 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 06:11 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/248753688.shtml)
-- 2026-06-30 05:54 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/470935713.shtml)
-- 2026-06-30 06:02 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/4126497.shtml)
-- 2026-06-30 06:03 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/0317099546.shtml)
-- 2026-06-30 06:14 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/506434475428.shtml)
-- 2026-06-30 05:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/67549758.shtml)
-- 2026-06-30 06:16 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/31861738220.shtml)
-- 2026-06-30 05:51 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/7938703405.shtml)
-- 2026-06-30 06:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/520345821.shtml)
-- 2026-06-30 05:51 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/498541782725.shtml)
-- 2026-06-30 06:02 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/88478031.shtml)
-- 2026-06-30 06:10 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/6629990.shtml)
-- 2026-06-30 06:10 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/297745552.shtml)
-- 2026-06-30 06:02 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/71165.shtml)
-- 2026-06-30 05:55 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/777779065834.shtml)
+- 2026-06-30 06:20 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/71766515.shtml)
+- 2026-06-30 06:11 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/66441.shtml)
+- 2026-06-30 06:13 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/1446218.shtml)
+- 2026-06-30 06:03 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/877849.shtml)
+- 2026-06-30 05:55 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/566845873.shtml)
+- 2026-06-30 06:15 - [青春环游记第三季](https://www.blog.minike.top/Article/details/897775868386.shtml)
+- 2026-06-30 06:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/116096904582.shtml)
+- 2026-06-30 06:00 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/382061.shtml)
+- 2026-06-30 05:56 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/3825176226.shtml)
+- 2026-06-30 06:16 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/54592.shtml)
+- 2026-06-30 06:21 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/87756128.shtml)
+- 2026-06-30 06:21 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/780156675.shtml)
+- 2026-06-30 05:57 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/734384573.shtml)
+- 2026-06-30 06:17 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/800301546.shtml)
+- 2026-06-30 06:07 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/246813062525.shtml)

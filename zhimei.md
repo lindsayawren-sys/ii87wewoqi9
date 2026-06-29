@@ -1,50 +1,46 @@
-# 港股三大指数盘初拉升，恒生科技指数翻红
+# 人民之心丨“不慕虚荣，不务虚功，不图虚名”
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-6月17日消息，港股三大指数盘初拉升，恒生科技指数翻红。科指成分股中，舜宇光学科技涨超7%，联想涨超3%，商汤涨超2%。 责任编辑：郝欣煜
+“党员、干部特别是领导干部要清醒认识到，自己手中的权力、所处的岗位，是党和人民赋予的，是为党和人民做事用的，只能用来为民谋利。”习近平总书记强调，各级领导干部要树立正确的权力观、政绩观、事业观，不慕虚荣，不务虚功，不图虚名，切实做到为官一任、造福一方。 制作：任佳晖 素材来源：人民日报、央视新闻
 
 ## 正文
 
-6月17日消息，港股三大指数盘初拉升，恒生科技指数翻红。
+“党员、干部特别是领导干部要清醒认识到，自己手中的权力、所处的岗位，是党和人民赋予的，是为党和人民做事用的，只能用来为民谋利。
 
-科指成分股中，舜宇光学科技涨超7%，联想涨超3%，商汤涨超2%。
+”习近平总书记强调，各级领导干部要树立正确的权力观、政绩观、事业观，不慕虚荣，不务虚功，不图虚名，切实做到为官一任、造福一方。
 
-责任编辑：郝欣煜
+制作：任佳晖 素材来源：人民日报、央视新闻
 
 ## 相关推荐
 
-- 2026-06-30 06:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 05:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 05:50 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 05:52 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 06:08 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 06:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 06:16 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 06:03 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 06:13 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 06:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 06:07 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 06:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 06:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 05:57 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 05:54 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 06:22 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 06:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 06:12 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 06:12 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 06:02 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 05:57 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 05:57 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 06:12 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 06:10 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:48 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/14750576.shtml)
-- 2026-06-30 06:06 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/6215723.shtml)
-- 2026-06-30 06:13 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/306668599832.shtml)
-- 2026-06-30 05:49 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/901374.shtml)
-- 2026-06-30 05:55 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/844250551.shtml)
-- 2026-06-30 05:54 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/63756346363.shtml)
-- 2026-06-30 05:48 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/96656.shtml)
-- 2026-06-30 06:15 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/34436450862.shtml)
-- 2026-06-30 05:52 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/7289275.shtml)
-- 2026-06-30 05:57 - [一生一世](https://www.share.minike.top/Article/details/9560528001.shtml)
-- 2026-06-30 06:03 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/161959.shtml)
-- 2026-06-30 05:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/7083050.shtml)
-- 2026-06-30 06:05 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/967072587.shtml)
-- 2026-06-30 06:03 - [周生如故](http://www.blog.minike.top/Article/details/877479626757.shtml)
-- 2026-06-30 06:02 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/61785697.shtml)
+- 2026-06-30 05:59 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/9014039044.shtml)
+- 2026-06-30 06:12 - [张凌赫 客串](http://www.blog.minike.top/Article/details/01819629.shtml)
+- 2026-06-30 06:03 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/17772961.shtml)
+- 2026-06-30 06:16 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/829109738.shtml)
+- 2026-06-30 06:16 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/2076805.shtml)
+- 2026-06-30 06:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/638212.shtml)
+- 2026-06-30 06:08 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/5373116.shtml)
+- 2026-06-30 06:19 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/33380641.shtml)
+- 2026-06-30 06:12 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/127708115198.shtml)
+- 2026-06-30 06:08 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/5153984012.shtml)
+- 2026-06-30 06:13 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/94031742655.shtml)
+- 2026-06-30 05:55 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/206986.shtml)
+- 2026-06-30 06:23 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/97663071647.shtml)
+- 2026-06-30 06:12 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/828029132580.shtml)
+- 2026-06-30 06:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/7914447396.shtml)

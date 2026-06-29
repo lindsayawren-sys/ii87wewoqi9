@@ -1,51 +1,57 @@
-# 美媒：美伊协议签署后，伊朗将可立即开始出售石油
+# 国际观察丨中东僵局加剧全球多重危机担忧
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网6月17日电 据美国《华尔街日报》16日报道，知情人士透露，在美国与伊朗本周签署谅解备忘录后，美国将允许伊朗立即开始出售石油和燃料，以此向伊朗方面提供经济方面的激励，促使冲突逐步平息。 知情人士称，关于豁免石油销售制裁的条款将在本周谅解备忘录签署后立即生效，针对银行、运输和保险等伊朗石油出口相关行业的制裁也将同时获得豁免。 报道还提到，一艘载有原油的伊朗超级油轮当天离开伊
+新华社北京4月13日电 题：中东僵局加剧全球多重危机担忧 新华社记者邓茜 徐超 备受关注的美伊伊斯兰堡谈判12日无果而终，霍尔木兹海峡“梗阻”困局未能化解，中东局势走向存在较大不确定性。原油现货市场部分价格突破历史新高、化肥短缺导致一些地区错失春播窗口期、“滞胀”预期下不少经济体债务压力骤增……国际观察人士警告，种种迹象显示，对于伊朗战事影响的诸多担忧正转化为现实冲击，全球石油
 
 ## 正文
 
-中新网6月17日电 据美国《华尔街日报》16日报道，知情人士透露，在美国与伊朗本周签署谅解备忘录后，美国将允许伊朗立即开始出售石油和燃料，以此向伊朗方面提供经济方面的激励，促使冲突逐步平息。
+新华社北京4月13日电 题：中东僵局加剧全球多重危机担忧 新华社记者邓茜 徐超 备受关注的美伊伊斯兰堡谈判12日无果而终，霍尔木兹海峡“梗阻”困局未能化解，中东局势走向存在较大不确定性。
 
-知情人士称，关于豁免石油销售制裁的条款将在本周谅解备忘录签署后立即生效，针对银行、运输和保险等伊朗石油出口相关行业的制裁也将同时获得豁免。
+原油现货市场部分价格突破历史新高、化肥短缺导致一些地区错失春播窗口期、“滞胀”预期下不少经济体债务压力骤增……国际观察人士警告，种种迹象显示，对于伊朗战事影响的诸多担忧正转化为现实冲击，全球石油、粮食、债务三重危机悄然逼近。
 
-报道还提到，一艘载有原油的伊朗超级油轮当天离开伊朗恰巴哈尔港，穿过美国先前实施封锁的区域后驶离阿曼湾。
+“油荒”：全球抢购现货 逼出历史最高价“突破2008年创下的纪录高点！
 
-该油轮没有关闭定位追踪器。
+”美伊谈判当周，现货石油市场重要基准即期布伦特原油价格创下每桶144美元的历史新高。
+
+业内人士表示，原油现货价格远高于期货价格，凸显市场担忧情绪。
+
+由于能源运输的交付滞后效应，石油供应的现实缺口将很快显现，并对各国产生实质影响。
+
+阿布扎比国家石油公司首席执行官苏丹·贾比尔日前透露，伊朗战事爆发前途经霍尔木兹海峡的最后一批原油正抵达目的地，“全球能源流动受阻40天带来的缺口也将真正暴露”。
+
+中东局势升级以来，国际原油供应严重受阻，价格大幅攀升，引发全球石油危机担忧。
 
 ## 相关推荐
 
-- 2026-06-30 05:57 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 06:01 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 06:05 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 06:09 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 05:57 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 06:05 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 06:13 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 06:14 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 06:02 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 06:00 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 06:00 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 06:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 05:50 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 05:57 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 06:03 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 05:59 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 06:01 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 06:13 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 06:10 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 06:09 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 06:02 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 06:13 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 06:02 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 06:19 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/636787.shtml)
-- 2026-06-30 05:49 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/417584.shtml)
-- 2026-06-30 05:49 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/4358241201.shtml)
-- 2026-06-30 05:55 - [沙丘](http://www.share.kurohicncr.top/Article/details/33232368537.shtml)
-- 2026-06-30 06:11 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/2752699.shtml)
-- 2026-06-30 06:01 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/59388462439.shtml)
-- 2026-06-30 05:48 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/961878752.shtml)
-- 2026-06-30 05:48 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/567384.shtml)
-- 2026-06-30 05:50 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/03179.shtml)
-- 2026-06-30 06:03 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/13045235.shtml)
-- 2026-06-30 06:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/557838362552.shtml)
-- 2026-06-30 06:02 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/44952451390.shtml)
-- 2026-06-30 05:57 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/370021.shtml)
-- 2026-06-30 06:08 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/4354575327.shtml)
-- 2026-06-30 05:53 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/3082656.shtml)
+- 2026-06-30 06:12 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/35733785701.shtml)
+- 2026-06-30 06:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/288142.shtml)
+- 2026-06-30 06:15 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/25790.shtml)
+- 2026-06-30 06:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/79267038.shtml)
+- 2026-06-30 06:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/23403784423.shtml)
+- 2026-06-30 05:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/2635285743.shtml)
+- 2026-06-30 06:06 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/45489.shtml)
+- 2026-06-30 06:01 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/42480310603.shtml)
+- 2026-06-30 05:59 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/68570.shtml)
+- 2026-06-30 06:10 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/745232611.shtml)
+- 2026-06-30 06:06 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/4381430.shtml)
+- 2026-06-30 05:58 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/88819.shtml)
+- 2026-06-30 06:12 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/619326220743.shtml)
+- 2026-06-30 05:59 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/917320882384.shtml)
+- 2026-06-30 06:18 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/6116992880.shtml)

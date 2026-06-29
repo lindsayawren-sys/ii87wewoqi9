@@ -1,61 +1,60 @@
-# “端午”假期黑龙江省口岸预计出入境旅客约3.4万人次
+# 中国国民党主席郑丽文率国民党访问团在大陆参访备受关注 国台办回应
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨6月17日电(姜辉 钱鑫)17日，黑龙江出入境边防检查总站发布2026年“端午”假期(6月19日至21日)黑龙江省口岸通关“两公布一提示”，助您轻松出行。“端午”假期，黑龙江省口岸预计出入境旅客约3.4万人次，出入境交通运输工具约526班(辆、列、架、艘)次。 密山公路口岸、同江水运口岸、饶河水运口岸、萝北水运口岸6月21日闭关，6月19日、6月20日开关。密山公路
+中新网4月15日电 4月15日，国务院台办举行例行新闻发布会。有记者问：中国国民党主席郑丽文率国民党访问团在大陆参访备受关注，请问如何评价郑丽文一行此访？取得哪些成果？对今后两岸关系发展将产生哪些影响？国台办发言人陈斌华表示，国共两党领导人时隔10年再次会面，对两党关系、两岸关系发展具有重要意义。 陈斌华称，国共两党在坚持“九二共识”、反对“台独”的共同政治基础上，加强交流对话
 
 ## 正文
 
-中新网哈尔滨6月17日电(姜辉 钱鑫)17日，黑龙江出入境边防检查总站发布2026年“端午”假期(6月19日至21日)黑龙江省口岸通关“两公布一提示”，助您轻松出行。
+中新网4月15日电 4月15日，国务院台办举行例行新闻发布会。
 
-“端午”假期，黑龙江省口岸预计出入境旅客约3.4万人次，出入境交通运输工具约526班(辆、列、架、艘)次。
+有记者问：中国国民党主席郑丽文率国民党访问团在大陆参访备受关注，请问如何评价郑丽文一行此访？
 
-密山公路口岸、同江水运口岸、饶河水运口岸、萝北水运口岸6月21日闭关，6月19日、6月20日开关。
+取得哪些成果？
 
-密山公路口岸预计日均出入境旅客约700人次，出入境客车约20班次；出境高峰为6月19日，入境高峰为6月19日。
+对今后两岸关系发展将产生哪些影响？
 
-同江水运口岸预计日均出入境旅客约200人次，出入境船舶约2班次；出境高峰为6月19日，入境高峰为6月20日。
+国台办发言人陈斌华表示，国共两党领导人时隔10年再次会面，对两党关系、两岸关系发展具有重要意义。
 
-饶河水运口岸预计日均出入境旅客约350人次，出入境客车约8班次；出境高峰为6月19日，入境高峰为6月20日。
+陈斌华称，国共两党在坚持“九二共识”、反对“台独”的共同政治基础上，加强交流对话，保持良性互动，坚持以正确认同促进心灵契合，坚持以和平发展守护共同家园，坚持以交流融合增进民生福祉，坚持以团结奋斗实现中华民族伟大复兴，符合历史发展大势，符合两岸同胞共同心声，符合中华民族整体利益，有利于为两岸谋和平、为同胞谋福祉、为民族谋复兴，把两岸关系的未来牢牢掌握在中国人自己手中。
 
-萝北水运口岸预计日均出入境旅客约90人次，出入境船舶2班次；出境高峰为6月19日，入境高峰为6月20日。
+不论国际形势、台海形势如何风云变幻，人类发展进步的大方向不会改变，中华民族伟大复兴的大趋势不会改变，两岸同胞走亲走近、走到一起的大潮流不会改变。
 
-黑龙江边检总站指导黑龙江省旅检口岸边检机关科学预测端午节假期出入境旅客、交通运输工具流量和客流高峰时段，严格落实“两公布一提示”工作要求，采取提前加开通道、设置“蓝色提示线”、备足执勤警力、积极协调口岸联检部门以及俄边检机关加快查验速度、交通运输企业增加人力运力等措施，共同提高口岸通关效率，保障端午节假期口岸通关顺畅。
+这是历史定律，我们有充分的自信。
 
 ## 相关推荐
 
-- 2026-06-30 05:53 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 06:12 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 06:16 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 05:48 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 06:01 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 05:53 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 05:59 - [月亮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-30 05:54 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 05:52 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 06:17 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 05:53 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 06:10 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 06:14 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 06:01 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 05:51 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 06:22 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 05:56 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 06:06 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 06:10 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 06:18 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 06:13 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 06:05 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 06:16 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 05:54 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 06:17 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 05:58 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 06:03 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 06:00 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 06:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:58 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/57146738918.shtml)
-- 2026-06-30 06:05 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/541824.shtml)
-- 2026-06-30 06:03 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/34476.shtml)
-- 2026-06-30 06:13 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/223514710700.shtml)
-- 2026-06-30 06:16 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/419611734.shtml)
-- 2026-06-30 06:04 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/57416.shtml)
-- 2026-06-30 05:59 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/4565247.shtml)
-- 2026-06-30 06:12 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/77084400.shtml)
-- 2026-06-30 06:12 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/627666192.shtml)
-- 2026-06-30 06:08 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/034157.shtml)
-- 2026-06-30 05:58 - [一见倾心](http://www.blog.minike.top/Article/details/03902786.shtml)
-- 2026-06-30 05:52 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/152472.shtml)
-- 2026-06-30 05:54 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/08221371643.shtml)
-- 2026-06-30 05:56 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/225070.shtml)
-- 2026-06-30 06:17 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/67945.shtml)
+- 2026-06-30 06:02 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/05121415.shtml)
+- 2026-06-30 06:03 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/081017484.shtml)
+- 2026-06-30 06:09 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/12066.shtml)
+- 2026-06-30 06:03 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/765095287000.shtml)
+- 2026-06-30 06:09 - [金刚川](http://www.share.kurohicncr.top/Article/details/6753888177.shtml)
+- 2026-06-30 06:15 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/394899.shtml)
+- 2026-06-30 06:07 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/0976495309.shtml)
+- 2026-06-30 06:02 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/646532.shtml)
+- 2026-06-30 06:12 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/52033.shtml)
+- 2026-06-30 06:18 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/10466334882.shtml)
+- 2026-06-30 05:57 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/716825848262.shtml)
+- 2026-06-30 06:11 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/7902212.shtml)
+- 2026-06-30 06:17 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/86133981158.shtml)
+- 2026-06-30 05:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/90244.shtml)
+- 2026-06-30 06:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/27856.shtml)

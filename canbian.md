@@ -1,58 +1,61 @@
-# 博时市场点评6月16日：两市涨跌不一，创业板涨1.72%
+# 新时达2025年归母净利润550.77万元同比增长101.91%，扣非净利亏6037.11万元收窄82.20%
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-🌟【博时市场点评6月16日】两市涨跌不一，创业板涨1.72% 📝每日观点 🎈今日沪深三大指数涨跌不一，沪指微跌0.11%，创业板指涨超1.7%，两市成交较昨日放量至近3.09万亿。国家统计局今日公布的5月份中国经济数据显示，内需偏弱仍是目前国内经济面对的核心问题。其中固定资产投资降幅意外扩大，结构分化明显，房地产开发投资是核心拖累，新质生产力方向投入保持韧性；社会消费品零售总额
+蓝鲸新闻4月15日讯，4月14日，新时达发布2025年年报。报告显示，公司2025年实现营业收入35.35亿元，同比增长5.29%；归母净利润为550.77万元，同比增长101.91%；扣非净利润为-6037.11万元，同比增长82.20%。扣非净利润虽持续收窄，但全年亏损仍集中于年末阶段。2025年第四季度单季实现营业收入8.81亿元，归母净利润116.15万元，扣非净利润-
 
 ## 正文
 
-🌟【博时市场点评6月16日】两市涨跌不一，创业板涨1.72% 📝每日观点 🎈今日沪深三大指数涨跌不一，沪指微跌0.11%，创业板指涨超1.7%，两市成交较昨日放量至近3.09万亿。
+蓝鲸新闻4月15日讯，4月14日，新时达发布2025年年报。
 
-国家统计局今日公布的5月份中国经济数据显示，内需偏弱仍是目前国内经济面对的核心问题。
+报告显示，公司2025年实现营业收入35.35亿元，同比增长5.29%；归母净利润为550.77万元，同比增长101.91%；扣非净利润为-6037.11万元，同比增长82.20%。
 
-其中固定资产投资降幅意外扩大，结构分化明显，房地产开发投资是核心拖累，新质生产力方向投入保持韧性；社会消费品零售总额同比由正转负，汽车消费疲软是主要拖累，刚需消费和数字化消费渠道起到支撑作用。
+扣非净利润虽持续收窄，但全年亏损仍集中于年末阶段。
 
-投资和消费两大内需引擎同时走弱，表明经济内生修复动能仍待改善，同时高技术产业投资、知识产权产品投资等结构性亮点表明经济转型仍在推进。
+2025年第四季度单季实现营业收入8.81亿元，归母净利润116.15万元，扣非净利润-3792.86万元，占全年扣非净利润比重达62.83%。
 
-当前内需偏弱叠加外部不确定性，市场对政策逆周期调节的预期升温。
+非经常性损益总额达6587.88万元，占归母净利润比例高达1172.37%，其中政府补助5162.95万元与应收款项减值准备转回1280.14万元合计占比97.81%，构成扭亏核心动因。
 
-在此宏观背景下，国内权益市场短期或仍呈现震荡状态，建议考虑均衡配置。
+公司净利率由2024年的-8.58%转正至0.16%，财报指出“报告期内，公司整体经营业绩实现关键性突破，扭转了三年持续亏损的局面”。
 
-🔥消息面 🎈6月16日，国家统计局数据显示，5月份，规模以上工业增加值同比增长4.5%，比上月加快0.4个百分点；高技术制造业增加值增长15.1%，加快2.3个百分点。
+主营业务结构持续优化，智能装备业务集聚效应增强。
 
-社会消费品零售总额同比下降0.6%，环比下降0.38%。
+通用控制与驱动产品及系统收入占比达50.71%，机器人产品及系统收入占比24.03%，二者合计占营收比重提升至74.74%，收入结构进一步向高附加值核心业务集中。
 
 ## 相关推荐
 
-- 2026-06-30 06:06 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 06:14 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 05:50 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 06:17 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 06:06 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 06:15 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 06:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 06:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 06:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 06:07 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 06:06 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 06:00 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 06:01 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 06:22 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 06:15 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 06:22 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 06:06 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 06:12 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 06:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 05:55 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 06:06 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 06:05 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 05:56 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 06:22 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 05:57 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 05:57 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 06:11 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:06 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/78181.shtml)
-- 2026-06-30 06:16 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/461193187841.shtml)
-- 2026-06-30 06:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/9759565.shtml)
-- 2026-06-30 05:52 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/81349911.shtml)
-- 2026-06-30 06:07 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/79302995.shtml)
-- 2026-06-30 06:17 - [急先锋](https://www.blog.kurohicncr.top/Article/details/3426737.shtml)
-- 2026-06-30 05:48 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/790269704467.shtml)
-- 2026-06-30 05:56 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/36525778.shtml)
-- 2026-06-30 05:51 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/350316277.shtml)
-- 2026-06-30 06:12 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/74527976992.shtml)
-- 2026-06-30 06:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/15487.shtml)
-- 2026-06-30 06:12 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/890488660629.shtml)
-- 2026-06-30 06:15 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/56712726.shtml)
-- 2026-06-30 06:14 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/6534950.shtml)
-- 2026-06-30 06:01 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/6753168.shtml)
+- 2026-06-30 06:07 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/934045130818.shtml)
+- 2026-06-30 06:07 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/897767.shtml)
+- 2026-06-30 05:57 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/499906.shtml)
+- 2026-06-30 06:21 - [张凌赫 客串](https://www.blog.minike.top/Article/details/828196100.shtml)
+- 2026-06-30 06:08 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/91757.shtml)
+- 2026-06-30 06:20 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/93808621329.shtml)
+- 2026-06-30 06:03 - [森保一 保守](https://www.share.kurohicncr.top/Article/details/751408.shtml)
+- 2026-06-30 06:18 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/691532599.shtml)
+- 2026-06-30 06:04 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/41819702469.shtml)
+- 2026-06-30 06:19 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/60263114153.shtml)
+- 2026-06-30 06:19 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/022660513222.shtml)
+- 2026-06-30 06:12 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/17411509413.shtml)
+- 2026-06-30 06:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/96721.shtml)
+- 2026-06-30 06:06 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/747701.shtml)
+- 2026-06-30 06:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/883706863.shtml)

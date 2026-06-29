@@ -1,60 +1,57 @@
-# 国家统计局展望二季度中国经济：长期向好基本面没有变
+# 白宫考虑与伊朗进一步谈判，美国油价跌破92美元
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新社北京6月16日电 (记者 陈溯)展望二季度中国经济，中国国家统计局新闻发言人付凌晖16日在北京表示，经济长期向好的基本面没有变。 在当天的国新办新闻发布会上，付凌晖表示，今年以来，中国经济一季度增势较好，国内生产总值(GDP)同比增长5%。二季度以来，受国际环境复杂变化、国内结构调整压力等影响，部分经济指标出现了增速回落，一些企业经营面临困难。 “但从整个发展大势看，中国
+在白宫表示美伊可能进行第二轮和谈后，周二油价大幅下跌。 5月交割的美国原油期货价格下跌近8%，收于每桶91.28美元。国际基准布伦特原油6月交割价下跌逾4%，收于每桶94.79美元。 一位白宫官员周二告诉媒体，特朗普政府正在考虑与伊朗进一步谈判，但尚未安排任何具体日程。此前美国副总统JD·万斯周一表示，在周末于巴基斯坦伊斯兰堡举行的谈判失败后，主动权掌握在伊朗手中。 万斯在接受
 
 ## 正文
 
-中新社北京6月16日电 (记者 陈溯)展望二季度中国经济，中国国家统计局新闻发言人付凌晖16日在北京表示，经济长期向好的基本面没有变。
+在白宫表示美伊可能进行第二轮和谈后，周二油价大幅下跌。
 
-在当天的国新办新闻发布会上，付凌晖表示，今年以来，中国经济一季度增势较好，国内生产总值(GDP)同比增长5%。
+5月交割的美国原油期货价格下跌近8%，收于每桶91.28美元。
 
-二季度以来，受国际环境复杂变化、国内结构调整压力等影响，部分经济指标出现了增速回落，一些企业经营面临困难。
+国际基准布伦特原油6月交割价下跌逾4%，收于每桶94.79美元。
 
-“但从整个发展大势看，中国经济运行总体平稳、稳中有进的态势没有改变，动能向新、结构向优的特征依然明显。
+一位白宫官员周二告诉媒体，特朗普政府正在考虑与伊朗进一步谈判，但尚未安排任何具体日程。
 
-”付凌晖表示，从下阶段情况看，尽管还面临一些困难和挑战，但是经济长期向好的基本面没有变，新质生产力发展培育壮大，改革开放的红利持续释放，宏观政策发力显效，将会继续支撑经济平稳运行、向新向优。
+此前美国副总统JD·万斯周一表示，在周末于巴基斯坦伊斯兰堡举行的谈判失败后，主动权掌握在伊朗手中。
 
-付凌晖表示，今年以来，面对全球能源市场大幅波动，中国经济顶住了压力，保持平稳增长，展现出了强大韧性。
+万斯在接受福克斯新闻采访时说：“我们是否进一步对话，最终能否达成协议，我认为主动权真的在伊朗手中，因为我们已经提出了很多方案。
 
-统计显示，1至5月，规模以上工业增加值、服务业生产指数分别同比增长5.4%、4.8%，均保持了较快增长；全国城镇调查失业率平均值为5.2%，居民消费价格同比上涨1%，均保持了总体平稳；外贸增长较快，中国货物进出口总额同比增长15.3%；人民币汇率稳中有升，5月末外汇储备稳定在3.4万亿美元以上。
+” 美国海军周一开始对伊朗在波斯湾的港口实施封锁，以迫使德黑兰做出让步。
 
-此外，中国产业创新引领作用持续显现。
+根据澳大利亚联邦银行的维韦克·达尔的说法，此次封锁“直接危及”伊朗通过霍尔木兹海峡的石油出口，上个月的出口量约为每天170万桶。
 
 ## 相关推荐
 
-- 2026-06-30 06:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 06:03 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 06:03 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 06:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 05:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 05:51 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 06:12 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 05:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 06:14 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 06:17 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 06:15 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 06:15 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 05:59 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 06:18 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 06:21 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 06:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 06:21 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 06:12 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 06:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 05:57 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 06:09 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 06:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 06:13 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 05:59 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 06:06 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:10 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/5905840136.shtml)
-- 2026-06-30 05:56 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/6468891.shtml)
-- 2026-06-30 06:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/8416202311.shtml)
-- 2026-06-30 06:07 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/032303.shtml)
-- 2026-06-30 06:13 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.kurohicncr.top/Article/details/5877526.shtml)
-- 2026-06-30 06:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/020953.shtml)
-- 2026-06-30 05:58 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/259979735.shtml)
-- 2026-06-30 05:51 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/967214.shtml)
-- 2026-06-30 05:49 - [《共患难》](http://www.blog.minike.top/Article/details/85154.shtml)
-- 2026-06-30 06:04 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/067776.shtml)
-- 2026-06-30 06:16 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/7609922087.shtml)
-- 2026-06-30 06:13 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/9013375564.shtml)
-- 2026-06-30 06:17 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/14806466.shtml)
-- 2026-06-30 06:15 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/5779466.shtml)
-- 2026-06-30 06:09 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/723441.shtml)
+- 2026-06-30 06:21 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/997878396.shtml)
+- 2026-06-30 05:55 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/27570925.shtml)
+- 2026-06-30 06:22 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/85225561.shtml)
+- 2026-06-30 05:55 - [月亮](https://www.blog.minike.top/Article/details/9764807396.shtml)
+- 2026-06-30 06:04 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/1457334.shtml)
+- 2026-06-30 06:22 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/228730868.shtml)
+- 2026-06-30 06:00 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/045656.shtml)
+- 2026-06-30 06:10 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/776527.shtml)
+- 2026-06-30 06:23 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/2344482.shtml)
+- 2026-06-30 06:09 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/17029115.shtml)
+- 2026-06-30 06:08 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/6050633.shtml)
+- 2026-06-30 06:17 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/035567216.shtml)
+- 2026-06-30 05:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/4980249499.shtml)
+- 2026-06-30 06:21 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/4270079.shtml)
+- 2026-06-30 06:18 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/340104902823.shtml)

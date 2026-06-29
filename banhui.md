@@ -1,56 +1,56 @@
-# 民进会员、科学教师王万江：“每个孩子都是天生的发明家”
+# 干货，业绩连续3年高增长股出炉，最强牛股已涨超37倍
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网天津6月16日电 题：民进会员、科学教师王万江：“每个孩子都是天生的发明家” 中新网记者 徐雪莹 “每个孩子都是天生的发明家。我们要做的，是保护好他们的好奇心与创造力，守护好科学种子生长的土壤。”深耕科教领域30载，民进会员、天津市实验小学科学教师王万江近日接受中新网专访时如是表示。 跨越：从三尺讲台到“创客”天地 在天津市实验小学，王万江有个响亮的外号——“创客老师”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！年报季大幕拉开，一批公司展现出连续3年净利润高增长的强劲势头，凸显其穿越周期的经营韧性。 沪电股份股价涨停 创历史新高 4月14日早盘，沪电股份（002463）股价大幅高开，开盘20分钟内封住涨停板，涨停板封单一度超过20万手，最新股价创历史新高。该公司为PCB龙头，2025年实现净利润38.22亿元，同比
 
 ## 正文
 
-中新网天津6月16日电 题：民进会员、科学教师王万江：“每个孩子都是天生的发明家” 中新网记者 徐雪莹 “每个孩子都是天生的发明家。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-我们要做的，是保护好他们的好奇心与创造力，守护好科学种子生长的土壤。
+年报季大幕拉开，一批公司展现出连续3年净利润高增长的强劲势头，凸显其穿越周期的经营韧性。
 
-”深耕科教领域30载，民进会员、天津市实验小学科学教师王万江近日接受中新网专访时如是表示。
+沪电股份股价涨停 创历史新高 4月14日早盘，沪电股份（002463）股价大幅高开，开盘20分钟内封住涨停板，涨停板封单一度超过20万手，最新股价创历史新高。
 
-跨越：从三尺讲台到“创客”天地 在天津市实验小学，王万江有个响亮的外号——“创客老师”。
+该公司为PCB龙头，2025年实现净利润38.22亿元，同比增长47.74%。
 
-从校园实验室到国际发明展，从科学课堂到公益一线，他将普及科学知识、传播创新理念视为己任。
+就在4月13日晚间，沪电股份发布2026年一季度业绩预告，公司预计今年一季度净利润为11.8亿元至12.6亿元，同比增长54.76 %至65.25%。
 
-如今，他已是天津首位科学学科正高级教师，荣获民进中央2025年“叶圣陶教师奖”。
+报告期内，受益于高速运算服务器、人工智能等新兴计算场景对印制电路板的结构性需求，依托平衡的产品布局以及深耕多年的中高阶产品与量产技术，公司营业收入和净利润较上年同期均将有所增长。
 
-1994年，王万江入职天津市和平区中心小学，成为一名语文教师。
+业绩连续3年高增长股出炉 随着2026年4月中旬的到来，A股市场正式步入2025年年报披露的高峰期。
 
-彼时的校长，是他小学时代的自然课启蒙老师、民进会员白德生。
+在宏观经济环境复杂多变的背景下，那些能够持续实现业绩高速增长的企业尤为引人注目。
 
 ## 相关推荐
 
-- 2026-06-30 05:51 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 05:54 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 05:54 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 06:17 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 05:54 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 06:14 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 06:00 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 06:01 - [日本16强魔咒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 06:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 05:55 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 06:03 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 06:02 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 06:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 06:11 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 05:57 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 06:03 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 05:56 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 06:09 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 06:04 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 06:18 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/25680.shtml)
-- 2026-06-30 06:15 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/17724.shtml)
-- 2026-06-30 06:11 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/8138041502.shtml)
-- 2026-06-30 05:52 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/844934009740.shtml)
-- 2026-06-30 06:09 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/5652745.shtml)
-- 2026-06-30 05:48 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/26337671663.shtml)
-- 2026-06-30 06:05 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/2039496403.shtml)
-- 2026-06-30 06:12 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/41707254002.shtml)
-- 2026-06-30 05:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/5190092334.shtml)
-- 2026-06-30 05:57 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/52638661.shtml)
-- 2026-06-30 05:53 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/5649330.shtml)
-- 2026-06-30 05:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/4453429.shtml)
-- 2026-06-30 05:55 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/65159111.shtml)
-- 2026-06-30 05:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/64102316749.shtml)
-- 2026-06-30 05:53 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/9748195965.shtml)
+- 2026-06-30 05:59 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/5099516547.shtml)
+- 2026-06-30 06:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/123486808666.shtml)
+- 2026-06-30 06:14 - [美股](https://www.blog.kurohicncr.top/Article/details/1151037.shtml)
+- 2026-06-30 06:15 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/7325812799.shtml)
+- 2026-06-30 06:09 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/18365227026.shtml)
+- 2026-06-30 06:02 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/828873.shtml)
+- 2026-06-30 05:55 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/63006705.shtml)
+- 2026-06-30 06:18 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/26726364.shtml)
+- 2026-06-30 06:06 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/60558110.shtml)
+- 2026-06-30 06:08 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/64891889.shtml)
+- 2026-06-30 06:02 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/007094494.shtml)
+- 2026-06-30 06:07 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/7547552125.shtml)
+- 2026-06-30 06:04 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/77917508.shtml)
+- 2026-06-30 06:09 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/45053009001.shtml)
+- 2026-06-30 06:15 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/660162548269.shtml)

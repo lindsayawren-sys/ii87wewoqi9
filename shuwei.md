@@ -1,61 +1,61 @@
-# 动物园年薪10万招黑熊NPC，已有上百人报名！
+# 酒价内参4月15日价格发布：洋河梦之蓝M6+小幅回落1元/瓶
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-原标题：动物园年薪10万招黑熊NPC，已有上百人报名！ 年薪10万元 工作只需嗷嗷叫—— 近日，漯河野生动物园 一则“黑熊NPC” 招聘信息火了 岗位要求 “全程严禁说人话” “越抽象越受欢迎” 被不少网友戏称为“神仙岗位” 据大象新闻报道，6月17日，漯河野生动物园工作人员陈家宁向记者介绍，园区确有招聘黑熊NPC计划，目前报名人数已有100多人，尚未招满。 该岗位每天工作6小
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月15日整体回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9870元，较昨日下跌18元，创下近一个月新低。整体价格中枢继续下移，终端成交偏弱，市场运行仍处下行调整区间。 今日白酒市场11大单品七跌四平，无一家上涨。下跌方面，国窖1
 
 ## 正文
 
-原标题：动物园年薪10万招黑熊NPC，已有上百人报名！
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月15日整体回落。
 
-年薪10万元 工作只需嗷嗷叫—— 近日，漯河野生动物园 一则“黑熊NPC” 招聘信息火了 岗位要求 “全程严禁说人话” “越抽象越受欢迎” 被不少网友戏称为“神仙岗位” 据大象新闻报道，6月17日，漯河野生动物园工作人员陈家宁向记者介绍，园区确有招聘黑熊NPC计划，目前报名人数已有100多人，尚未招满。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9870元，较昨日下跌18元，创下近一个月新低。
 
-该岗位每天工作6小时、月休4天、包吃包住、工资月结。
+整体价格中枢继续下移，终端成交偏弱，市场运行仍处下行调整区间。
 
-工作人员表示，该岗位不需要专业技能，核心工作是“和游客互动”。
+今日白酒市场11大单品七跌四平，无一家上涨。
 
-性格方面“越抽象越加分”，要敢放飞、敢搞怪、不怯场，“最好是社牛一点”。
+下跌方面，国窖1573与青花郎跌幅居前，均下跌4元/瓶，后者价格创下近一个月新低；习酒君品下跌3元/瓶；精品茅台、五粮液普五八代及水晶剑南春均下跌2元/瓶；洋河梦之蓝M6+小幅回落1元/瓶。
 
-针对网友最关心的薪酬问题，相关负责人回应媒体采访时表示：“年薪10万是真实的，保底10万。
+飞天茅台、五粮液1618、青花汾20及古井贡古20价格环比保持不变。
 
-”考虑到夏季户外工作较为辛苦，园方特意将薪酬定在较高水平。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-工作时间方面，“每天不会超过8个小时。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日凌晨上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-30 05:56 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 06:18 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 05:54 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 05:55 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 05:51 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 05:58 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 06:16 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 05:58 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 05:57 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 06:02 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 06:17 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 05:58 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 06:09 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 06:16 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 06:05 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 06:08 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 06:00 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 06:07 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 06:04 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 06:23 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 06:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 05:57 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 06:19 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 06:03 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 06:22 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 06:14 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 06:07 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 05:56 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 06:11 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 06:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:06 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/66354813.shtml)
-- 2026-06-30 06:11 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/8010126.shtml)
-- 2026-06-30 05:51 - [巴西绝杀日本](https://www.share.minike.top/Article/details/4883403034.shtml)
-- 2026-06-30 05:50 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/94204.shtml)
-- 2026-06-30 06:09 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/83728397.shtml)
-- 2026-06-30 06:15 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/748835.shtml)
-- 2026-06-30 06:06 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/368057534.shtml)
-- 2026-06-30 05:59 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/539044.shtml)
-- 2026-06-30 05:57 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/760533966.shtml)
-- 2026-06-30 06:03 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/048608214.shtml)
-- 2026-06-30 06:13 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/205876.shtml)
-- 2026-06-30 06:01 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/410618.shtml)
-- 2026-06-30 05:48 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/8864123380.shtml)
-- 2026-06-30 05:59 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/7715862.shtml)
-- 2026-06-30 05:55 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/089701.shtml)
+- 2026-06-30 06:22 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/13253.shtml)
+- 2026-06-30 06:02 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/420705277120.shtml)
+- 2026-06-30 06:19 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/55181.shtml)
+- 2026-06-30 06:20 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/18083.shtml)
+- 2026-06-30 05:59 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/34331.shtml)
+- 2026-06-30 06:10 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/27052.shtml)
+- 2026-06-30 05:58 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/0033325.shtml)
+- 2026-06-30 05:54 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/86579.shtml)
+- 2026-06-30 06:07 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/2926887.shtml)
+- 2026-06-30 05:58 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/521338370.shtml)
+- 2026-06-30 06:19 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/63722849957.shtml)
+- 2026-06-30 05:57 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/17530.shtml)
+- 2026-06-30 06:01 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/9342445406.shtml)
+- 2026-06-30 06:10 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/778372120.shtml)
+- 2026-06-30 06:20 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/347801662071.shtml)

@@ -1,56 +1,58 @@
-# 微软正考虑接入深度求索模型赋能Copilot协同办公工具
+# Leggett & Platt涨12.8%，Somnigroup以25亿美元交易收购该公司
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-深度求索 V4 大模型有望为企业客户提供成本更低的微软 AI 工具技术方案 据阿克西奥斯新闻网报道，微软正考虑引入中国人工智能企业深度求索推出的 V4 大模型，作为旗下 Copilot 协同办公智能助手的低成本备选技术方案。 报道称，这家美国科技巨头正在测试由微软云本地部署运行的深度求索 V4 版本以及其他开源大模型，用来替代目前为 Copilot 协同办公提供技术支持的 An
+首席执行官称该交易有助于应对供应链问题，实现收入多元化 Leggett & Platt同时生产汽车零部件，其加入将使Somnigroup的业务拓展至寝具领域之外。 简要摘要 Somnigroup已同意以价值 25 亿美元的全股票交易，收购零部件制造商Leggett & Platt公司。 Somnigroup（SGI）已达成协议，以25 亿美元全股票交易收购零部件制造商Legge
 
 ## 正文
 
-深度求索 V4 大模型有望为企业客户提供成本更低的微软 AI 工具技术方案 据阿克西奥斯新闻网报道，微软正考虑引入中国人工智能企业深度求索推出的 V4 大模型，作为旗下 Copilot 协同办公智能助手的低成本备选技术方案。
+首席执行官称该交易有助于应对供应链问题，实现收入多元化 Leggett & Platt同时生产汽车零部件，其加入将使Somnigroup的业务拓展至寝具领域之外。
 
-报道称，这家美国科技巨头正在测试由微软云本地部署运行的深度求索 V4 版本以及其他开源大模型，用来替代目前为 Copilot 协同办公提供技术支持的 Anthropic、OpenAI 大模型，以此压缩服务成本。
+简要摘要 Somnigroup已同意以价值 25 亿美元的全股票交易，收购零部件制造商Leggett & Platt公司。
 
-微软计划在未来几周内面向市场推出这款低成本大模型服务。
+Somnigroup（SGI）已达成协议，以25 亿美元全股票交易收购零部件制造商Leggett & Platt公司（LEG），成功完成了为期数月、收购其寝具帝国核心供应商的计划。
 
-深度求索于今年 4 月发布的开源 V4 大模型，凭借性价比优势，在全球研发人员与科研圈迅速走红，被广泛用于 AI 代码开发场景。
+Leggett & Platt的股东每持有 1 股该公司普通股，将换取0.1455 股Somnigroup普通股。
 
-本周早些时候，资讯媒体《The Information》曾报道，深度求索完成首轮融资，融资金额超 70 亿美元。
+交易完成后，Leggett & Platt股东将持有合并后公司约 9% 的股份。
 
-阿克西奥斯新闻网表示，倘若微软最终敲定选用深度求索 V4 大模型，该模型将部署在微软旗下的 Azure 云平台，所有客户数据都会留存于微软的云服务体系内。
+由泰普尔 - 丝涟收购床垫公司后组建的Somnigroup，曾于去年 12 月出价16.3 亿美元收购主营床垫弹簧、特种泡沫等零部件的Leggett & Platt。
 
-责任编辑：郭明煜
+当时该报价较Leggett & Platt前 30 日平均收盘价溢价 30%。
+
+Leggett & Platt彼时拒绝了该报价，但与Somnigroup签署了保密协议及为期六个月的静默期协议，以推进尽职调查并评估能否达成交易。
 
 ## 相关推荐
 
-- 2026-06-30 06:03 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 05:52 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 05:54 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 05:52 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 05:56 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 06:03 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 06:14 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 06:00 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 06:04 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 06:15 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 06:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 06:09 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 06:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 06:00 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 06:04 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 06:05 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 06:12 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 06:10 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 06:16 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 06:00 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 06:17 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 06:15 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 06:08 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 06:21 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:54 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/4687217208.shtml)
-- 2026-06-30 05:51 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/087336.shtml)
-- 2026-06-30 06:08 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/706699.shtml)
-- 2026-06-30 05:54 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/60033573448.shtml)
-- 2026-06-30 06:14 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/560338497458.shtml)
-- 2026-06-30 06:04 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/15988562605.shtml)
-- 2026-06-30 05:49 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/669203803.shtml)
-- 2026-06-30 06:17 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/854426.shtml)
-- 2026-06-30 06:06 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/437268318.shtml)
-- 2026-06-30 06:05 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/82731.shtml)
-- 2026-06-30 05:57 - [一生一世](https://www.share.kurohicncr.top/Article/details/436027364915.shtml)
-- 2026-06-30 06:13 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/9089036910.shtml)
-- 2026-06-30 06:16 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/4742201.shtml)
-- 2026-06-30 05:53 - [绘画区你赢了](http://www.blog.minike.top/Article/details/26012756.shtml)
-- 2026-06-30 06:10 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/800883121644.shtml)
+- 2026-06-30 06:16 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/00934731171.shtml)
+- 2026-06-30 06:03 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/45110958.shtml)
+- 2026-06-30 06:06 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/39853710.shtml)
+- 2026-06-30 06:03 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/21020786.shtml)
+- 2026-06-30 06:19 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/88412925.shtml)
+- 2026-06-30 06:08 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/9195208581.shtml)
+- 2026-06-30 06:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/85608433326.shtml)
+- 2026-06-30 05:57 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/435165727716.shtml)
+- 2026-06-30 05:54 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/0859966977.shtml)
+- 2026-06-30 06:11 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/6521925238.shtml)
+- 2026-06-30 06:23 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/377420.shtml)
+- 2026-06-30 06:24 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/661428988.shtml)
+- 2026-06-30 05:57 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/63675.shtml)
+- 2026-06-30 06:07 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/202035.shtml)
+- 2026-06-30 05:56 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/863249.shtml)

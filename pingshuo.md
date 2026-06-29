@@ -1,48 +1,53 @@
-# 天津海运职业学院原党委书记马魁君被开除党籍
+# 分析师聚焦高盛固定收益、外汇及大宗商品业务收入不及预期
 
-> 更新时间：2026-06-30 06:18:02 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网6月17日电 据天津市纪委监委消息：日前，经中共天津市委批准，天津市纪委监委对天津海运职业学院原党委书记马魁君严重违纪违法问题进行了立案审查调查。 经查，马魁君丧失理想信念，背弃初心使命，对抗组织审查；无视中央八项规定精神，收受可能影响公正执行公务的礼品、礼金；违反组织原则，不按照有关规定报告个人有关事项；廉洁底线失守，违规接受旅游活动安排；违规设立“小金库”；贪欲膨胀，
+高盛股价周一在财报发布后收盘下跌逾2%，因为华尔街分析师的注意力转向了靓丽头条数据背后的下行风险：尽管该行第一季度股票交易收入创下纪录，但其固定收益、外汇及大宗商品业务报告收入下降了10%，未达预期。 美国银行表示，高盛本季度整体业绩“稳健”，但“因固定收益、外汇及大宗商品业务不及预期而蒙上阴影”。 沃尔夫研究公司的看法则不那么乐观。“总体而言，这些业绩令人失望（尽管是与较高的
 
 ## 正文
 
-中新网6月17日电 据天津市纪委监委消息：日前，经中共天津市委批准，天津市纪委监委对天津海运职业学院原党委书记马魁君严重违纪违法问题进行了立案审查调查。
+高盛股价周一在财报发布后收盘下跌逾2%，因为华尔街分析师的注意力转向了靓丽头条数据背后的下行风险：尽管该行第一季度股票交易收入创下纪录，但其固定收益、外汇及大宗商品业务报告收入下降了10%，未达预期。
 
-经查，马魁君丧失理想信念，背弃初心使命，对抗组织审查；无视中央八项规定精神，收受可能影响公正执行公务的礼品、礼金；违反组织原则，不按照有关规定报告个人有关事项；廉洁底线失守，违规接受旅游活动安排；违规设立“小金库”；贪欲膨胀，利用职务便利及职权或者地位形成的便利条件，为他人在工程承揽等方面谋取利益，并非法收受巨额财物。
+美国银行表示，高盛本季度整体业绩“稳健”，但“因固定收益、外汇及大宗商品业务不及预期而蒙上阴影”。
 
-马魁君严重违反党的政治纪律、组织纪律、廉洁纪律和国家法律法规，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+沃尔夫研究公司的看法则不那么乐观。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经天津市纪委常委会会议研究并报中共天津市委批准，决定给予马魁君开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+“总体而言，这些业绩令人失望（尽管是与较高的预期相比），固定收益、外汇及大宗商品业务面临压力……表明第一季度末存在某种‘坏波动性’”，大宗商品和外汇交易的上涨“被利率交易、抵押贷款相关交易和信用交易的疲软所抵消”。
+
+富国银行表示，固定收益、外汇及大宗商品业务的亏损不仅疲软，而且“相对于同行的指引和资产负债表的增长而言有点令人意外”。
+
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 06:05 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 06:02 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 06:15 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 06:11 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 06:17 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 05:51 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 06:10 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 05:53 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 05:52 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 06:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 06:21 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 06:11 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 06:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 06:14 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 06:00 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 06:23 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 05:56 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 06:15 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 06:22 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 06:03 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 06:10 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:53 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/01605299.shtml)
-- 2026-06-30 06:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/443740.shtml)
-- 2026-06-30 05:48 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/507258688.shtml)
-- 2026-06-30 05:52 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/2715757.shtml)
-- 2026-06-30 06:09 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/0308449.shtml)
-- 2026-06-30 06:09 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/3438191.shtml)
-- 2026-06-30 06:02 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/751643.shtml)
-- 2026-06-30 05:48 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/6611591.shtml)
-- 2026-06-30 05:58 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/60572.shtml)
-- 2026-06-30 05:57 - [请回答王牌2019](https://www.blog.minike.top/Article/details/641836731434.shtml)
-- 2026-06-30 06:15 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/22773131568.shtml)
-- 2026-06-30 06:08 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/8185668163.shtml)
-- 2026-06-30 06:01 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/6902059584.shtml)
-- 2026-06-30 05:57 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/9623460.shtml)
-- 2026-06-30 06:06 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/71812633.shtml)
+- 2026-06-30 06:09 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/46890.shtml)
+- 2026-06-30 06:15 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/97380411958.shtml)
+- 2026-06-30 06:01 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/81225437.shtml)
+- 2026-06-30 06:20 - [流金岁月](https://www.share.minike.top/Article/details/898611.shtml)
+- 2026-06-30 06:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/26913002.shtml)
+- 2026-06-30 06:13 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/1391834.shtml)
+- 2026-06-30 06:15 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/826571904102.shtml)
+- 2026-06-30 06:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/6610685019.shtml)
+- 2026-06-30 06:18 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/758084307184.shtml)
+- 2026-06-30 06:22 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/8586510.shtml)
+- 2026-06-30 06:20 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/405521762.shtml)
+- 2026-06-30 06:10 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/756963834.shtml)
+- 2026-06-30 05:57 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/834691978972.shtml)
+- 2026-06-30 06:07 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/55699.shtml)
+- 2026-06-30 06:22 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/6405643.shtml)

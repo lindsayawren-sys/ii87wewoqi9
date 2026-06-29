@@ -1,60 +1,59 @@
-# 女子醉驾致两名环卫工死亡 连云港警方：驾驶人已被刑事拘留
+# 更好满足群众就近就便就医需求
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网连云港6月16日电(记者 谷华)15日江苏连云港灌南县发生一起道路交通事故。16日连云港灌南县公安局发布警情通报称，驾驶人胡某达醉酒驾驶标准，已被依法刑事拘留。 6月15日6时25分许，灌南县新安镇灌河路发生一起道路交通事故。接到报警后，警方迅速赶赴现场处置，并联动相关部门开展救援救治工作。 经初步调查，胡某某(女，23岁)驾驶小型轿车，沿灌河路由东向西行驶时，先后与路边
+加快建设分级诊疗体系若干措施推出 更好满足群众就近就便就医需求(权威发布) 人民日报 本报记者 申少铁国务院办公厅近日印发《关于加快建设分级诊疗体系的若干措施》，就进一步推动医疗卫生服务资源高效配置，满足群众就近就便看病就医需求提出针对性举措。4月13日，国务院新闻办举行国务院政策例行吹风会，介绍有关情况。 超110万所医疗卫生机构覆盖城乡 “分级诊疗体系即按照疾病的轻重缓急和
 
 ## 正文
 
-中新网连云港6月16日电(记者 谷华)15日江苏连云港灌南县发生一起道路交通事故。
+加快建设分级诊疗体系若干措施推出 更好满足群众就近就便就医需求(权威发布) 人民日报 本报记者 申少铁国务院办公厅近日印发《关于加快建设分级诊疗体系的若干措施》，就进一步推动医疗卫生服务资源高效配置，满足群众就近就便看病就医需求提出针对性举措。
 
-16日连云港灌南县公安局发布警情通报称，驾驶人胡某达醉酒驾驶标准，已被依法刑事拘留。
+4月13日，国务院新闻办举行国务院政策例行吹风会，介绍有关情况。
 
-6月15日6时25分许，灌南县新安镇灌河路发生一起道路交通事故。
+超110万所医疗卫生机构覆盖城乡 “分级诊疗体系即按照疾病的轻重缓急和治疗难度，合理地引导患者有序就医，让常见病、多发病到基层解决，相对疑难危重症在上级医院救治。
 
-接到报警后，警方迅速赶赴现场处置，并联动相关部门开展救援救治工作。
+这样既能方便群众就医，又能降低就医负担。
 
-经初步调查，胡某某(女，23岁)驾驶小型轿车，沿灌河路由东向西行驶时，先后与路边车辆及环卫工人发生碰撞，造成2人死亡，同车1人轻微伤。
+”国家卫生健康委副主任郑哲说。
 
-通报称，经检测，胡某某血液酒精含量(145.7mg/100ml)已达醉酒驾驶标准，排除毒驾嫌疑。
+2015年以来，国务院办公厅先后印发《关于推进分级诊疗制度建设的指导意见》《关于推进医疗联合体建设和发展的指导意见》，基本形成了分级诊疗制度的框架设计。
 
-目前，胡某某已被公安机关依法刑事拘留，事故调查及善后处置工作正在进行中。
+“分级诊疗的格局已经基本建立。
 
-(完)
+总体上看，分级诊疗体系建设正在由打好基础逐步转向质量效益综合提升阶段。
 
 ## 相关推荐
 
-- 2026-06-30 06:08 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 06:17 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 06:09 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 05:51 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 06:04 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 06:11 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 05:48 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 05:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 06:02 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 06:02 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 06:05 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 05:57 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 06:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 05:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 06:15 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 05:56 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 06:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 06:11 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 06:05 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 06:23 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 06:18 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 05:59 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 06:06 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 05:54 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 06:15 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-30 06:04 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 05:54 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/93139.shtml)
-- 2026-06-30 06:03 - [美股](http://www.blog.minike.top/Article/details/502850.shtml)
-- 2026-06-30 05:55 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/945145854.shtml)
-- 2026-06-30 06:04 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/902297009413.shtml)
-- 2026-06-30 06:17 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/75232669499.shtml)
-- 2026-06-30 06:01 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/22205.shtml)
-- 2026-06-30 06:10 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/9157594765.shtml)
-- 2026-06-30 05:52 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/7724842107.shtml)
-- 2026-06-30 05:51 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/387796758109.shtml)
-- 2026-06-30 06:16 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/7774270092.shtml)
-- 2026-06-30 05:57 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/432494356.shtml)
-- 2026-06-30 06:07 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/09055058.shtml)
-- 2026-06-30 06:13 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/227542.shtml)
-- 2026-06-30 06:00 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/06505.shtml)
-- 2026-06-30 05:57 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/548054191056.shtml)
+- 2026-06-30 06:21 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/38694.shtml)
+- 2026-06-30 06:19 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/047002.shtml)
+- 2026-06-30 06:19 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/209709.shtml)
+- 2026-06-30 05:58 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/923801454784.shtml)
+- 2026-06-30 06:02 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/054103861.shtml)
+- 2026-06-30 06:23 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/348688374185.shtml)
+- 2026-06-30 06:12 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/671109343.shtml)
+- 2026-06-30 06:17 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/65527434807.shtml)
+- 2026-06-30 06:07 - [千与千寻](http://www.share.kurohicncr.top/Article/details/867999076119.shtml)
+- 2026-06-30 06:18 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/20886.shtml)
+- 2026-06-30 06:07 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/92788.shtml)
+- 2026-06-30 06:06 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/3323907.shtml)
+- 2026-06-30 06:10 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/0165992425.shtml)
+- 2026-06-30 05:57 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/211798577353.shtml)
+- 2026-06-30 05:59 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/18212.shtml)

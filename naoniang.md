@@ -1,58 +1,59 @@
-# 以宣讲传精神 以史脉聚同心——九三学社青岛市委会强化社史宣教推动主题教育走深走实
+# 民调：多数美国人仍觉税负过重，对特朗普税收政策不满加剧
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-一场直击心灵的科学家精神宣讲，让九三学社 “爱国、民主、科学”的精神底色更加鲜明。 6月12日，九三王选关怀基金会、《民主与科学》杂志社、九三学社青岛市委会联合在青岛市民主党派机关五楼多功能厅举办科学家精神公益宣讲。北京大学王选计算机研究所副研究员、王选纪念室主任丛中笑作《科学报国的最美奋斗者 ——“当代毕昇”王选》专题讲座，各民主党派代表、社市委会各级负责人共120余人参与。
+根据近期的民意调查，大多数美国人仍然认为他们的税负过高，尽管去年的税法兑现了唐纳德·特朗普总统在税收方面的多项竞选承诺。 事实上，福克斯新闻的一项新民意调查显示，人们对税收的不满情绪比去年更加强烈。这项于3月底进行的调查结果是一个新的迹象，表明随着美国经历通胀飙升和经济增长乏力，美国人对个人财务状况感到紧张。其他民调发现，这种挫败感超出了个人纳税义务的范畴，许多人认为富人和企业
 
 ## 正文
 
-一场直击心灵的科学家精神宣讲，让九三学社 “爱国、民主、科学”的精神底色更加鲜明。
+根据近期的民意调查，大多数美国人仍然认为他们的税负过高，尽管去年的税法兑现了唐纳德·特朗普总统在税收方面的多项竞选承诺。
 
-6月12日，九三王选关怀基金会、《民主与科学》杂志社、九三学社青岛市委会联合在青岛市民主党派机关五楼多功能厅举办科学家精神公益宣讲。
+事实上，福克斯新闻的一项新民意调查显示，人们对税收的不满情绪比去年更加强烈。
 
-北京大学王选计算机研究所副研究员、王选纪念室主任丛中笑作《科学报国的最美奋斗者 ——“当代毕昇”王选》专题讲座，各民主党派代表、社市委会各级负责人共120余人参与。
+这项于3月底进行的调查结果是一个新的迹象，表明随着美国经历通胀飙升和经济增长乏力，美国人对个人财务状况感到紧张。
 
-此次活动既是社市委会深化“参政为公、实干为民”主题教育的扎实行动，也是推进社史宣传教育落地见效的具体实践。
+其他民调发现，这种挫败感超出了个人纳税义务的范畴，许多人认为富人和企业没有支付他们应承担的份额，而另一些人则担心政府浪费。
 
-长期以来，九三学社青岛市委会坚持把社史学习贯穿主题教育全过程，紧扣四个“注重”统筹发力，持续推动社史学习教育常态化、阵地化、品牌化发展；通过以史育人、固本培元夯实思想根基，有力推动主题教育走深走实、见行见效，先后荣获社中央“2023-2024 年全国社史研究工作先进集体” 等多项荣誉。
+这些调查是在特朗普和共和党人去年通过一项大规模的税收和支出削减法案之后进行的。
 
-注重培育人才，建强专业研究队伍。
+该立法实施了一系列税收减免，包括提高儿童税收抵免，以及对小费和加班费实行新的税收减免。
 
-社市委会持续挖掘、吸纳政治素养高、业务能力强的社员投身社史研究，搭建梯次人才队伍。
+本季度的退税金额有所增加，预计许多家庭将从共和党的税收立法中获得更多收入，但国会预算办公室估计，该法案最终将使最富有的美国人受益最大。
 
-2017年设立社史研究办公室；2019年成立全国地市级九三组织首个社史研究中心，现有研究员29名、顾问1名，其中包含2名社中央社史研究中心研究员。
+共和党人将该法律吹捧为他们正在让工薪家庭的生活更负担得起的证据。
 
 ## 相关推荐
 
-- 2026-06-30 05:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 05:54 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 06:05 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 05:54 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 05:53 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 06:05 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 05:56 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 06:12 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 06:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 06:02 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-30 06:12 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 06:02 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 05:55 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 05:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 06:23 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 06:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 06:22 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 05:55 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 06:16 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 05:54 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 06:18 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 06:15 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 05:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 05:59 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 06:14 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/73853.shtml)
-- 2026-06-30 06:09 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/63031.shtml)
-- 2026-06-30 06:13 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/907675.shtml)
-- 2026-06-30 05:48 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/34741591694.shtml)
-- 2026-06-30 06:06 - [啊啊啊](https://www.blog.minike.top/Article/details/84378.shtml)
-- 2026-06-30 06:16 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/9505887.shtml)
-- 2026-06-30 06:01 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/16453096.shtml)
-- 2026-06-30 06:13 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/02693489576.shtml)
-- 2026-06-30 06:12 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/24333.shtml)
-- 2026-06-30 06:11 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/35931.shtml)
-- 2026-06-30 06:15 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/69054954.shtml)
-- 2026-06-30 06:08 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/49828.shtml)
-- 2026-06-30 06:07 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/3112811.shtml)
-- 2026-06-30 05:54 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/6937392287.shtml)
-- 2026-06-30 05:56 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/33649067808.shtml)
+- 2026-06-30 06:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/51779286080.shtml)
+- 2026-06-30 05:59 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/85794781.shtml)
+- 2026-06-30 06:18 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/842719959.shtml)
+- 2026-06-30 05:57 - [送你一朵小红花](http://www.blog.minike.top/Article/details/0062561182.shtml)
+- 2026-06-30 06:14 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/552147539.shtml)
+- 2026-06-30 05:58 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/51371802.shtml)
+- 2026-06-30 06:18 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/0122483133.shtml)
+- 2026-06-30 06:15 - [一生一世](https://www.blog.minike.top/Article/details/681729291529.shtml)
+- 2026-06-30 06:00 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/28500.shtml)
+- 2026-06-30 06:13 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/0867338517.shtml)
+- 2026-06-30 06:20 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/1314493114.shtml)
+- 2026-06-30 06:16 - [毒液2](http://www.blog.kurohicncr.top/Article/details/20860303.shtml)
+- 2026-06-30 06:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/07194447.shtml)
+- 2026-06-30 06:21 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/6804361645.shtml)
+- 2026-06-30 06:08 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/80308.shtml)

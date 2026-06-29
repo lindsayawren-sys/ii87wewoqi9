@@ -1,54 +1,58 @@
-# 俄国防部：一艘英国游艇“危险接近”俄军舰，俄方鸣枪示警
+# 沈阳市积极创建“全国示范性老年友好型社区”
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网6月17日电 据英国广播公司(BBC)报道，当地时间16日上午，一艘英国游艇在英吉利海峡遭遇俄罗斯军舰，俄国防部事后发表声明，称因为这艘游艇“危险接近”，俄军舰向游艇鸣枪示警。 据报道，当天，一对英国夫妇驾驶游艇在距怀特岛海岸23英里处航行时，与俄罗斯护卫舰“格里戈罗维奇海军上将”号近距离相遇。 俄军舰向这艘游艇的航道上开枪示警。俄罗斯国防部称，该游艇曾“危险接近”俄军舰
+中新网沈阳4月14日电 (李晛)记者4月14日自沈阳市民政局获悉，2025年以来，沈阳市以“全国示范性老年友好型社区”创建为抓手，持续提升社区为老服务能力，各项工作取得显著成效。 目前，沈阳市13个创建单位(9个城市社区，4个农村社区)对照《全国示范性老年友好型社区评分细则(城镇社区)》和《全国示范性老年友好型社区评分细则(农村社区)》八大领域62项指标，全面推进各项建设任务。
 
 ## 正文
 
-中新网6月17日电 据英国广播公司(BBC)报道，当地时间16日上午，一艘英国游艇在英吉利海峡遭遇俄罗斯军舰，俄国防部事后发表声明，称因为这艘游艇“危险接近”，俄军舰向游艇鸣枪示警。
+中新网沈阳4月14日电 (李晛)记者4月14日自沈阳市民政局获悉，2025年以来，沈阳市以“全国示范性老年友好型社区”创建为抓手，持续提升社区为老服务能力，各项工作取得显著成效。
 
-据报道，当天，一对英国夫妇驾驶游艇在距怀特岛海岸23英里处航行时，与俄罗斯护卫舰“格里戈罗维奇海军上将”号近距离相遇。
+目前，沈阳市13个创建单位(9个城市社区，4个农村社区)对照《全国示范性老年友好型社区评分细则(城镇社区)》和《全国示范性老年友好型社区评分细则(农村社区)》八大领域62项指标，全面推进各项建设任务。
 
-俄军舰向这艘游艇的航道上开枪示警。
+一是在社区环境安全适老方面，13个创建单位独居、空巢、失能等特殊困难老年人家庭用水、用电、用气等安全隐患排查率达100%，社区垃圾分类和环境卫生达标率100%。
 
-俄罗斯国防部称，该游艇曾“危险接近”俄军舰，军舰上的船员在多次尝试通过无线电联系该游艇并发射警示弹无果后，遂向其航道前方射击，并强调所有行动“严格遵守国际航运规则”。
+二是出行设施完善便捷方面，公共基础设施无障碍建设率达100%，社区道路安全与照明设施和公共厕所配设等均达到创建要求。
 
-另一方面，驾驶游艇的这对夫妇表示，他们“绝对没有处于碰撞航向上”。
+三是基本公共服务便利可及方面，社区养老服务实现全覆盖，老年人健康管理率100%，老年助餐服务、探访特殊困难老年人覆盖率达100%；社区志愿服务队伍和邻里互助活动常态化开展。
 
-此外，英国国防部将此描述为“孤立事件”。
+四是社会参与广泛充分方面，13个创建单位均建立老年协会或文体团队，老年人活动场所覆盖率100%；定期开展“银龄行动”和人口老龄化国情教育，切实满足了老年人社会参与和文化生活需要。
+
+五是在孝亲敬老氛围浓厚等方面，“敬老月”活动举办有声有色，深受老年人欢迎；数字助老服务全面推开，13个社区(村)均保留线下办事窗口和传统支付方式；常态化开展智能技术培训，帮助老年人跨越“数字鸿沟”。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 06:10 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 06:08 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 06:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 06:06 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 05:55 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 05:59 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 05:48 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 05:52 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 06:08 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 06:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 06:05 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 06:01 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 06:00 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 06:17 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 05:54 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 06:17 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 05:55 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 06:16 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 06:15 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 06:16 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 05:56 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 06:22 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 05:54 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:09 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/93678056.shtml)
-- 2026-06-30 05:53 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/80399449.shtml)
-- 2026-06-30 06:07 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/55713.shtml)
-- 2026-06-30 06:04 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/09879792251.shtml)
-- 2026-06-30 06:16 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/53114.shtml)
-- 2026-06-30 05:59 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/9355008.shtml)
-- 2026-06-30 05:52 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/51955308215.shtml)
-- 2026-06-30 06:15 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/98853.shtml)
-- 2026-06-30 06:11 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/53690.shtml)
-- 2026-06-30 06:03 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/09011.shtml)
-- 2026-06-30 05:59 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/7403893852.shtml)
-- 2026-06-30 06:03 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/42650966013.shtml)
-- 2026-06-30 06:07 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/0362608.shtml)
-- 2026-06-30 05:49 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/9668666.shtml)
-- 2026-06-30 06:01 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/0235712.shtml)
+- 2026-06-30 06:01 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/92668295308.shtml)
+- 2026-06-30 06:09 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/9718301044.shtml)
+- 2026-06-30 05:57 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/289380845.shtml)
+- 2026-06-30 06:18 - [TOP Prada](https://www.share.minike.top/Article/details/6063308246.shtml)
+- 2026-06-30 05:55 - [点菜也要教吗](http://www.blog.minike.top/Article/details/83462276.shtml)
+- 2026-06-30 06:04 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/25455633350.shtml)
+- 2026-06-30 06:08 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/40771436.shtml)
+- 2026-06-30 05:56 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/81966.shtml)
+- 2026-06-30 05:54 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/919553742281.shtml)
+- 2026-06-30 06:22 - [斛珠夫人](https://www.share.minike.top/Article/details/07628832670.shtml)
+- 2026-06-30 06:01 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/59723545.shtml)
+- 2026-06-30 06:11 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/26343.shtml)
+- 2026-06-30 06:18 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/9789253.shtml)
+- 2026-06-30 06:15 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/22468166072.shtml)
+- 2026-06-30 06:02 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/40408.shtml)

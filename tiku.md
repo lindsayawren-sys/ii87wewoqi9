@@ -1,57 +1,57 @@
-# 特朗普称谈判进入第二阶段 美伊距离最终协议还有多远？
+# 美联储提名人沃什披露的财务信息显示其资产远超1亿美元
 
-> 更新时间：2026-06-30 06:18:03 UTC+8
+> 更新时间：2026-06-30 06:24:02 UTC+8
 
 ## 摘要
 
-中新网6月16日电 连日来，延宕难决的美伊战事，终于迎来和平曙光。美国方面称美伊谅解备忘录已电子签署，19日将正式签署。美国总统特朗普也释放积极信号，称谈判已进入第二阶段。 不过，多家外媒分析称，美伊谅解备忘录将棘手问题留待未来谈判处理，美伊距离达成最终协议，还有很长的路要走。 特朗普：谈判第二阶段“更容易” 据卡塔尔半岛电视台报道，美国总统特朗普16日称，美伊协议谈判已进入第
+凯文·沃什是特朗普提名的下一任美联储主席，他提交的财务披露资料显示，他拥有的资产价值远远超过1亿美元。 虽然很难从美国政府的道德操守表格中估算出他的净资产，因为资产的估价类别很宽泛，有时甚至是开放式的，但沃什长达69页的披露文件显示，其中包括在Juggernaut Fund LP的两笔各价值超过5000万美元的投资，以及华尔街巨头斯坦利·德鲁肯米勒投资办公室的1020万美元咨询
 
 ## 正文
 
-中新网6月16日电 连日来，延宕难决的美伊战事，终于迎来和平曙光。
+凯文·沃什是特朗普提名的下一任美联储主席，他提交的财务披露资料显示，他拥有的资产价值远远超过1亿美元。
 
-美国方面称美伊谅解备忘录已电子签署，19日将正式签署。
+虽然很难从美国政府的道德操守表格中估算出他的净资产，因为资产的估价类别很宽泛，有时甚至是开放式的，但沃什长达69页的披露文件显示，其中包括在Juggernaut Fund LP的两笔各价值超过5000万美元的投资，以及华尔街巨头斯坦利·德鲁肯米勒投资办公室的1020万美元咨询费。
 
-美国总统特朗普也释放积极信号，称谈判已进入第二阶段。
+连夜向美国政府道德办公室提交的文件内容复杂，是参议院确认的必要步骤。
 
-不过，多家外媒分析称，美伊谅解备忘录将棘手问题留待未来谈判处理，美伊距离达成最终协议，还有很长的路要走。
+以Juggernaut基金的投资为例，文件附带说明，指出“由于事先存在保密协议，因此不予披露”，沃什承诺“如果得到确认，我将剥离这一资产”。
 
-特朗普：谈判第二阶段“更容易” 据卡塔尔半岛电视台报道，美国总统特朗普16日称，美伊协议谈判已进入第二阶段，“这应该比第一阶段更容易”。
+美联储于2022年初正式制定的道德规范严格限制了美联储官员及其直系亲属可以持有的资产以及管理投资的方式。
 
-特朗普表示，美国不会在伊朗投入任何资金。
+这些大规模投资是一系列持股中的一部分，其中包括在THSDFSLLC的约二十多笔投资，有些单笔投资价值高达500万美元，这些投资的细节被隐瞒，沃什也承诺如果被确认，将剥离这些投资。
 
-对他而言“唯一重要的事”是伊朗永远不会拥有核武器，如果伊朗政府企图获取核武器，伊朗将“遭受毁灭性打击”。
+签署了沃什文件的OGE分析师希瑟·琼斯在审查中注意到了这些承诺，并表示一旦申报人剥离这些资产，他将遵守《政府道德法》。
 
-他还称，已告诉以色列方面，不喜欢其对黎巴嫩首都贝鲁特的袭击，以色列总理内塔尼亚胡在黎巴嫩问题上必须更加负责任。
+文件还列出了数十项其他资产，但没有说明价值，从名称来看，这些资产大多集中在人工智能和加密货币等领域。
 
 ## 相关推荐
 
-- 2026-06-30 06:05 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 05:53 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 06:16 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 06:11 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 06:11 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 06:13 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 06:16 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 06:16 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 06:02 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 05:58 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 06:10 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 05:56 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 06:20 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 06:05 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 06:20 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 06:02 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 06:04 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 05:55 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-30 06:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 06:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 06:06 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 06:03 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:13 - [女心理师](https://www.blog.minike.top/Article/details/56955.shtml)
-- 2026-06-30 06:00 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.kurohicncr.top/Article/details/957418.shtml)
-- 2026-06-30 06:12 - [千与千寻](http://www.share.minike.top/Article/details/29901.shtml)
-- 2026-06-30 06:06 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/1771577.shtml)
-- 2026-06-30 05:57 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/75623.shtml)
-- 2026-06-30 05:53 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/16107196390.shtml)
-- 2026-06-30 05:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/7613679.shtml)
-- 2026-06-30 06:00 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/7901085.shtml)
-- 2026-06-30 05:57 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/541172.shtml)
-- 2026-06-30 05:59 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/8434657.shtml)
-- 2026-06-30 06:14 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/34812.shtml)
-- 2026-06-30 05:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/721864861761.shtml)
-- 2026-06-30 05:50 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/53161860.shtml)
-- 2026-06-30 06:02 - [送你一朵小红花](http://www.share.minike.top/Article/details/98783546.shtml)
-- 2026-06-30 06:13 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/7830013.shtml)
+- 2026-06-30 06:02 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/92784110.shtml)
+- 2026-06-30 05:59 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/243506.shtml)
+- 2026-06-30 05:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/85619.shtml)
+- 2026-06-30 06:16 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/61972.shtml)
+- 2026-06-30 06:10 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/873885718.shtml)
+- 2026-06-30 06:24 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/0789836085.shtml)
+- 2026-06-30 06:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/8745905.shtml)
+- 2026-06-30 06:21 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/92892.shtml)
+- 2026-06-30 06:08 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/935517636716.shtml)
+- 2026-06-30 06:24 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/730884.shtml)
+- 2026-06-30 06:03 - [日本进球](http://www.blog.kurohicncr.top/Article/details/319552.shtml)
+- 2026-06-30 06:16 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/03478.shtml)
+- 2026-06-30 06:18 - [急先锋](http://www.share.kurohicncr.top/Article/details/557630273006.shtml)
+- 2026-06-30 05:55 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/480695575212.shtml)
+- 2026-06-30 06:23 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/89221225465.shtml)
