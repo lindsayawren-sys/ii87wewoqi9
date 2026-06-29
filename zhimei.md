@@ -1,60 +1,53 @@
-# 重庆近三年为“绿”减税降费超191亿元
+# Noble获超5.5亿美元新合同，积压订单增至75亿美元
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-中新网重庆6月5日电 (梁钦卿 余琦)今年6月5日是第55个世界环境日。当前，重庆正推进美丽中国省域先行区建设，绿色发展成绩斐然。重庆市税务局5日公布，近三年来，重庆市落实推动绿色发展的税费支持政策，累计实现减税降费超191亿元。在重庆市忠县，重庆海螺水泥有限责任公司在绿色转型前，生产过程中不仅要消耗大量矿产资源，产生的二氧化硫、氮氧化物等污染物还影响空气质量。 “环保税多排多
+石油和天然气行业的海上钻井承包商Noble Corporation近期获得约5.65亿美元新合同，推动积压订单增至75亿美元，船队利用率从64%升至68%。 主要合同包括：Petrobras将Noble Courage延长1115天，贡献3.39亿美元积压；Woodside授予Noble Deliverer澳大利亚五井合同，价值1.21亿美元；埃克森美孚、Beacon、Plan
 
 ## 正文
 
-中新网重庆6月5日电 (梁钦卿 余琦)今年6月5日是第55个世界环境日。
+石油和天然气行业的海上钻井承包商Noble Corporation近期获得约5.65亿美元新合同，推动积压订单增至75亿美元，船队利用率从64%升至68%。
 
-当前，重庆正推进美丽中国省域先行区建设，绿色发展成绩斐然。
+主要合同包括：Petrobras将Noble Courage延长1115天，贡献3.39亿美元积压；Woodside授予Noble Deliverer澳大利亚五井合同，价值1.21亿美元；埃克森美孚、Beacon、Planet One和Noble Viking也分别获得新单，日费在28万至43万美元区间。
 
-重庆市税务局5日公布，近三年来，重庆市落实推动绿色发展的税费支持政策，累计实现减税降费超191亿元。
+公司维持全年营收和盈利指引，但上调资本支出展望。
 
-在重庆市忠县，重庆海螺水泥有限责任公司在绿色转型前，生产过程中不仅要消耗大量矿产资源，产生的二氧化硫、氮氧化物等污染物还影响空气质量。
+首席执行官表示，商业势头保持强劲，多份重要合同正按计划推进。
 
-“环保税多排多缴、少排少缴，要降本增效就必须环保改造。
-
-”该公司安全环保处副处长陈吉火表示，近年来，公司累计投入5亿元进行烟气深度治理改造、除尘设备改造和一线、三线能效改造，大幅降低水泥生产过程中直接产生的碳排放，2025年节约标煤3.1万吨，节约用电2800万度，减少二氧化碳排放8.1万吨，公司每年节约生产成本上亿元，并自2018年以来累计减免环保税超1884万元。
-
-在重庆，越来越多的高耗能、高排放企业在绿色税制引导下，从“被动治污”转变为“主动减排”。
-
-重庆市税务局数据显示，今年一季度，重庆市国家重点调控的大气污染物二氧化硫、氮氧化物环保税收入较2024年一季度下降44%、33%，形成政策激励与绿色发展的良性循环。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 21:53 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 22:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 21:54 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 21:48 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 22:06 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 21:53 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 21:59 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 21:51 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 21:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 22:01 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 21:57 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 21:49 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 22:12 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 22:14 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 21:57 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 22:00 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 22:19 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 21:56 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 22:20 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 22:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 22:17 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 22:07 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 22:19 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 22:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 22:02 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 22:01 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:03 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/32102546328.shtml)
-- 2026-06-29 21:57 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/9131492.shtml)
-- 2026-06-29 21:56 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/0084849.shtml)
-- 2026-06-29 21:59 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/850919450095.shtml)
-- 2026-06-29 21:57 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/866350048.shtml)
-- 2026-06-29 22:15 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/33564.shtml)
-- 2026-06-29 22:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/869488325.shtml)
-- 2026-06-29 22:03 - [毒液2](http://www.blog.minike.top/Article/details/403920793.shtml)
-- 2026-06-29 22:08 - [斛珠夫人](http://www.share.minike.top/Article/details/72683289.shtml)
-- 2026-06-29 21:54 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/255171.shtml)
-- 2026-06-29 22:06 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/192065.shtml)
-- 2026-06-29 21:56 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/0712570.shtml)
-- 2026-06-29 22:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/62491451.shtml)
-- 2026-06-29 21:53 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/90658547.shtml)
-- 2026-06-29 21:51 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/333591740.shtml)
+- 2026-06-29 22:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/357553.shtml)
+- 2026-06-29 22:23 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/49335597161.shtml)
+- 2026-06-29 22:14 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/414909.shtml)
+- 2026-06-29 21:58 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/9617882206.shtml)
+- 2026-06-29 21:59 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/984393.shtml)
+- 2026-06-29 21:57 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/6509839.shtml)
+- 2026-06-29 21:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/14801.shtml)
+- 2026-06-29 22:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/090778.shtml)
+- 2026-06-29 22:22 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/2349891347.shtml)
+- 2026-06-29 22:07 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/2914737.shtml)
+- 2026-06-29 22:17 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/07263955184.shtml)
+- 2026-06-29 22:06 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/8713801047.shtml)
+- 2026-06-29 21:54 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/996860081.shtml)
+- 2026-06-29 22:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/8365626845.shtml)
+- 2026-06-29 22:16 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/052058687.shtml)

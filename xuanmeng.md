@@ -1,58 +1,59 @@
-# 中外联合研发植物基因编辑新工具 优化作物育种技术
+# 媒体：巴基斯坦预计今天或最迟周五将收到伊朗的修订提案
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-中新社成都6月5日电 (王利文)据中国科学院成都生物研究所5日消息，该所与中外团队联合研发植物基因编辑新工具，补齐植物非编码基因编辑短板，优化作物育种技术。 据介绍，植物基因组中非编码序列占比居多，包含启动子、微小核糖核酸结合位点等片段，它们调控作物生长与产量。长期以来，如何高效、精准编辑非编码序列，是植物基因功能研究和作物遗传改良中的关键技术难题。 该研究发现，动物实验所用的
+德黑兰如今万众瞩目，各方都在等待伊朗领导层的下一步行动。 巴基斯坦斡旋人员预计，伊朗将提交修订后的和平方案 —— 此前美国总统唐纳德・特朗普已否决了伊朗的上一版提议。熟悉斡旋进展的消息人士称，伊朗最快可能于今日给出答复，也可能推迟至周五。这些消息还透露，迟迟未决的背后，是伊朗高层难以联系到最高领导人穆杰塔巴・哈梅内伊。 各方耐心正在经受不同考验。 巴基斯坦总理夏巴兹・谢里夫向内
 
 ## 正文
 
-中新社成都6月5日电 (王利文)据中国科学院成都生物研究所5日消息，该所与中外团队联合研发植物基因编辑新工具，补齐植物非编码基因编辑短板，优化作物育种技术。
+德黑兰如今万众瞩目，各方都在等待伊朗领导层的下一步行动。
 
-据介绍，植物基因组中非编码序列占比居多，包含启动子、微小核糖核酸结合位点等片段，它们调控作物生长与产量。
+巴基斯坦斡旋人员预计，伊朗将提交修订后的和平方案 —— 此前美国总统唐纳德・特朗普已否决了伊朗的上一版提议。
 
-长期以来，如何高效、精准编辑非编码序列，是植物基因功能研究和作物遗传改良中的关键技术难题。
+熟悉斡旋进展的消息人士称，伊朗最快可能于今日给出答复，也可能推迟至周五。
 
-该研究发现，动物实验所用的糖基化酶碱基编辑器，可在植物体内形成6-20碱基对(bp，基因长度计量单位)区间的核苷酸缺失，该缺失可删去基因调控位点、微调基因表达，进而改变作物性状。
+这些消息还透露，迟迟未决的背后，是伊朗高层难以联系到最高领导人穆杰塔巴・哈梅内伊。
 
-研究团队据此定名全新编辑工具“gMDEs”(糖基化酶介导多核苷酸缺失编辑器)。
+各方耐心正在经受不同考验。
 
-研究人员在水稻、大豆样本中完成试验。
+巴基斯坦总理夏巴兹・谢里夫向内阁表示，周末率团在伊斯兰堡参与谈判的伊朗外长 “向我保证，会给出答复”。
 
-结果显示，“gMDEs”能够在多个靶点产生高效多核苷酸缺失，且在单子叶植物和双子叶植物中均具有较好的适用性，经测序检测脱靶风险极低，具有较高的编辑特异性。
+虽未明确时限，但此番公开催促伊朗，意味深长 —— 此前白宫已释放信号，美方耐心即将耗尽。
 
-该研究由中国科学院成都生物研究所张勇、张韬团队与电子科技大学、西南大学和美国马里兰大学研究团队合作，相关成果以“借助糖基化酶介导的多核苷酸缺失编辑器提升植物非编码序列基因组编辑效率”为题，发表于《科学通报》(Science Bulletin)。
+特朗普表态称伊朗 “最好尽快学聪明点”，与他昨日相对克制的口吻截然不同。
 
 ## 相关推荐
 
-- 2026-06-29 21:50 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 21:51 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 22:09 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 22:14 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 22:04 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 22:08 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 21:56 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 22:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 22:13 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 22:00 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 22:07 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 21:55 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 21:54 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 22:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 22:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 22:02 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 22:12 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 22:02 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 22:13 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 21:57 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 22:05 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 22:21 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 22:06 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 22:06 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 22:01 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/765027045.shtml)
-- 2026-06-29 21:54 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/124439.shtml)
-- 2026-06-29 21:54 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/60603320.shtml)
-- 2026-06-29 21:59 - [绘画区你赢了](https://www.blog.minike.top/Article/details/671624.shtml)
-- 2026-06-29 22:15 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/63060159.shtml)
-- 2026-06-29 22:07 - [欧洲缘何成为变暖最快的大洲](http://www.share.kurohicncr.top/Article/details/46962.shtml)
-- 2026-06-29 21:54 - [急先锋](http://www.share.kurohicncr.top/Article/details/290854188.shtml)
-- 2026-06-29 22:10 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/9846767062.shtml)
-- 2026-06-29 22:16 - [小娘惹](https://www.share.minike.top/Article/details/2090644.shtml)
-- 2026-06-29 21:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/42325435052.shtml)
-- 2026-06-29 22:01 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/995758810.shtml)
-- 2026-06-29 21:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/838352.shtml)
-- 2026-06-29 21:58 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/52995471.shtml)
-- 2026-06-29 22:05 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/1108039920.shtml)
-- 2026-06-29 22:14 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/42821.shtml)
+- 2026-06-29 22:13 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/726565920.shtml)
+- 2026-06-29 22:17 - [房价什么时候能涨](https://www.share.minike.top/Article/details/4240601078.shtml)
+- 2026-06-29 22:04 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/834804.shtml)
+- 2026-06-29 22:01 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/39032288593.shtml)
+- 2026-06-29 22:11 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/015259597433.shtml)
+- 2026-06-29 22:16 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/463989014462.shtml)
+- 2026-06-29 22:11 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/678969576.shtml)
+- 2026-06-29 21:56 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/84338349859.shtml)
+- 2026-06-29 22:08 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/8841508924.shtml)
+- 2026-06-29 22:15 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/031086386.shtml)
+- 2026-06-29 22:11 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/927171543767.shtml)
+- 2026-06-29 22:04 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/718634.shtml)
+- 2026-06-29 22:04 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/2144430.shtml)
+- 2026-06-29 22:15 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/81053782023.shtml)
+- 2026-06-29 22:08 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/3338881010.shtml)

@@ -1,45 +1,58 @@
-# 美方将古巴国家主席列入制裁名单
+# 欧洲天然气延续涨势 市场担忧美伊紧张局势升级
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-美国财政部外国资产控制办公室4日发布的消息显示，美国把古巴国家主席迪亚斯-卡内尔及其妻子、古巴革命领袖劳尔·卡斯特罗的儿子等人列入制裁名单。(总台记者 宫祥诚 马天静 张颖哲)
+由于担忧中东紧张局势可能再度升级、且和平协议谈判未见实质进展，欧洲天然气价格持续走高。 基准期货连续第二个交易日上涨，触及两周高位。此前，媒体报道称，美国总统特朗普将于周四听取关于对伊朗采取新军事选项的简报。与此同时，油价创下四年以来的日内最高水平。 特朗普还表示，他已拒绝伊朗方面近期提出的重启霍尔木兹海峡通航的提议——在伊朗核问题达成协议前，将维持对伊朗港口的海上封锁。 自2
 
 ## 正文
 
-美国财政部外国资产控制办公室4日发布的消息显示，美国把古巴国家主席迪亚斯-卡内尔及其妻子、古巴革命领袖劳尔·卡斯特罗的儿子等人列入制裁名单。
+由于担忧中东紧张局势可能再度升级、且和平协议谈判未见实质进展，欧洲天然气价格持续走高。
 
-(总台记者 宫祥诚 马天静 张颖哲)
+基准期货连续第二个交易日上涨，触及两周高位。
+
+此前，媒体报道称，美国总统特朗普将于周四听取关于对伊朗采取新军事选项的简报。
+
+与此同时，油价创下四年以来的日内最高水平。
+
+特朗普还表示，他已拒绝伊朗方面近期提出的重启霍尔木兹海峡通航的提议——在伊朗核问题达成协议前，将维持对伊朗港口的海上封锁。
+
+自2月底战事爆发以来，霍尔木兹海峡实际上已处于关闭状态，导致全球约五分之一的液化天然气（LNG）运输受阻，并推动价格上涨。
+
+许多交易商已削减天然气头寸，而现货市场正准备迎接今夏欧洲与亚洲主要能源进口国之间更激烈的供应竞争。
+
+荷兰国际集团（ING）策略师沃伦·帕特森与埃娃·曼泰在一份报告中指出：“市场对波斯湾能源流动快速恢复失去信心。
 
 ## 相关推荐
 
-- 2026-06-29 22:01 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 22:08 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 22:01 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 21:49 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 21:48 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 21:54 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 21:57 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 21:59 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 22:17 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 21:58 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 22:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 22:19 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 22:12 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 22:21 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 22:23 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 21:54 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 22:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 22:01 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 22:13 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 22:10 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 22:19 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 22:02 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 22:20 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:10 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/817654.shtml)
-- 2026-06-29 22:00 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/7112398875.shtml)
-- 2026-06-29 21:58 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/2162521.shtml)
-- 2026-06-29 21:57 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/04215011.shtml)
-- 2026-06-29 22:12 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/67099129542.shtml)
-- 2026-06-29 22:05 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/0427622.shtml)
-- 2026-06-29 22:06 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/648382642.shtml)
-- 2026-06-29 21:52 - [田曦薇没招了](https://www.share.minike.top/Article/details/443486954.shtml)
-- 2026-06-29 22:00 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/6349871822.shtml)
-- 2026-06-29 21:59 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/3676009476.shtml)
-- 2026-06-29 22:16 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/411242446.shtml)
-- 2026-06-29 21:52 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/95488491726.shtml)
-- 2026-06-29 21:48 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.minike.top/Article/details/7018739603.shtml)
-- 2026-06-29 22:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/97368205.shtml)
-- 2026-06-29 22:10 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/345195769058.shtml)
+- 2026-06-29 22:12 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/5252752039.shtml)
+- 2026-06-29 22:10 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/8924705.shtml)
+- 2026-06-29 22:23 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/50490280040.shtml)
+- 2026-06-29 22:23 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.minike.top/Article/details/4958311.shtml)
+- 2026-06-29 22:22 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/98289753.shtml)
+- 2026-06-29 22:16 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/9930616495.shtml)
+- 2026-06-29 22:23 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/68135725.shtml)
+- 2026-06-29 22:12 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/8900072436.shtml)
+- 2026-06-29 22:05 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/8265287045.shtml)
+- 2026-06-29 22:21 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/9153927029.shtml)
+- 2026-06-29 21:56 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/1891977080.shtml)
+- 2026-06-29 22:02 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/36743.shtml)
+- 2026-06-29 22:13 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/9145404.shtml)
+- 2026-06-29 22:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/22513817493.shtml)
+- 2026-06-29 22:18 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/88390407.shtml)

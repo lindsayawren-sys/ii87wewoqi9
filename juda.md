@@ -1,49 +1,59 @@
-# 申万宏源遭易方达基金减持270.08万股 每股作价约2.61港元
+# 中国修改监狱法 加强对监狱执行刑罚活动的检察监督
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，5月29日，易方达基金减持申万宏源（06806）270.08万股，每股作价2.605港元，总金额约为703.56万港元。减持后最新持股数目约为2亿股，持股比例为7.99%。责任编辑：卢昱君
+中新社北京4月30日电 (记者 郭超凯 谢雁冰)十四届全国人大常委会第二十二次会议4月30日表决通过了新修订的监狱法，自2026年11月1日起施行。新法加强了对监狱执行刑罚活动的检察监督。 新修订的监狱法共8章121条，包括总则、监狱、刑罚的执行、狱政管理、对罪犯的教育改造、对未成年犯的特别规定、法律责任、附则。 全国人大常委会法工委刑法室负责人在答记者问时表示，此次修订监狱法
 
 ## 正文
 
-香港联交所最新数据显示，5月29日，易方达基金减持申万宏源（06806）270.08万股，每股作价2.605港元，总金额约为703.56万港元。
+中新社北京4月30日电 (记者 郭超凯 谢雁冰)十四届全国人大常委会第二十二次会议4月30日表决通过了新修订的监狱法，自2026年11月1日起施行。
 
-减持后最新持股数目约为2亿股，持股比例为7.99%。
+新法加强了对监狱执行刑罚活动的检察监督。
 
-责任编辑：卢昱君
+新修订的监狱法共8章121条，包括总则、监狱、刑罚的执行、狱政管理、对罪犯的教育改造、对未成年犯的特别规定、法律责任、附则。
+
+全国人大常委会法工委刑法室负责人在答记者问时表示，此次修订监狱法完善了收监、减刑、假释、暂予监外执行程序的规定，加强了对监狱执行刑罚活动的检察监督，加强对监狱及其人民警察的执法监督，完善责任追究机制。
+
+据悉，新法增加集体决策、公示等程序要求，保障减刑、假释、暂予监外执行程序适用的公开透明，提升刑罚执行活动的规范化、法治化。
+
+新法进一步加强人民检察院对监狱刑罚执行活动的监督。
+
+加强对罪犯暂予监外执行、减刑、假释的执行工作和监狱对罪犯的考核工作的检察监督等，保障刑罚执行活动依法公正进行。
+
+此次修订还进一步规范和保障监狱管理活动，完善关于罪犯通信、会见，生活、卫生，离监探亲等制度。
 
 ## 相关推荐
 
-- 2026-06-29 22:12 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 22:03 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 21:57 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 21:50 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 22:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 21:52 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 21:57 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 21:59 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 22:10 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 22:09 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 22:14 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 21:48 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 22:09 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 22:09 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 22:16 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 22:15 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 22:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 22:04 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 22:14 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 22:20 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 22:04 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 22:07 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 22:21 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 22:06 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 22:00 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 21:55 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:14 - [新官上任三把火](http://www.share.minike.top/Article/details/6092319.shtml)
-- 2026-06-29 21:55 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/809021200.shtml)
-- 2026-06-29 21:51 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/50127816.shtml)
-- 2026-06-29 22:06 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/244942193.shtml)
-- 2026-06-29 22:11 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/7599283.shtml)
-- 2026-06-29 22:15 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/1859087484.shtml)
-- 2026-06-29 22:07 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/921710017917.shtml)
-- 2026-06-29 22:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/7858599.shtml)
-- 2026-06-29 21:59 - [85花告别古偶](https://www.share.minike.top/Article/details/557806.shtml)
-- 2026-06-29 22:16 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/639017113.shtml)
-- 2026-06-29 22:07 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/6398449174.shtml)
-- 2026-06-29 22:08 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/89009.shtml)
-- 2026-06-29 22:11 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/0940067793.shtml)
-- 2026-06-29 22:02 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/783805554.shtml)
-- 2026-06-29 21:59 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/04787804.shtml)
+- 2026-06-29 22:22 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/7309871.shtml)
+- 2026-06-29 22:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/665720808793.shtml)
+- 2026-06-29 22:05 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/586978040.shtml)
+- 2026-06-29 22:08 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/55802.shtml)
+- 2026-06-29 22:02 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/070242053328.shtml)
+- 2026-06-29 22:13 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/18432059.shtml)
+- 2026-06-29 22:15 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/742928.shtml)
+- 2026-06-29 22:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/828804198.shtml)
+- 2026-06-29 22:21 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/310671759.shtml)
+- 2026-06-29 22:00 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/4532757759.shtml)
+- 2026-06-29 21:58 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/8198725.shtml)
+- 2026-06-29 21:56 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/42347.shtml)
+- 2026-06-29 22:08 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/201253366323.shtml)
+- 2026-06-29 21:59 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/7600417.shtml)
+- 2026-06-29 22:10 - [任泽平：AI浪潮刚刚开始](http://www.blog.minike.top/Article/details/85255.shtml)

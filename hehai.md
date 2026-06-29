@@ -1,60 +1,58 @@
-# 提高烟草税 如何影响青少年控烟效果
+# 标普：保险公司能够抵御私募信贷崩盘
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-“提高烟草税是国际公认最有效、最具成本效益的控烟措施之一。”在近日召开的“烟草税与健康”媒体沟通会上，中日友好医院控制吸烟与呼吸疾病防控部主任、世界卫生组织戒烟与呼吸疾病预防合作中心执行主任、北京市控制吸烟协会会长肖丹表示，世界卫生组织资料显示，烟草价格每提高10%，高收入国家烟草消费量约下降4%，低收入和中等收入国家约下降5%，对青少年、低收入人群和轻度吸烟者影响更明显。中国
+标普全球评级（S&P Global Ratings）对人寿保险公司的私募信贷敞口进行了压力测试，结果令人鼓舞。该公司表示，人寿保险公司具有“韧性”，并已做好充分准备，能够抵御私募信贷领域的压力。该领域近几个月来一直承压。 这家评级公司进行了一系列压力测试并得出结论，即使在该研究设想的最糟糕情境下，也只有两家保险公司可能被下调评级，约一半保险公司的信用评级将面临“中度压力”；在这
 
 ## 正文
 
-“提高烟草税是国际公认最有效、最具成本效益的控烟措施之一。
+标普全球评级（S&P Global Ratings）对人寿保险公司的私募信贷敞口进行了压力测试，结果令人鼓舞。
 
-”在近日召开的“烟草税与健康”媒体沟通会上，中日友好医院控制吸烟与呼吸疾病防控部主任、世界卫生组织戒烟与呼吸疾病预防合作中心执行主任、北京市控制吸烟协会会长肖丹表示，世界卫生组织资料显示，烟草价格每提高10%，高收入国家烟草消费量约下降4%，低收入和中等收入国家约下降5%，对青少年、低收入人群和轻度吸烟者影响更明显。
+该公司表示，人寿保险公司具有“韧性”，并已做好充分准备，能够抵御私募信贷领域的压力。
 
-中国工程院院士王辰表示，对于中国这样的人口大国和吸烟人数众多的国家，控烟是最重要、最明确、最可行的公共卫生措施之一。
+该领域近几个月来一直承压。
 
-根据中国疾病预防控制中心发布的《2024年中国成人烟草调查主要结果和发现》，我国15岁及以上人群吸烟率已由2010年的28.1%下降至2024年的23.2%，但距离“健康中国2030”提出的20%以下目标仍有差距。
+这家评级公司进行了一系列压力测试并得出结论，即使在该研究设想的最糟糕情境下，也只有两家保险公司可能被下调评级，约一半保险公司的信用评级将面临“中度压力”；在这种最糟糕情境下，垃圾级债务的违约率大约是2008年和2009年水平的两倍。
 
-针对“烟草不是必需品为什么却让很多人离不了”这个问题，肖丹表示，烟草并非必需品，吸烟者感觉“离不了”的核心原因是烟草依赖。
+这些测试侧重于保险公司持有的非公开发行、非公开评级的债务，如企业贷款和结构化非抵押融资债券。
 
-烟草依赖是慢性成瘾性疾病，戒烟不能仅靠意志力。
+标普在其评估中做出了几个值得注意的假设。
 
-她强调，所谓“离不了”更多是烟草依赖造成的主观感受，并不意味着无法戒断，通过科学戒烟支持与规范治疗，很多吸烟者能够成功摆脱依赖。
+标普假设，在发生违约时，支撑保险公司所持资产的潜在债务将损失65%至70%的价值。
 
-在肖丹看来，目前仍有大量吸烟者有戒烟意愿，税价政策可推动更多吸烟者从“知道有害但不行动”转向“开始考虑并尝试戒烟”。
+标普称这一假设“本质上是保守的”。
 
 ## 相关推荐
 
-- 2026-06-29 22:16 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 21:57 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 22:09 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 22:07 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 21:54 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 22:06 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 21:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 21:52 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 21:48 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 21:50 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 22:13 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 22:06 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 22:17 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 22:08 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 22:04 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 22:04 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 22:07 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 21:58 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 22:12 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 22:14 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 22:21 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 22:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 22:01 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 22:20 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 22:06 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 22:01 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/675707658.shtml)
-- 2026-06-29 22:15 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/31184919209.shtml)
-- 2026-06-29 22:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/7938812952.shtml)
-- 2026-06-29 21:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/452389415.shtml)
-- 2026-06-29 21:51 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/490720068.shtml)
-- 2026-06-29 22:17 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/2098492842.shtml)
-- 2026-06-29 21:59 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/4222152471.shtml)
-- 2026-06-29 22:13 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/871456229.shtml)
-- 2026-06-29 21:54 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/974259125.shtml)
-- 2026-06-29 22:00 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/96965650144.shtml)
-- 2026-06-29 21:54 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/21349.shtml)
-- 2026-06-29 21:48 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/297087686689.shtml)
-- 2026-06-29 22:17 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/939684795344.shtml)
-- 2026-06-29 21:52 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/01769991.shtml)
-- 2026-06-29 21:48 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/596847.shtml)
+- 2026-06-29 22:20 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/31506.shtml)
+- 2026-06-29 22:05 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/7164744420.shtml)
+- 2026-06-29 22:10 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/77084182.shtml)
+- 2026-06-29 21:57 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/8350934.shtml)
+- 2026-06-29 22:09 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/1867755979.shtml)
+- 2026-06-29 22:08 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/360947.shtml)
+- 2026-06-29 22:13 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/830521386954.shtml)
+- 2026-06-29 22:13 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/92810.shtml)
+- 2026-06-29 21:56 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/5104455.shtml)
+- 2026-06-29 22:01 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/18999506.shtml)
+- 2026-06-29 22:06 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/6748058.shtml)
+- 2026-06-29 22:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/739505.shtml)
+- 2026-06-29 22:12 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/204606.shtml)
+- 2026-06-29 22:12 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/9974295103.shtml)
+- 2026-06-29 22:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/006532.shtml)

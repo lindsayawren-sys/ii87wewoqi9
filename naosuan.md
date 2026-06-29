@@ -1,57 +1,59 @@
-# 马来西亚国家石油公司签署海上石油采收协作协议
+# 中国将对53个非洲建交国全面实施零关税，官方解读来了！
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-马来西亚国家石油公司通过其马来西亚石油管理子公司，与多家地区勘探与生产运营商及国油科技大学签署了一份谅解备忘录，共同评估海上区块的提高石油采收率机会。 该协议由马石油、马石油探勘公司、国油科技大学、泰国国家石油公司砂拉越石油公司、泰国国家石油公司沙巴石油公司以及印尼国家石油公司马来西亚勘探生产公司共同签署。 此次合作旨在通过提高石油采收率和增强石油采收率技术，评估提高采收率、延
+来源：政知见 中国将于2026年5月1日起对53个非洲建交国全面实施零关税举措，4月29日，商务部世贸司负责人就该举措相关情况回答了记者提问。 一、具体内容和意义 2026年2月14日，习近平主席在致非洲联盟峰会贺电中宣布，中方将于2026年5月1日起对53个非洲建交国全面实施零关税举措，同时继续推动商签共同发展经济伙伴关系协定。目前，53个非洲建交国中，已有33国享受了中国以
 
 ## 正文
 
-马来西亚国家石油公司通过其马来西亚石油管理子公司，与多家地区勘探与生产运营商及国油科技大学签署了一份谅解备忘录，共同评估海上区块的提高石油采收率机会。
+来源：政知见 中国将于2026年5月1日起对53个非洲建交国全面实施零关税举措，4月29日，商务部世贸司负责人就该举措相关情况回答了记者提问。
 
-该协议由马石油、马石油探勘公司、国油科技大学、泰国国家石油公司砂拉越石油公司、泰国国家石油公司沙巴石油公司以及印尼国家石油公司马来西亚勘探生产公司共同签署。
+一、具体内容和意义 2026年2月14日，习近平主席在致非洲联盟峰会贺电中宣布，中方将于2026年5月1日起对53个非洲建交国全面实施零关税举措，同时继续推动商签共同发展经济伙伴关系协定。
 
-此次合作旨在通过提高石油采收率和增强石油采收率技术，评估提高采收率、延长油田寿命以及从海上资产中释放额外价值的机会。
+目前，53个非洲建交国中，已有33国享受了中国以特惠税率形式给予最不发达国家的零关税。
 
-根据协议，各方将把马石油探勘公司、泰国国家石油公司砂拉越石油公司、泰国国家石油公司沙巴石油公司及印尼国家石油公司马来西亚勘探生产公司的运营经验和技术专长，与国油科技大学的研发能力和实验室设施相结合。
+5月1日起实施的零关税，面向20个不属于最不发达国家的非洲建交国（包括阿尔及利亚、博茨瓦纳、佛得角、喀麦隆、刚果（布）、科特迪瓦、埃及、赤道几内亚、加蓬、加纳、肯尼亚、利比亚、毛里求斯、摩洛哥、纳米比亚、尼日利亚、塞舌尔、南非、突尼斯、津巴布韦），将以特惠税率形式实施，为期2年。
 
-工作重点将放在开展有实验室测试支持的、针对性的提高采收率和增强采收率研究，选定的技术和概念有可能推进到试点实施阶段。
+具体内容已在财政部网站发布。
 
-签署方表示，该倡议旨在加快采收解决方案的部署，加强区域技术能力，并支持海上盆地的可持续资源开发。
+至此，中国对所有非洲建交国均实现零关税落地实施。
 
-马石油马来西亚石油管理高级副总裁巴乔·皮隆表示，此次合作汇集了各方的运营经验和研究专长，以加速提高采收率解决方案的机会。
+中国成为全球首个对所有非洲建交国和所有建交的最不发达国家实施单方面、全面零关税的主要经济体。
 
-通过整合地下认知、高性能计算和运营商能力，旨在加速针对性解决方案的成熟，从成熟油田释放额外价值，并通过跨境合作加强长期能源韧性。
+这是中国坚定不移扩大高水平对外开放、积极扩大自主开放的重大举措；是落实中非合作论坛成果，筑牢新时代全天候中非命运共同体的创新举措，为全球发展中国家合作树立标杆。
 
 ## 相关推荐
 
-- 2026-06-29 21:55 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 21:56 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 22:06 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 21:58 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 22:08 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 22:04 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 22:01 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 21:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 21:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 22:15 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 21:52 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 21:56 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 22:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 22:04 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 22:22 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 22:18 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 22:11 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 21:59 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 21:58 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 22:04 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 22:06 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 22:01 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 21:56 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 22:05 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/4380164.shtml)
-- 2026-06-29 21:53 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/560997396.shtml)
-- 2026-06-29 22:01 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/1436348333.shtml)
-- 2026-06-29 21:57 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/55417.shtml)
-- 2026-06-29 22:04 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/8803323.shtml)
-- 2026-06-29 22:17 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/468203.shtml)
-- 2026-06-29 22:13 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/0129080.shtml)
-- 2026-06-29 22:04 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/6885891.shtml)
-- 2026-06-29 22:08 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/01511488492.shtml)
-- 2026-06-29 22:15 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/585060336507.shtml)
-- 2026-06-29 21:55 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/432877861196.shtml)
-- 2026-06-29 22:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/990700592.shtml)
-- 2026-06-29 22:07 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/324909.shtml)
-- 2026-06-29 22:16 - [锐评T1零封KC](https://www.share.minike.top/Article/details/52239873.shtml)
-- 2026-06-29 22:06 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/26194080.shtml)
+- 2026-06-29 22:07 - [女心理师](http://www.share.minike.top/Article/details/351904.shtml)
+- 2026-06-29 22:15 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/866248.shtml)
+- 2026-06-29 22:14 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/44482010.shtml)
+- 2026-06-29 22:23 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/076071921.shtml)
+- 2026-06-29 22:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/162269482646.shtml)
+- 2026-06-29 22:19 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/588425393.shtml)
+- 2026-06-29 21:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/2381300027.shtml)
+- 2026-06-29 22:12 - [天气热脾气都变差了](https://www.share.minike.top/Article/details/633376827.shtml)
+- 2026-06-29 22:23 - [斗破苍穹](https://www.blog.minike.top/Article/details/891528207.shtml)
+- 2026-06-29 22:21 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/41003925.shtml)
+- 2026-06-29 22:23 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/304647917891.shtml)
+- 2026-06-29 22:19 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/169857123171.shtml)
+- 2026-06-29 22:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/37033.shtml)
+- 2026-06-29 22:08 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/130055300.shtml)
+- 2026-06-29 21:56 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/189937357.shtml)

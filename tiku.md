@@ -1,58 +1,56 @@
-# G-III上调2027财年盈利预期，目标Marc Jacobs长期营收10亿美元
+# 阿联酋退出欧佩克并非史无前例，下一个会是谁？
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-G-III服装集团周五公布2027财年第一季度业绩，同时上调全年盈利指引。公司预计2027财年非GAAP每股收益将在2.15至2.25美元区间，高于此前预测的2.00至2.10美元。此外，公司设定了Marc Jacobs品牌长期年营收达到10亿美元的目标。 财报显示，第一季度净销售额同比下降8%至5.36亿美元，但仍超出公司预期。毛利率大幅扩张2270个基点至近65%，其中包含
+核心要点 阿联酋意外宣布退出欧佩克，正冲击全球能源市场，暴露出这个强大石油卡特尔内部的裂痕；生产配额制度或引发其他成员国效仿退出。 做出该决定前数周，同为欧佩克成员国的伊朗多次向阿联酋发射导弹和无人机袭击，霍尔木兹海峡封锁又扰乱阿联酋石油出口，重创其经济支柱产业。 利普奥石油协会总裁安迪・利波通过邮件向美国消费者新闻与商业频道表示： “阿联酋退出，只是欧佩克成员国格局变动的又一
 
 ## 正文
 
-G-III服装集团周五公布2027财年第一季度业绩，同时上调全年盈利指引。
+核心要点 阿联酋意外宣布退出欧佩克，正冲击全球能源市场，暴露出这个强大石油卡特尔内部的裂痕；生产配额制度或引发其他成员国效仿退出。
 
-公司预计2027财年非GAAP每股收益将在2.15至2.25美元区间，高于此前预测的2.00至2.10美元。
+做出该决定前数周，同为欧佩克成员国的伊朗多次向阿联酋发射导弹和无人机袭击，霍尔木兹海峡封锁又扰乱阿联酋石油出口，重创其经济支柱产业。
 
-此外，公司设定了Marc Jacobs品牌长期年营收达到10亿美元的目标。
+利普奥石油协会总裁安迪・利波通过邮件向美国消费者新闻与商业频道表示： “阿联酋退出，只是欧佩克成员国格局变动的又一个篇章。
 
-财报显示，第一季度净销售额同比下降8%至5.36亿美元，但仍超出公司预期。
+如果遵守配额的国家对那些肆意超产、无视配额的国家感到不满，后续或将出现更多退出潮，最终可能让欧佩克失去石油卡特尔的实际影响力。
 
-毛利率大幅扩张2270个基点至近65%，其中包含1.027亿美元的关税回收收益。
+” 过去多年，卡塔尔、厄瓜多尔、安哥拉等国都曾退出该组织，原因多为不满产量配额、或是国家发展战略重心转移。
 
-剔除该收益后，调整后毛利率仍同比提高350个基点至45.7%，主要得益于全价销售比例提升及库存管理优化。
+安哥拉 2024 年退出，卡塔尔 2019 年终止成员国身份。
 
-第一季度GAAP净利润为6650万美元，合每股摊薄收益1.50美元，远高于去年同期的780万美元或每股0.17美元。
+长期以来，欧佩克一直面临各国执行配额参差不齐的问题，伊拉克、哈萨克斯坦等成员国历来常有突破产量上限、超额生产的情况。
 
-但非GAAP口径下，公司录得每股亏损0.21美元，去年同期为每股盈利0.19美元，主要因与PVH品牌授权终止相关的业务调整。
+利波补充称：“阿联酋退出欧佩克，并非首例，也大概率不会是最后一例。
 
 ## 相关推荐
 
-- 2026-06-29 22:05 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 21:59 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 22:01 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 21:54 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 22:06 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 22:01 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 21:57 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 22:10 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 22:05 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 21:57 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 21:58 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 22:17 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 22:02 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 22:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 22:01 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 22:15 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 22:17 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 22:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 22:02 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 22:11 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 22:21 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 22:00 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:59 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/711296.shtml)
-- 2026-06-29 21:59 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/6878729.shtml)
-- 2026-06-29 21:58 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/552055955.shtml)
-- 2026-06-29 22:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/40095991.shtml)
-- 2026-06-29 21:58 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/07996555.shtml)
-- 2026-06-29 22:01 - [炽夏](https://www.blog.kurohicncr.top/Article/details/473790606655.shtml)
-- 2026-06-29 21:55 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/20197.shtml)
-- 2026-06-29 21:57 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/21264903996.shtml)
-- 2026-06-29 22:00 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/8865257.shtml)
-- 2026-06-29 21:51 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/599484281.shtml)
-- 2026-06-29 21:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/51937.shtml)
-- 2026-06-29 22:07 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/97069893014.shtml)
-- 2026-06-29 22:16 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/396043267.shtml)
-- 2026-06-29 22:11 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/5423123842.shtml)
-- 2026-06-29 21:57 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/900538.shtml)
+- 2026-06-29 22:17 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/877552069072.shtml)
+- 2026-06-29 22:04 - [美人鱼](https://www.share.minike.top/Article/details/93947217132.shtml)
+- 2026-06-29 22:10 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/672139517.shtml)
+- 2026-06-29 21:55 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/39335224.shtml)
+- 2026-06-29 21:54 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/412122.shtml)
+- 2026-06-29 22:09 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/607657018.shtml)
+- 2026-06-29 22:09 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/411142.shtml)
+- 2026-06-29 22:07 - [济南航空航天全面起势](http://www.share.kurohicncr.top/Article/details/6303108.shtml)
+- 2026-06-29 22:19 - [记者乘坐无人驾驶汽车去采访](https://www.share.kurohicncr.top/Article/details/19086849492.shtml)
+- 2026-06-29 22:21 - [起风了](http://www.share.kurohicncr.top/Article/details/214634849657.shtml)
+- 2026-06-29 22:04 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/724065.shtml)
+- 2026-06-29 22:23 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/02065231232.shtml)
+- 2026-06-29 22:21 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/34016012.shtml)
+- 2026-06-29 22:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/6615720895.shtml)
+- 2026-06-29 22:18 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/31249846503.shtml)

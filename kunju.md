@@ -1,48 +1,60 @@
-# 民进辽宁省委会举办“送文化进校园，光影润童心”主题公益电影放映活动
+# 中波公司6.2万载重吨“哥白尼”轮正式命名
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-民进省委会举办“送文化进校园，光影润童心”主题公益电影放映活动 6月5日，由民进省委会主办、北方联合影视集团承办的“送文化进校园，光影润童心”公益电影放映活动，走进辽宁省光明学校，为在校师生放映影片《捕风追影》。 此次暖心公益活动，用优质影视作品滋养孩子的心灵，为特殊教育学生送去陪伴与温暖。本次放映为系列公益活动的首场活动，后续民进省委会与北方联合影视集团将持续开展送文化进校园
+“哥白尼”轮即将满载风电设备及变压器等设备，奔赴中波红海航线。4月28日，中波轮船股份公司（简称中波公司）第8艘6.2万载重吨多用途重吊船“哥白尼”轮，在泰州口岸船厂正式命名。随着新船入列，新阶段中波船队单船运力最大、最坚实的多用途重吊运力编队建设完成，为中波公司即将迎来的75周年华诞，献上一份厚礼。波兰共和国驻上海总领事亚当·布拉尔赤克（Adam Bralczyk）出席仪式。
 
 ## 正文
 
-民进省委会举办“送文化进校园，光影润童心”主题公益电影放映活动 6月5日，由民进省委会主办、北方联合影视集团承办的“送文化进校园，光影润童心”公益电影放映活动，走进辽宁省光明学校，为在校师生放映影片《捕风追影》。
+“哥白尼”轮即将满载风电设备及变压器等设备，奔赴中波红海航线。
 
-此次暖心公益活动，用优质影视作品滋养孩子的心灵，为特殊教育学生送去陪伴与温暖。
+4月28日，中波轮船股份公司（简称中波公司）第8艘6.2万载重吨多用途重吊船“哥白尼”轮，在泰州口岸船厂正式命名。
 
-本次放映为系列公益活动的首场活动，后续民进省委会与北方联合影视集团将持续开展送文化进校园活动，推进公益放映计划，走进更多中小学，让光影正能量浸润更多少年童心，助力青少年健康阳光成长。
+随着新船入列，新阶段中波船队单船运力最大、最坚实的多用途重吊运力编队建设完成，为中波公司即将迎来的75周年华诞，献上一份厚礼。
 
-来源｜民进省委会(“辽宁统战”微信公众号)
+波兰共和国驻上海总领事亚当·布拉尔赤克（Adam Bralczyk）出席仪式。
+
+中波公司、中远海发、口岸船厂等项目相关方领导先后致辞。
+
+总领事夫人卡塔日娜·布拉尔赤克（Katarzyna Bralczyk）担任新船教母，在她的祝福声中，“哥白尼”轮拉响汽笛、开启崭新航程。
+
+据了解，新船承载着落实《中国和波兰关于加强全面战略伙伴关系的行动计划（2024-2027年）》（简称两国行动计划）新阶段的新任务，以新建运力，进一步为中波贸易发展提供海运服务，为友谊航船全速前进增添强劲动力。
+
+据悉，“哥白尼”轮首航将前往江苏太仓，装载中国出口风电、变压器等设备，奔赴中波红海航线，以高质量运输，服务“一带一路”国家建设，开启海上生涯。
 
 ## 相关推荐
 
-- 2026-06-29 21:59 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 22:04 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 22:16 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 21:49 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 21:53 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 22:02 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 22:13 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 22:03 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 22:02 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 22:02 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 22:04 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 22:08 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 22:15 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 22:23 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 22:16 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 22:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 22:23 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 22:05 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 22:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 22:15 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 22:00 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 21:59 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 21:54 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 22:08 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:05 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/22263.shtml)
-- 2026-06-29 22:12 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/2238201.shtml)
-- 2026-06-29 22:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/675264665728.shtml)
-- 2026-06-29 22:10 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/54159054320.shtml)
-- 2026-06-29 21:51 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/76423.shtml)
-- 2026-06-29 22:02 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/69417.shtml)
-- 2026-06-29 22:02 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/335543976.shtml)
-- 2026-06-29 21:59 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/349295.shtml)
-- 2026-06-29 21:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/83666495.shtml)
-- 2026-06-29 22:18 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/90901.shtml)
-- 2026-06-29 22:15 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/0817099368.shtml)
-- 2026-06-29 22:08 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/83653.shtml)
-- 2026-06-29 22:07 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/287335413.shtml)
-- 2026-06-29 22:16 - [夫妻生活太无聊，所以我……](https://www.share.kurohicncr.top/Article/details/600310098.shtml)
-- 2026-06-29 22:11 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/982055.shtml)
+- 2026-06-29 22:08 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/652787541.shtml)
+- 2026-06-29 22:01 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/7347683407.shtml)
+- 2026-06-29 22:12 - [记者暗访养老机构消防安全](https://www.share.minike.top/Article/details/1772806.shtml)
+- 2026-06-29 22:09 - [18岁高二体育生训练晕倒后离世](http://www.blog.minike.top/Article/details/89457110344.shtml)
+- 2026-06-29 21:56 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/4116675.shtml)
+- 2026-06-29 22:18 - [巴西10号球衣是天才传承史](https://www.blog.minike.top/Article/details/13411763.shtml)
+- 2026-06-29 21:54 - [店员光脚踩入盆中清洗土豆](https://www.blog.minike.top/Article/details/746247.shtml)
+- 2026-06-29 22:00 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/6301014.shtml)
+- 2026-06-29 22:17 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/771962554903.shtml)
+- 2026-06-29 22:04 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/43529.shtml)
+- 2026-06-29 22:19 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/9679664.shtml)
+- 2026-06-29 22:11 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/469059449.shtml)
+- 2026-06-29 22:15 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/4556805593.shtml)
+- 2026-06-29 22:07 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/3047652290.shtml)
+- 2026-06-29 22:24 - [锐评白玉兰提名片段](http://www.share.minike.top/Article/details/7817796346.shtml)

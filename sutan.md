@@ -1,45 +1,58 @@
-# 新加坡国会议长将访华
+# 特朗普会晤雪佛龙等能源巨头，共商霍尔木兹长期封锁应对之策
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-中新社北京6月6日电 应全国人大常委会委员长赵乐际邀请，新加坡国会议长谢健平将于6月8日至13日率团访华。(完)
+随着美伊军事对峙进入第三个月，美国总统特朗普周二在白宫召集了一场闭门会议，与雪佛龙等主要能源公司高管讨论全球石油市场的动荡局势。白宫官员周三证实，会议的核心议题包括美国石油产量、期货市场、海运及天然气，以及为应对持续冲突可能采取的长期封锁措施。 能源巨头齐聚白宫，“锁定”霍尔木兹局势 据悉，雪佛龙首席执行官迈克·沃思亲自出席了此次会议。白宫幕僚长苏西·怀尔斯、财政部长斯科特·贝
 
 ## 正文
 
-中新社北京6月6日电 应全国人大常委会委员长赵乐际邀请，新加坡国会议长谢健平将于6月8日至13日率团访华。
+随着美伊军事对峙进入第三个月，美国总统特朗普周二在白宫召集了一场闭门会议，与雪佛龙等主要能源公司高管讨论全球石油市场的动荡局势。
 
-(完)
+白宫官员周三证实，会议的核心议题包括美国石油产量、期货市场、海运及天然气，以及为应对持续冲突可能采取的长期封锁措施。
+
+能源巨头齐聚白宫，“锁定”霍尔木兹局势 据悉，雪佛龙首席执行官迈克·沃思亲自出席了此次会议。
+
+白宫幕僚长苏西·怀尔斯、财政部长斯科特·贝森特、特使史蒂夫·维特科夫以及特朗普女婿贾里德·库什纳也陪同参会。
+
+会议召开之际，由于霍尔木兹海峡航运受阻，全球市场已损失数亿桶原油供应，油价持续高企对执政党即将到来的中期选举构成了政治风险。
+
+一位白宫官员在会后表示：“这些企业高管一致高度评价特朗普总统为释放美国能源主导地位所采取的行动，并认为总统当前在做的一切都是正确的。
+
+”雪佛龙方面则证实，沃思与会是为了讨论因美伊战争而动荡不安的全球石油市场。
+
+讨论延长封锁，旨在切断德黑兰财源 随着外交谈判陷入僵局，特朗普政府正倾向于采取更强硬的经济施压手段。
 
 ## 相关推荐
 
-- 2026-06-29 22:09 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 22:11 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 21:48 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 22:05 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 21:50 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 21:51 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 22:00 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 21:58 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 21:58 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 22:04 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 22:11 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 22:01 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 22:06 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 22:18 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 21:55 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 22:01 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 22:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 22:22 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 21:56 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 22:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 21:55 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 22:13 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 22:03 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/407892047.shtml)
-- 2026-06-29 22:07 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/757134476369.shtml)
-- 2026-06-29 21:53 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/223287051.shtml)
-- 2026-06-29 22:07 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/76865185173.shtml)
-- 2026-06-29 22:06 - [店员光脚踩入盆中清洗土豆](https://www.blog.minike.top/Article/details/752387.shtml)
-- 2026-06-29 21:51 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/135442383.shtml)
-- 2026-06-29 22:11 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/74136130883.shtml)
-- 2026-06-29 22:08 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/18988509.shtml)
-- 2026-06-29 22:02 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/64390.shtml)
-- 2026-06-29 21:53 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/288503230779.shtml)
-- 2026-06-29 22:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/56666078540.shtml)
-- 2026-06-29 22:09 - [任泽平：AI浪潮刚刚开始](http://www.blog.kurohicncr.top/Article/details/294917622.shtml)
-- 2026-06-29 22:17 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/56369478.shtml)
-- 2026-06-29 22:02 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/80043.shtml)
-- 2026-06-29 21:51 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/660645341571.shtml)
+- 2026-06-29 21:57 - [房价什么时候能涨](http://www.share.minike.top/Article/details/34511.shtml)
+- 2026-06-29 22:10 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/3870287.shtml)
+- 2026-06-29 21:55 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/68206405.shtml)
+- 2026-06-29 22:13 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/2360875558.shtml)
+- 2026-06-29 21:56 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/76621.shtml)
+- 2026-06-29 22:13 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/8052834124.shtml)
+- 2026-06-29 21:56 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/90059830813.shtml)
+- 2026-06-29 21:55 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/25493022504.shtml)
+- 2026-06-29 22:23 - [男子称在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/01880017.shtml)
+- 2026-06-29 22:19 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/92847722882.shtml)
+- 2026-06-29 22:16 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/377066007.shtml)
+- 2026-06-29 22:23 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/4186808.shtml)
+- 2026-06-29 21:55 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/1075799789.shtml)
+- 2026-06-29 21:54 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/46392903648.shtml)
+- 2026-06-29 22:20 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/99955848179.shtml)

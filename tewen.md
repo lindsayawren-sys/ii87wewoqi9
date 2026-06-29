@@ -1,58 +1,61 @@
-# 美国国家劳资关系委员会多项裁定认定星巴克违反劳工法
+# 广州打造“侏罗纪呼吸节”迎接五一假期
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-美国国家劳资关系委员会上周五作出两项裁定：其一，星巴克单方面调整着装规定的执行标准，未留出协商空间，违反联邦劳工法；其二，该咖啡品牌违规盘问员工是否参与罢工。 上述裁定维持了行政法法官的原有判决，认定这家咖啡企业在太平洋西北地区部分门店触犯《国家劳资关系法》。 星巴克与工会之间的劳资纠纷由来已久，工会为在全美众多门店推进组织工作，已向该委员会多次发起不当劳工行为指控，本次判决是
+中新网广州4月30日电 (记者 张璐)“五一”假期临近，广州从化打造一场别开生面的文旅活动。2026年从化首届“侏罗纪呼吸节”(简称“活动”)正在广州8号仓开展。 步入园区，仿佛穿越到史前的侏罗纪世界：原始林莽中，异特龙霸气蛰伏；苍翠草原上，霸王龙静卧巨石之间；雨林河畔，腕龙昂首而立；丛林深处，呆萌的恐龙宝宝破壳而出。生动的场景布置，让游客在绿意环绕中开启一场奇妙的“时空之旅”
 
 ## 正文
 
-美国国家劳资关系委员会上周五作出两项裁定：其一，星巴克单方面调整着装规定的执行标准，未留出协商空间，违反联邦劳工法；其二，该咖啡品牌违规盘问员工是否参与罢工。
+中新网广州4月30日电 (记者 张璐)“五一”假期临近，广州从化打造一场别开生面的文旅活动。
 
-上述裁定维持了行政法法官的原有判决，认定这家咖啡企业在太平洋西北地区部分门店触犯《国家劳资关系法》。
+2026年从化首届“侏罗纪呼吸节”(简称“活动”)正在广州8号仓开展。
 
-星巴克与工会之间的劳资纠纷由来已久，工会为在全美众多门店推进组织工作，已向该委员会多次发起不当劳工行为指控，本次判决是系列纠纷的最新结果。
+步入园区，仿佛穿越到史前的侏罗纪世界：原始林莽中，异特龙霸气蛰伏；苍翠草原上，霸王龙静卧巨石之间；雨林河畔，腕龙昂首而立；丛林深处，呆萌的恐龙宝宝破壳而出。
 
-第一项裁定 委员会维持了行政法法官安德鲁·S·戈林2024年1月针对俄勒冈州波特兰市詹森海滩门店着装管理问题作出的判决。
+生动的场景布置，让游客在绿意环绕中开启一场奇妙的“时空之旅”。
 
-委员会表示：“星巴克单方面变更需经双方协商的事项，在未提前通知工会、未给予协商机会的情况下，收紧着装规定执行尺度。
+据悉，活动以“来广北，森呼吸”为创意核心，深度融合从化“生态立区、绿色发展”战略，将史前生态奇观与本地优质自然资源结合，打造史前探秘、动物互动与科普教育的沉浸式体验空间。
 
-因此，企业此番单方调整及据此作出的处罚，均违反《国家劳资关系法》。
+5月1日起，珍稀动物乐园正式亮相，引入霸气的黄金巨蟒、色彩鲜亮的金刚鹦鹉、灵动俏皮的松鼠猴、神态各异的蜥蜴以及憨态悠闲的巨型陆龟等各类特色珍稀动物。
 
-” 委员会责令星巴克：删除员工档案中因违反着装规定产生的所有处罚记录，撤销所有单方面出台的政策调整；同时禁止企业因员工支持工会、参与工会活动而对其进行惩处。
+依托从化得天独厚的自然生态，营造出绿意盎然、清新舒适的栖息环境，打造广州北首个沉浸式动物体验空间。
 
-委员会共和党籍委员斯科特·梅耶在附注中提出不同意见，他认为委员会总法律顾问未能证明星巴克违规调整着装规定，并表示该着装规则本身合法，企业可根据违规情节轻重酌情作出包括解雇在内的不同处罚。
+游客可近距离驻足观赏动物自在栖息、嬉戏觅食的灵动模样，领略从化丰富鲜活的生物多样性之美。
 
 ## 相关推荐
 
-- 2026-06-29 21:59 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 21:58 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 22:00 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 22:11 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 21:52 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 21:55 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 22:09 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 22:16 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 22:10 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 22:09 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 22:14 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 21:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 22:13 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 22:05 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 21:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 22:21 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 22:21 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 22:04 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 22:10 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 22:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 21:57 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 22:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 22:06 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 22:08 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 22:06 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 21:56 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 21:57 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:59 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/180126108570.shtml)
-- 2026-06-29 21:59 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/0622333.shtml)
-- 2026-06-29 21:53 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/45640238172.shtml)
-- 2026-06-29 22:11 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/178319821604.shtml)
-- 2026-06-29 21:50 - [厨房装空调还是装冷烟机](https://www.share.minike.top/Article/details/8743086533.shtml)
-- 2026-06-29 21:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/94059.shtml)
-- 2026-06-29 22:04 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/8491622.shtml)
-- 2026-06-29 21:52 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/8002610.shtml)
-- 2026-06-29 22:14 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/79156106933.shtml)
-- 2026-06-29 22:10 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/629514015.shtml)
-- 2026-06-29 21:52 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/823383.shtml)
-- 2026-06-29 22:02 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/7934818135.shtml)
-- 2026-06-29 21:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/7993476460.shtml)
-- 2026-06-29 22:07 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/2688830171.shtml)
-- 2026-06-29 22:10 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/23460415048.shtml)
+- 2026-06-29 21:55 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/45606824572.shtml)
+- 2026-06-29 22:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/0005597442.shtml)
+- 2026-06-29 22:19 - [送你一朵小红花](http://www.blog.minike.top/Article/details/043066032.shtml)
+- 2026-06-29 22:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/533761593.shtml)
+- 2026-06-29 22:19 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/844678784516.shtml)
+- 2026-06-29 21:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/1208080.shtml)
+- 2026-06-29 22:22 - [流金岁月](http://www.share.minike.top/Article/details/334708376871.shtml)
+- 2026-06-29 22:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/19784.shtml)
+- 2026-06-29 21:55 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.kurohicncr.top/Article/details/265641989434.shtml)
+- 2026-06-29 22:18 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/428831332.shtml)
+- 2026-06-29 22:20 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/7054116163.shtml)
+- 2026-06-29 22:05 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/77697014.shtml)
+- 2026-06-29 22:11 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/914516670.shtml)
+- 2026-06-29 21:56 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/1409839.shtml)
+- 2026-06-29 22:22 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/420703693.shtml)

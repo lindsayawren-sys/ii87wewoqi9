@@ -1,55 +1,58 @@
-# 新兵授衔仪式落幕，战士亲人难舍别离
+# 嘉实财富太原分公司因未“亮证”、负责人“零履职”被出具警示函，合规短板凸显
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 10:34 来源：中国新闻网 近日，新兵授衔仪式落幕，前来见证孩子光荣时刻的家长们迎来离别时刻。短暂相聚里，家人相见时满是欢喜笑容，看着身披军衔、身姿挺拔的孩子，眼里尽是欣慰与骄傲。相聚终有一别，想到往后许久才能再见，不舍之情漫上心头。家长们反复叮嘱，相拥道别，不少人红了眼眶、悄悄落泪。新战士们强忍不舍，以标准军礼回应亲人牵挂。一幕幕温情又催泪
+近期，嘉实基金旗下基金销售机构嘉实财富因合规管控失衡再收监管罚单。山西监管局日前发布〔2026〕22号行政监管措施决定书，直指嘉实财富太原分公司存在两项重大合规漏洞：一是“无证裸奔”——未在营业场所置备业务许可证；二是“老总悬空”——在长达三年多的任职期间，分公司负责人同时兼任多家分公司负责人，太原分公司不仅未见其履职记录，公司自身也缺乏对负责人兼职的制度约束。 触碰两条“底线
 
 ## 正文
 
-发布时间：2026年06月05日 10:34 来源：中国新闻网 近日，新兵授衔仪式落幕，前来见证孩子光荣时刻的家长们迎来离别时刻。
+近期，嘉实基金旗下基金销售机构嘉实财富因合规管控失衡再收监管罚单。
 
-短暂相聚里，家人相见时满是欢喜笑容，看着身披军衔、身姿挺拔的孩子，眼里尽是欣慰与骄傲。
+山西监管局日前发布〔2026〕22号行政监管措施决定书，直指嘉实财富太原分公司存在两项重大合规漏洞：一是“无证裸奔”——未在营业场所置备业务许可证；二是“老总悬空”——在长达三年多的任职期间，分公司负责人同时兼任多家分公司负责人，太原分公司不仅未见其履职记录，公司自身也缺乏对负责人兼职的制度约束。
 
-相聚终有一别，想到往后许久才能再见，不舍之情漫上心头。
+触碰两条“底线”，机构与负责人双双被记入诚信档案 经查，发现嘉实财富太原分公司存在以下问题：一是未在营业场所置备业务许可证；二是你分公司负责人2022年10月至2025年11月在太原分公司任职期间，同时兼任嘉实财富管理有限公司多家分公司负责人，未见其在太原分公司的履职记录，未见相关制度对分公司负责人兼职的规定要求，太原分公司未采取有效措施保障负责人履职。
 
-家长们反复叮嘱，相拥道别，不少人红了眼眶、悄悄落泪。
+具体来看，太原分公司负责人于2022年10月至2025年11月任职期间，同时在嘉实财富多家异地分公司兼职，山西证监局在检查中却查不到其在太原本地的任何履职痕迹。
 
-新战士们强忍不舍，以标准军礼回应亲人牵挂。
+该机构既未制定对分公司负责人兼职的相关制度规定，也未采取有效措施保障负责人有效履职。
 
-一幕幕温情又催泪的画面，定格下亲情与初心，也见证着新兵们扛起责任，踏上军旅新征程。
+上述行为分别违反了《关于实施的规定》第六条、《公开募集证券投资基金销售机构监督管理办法》第二十五条，以及《证券基金经营机构董事、监事、高级管理人员及从业人员监督管理办法》第三十一条第一款及第三十五条等多项法规。
 
-(作者：唐专专、陈梓豪、姚贺超、冯志钊、白浩然、高飞) 责任编辑：【魏聪聪】
+因此，山西证监局决定对嘉实财富太原分公司采取出具警示函的行政监管措施，并记入证券期货市场诚信档案，同时责令其在收到决定书之日起30日内提交书面整改报告。
+
+“放羊式”管理掀开冰山一角，行业合规“灯下黑”凸显 嘉实财富成立于2012年3月，总部位于北京和三亚。
 
 ## 相关推荐
 
-- 2026-06-29 22:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 22:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 21:50 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 21:53 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 21:58 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 22:04 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 21:57 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 22:14 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 21:57 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 21:50 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 22:15 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 22:00 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 22:13 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 22:20 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 22:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 22:11 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 21:54 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 22:00 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 22:03 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 22:11 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 22:06 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 22:23 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 22:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:01 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/69824798686.shtml)
-- 2026-06-29 22:04 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/769775156286.shtml)
-- 2026-06-29 22:04 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/08128084905.shtml)
-- 2026-06-29 21:48 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/25335.shtml)
-- 2026-06-29 22:09 - [佛得角队长门德斯被控强奸](http://www.share.kurohicncr.top/Article/details/8507848.shtml)
-- 2026-06-29 22:08 - [东方风云榜](https://www.blog.minike.top/Article/details/61081.shtml)
-- 2026-06-29 22:17 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/63437030451.shtml)
-- 2026-06-29 22:08 - [锐评白玉兰提名片段](https://www.blog.kurohicncr.top/Article/details/876247788722.shtml)
-- 2026-06-29 21:49 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/775217434.shtml)
-- 2026-06-29 22:17 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/1389671594.shtml)
-- 2026-06-29 22:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/36884.shtml)
-- 2026-06-29 21:48 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/711189345020.shtml)
-- 2026-06-29 22:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/3595727961.shtml)
-- 2026-06-29 22:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/905174.shtml)
-- 2026-06-29 21:53 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/201886856359.shtml)
+- 2026-06-29 21:54 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/9629041308.shtml)
+- 2026-06-29 22:04 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/117361153406.shtml)
+- 2026-06-29 22:11 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/76790.shtml)
+- 2026-06-29 22:09 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/719936985.shtml)
+- 2026-06-29 22:21 - [金刚川](https://www.share.minike.top/Article/details/20934.shtml)
+- 2026-06-29 22:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/0718243489.shtml)
+- 2026-06-29 22:20 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/870204.shtml)
+- 2026-06-29 22:22 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/1237682102.shtml)
+- 2026-06-29 22:07 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/189108054311.shtml)
+- 2026-06-29 22:00 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.kurohicncr.top/Article/details/89668169.shtml)
+- 2026-06-29 22:07 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/6758153.shtml)
+- 2026-06-29 22:08 - [华工科技龙虎榜数据](https://www.blog.minike.top/Article/details/605019.shtml)
+- 2026-06-29 22:20 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/977387492330.shtml)
+- 2026-06-29 22:07 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/88811598622.shtml)
+- 2026-06-29 22:13 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/67578351923.shtml)

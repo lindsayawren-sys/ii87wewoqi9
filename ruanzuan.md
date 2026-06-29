@@ -1,52 +1,49 @@
-# 追觅高管谈“机器人代替人类做家务”：五年内无法落地，能否进入家庭仍存疑
+# 我国新发现13个亿吨级油田
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-新浪科技讯 6月5日下午消息，今日，追觅科技扫地机事业部全球总裁孟佳与新浪科技等媒体进行对话。 孟佳表示，类人形机器人进入家庭做家务的方案，可能未来五年都太能落地，“它的行走稳定性是非常大的问题，但我们可以做一些改变，让产品能更快的在家庭环境中去落地。未来真的造一台二三十万的机器人进入普通家庭（做家务），我觉得落地的可能性会稍微低一些。”责任编辑：刘万里 SF014
+来源：@投中网微博 【#我国新发现13个亿吨级油田#】记者今天从自然资源部了解到，油气资源关乎国计民生和国家能源安全，自然资源部相关负责人表示，在新一轮找矿突破战略行动中，发现了一批大中型油气田，新增探明储量保持高位增长。新一轮找矿突破战略行动开展以来，国家将油气作为新一轮找矿突破战略行动的重中之重，累计投入资金近4500亿元，在塔里木、鄂尔多斯、渤海湾新发现大中型油气田225
 
 ## 正文
 
-新浪科技讯 6月5日下午消息，今日，追觅科技扫地机事业部全球总裁孟佳与新浪科技等媒体进行对话。
+来源：@投中网微博 【#我国新发现13个亿吨级油田#】记者今天从自然资源部了解到，油气资源关乎国计民生和国家能源安全，自然资源部相关负责人表示，在新一轮找矿突破战略行动中，发现了一批大中型油气田，新增探明储量保持高位增长。
 
-孟佳表示，类人形机器人进入家庭做家务的方案，可能未来五年都太能落地，“它的行走稳定性是非常大的问题，但我们可以做一些改变，让产品能更快的在家庭环境中去落地。
+新一轮找矿突破战略行动开展以来，国家将油气作为新一轮找矿突破战略行动的重中之重，累计投入资金近4500亿元，在塔里木、鄂尔多斯、渤海湾新发现大中型油气田225个，其中，有13个亿吨级油田和26个千亿立方米气田。
 
-未来真的造一台二三十万的机器人进入普通家庭（做家务），我觉得落地的可能性会稍微低一些。
+自然资源部表示，我国在油气勘探领域还实现了“立体拓展”，深层深海成为新增长极。
 
-”责任编辑：刘万里 SF014
+在深层领域，我国首口万米科探井——深地塔科1井成功钻穿万米地层，在全球首次于万米以下发现油；在深海领域，“深海一号”超深水大气田成功投产，推动我国深水油气勘探开发能力跻身世界前列，海洋油气总产量突破9000万吨。
 
 ## 相关推荐
 
-- 2026-06-29 22:01 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 21:56 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 22:03 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 22:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 22:08 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 22:02 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 22:15 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 22:11 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 22:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 21:55 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 21:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 22:10 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 22:16 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 21:56 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 21:59 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 22:09 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 22:04 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 21:57 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 22:08 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 22:12 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 22:05 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 22:15 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 22:00 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 22:01 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 22:09 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:03 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/93080217.shtml)
-- 2026-06-29 22:12 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/251942442160.shtml)
-- 2026-06-29 22:12 - [乔家的儿女](https://www.share.minike.top/Article/details/36141743.shtml)
-- 2026-06-29 21:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/5416809.shtml)
-- 2026-06-29 21:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/1058398195.shtml)
-- 2026-06-29 22:15 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/220122.shtml)
-- 2026-06-29 22:09 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/04338752029.shtml)
-- 2026-06-29 22:06 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/290054625743.shtml)
-- 2026-06-29 21:58 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/71439994694.shtml)
-- 2026-06-29 22:17 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/19363.shtml)
-- 2026-06-29 22:09 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/5561849361.shtml)
-- 2026-06-29 21:54 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/462807.shtml)
-- 2026-06-29 22:00 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/78913407778.shtml)
-- 2026-06-29 22:15 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/367819661.shtml)
-- 2026-06-29 21:59 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/97859.shtml)
+- 2026-06-29 22:02 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/03894075.shtml)
+- 2026-06-29 22:00 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/865086903185.shtml)
+- 2026-06-29 22:19 - [男子称在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/8389169.shtml)
+- 2026-06-29 22:02 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/299146567442.shtml)
+- 2026-06-29 22:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/603496464800.shtml)
+- 2026-06-29 22:02 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/394852.shtml)
+- 2026-06-29 22:21 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/16133532634.shtml)
+- 2026-06-29 21:59 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/1029162.shtml)
+- 2026-06-29 22:04 - [不烧钱的低成本爱好](http://www.blog.kurohicncr.top/Article/details/1686854917.shtml)
+- 2026-06-29 22:00 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/964290252.shtml)
+- 2026-06-29 22:01 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/92124325.shtml)
+- 2026-06-29 22:03 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/987450.shtml)
+- 2026-06-29 22:16 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/1059376637.shtml)
+- 2026-06-29 22:06 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/4860731.shtml)
+- 2026-06-29 22:23 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/523471.shtml)

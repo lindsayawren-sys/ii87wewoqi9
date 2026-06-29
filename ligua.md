@@ -1,60 +1,51 @@
-# 全新梅赛德斯-奔驰纯电GLC SUV开启预售
+# 央行：一季度末个人住房贷款余额36.72万亿元 同比下降3.1%
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-全新梅赛德斯-奔驰纯电GLC SUV五座高配—鎏金版开启预售，预售价格为人民币349，000元起。目前，新车已经陆续到达全国经销商店内，供客户品鉴试驾。此外，梅赛德斯-奔驰还宣布多重预售臻享权益，即刻起至上市当日（含），订车可享限时礼遇，并可叠加享受上市权益。 全新奔驰纯电GLC是基于梅赛德斯-奔驰MB.EA纯电架构正向开发、为中国客户量身定制的智能、豪华且值得信赖的全能SUV
+4月29日金融一线消息，中国人民银行统计，2026年一季度末，金融机构人民币各项贷款余额280.51万亿元，同比增长5.7%，一季度人民币贷款增加8.6万亿元。2026年一季度末，人民币房地产贷款余额51.7万亿元，同比下降3.4%，一季度减少2767亿元。2026年一季度末，房地产开发贷款余额13.17万亿元，同比下降5.1%，一季度减少161亿元。个人住房贷款余额36.72
 
 ## 正文
 
-全新梅赛德斯-奔驰纯电GLC SUV五座高配—鎏金版开启预售，预售价格为人民币349，000元起。
+4月29日金融一线消息，中国人民银行统计，2026年一季度末，金融机构人民币各项贷款余额280.51万亿元，同比增长5.7%，一季度人民币贷款增加8.6万亿元。
 
-目前，新车已经陆续到达全国经销商店内，供客户品鉴试驾。
+2026年一季度末，人民币房地产贷款余额51.7万亿元，同比下降3.4%，一季度减少2767亿元。
 
-此外，梅赛德斯-奔驰还宣布多重预售臻享权益，即刻起至上市当日（含），订车可享限时礼遇，并可叠加享受上市权益。
+2026年一季度末，房地产开发贷款余额13.17万亿元，同比下降5.1%，一季度减少161亿元。
 
-全新奔驰纯电GLC是基于梅赛德斯-奔驰MB.EA纯电架构正向开发、为中国客户量身定制的智能、豪华且值得信赖的全能SUV。
+个人住房贷款余额36.72万亿元，同比下降3.1%，一季度减少2911亿元。
 
-其采用奔驰极具辨识度与豪华美感的最新家族设计语言，搭载与国内头部科技合作伙伴共创、专为中国打造的辅助驾驶与智能座舱科技，更于安全、驾乘和品质等诸多方面严守奔驰标准，以行业前瞻的电驱科技、覆盖全场景的底盘驾乘表现、全面的主被动安全实力，为客户提供值得信赖的长久陪伴。
-
-看得见的豪华美学，舒适宽裕的大五座空间 作为首款搭载最新家族设计语言、为中国专属加长的奔驰车型，全新奔驰纯电GLC带来极具辨识度的奔驰美学、豪华的座舱氛围与宽适的乘坐空间，让客户尽享豪华舒适体验。
-
-全新奔驰纯电GLC采用复古盾格式格栅，靠近时942颗背光呼吸式点亮，配合以三叉星徽造型设计的前后灯组，无论昼夜，“一目奔驰”。
-
-车内，奔驰史上最大MBUX超联屏横贯座舱横向空间，结合最新智能车机系统，呈现视觉科技与色彩艺术交融的盛宴。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 21:56 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 22:14 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 22:07 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 22:04 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 22:14 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 21:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 22:00 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 22:04 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 21:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 21:58 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 22:01 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 21:58 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 21:53 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 22:17 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 22:04 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 22:04 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 22:21 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 22:12 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 21:58 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 22:11 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 22:16 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 22:02 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 22:07 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 22:07 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 22:04 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/321417.shtml)
-- 2026-06-29 21:56 - [天道](https://www.share.kurohicncr.top/Article/details/08452727.shtml)
-- 2026-06-29 21:53 - [一汽大众黄金超混技术来袭](http://www.share.minike.top/Article/details/7224638.shtml)
-- 2026-06-29 21:57 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/7214860406.shtml)
-- 2026-06-29 21:57 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/21878153.shtml)
-- 2026-06-29 22:06 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/90833192.shtml)
-- 2026-06-29 21:52 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/187313.shtml)
-- 2026-06-29 22:03 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/8057812159.shtml)
-- 2026-06-29 22:06 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/900899.shtml)
-- 2026-06-29 21:54 - [乔家的儿女](http://www.share.minike.top/Article/details/0473226433.shtml)
-- 2026-06-29 22:16 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/61335.shtml)
-- 2026-06-29 22:04 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/37597920.shtml)
-- 2026-06-29 22:02 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/70397807.shtml)
-- 2026-06-29 22:08 - [华工科技龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/53861.shtml)
-- 2026-06-29 22:10 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/00921297.shtml)
+- 2026-06-29 22:01 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/84913.shtml)
+- 2026-06-29 21:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/43704609.shtml)
+- 2026-06-29 22:21 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/04479348524.shtml)
+- 2026-06-29 21:59 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/662577320808.shtml)
+- 2026-06-29 22:15 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/87112363737.shtml)
+- 2026-06-29 22:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/15359945.shtml)
+- 2026-06-29 21:54 - [请回答王牌2019](http://www.share.minike.top/Article/details/30862935421.shtml)
+- 2026-06-29 22:11 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/9431894.shtml)
+- 2026-06-29 22:19 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/13326.shtml)
+- 2026-06-29 21:54 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/5705161952.shtml)
+- 2026-06-29 22:00 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/94336555955.shtml)
+- 2026-06-29 21:55 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/34010.shtml)
+- 2026-06-29 22:15 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/05165919648.shtml)
+- 2026-06-29 22:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/2852950747.shtml)
+- 2026-06-29 22:23 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/341278599.shtml)

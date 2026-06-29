@@ -1,60 +1,57 @@
-# 美国5月新增非农就业17.2万远超预期 劳动力市场现回暖迹象但地缘风险犹存
+# 中国人保：聘任张道明为公司副总裁
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-专题：美国5月非农新增17.2万人，大超预期 美国劳工统计局5日公布的数据显示，今年5月份美国非农就业人数增加17.2万，远超市场此前预期的10.5万；当月失业率则稳定在4.3%。分析指出，全美非农就业增量已连续三个月突破10万关口，创下2024年初以来最长增长周期，表明在经历长达一年的疲软增长后，美国劳动力市场正在逐步企稳。 数据显示，除5月单月增幅大幅超出预期外，此前数月的
+4月29日金融一线消息，中国人保发布公告称，第五届董事会第十七次会议审议通过了《关于聘任张道明先生为公司副总裁的议案》，张道明担任公司副总裁的任职资格尚待国家金融监督管理总局核准。 简历显示，张道明，50 岁，高级经济师。曾任人保财险合规部总经理，合规部/风险管理部总经理，江西省分公司总经理，广东省分公司总经理，总裁助理，副总裁。张先生亦兼任人保财险执行董事、临时负责人、财务负
 
 ## 正文
 
-专题：美国5月非农新增17.2万人，大超预期 美国劳工统计局5日公布的数据显示，今年5月份美国非农就业人数增加17.2万，远超市场此前预期的10.5万；当月失业率则稳定在4.3%。
+4月29日金融一线消息，中国人保发布公告称，第五届董事会第十七次会议审议通过了《关于聘任张道明先生为公司副总裁的议案》，张道明担任公司副总裁的任职资格尚待国家金融监督管理总局核准。
 
-分析指出，全美非农就业增量已连续三个月突破10万关口，创下2024年初以来最长增长周期，表明在经历长达一年的疲软增长后，美国劳动力市场正在逐步企稳。
+简历显示，张道明，50 岁，高级经济师。
 
-数据显示，除5月单月增幅大幅超出预期外，此前数月的就业数据也获得了明显的上调。
+曾任人保财险合规部总经理，合规部/风险管理部总经理，江西省分公司总经理，广东省分公司总经理，总裁助理，副总裁。
 
-其中，3月份新增非农就业人数由原先公布的数据上调2.9万至21.4万，4月份增幅则大幅上调6.4万至17.9万。
+张先生亦兼任人保财险执行董事、临时负责人、财务负责人，人保寿险非执行董事，人保金服董事长。
 
-从行业分布来看，5月份的就业增长呈现出更广泛的基群支撑。
+拥有清华大学工商管理硕士学位。
 
-除长期作为就业增长主力军的医疗保健与社会援助行业（当月新增4.72万个岗位）外，服务业与公共部门的招聘活动也明显回暖。
-
-其中，休闲和酒店业在5月份录得约7万个新增岗位，增幅较4月份实现翻番；政府部门当月增加5.2万个岗位，其中地方政府（不含教育领域）贡献了4.35万个主要增量。
-
-经济分析人士认为，近期非农就业数据的超预期表现表明，面对多重外部冲击，美国劳动力市场及宏观经济整体仍具一定韧性。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 21:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 22:02 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 22:04 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 21:52 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 21:51 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 22:09 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 22:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 21:54 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 21:49 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 21:58 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 21:59 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 22:04 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 21:58 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 22:05 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 21:54 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 22:15 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 22:00 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 22:22 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 21:57 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 22:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 22:24 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 21:56 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 22:22 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 22:02 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 22:11 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 22:21 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 22:10 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 22:01 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 21:57 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:50 - [时光音乐会](http://www.share.minike.top/Article/details/7832040948.shtml)
-- 2026-06-29 22:06 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/9406224716.shtml)
-- 2026-06-29 22:09 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/4573926.shtml)
-- 2026-06-29 21:54 - [网约车出事故平台拒赔称只是中介](http://www.share.kurohicncr.top/Article/details/77529987134.shtml)
-- 2026-06-29 22:15 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/9397706.shtml)
-- 2026-06-29 21:51 - [一汽大众黄金超混技术来袭](http://www.share.minike.top/Article/details/606291.shtml)
-- 2026-06-29 22:01 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/128210.shtml)
-- 2026-06-29 21:53 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/9501078.shtml)
-- 2026-06-29 21:53 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/22792828119.shtml)
-- 2026-06-29 22:10 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/441397441434.shtml)
-- 2026-06-29 22:16 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/150651721.shtml)
-- 2026-06-29 22:10 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/04509736.shtml)
-- 2026-06-29 22:08 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/401646989.shtml)
-- 2026-06-29 22:11 - [王安宇聪明到导演组炸了](https://www.share.kurohicncr.top/Article/details/23982.shtml)
-- 2026-06-29 22:03 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/122313.shtml)
+- 2026-06-29 22:08 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/86680.shtml)
+- 2026-06-29 22:12 - [美人鱼](http://www.share.minike.top/Article/details/706910806388.shtml)
+- 2026-06-29 22:19 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/3521424550.shtml)
+- 2026-06-29 22:01 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/5533345.shtml)
+- 2026-06-29 22:00 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/8830606.shtml)
+- 2026-06-29 22:02 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/771854.shtml)
+- 2026-06-29 21:55 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/6549025.shtml)
+- 2026-06-29 22:06 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/59436615290.shtml)
+- 2026-06-29 21:56 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/50857391917.shtml)
+- 2026-06-29 22:15 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/5368775.shtml)
+- 2026-06-29 21:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/571089393.shtml)
+- 2026-06-29 22:01 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/93957.shtml)
+- 2026-06-29 22:03 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/696462181.shtml)
+- 2026-06-29 22:14 - [送你一朵小红花](https://www.share.minike.top/Article/details/373648.shtml)
+- 2026-06-29 21:58 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/20611771.shtml)

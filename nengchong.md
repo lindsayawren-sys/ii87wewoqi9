@@ -1,59 +1,60 @@
-# 赛豆是谁？字节跳动否认造车
+# 鲍威尔决定在卸任美联储主席后继续留任理事：无意干预沃什的领导工作
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-【TechWeb】6月7日消息，一则关于“字节跳动进军汽车制造业、推出‘赛豆’汽车品牌”的消息近日在网络上迅速发酵，引发行业内外广泛关注。 对此，字节跳动官方于6月6日正式发布声明，明确否认造车传闻，并厘清其与新兴汽车品牌“赛豆”的真实关系。 字节跳动：不造车，无股权合作 字节跳动在声明中表示，公司“没有造车或推出汽车品牌的计划”，网传的“赛豆”汽车品牌并非字节跳动或旗下“豆包
+当地时间4月29日，美联储主席鲍威尔在议息会议后的新闻发布会上表示，他将在5月15日美联储主席任期到期后，继续留任美联储理事一职。 谈及留任理事，鲍威尔表示，“我担忧的是针对美联储的一系列法律攻击，这些行为威胁到我们不受政治因素干扰实施货币政策的能力。”他还表示，担心这类冲击正在损害美联储的公信力。 对于鲍威尔留任理事，美国总统特朗普在社交媒体上写道：“‘为时已晚’鲍威尔赖在美
 
 ## 正文
 
-【TechWeb】6月7日消息，一则关于“字节跳动进军汽车制造业、推出‘赛豆’汽车品牌”的消息近日在网络上迅速发酵，引发行业内外广泛关注。
+当地时间4月29日，美联储主席鲍威尔在议息会议后的新闻发布会上表示，他将在5月15日美联储主席任期到期后，继续留任美联储理事一职。
 
-对此，字节跳动官方于6月6日正式发布声明，明确否认造车传闻，并厘清其与新兴汽车品牌“赛豆”的真实关系。
+谈及留任理事，鲍威尔表示，“我担忧的是针对美联储的一系列法律攻击，这些行为威胁到我们不受政治因素干扰实施货币政策的能力。
 
-字节跳动：不造车，无股权合作 字节跳动在声明中表示，公司“没有造车或推出汽车品牌的计划”，网传的“赛豆”汽车品牌并非字节跳动或旗下“豆包”大模型推出的产品，双方之间不存在任何股权合作。
+”他还表示，担心这类冲击正在损害美联储的公信力。
 
-字节跳动强调，其在汽车行业的角色始终是技术合作伙伴，通过旗下的火山引擎为车企提供豆包大模型、智能座舱等AI技术服务，而非整车制造。
+对于鲍威尔留任理事，美国总统特朗普在社交媒体上写道：“‘为时已晚’鲍威尔赖在美联储不走，无非是因为他在别处根本找不到工作。
 
-这意味着，任何将字节跳动与“造车”直接划等号的说法，均属误读。
+” 据央视新闻4月24日报道，美国司法部撤销了一项针对美联储及其主席鲍威尔的刑事调查。
 
-“赛豆”的真实身份：从蓝电到赛豆 那么，这个突然闯入公众视野的“赛豆”究竟是谁？
+此项调查的终结扫清了下任美联储主席人选沃什确认程序上的障碍。
 
-根据公开信息，“赛豆”是重庆赛豆科技有限公司即将推出的全新大众化新能源品牌。
+鲍威尔表示，这场法律纷争让他别无选择，只能继续留任，直至相关威胁得到彻底、透明的解决。
 
-而“赛豆科技”的前身，正是赛力斯集团旗下定位大众市场的“蓝电科技”。
+他表示，自己以理事身份留任期间会保持低调，无意干预沃什日后对委员会的领导工作。
 
 ## 相关推荐
 
-- 2026-06-29 22:05 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 22:06 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 22:16 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 21:55 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 22:00 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 22:10 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 21:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 21:50 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 21:51 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 22:06 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 21:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 22:01 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 22:13 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 21:56 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 22:03 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 22:22 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 22:09 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 22:00 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 22:24 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 22:15 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 22:06 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 22:00 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 22:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 22:06 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 22:20 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 21:57 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 22:05 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:54 - [教育部高校学生资助热线7月1日开通](https://www.blog.kurohicncr.top/Article/details/41522037018.shtml)
-- 2026-06-29 22:12 - [第一炉香](http://www.share.kurohicncr.top/Article/details/0246196420.shtml)
-- 2026-06-29 22:04 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/5830154271.shtml)
-- 2026-06-29 22:11 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/05775.shtml)
-- 2026-06-29 21:53 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/710402882.shtml)
-- 2026-06-29 22:04 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/61250737.shtml)
-- 2026-06-29 21:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/10808412.shtml)
-- 2026-06-29 22:12 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/2793106331.shtml)
-- 2026-06-29 22:01 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/38683830370.shtml)
-- 2026-06-29 22:06 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/187683530.shtml)
-- 2026-06-29 22:13 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/6542477.shtml)
-- 2026-06-29 22:03 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/0273855738.shtml)
-- 2026-06-29 21:58 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/419105736.shtml)
-- 2026-06-29 22:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/534490.shtml)
-- 2026-06-29 22:00 - [东方风云榜直播](http://www.share.minike.top/Article/details/2022293.shtml)
+- 2026-06-29 21:58 - [佛得角队长门德斯被控强奸](http://www.blog.minike.top/Article/details/48918.shtml)
+- 2026-06-29 22:23 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/79967.shtml)
+- 2026-06-29 22:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/78871520.shtml)
+- 2026-06-29 22:21 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/57170030.shtml)
+- 2026-06-29 22:03 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/25108181416.shtml)
+- 2026-06-29 22:04 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/67424179.shtml)
+- 2026-06-29 22:18 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/4863986115.shtml)
+- 2026-06-29 22:12 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/40850202977.shtml)
+- 2026-06-29 21:58 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/4919556.shtml)
+- 2026-06-29 22:04 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/481727172.shtml)
+- 2026-06-29 22:22 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/83032.shtml)
+- 2026-06-29 22:10 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/9902901796.shtml)
+- 2026-06-29 22:07 - [王楚钦开门红](https://www.share.minike.top/Article/details/343675.shtml)
+- 2026-06-29 22:03 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/4125668769.shtml)
+- 2026-06-29 22:08 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/09019840501.shtml)

@@ -1,61 +1,49 @@
-# 全国海洋宣传日广西主场活动在钦州市举办
+# 何立峰与美国财政部长贝森特、贸易代表格里尔举行视频通话
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-中新网钦州6月6日电(翟李强 林浩 唐艺甄 )6月6日，2026年世界海洋日暨全国海洋宣传日广西主场活动在钦州市举办。系列活动聚焦海洋产业升级、海洋生态保护修复等成效，旨在提升社会公众护海兴海意识，为广西全域向海协同发展营造良好氛围。 活动由广西壮族自治区海洋局、钦州市人民政府联合主办，广西壮族自治区副主席眭国华出席并宣布活动启动。开幕式上，第五届全国智慧海洋大数据与人工智能应
+4月30日晚，中美经贸中方牵头人、国务院副总理何立峰与美方牵头人、美国财政部长贝森特和贸易代表格里尔举行视频通话，双方围绕落实好中美两国元首釜山会晤和历次通话重要共识，就进一步妥善解决彼此关注的经贸问题和拓展务实合作，进行了坦诚、深入、建设性的交流。中方就近期美对华经贸限制措施表达严正关切。双方同意继续发挥好中美经贸磋商机制作用，不断增进共识、管控分歧、加强合作，推动中美经贸关
 
 ## 正文
 
-中新网钦州6月6日电(翟李强 林浩 唐艺甄 )6月6日，2026年世界海洋日暨全国海洋宣传日广西主场活动在钦州市举办。
+4月30日晚，中美经贸中方牵头人、国务院副总理何立峰与美方牵头人、美国财政部长贝森特和贸易代表格里尔举行视频通话，双方围绕落实好中美两国元首釜山会晤和历次通话重要共识，就进一步妥善解决彼此关注的经贸问题和拓展务实合作，进行了坦诚、深入、建设性的交流。
 
-系列活动聚焦海洋产业升级、海洋生态保护修复等成效，旨在提升社会公众护海兴海意识，为广西全域向海协同发展营造良好氛围。
+中方就近期美对华经贸限制措施表达严正关切。
 
-活动由广西壮族自治区海洋局、钦州市人民政府联合主办，广西壮族自治区副主席眭国华出席并宣布活动启动。
-
-开幕式上，第五届全国智慧海洋大数据与人工智能应用创新大赛暨第一届广西海洋智能装备创新大赛正式启动，《2025年广西海洋生态预警监测公报》发布。
-
-本次活动特设“广西海洋经济发展成果展”，围绕向海图强、通江达海、智赋深蓝、城海相依、人海和谐、跨海连心六大主题，全方位展示广西深耕海洋经济高质量发展、聚力建设海洋强区的阶段性成效。
-
-广西壮族自治区海洋局党组书记、局长谢瑾瑜指出，近年来，广西海洋部门坚持生态优先、向海兴业，生态家底愈发厚实，蓝色引擎更加强劲。
-
-当前，世纪工程平陆运河即将全线通航，要紧紧把握向海发展迎来的历史性机遇，力争让“碧海银滩”成为最普惠的民生，让“黄金水道”释放“黄金效益”，让科技创新点燃深蓝引擎，让开放合作拓宽蓝色“朋友圈”，共同做好“通江达海、向海图强”大文章。
-
-钦州市委书记钟畅姿表示，钦州是西部陆海新通道上的核心港口城市，平陆运河即将建成通航，钦州向海优势更加突出。
+双方同意继续发挥好中美经贸磋商机制作用，不断增进共识、管控分歧、加强合作，推动中美经贸关系健康、稳定、可持续发展。
 
 ## 相关推荐
 
-- 2026-06-29 22:07 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 22:15 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 22:10 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 21:52 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 22:10 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 22:03 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 22:07 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 22:03 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 22:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 21:57 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 21:52 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 21:56 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 22:04 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 21:58 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 22:14 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 22:01 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 22:20 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 22:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 22:04 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 22:23 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 22:08 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 22:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 22:07 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 22:18 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 22:12 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 22:14 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 22:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 21:58 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/7828929.shtml)
-- 2026-06-29 22:08 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/0984433204.shtml)
-- 2026-06-29 22:08 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/86341.shtml)
-- 2026-06-29 22:10 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/973045403324.shtml)
-- 2026-06-29 21:54 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/692472237800.shtml)
-- 2026-06-29 21:51 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/5424961.shtml)
-- 2026-06-29 21:50 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/17223066.shtml)
-- 2026-06-29 22:07 - [天气热脾气都变差了](http://www.share.kurohicncr.top/Article/details/205954.shtml)
-- 2026-06-29 22:09 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/835328563.shtml)
-- 2026-06-29 21:56 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/378774513589.shtml)
-- 2026-06-29 22:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/304535.shtml)
-- 2026-06-29 22:12 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/4624913.shtml)
-- 2026-06-29 22:00 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/942730395.shtml)
-- 2026-06-29 21:50 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/96781979005.shtml)
-- 2026-06-29 22:01 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/505405510115.shtml)
+- 2026-06-29 21:57 - [巴西10号球衣是天才传承史](https://www.blog.kurohicncr.top/Article/details/61642792.shtml)
+- 2026-06-29 22:22 - [王安宇聪明到导演组炸了](https://www.blog.minike.top/Article/details/511469610.shtml)
+- 2026-06-29 22:03 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/496041125762.shtml)
+- 2026-06-29 22:18 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/2056074.shtml)
+- 2026-06-29 21:56 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/168072524.shtml)
+- 2026-06-29 22:03 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.kurohicncr.top/Article/details/95947.shtml)
+- 2026-06-29 21:54 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/2893652275.shtml)
+- 2026-06-29 22:02 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/362841.shtml)
+- 2026-06-29 21:54 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/022663.shtml)
+- 2026-06-29 22:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/31649863.shtml)
+- 2026-06-29 22:18 - [国际清算银行警告AI投资热潮](http://www.share.kurohicncr.top/Article/details/862015515899.shtml)
+- 2026-06-29 22:08 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/74623145182.shtml)
+- 2026-06-29 22:19 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/406665.shtml)
+- 2026-06-29 22:03 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/42022745.shtml)
+- 2026-06-29 21:54 - [上世纪90年代玩具成新宠](https://www.share.minike.top/Article/details/365274.shtml)

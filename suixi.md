@@ -1,44 +1,56 @@
-# 美军通报：击落两架伊朗无人机
+# 伊朗战事推高能源价格 西班牙通胀进一步升温
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-中新网6月7日电 美军中央司令部6日在社交媒体上发文说，当天早些时候，美军击落了两架伊朗单向攻击无人机。 美军中央司令部称，美军仍保持戒备状态，做好准备防御并应对伊朗的攻击。
+西班牙4月通胀率再度攀升，中东局势持续紧张不断推高能源价格。 西班牙国家统计局（INE）周三公布的欧盟统一口径数据显示，西班牙4月消费者价格同比上涨3.5%，较3月3.4%的年化通胀率进一步走高，创下2024年6月以来最高通胀水平，同时与机构调查的经济学家普遍预期相符。 自伊朗冲突爆发后，欧洲能源价格大幅飙升，推动西班牙上月通胀快速上行。霍尔木兹海峡承担全球约五分之一的石油运输
 
 ## 正文
 
-中新网6月7日电 美军中央司令部6日在社交媒体上发文说，当天早些时候，美军击落了两架伊朗单向攻击无人机。
+西班牙4月通胀率再度攀升，中东局势持续紧张不断推高能源价格。
 
-美军中央司令部称，美军仍保持戒备状态，做好准备防御并应对伊朗的攻击。
+西班牙国家统计局（INE）周三公布的欧盟统一口径数据显示，西班牙4月消费者价格同比上涨3.5%，较3月3.4%的年化通胀率进一步走高，创下2024年6月以来最高通胀水平，同时与机构调查的经济学家普遍预期相符。
+
+自伊朗冲突爆发后，欧洲能源价格大幅飙升，推动西班牙上月通胀快速上行。
+
+霍尔木兹海峡承担全球约五分之一的石油运输，该航道通航前景仍存不确定性，物价或将维持高位运行。
+
+受美伊谈判陷入僵局影响，目前布伦特原油价格重回每桶110美元上方。
+
+欧盟统计局定于周四公布欧元区整体通胀数据，发布时间紧随欧洲央行利率决议会议前夕。
+
+欧洲央行表示，如有必要将果断采取行动，遏制通胀上行。
+
+但市场普遍预计，欧洲央行本次将维持利率不变，持续评估能源涨价向核心通胀的传导幅度。
 
 ## 相关推荐
 
-- 2026-06-29 22:16 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 22:06 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 22:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 22:15 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 22:13 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 21:56 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 22:06 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 22:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 22:08 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 22:11 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 22:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 22:12 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 22:16 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 22:09 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 22:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 22:10 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 22:00 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 22:07 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 22:07 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 22:15 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:16 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/33335197.shtml)
-- 2026-06-29 21:56 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/9359396276.shtml)
-- 2026-06-29 22:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/255958325848.shtml)
-- 2026-06-29 21:54 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/9950177165.shtml)
-- 2026-06-29 22:16 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/709469894866.shtml)
-- 2026-06-29 22:12 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/8277811.shtml)
-- 2026-06-29 21:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/816288128623.shtml)
-- 2026-06-29 21:57 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/2949303074.shtml)
-- 2026-06-29 21:51 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/51484.shtml)
-- 2026-06-29 22:05 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/95596877934.shtml)
-- 2026-06-29 22:08 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/726381834.shtml)
-- 2026-06-29 22:13 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/83366396.shtml)
-- 2026-06-29 22:07 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/82986.shtml)
-- 2026-06-29 21:50 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/6491593891.shtml)
-- 2026-06-29 21:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/13198210068.shtml)
+- 2026-06-29 22:03 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/7923624510.shtml)
+- 2026-06-29 22:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/4459671086.shtml)
+- 2026-06-29 22:20 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/60469.shtml)
+- 2026-06-29 22:21 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/6191761628.shtml)
+- 2026-06-29 22:05 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/4705703.shtml)
+- 2026-06-29 22:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/54498550412.shtml)
+- 2026-06-29 22:16 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/8466906647.shtml)
+- 2026-06-29 22:18 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/876084369833.shtml)
+- 2026-06-29 22:09 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/9054983256.shtml)
+- 2026-06-29 22:04 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/00828283970.shtml)
+- 2026-06-29 22:07 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/0163994003.shtml)
+- 2026-06-29 22:15 - [佛得角队长门德斯被控强奸](https://www.blog.kurohicncr.top/Article/details/068353.shtml)
+- 2026-06-29 21:58 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/710748.shtml)
+- 2026-06-29 22:14 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/82660.shtml)
+- 2026-06-29 22:07 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/295030632.shtml)

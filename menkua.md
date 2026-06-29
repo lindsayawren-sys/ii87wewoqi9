@@ -1,57 +1,61 @@
-# 美国能源部长：美国正洽谈在加州设立石油储备相关事宜
+# 高盛：美元/日元若快速升至163-164 或加剧日本干预风险
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-美国能源部长赖特本周五透露，特朗普政府正就落地加州石油储备项目开展实质性磋商。该项目落地后既能完善加州石油基建，也会掣肘加州民主党州长加文・纽瑟姆缩减本土化石燃料使用规模的施政计划。 相关媒体拿到一份6月2日的文件，文件由坐拥加州近海三座石油钻井平台的萨布尔近海石油公司法务团队递交至美国能源部。文件显示，该企业提议在西海岸建设战略石油储备基地，此举“一方面是响应特朗普政府的问询
+专题：A股风格切换一触即发？5月机构紧盯三大景气主线 高盛表示，如果美元/日元迅速上涨至163-164水平，直接干预的可能性可能会增加。策略师Karen Reichgott Fishman在报告中写道，如果日本国债波动性再次飙升，干预的可能性也会增加，1月份时就曾引发了汇率检查。不过，基本面“如今与2024年最后几轮干预之前，甚至与2026年1月的协调汇率检查之前都截然不同”。
 
 ## 正文
 
-美国能源部长赖特本周五透露，特朗普政府正就落地加州石油储备项目开展实质性磋商。
+专题：A股风格切换一触即发？
 
-该项目落地后既能完善加州石油基建，也会掣肘加州民主党州长加文・纽瑟姆缩减本土化石燃料使用规模的施政计划。
+5月机构紧盯三大景气主线 高盛表示，如果美元/日元迅速上涨至163-164水平，直接干预的可能性可能会增加。
 
-相关媒体拿到一份6月2日的文件，文件由坐拥加州近海三座石油钻井平台的萨布尔近海石油公司法务团队递交至美国能源部。
+策略师Karen Reichgott Fishman在报告中写道，如果日本国债波动性再次飙升，干预的可能性也会增加，1月份时就曾引发了汇率检查。
 
-文件显示，该企业提议在西海岸建设战略石油储备基地，此举“一方面是响应特朗普政府的问询，另一方面也是配合公司与国防部持续推进的油气保供洽谈，旨在保障加州油气供给”。
+不过，基本面“如今与2024年最后几轮干预之前，甚至与2026年1月的协调汇率检查之前都截然不同”。
 
-赖特在采访中证实，相关储备设施项目正处于商讨阶段，但未披露具体细节。
+因此，尽管官员们的口头评论更加频繁，但立即开展行动的理由看起来“不那么令人信服”。
 
-赖特在视察萨布尔公司位于圣巴巴拉县的油气设施后受访表示：“加州是美军面向太平洋的前沿部署据点，境内配套设施数量庞大。
+在能源引发通胀冲击之际，预计日元将面临更大的贬值压力。
 
-我们该怎样做才能巩固加州与全美国防安全？
+这使得日元在战术层面上成为一种颇具吸引力的套利工具。
 
-加州如今沦为一座能源自给匮乏、用能成本高昂的孤岛，现状很不理想。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 22:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 22:08 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 22:17 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 22:06 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 22:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 21:59 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 22:05 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 22:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 22:09 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 22:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 22:04 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 22:11 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 22:05 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 22:04 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 22:10 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 22:14 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 21:56 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 22:21 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 22:14 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 22:08 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 22:06 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 22:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 22:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 22:11 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 22:04 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 22:13 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:02 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/491488.shtml)
-- 2026-06-29 21:52 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/12070990.shtml)
-- 2026-06-29 22:15 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/40336159428.shtml)
-- 2026-06-29 21:55 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/4924233561.shtml)
-- 2026-06-29 21:57 - [东方风云榜](https://www.share.minike.top/Article/details/79467520366.shtml)
-- 2026-06-29 21:50 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/8739048.shtml)
-- 2026-06-29 22:08 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/95006742.shtml)
-- 2026-06-29 21:49 - [记者乘坐无人驾驶汽车去采访](https://www.blog.kurohicncr.top/Article/details/7157038310.shtml)
-- 2026-06-29 22:04 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/558523790052.shtml)
-- 2026-06-29 22:02 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.minike.top/Article/details/0046244.shtml)
-- 2026-06-29 22:10 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/12368919.shtml)
-- 2026-06-29 22:11 - [记者乘坐无人驾驶汽车去采访](http://www.blog.kurohicncr.top/Article/details/9775130.shtml)
-- 2026-06-29 21:59 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/006524.shtml)
-- 2026-06-29 21:52 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/965177.shtml)
-- 2026-06-29 22:01 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/9357427.shtml)
+- 2026-06-29 22:22 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/6266489.shtml)
+- 2026-06-29 21:59 - [绘画区你赢了](https://www.share.minike.top/Article/details/7385635329.shtml)
+- 2026-06-29 22:19 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/216721.shtml)
+- 2026-06-29 21:58 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/111267.shtml)
+- 2026-06-29 22:11 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/16122444.shtml)
+- 2026-06-29 22:00 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/3279786.shtml)
+- 2026-06-29 22:16 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/28209412129.shtml)
+- 2026-06-29 22:00 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/3290020.shtml)
+- 2026-06-29 22:17 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/163210641364.shtml)
+- 2026-06-29 22:09 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/221059914299.shtml)
+- 2026-06-29 21:59 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/06384.shtml)
+- 2026-06-29 22:21 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/17741966289.shtml)
+- 2026-06-29 22:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/49847830.shtml)
+- 2026-06-29 22:16 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/4267527.shtml)
+- 2026-06-29 22:04 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/03975374.shtml)

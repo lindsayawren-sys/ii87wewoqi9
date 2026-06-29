@@ -1,61 +1,57 @@
-# 午后大跌！万亿巨头，创历史成交天量
+# 多国代表西安“取经” 共话智慧绿色城市发展
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-6月5日，A股震荡调整。截至收盘，上证指数跌0.74%，深证成指跌2.21%，创业板指跌3.20%，科创综指跌2.40%。市场成交额为31006亿元，较上一交易日增加3216亿元，3277只个股上涨，2113只个股下跌。 今日午后，三大指数持续走弱，创业板指权重股中际旭创、新易盛、天孚通信、胜宏科技、阳光电源等大幅走低。机器人概念股逆势活跃，太赫兹、减速器、电机、金属新材料等板
+中新网西安4月29日电 题：多国代表西安“取经” 共话智慧绿色城市发展 作者 杨英琦 张一辰 党田野 作为“2026世界市长对话·西安”活动的重要环节，“智联天下·聚力同行：智慧城市低碳绿色融合发展”情景式对话28日下午在西安举行。来自中国、阿曼、伊拉克、突尼斯等多国嘉宾齐聚一堂，共同探寻传统城市走向智慧未来的西安路径。 从交警指挥大厅里实时跳动的调度大屏、一路绿灯畅行的精准控
 
 ## 正文
 
-6月5日，A股震荡调整。
+中新网西安4月29日电 题：多国代表西安“取经” 共话智慧绿色城市发展 作者 杨英琦 张一辰 党田野 作为“2026世界市长对话·西安”活动的重要环节，“智联天下·聚力同行：智慧城市低碳绿色融合发展”情景式对话28日下午在西安举行。
 
-截至收盘，上证指数跌0.74%，深证成指跌2.21%，创业板指跌3.20%，科创综指跌2.40%。
+来自中国、阿曼、伊拉克、突尼斯等多国嘉宾齐聚一堂，共同探寻传统城市走向智慧未来的西安路径。
 
-市场成交额为31006亿元，较上一交易日增加3216亿元，3277只个股上涨，2113只个股下跌。
+从交警指挥大厅里实时跳动的调度大屏、一路绿灯畅行的精准控流，到市民服务热线那头“接诉即办”的快速响应、工单流转的闭环追踪，一系列实地参访，让各国嘉宾们真切触摸到了数字技术为西安城市治理注入的硬核动能。
 
-今日午后，三大指数持续走弱，创业板指权重股中际旭创、新易盛、天孚通信、胜宏科技、阳光电源等大幅走低。
+伊拉克苏莱曼尼亚省政府外办主任、苏莱曼尼亚省长特别代表戈兰·拉希德·穆罕默德表示，近年来当地机动车需求持续攀升，城市道路疏导与交通管理压力日益凸显。
 
-机器人概念股逆势活跃，太赫兹、减速器、电机、金属新材料等板块涨幅居前，电力、培育钻石、半导体、贵金属等板块调整。
+伴随城市规模快速扩张，治理难题愈发突出。
 
-中际旭创股价今日大跌7.81%，收报1179.99元/股，总市值为1.32万亿元；成交额达583.25亿元，创历史成交天量，成交额居A股第一；今日主力资金净流出63.61亿元。
+他认为，西安在数字交通、智慧路网建设及跨部门协同治理方面的成熟经验，可为苏莱曼尼亚提升公共服务效能、完善城市精细化管理提供宝贵借鉴。
 
-作为光模块“一哥”，投资者对该股关注度较高，仍有网友看好：“还是那句话，时间会证明光模块的。
+据西安市副市长肖琦介绍，在城市治理层面，西安已逐步构建“一网统管”的闭环治理新范式。
 
-”今年以来，中际旭创股价累计涨幅为93.76%。
+从整合统筹全市相关部门的热线，到建立涵盖上千个承办单位的庞大网络，从政务服务的“一网通办”，到城市基础设施突发事件的实时预警响应，西安正在从数字底座到上层应用的逐步贯通中，进化为一座全面的“在线城市”。
 
 ## 相关推荐
 
-- 2026-06-29 22:14 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 22:17 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 21:53 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 21:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 22:09 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 21:55 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 21:53 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 21:59 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 22:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 21:48 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 22:00 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 22:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 21:59 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 21:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 22:09 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 22:01 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 22:14 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 21:56 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 22:22 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 22:18 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 22:12 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 22:16 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 22:22 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 22:03 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 22:07 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 22:20 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:58 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/65316969178.shtml)
-- 2026-06-29 21:49 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/7765147394.shtml)
-- 2026-06-29 22:05 - [金牌调解](https://www.blog.minike.top/Article/details/436337.shtml)
-- 2026-06-29 22:09 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.minike.top/Article/details/0963181570.shtml)
-- 2026-06-29 21:56 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/634536.shtml)
-- 2026-06-29 21:53 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/60221407409.shtml)
-- 2026-06-29 21:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/0742340.shtml)
-- 2026-06-29 22:16 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/027386914811.shtml)
-- 2026-06-29 22:02 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/1680241660.shtml)
-- 2026-06-29 21:52 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/70291.shtml)
-- 2026-06-29 21:55 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/2669858092.shtml)
-- 2026-06-29 22:07 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/621634710.shtml)
-- 2026-06-29 22:06 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/31058627772.shtml)
-- 2026-06-29 21:54 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/37627005920.shtml)
-- 2026-06-29 22:02 - [教育部高校学生资助热线7月1日开通](http://www.share.minike.top/Article/details/861939526.shtml)
+- 2026-06-29 22:07 - [上世纪90年代玩具成新宠](https://www.share.minike.top/Article/details/282798616.shtml)
+- 2026-06-29 22:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/66569.shtml)
+- 2026-06-29 22:23 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/72264411.shtml)
+- 2026-06-29 21:54 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/603252653.shtml)
+- 2026-06-29 22:15 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/12424657115.shtml)
+- 2026-06-29 22:17 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/89726032051.shtml)
+- 2026-06-29 22:02 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/3710875594.shtml)
+- 2026-06-29 21:58 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/16006814716.shtml)
+- 2026-06-29 22:04 - [欧洲缘何成为变暖最快的大洲](http://www.blog.kurohicncr.top/Article/details/603584307.shtml)
+- 2026-06-29 22:07 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/257413242.shtml)
+- 2026-06-29 21:57 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/839933309124.shtml)
+- 2026-06-29 22:17 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/536680411154.shtml)
+- 2026-06-29 22:02 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/497890.shtml)
+- 2026-06-29 22:17 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/45649073.shtml)
+- 2026-06-29 21:54 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/169014.shtml)

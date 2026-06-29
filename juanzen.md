@@ -1,61 +1,54 @@
-# 由人民评判，让政绩经得起检验
+# 防城港海事局高效保障电煤海上运输 保障电网平稳运行
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-作者：刘德中(中国社会科学院马克思主义研究院研究员)；张宁(中国社会科学院政治学研究所干部) 习近平总书记指出，“为民造福是最大政绩”，“业绩好不好，要看群众实际感受，由群众来评判”。政绩的标准是为民造福，政绩好不好也理应由人民说了算。干部干事创业、创造政绩，出发点和落脚点都是为了人民，一项工作算不算实绩，不能自以为是、仅凭自我判定，而应该以人民群众的真实感受、客观评价作为最终
+中新网防城港4月30日电(李梓媛)4月30日，装载7.5万吨煤炭的巴拿马籍“NENG YUAN”轮在防城港码头顺利完成卸货作业，该批煤炭将全部运往防城港电厂，充实迎峰度夏能源储备。 据悉，当前正值迎峰度夏备煤关键窗口期，海运电煤保供压力持续加大，作为西部陆海新通道重要门户，防城港承担着区域电煤海上调运的关键枢纽角色，水路电煤运输保障任务繁重而紧迫。 为守牢水上能源运输安全防线、
 
 ## 正文
 
-作者：刘德中(中国社会科学院马克思主义研究院研究员)；张宁(中国社会科学院政治学研究所干部) 习近平总书记指出，“为民造福是最大政绩”，“业绩好不好，要看群众实际感受，由群众来评判”。
+中新网防城港4月30日电(李梓媛)4月30日，装载7.5万吨煤炭的巴拿马籍“NENG YUAN”轮在防城港码头顺利完成卸货作业，该批煤炭将全部运往防城港电厂，充实迎峰度夏能源储备。
 
-政绩的标准是为民造福，政绩好不好也理应由人民说了算。
+据悉，当前正值迎峰度夏备煤关键窗口期，海运电煤保供压力持续加大，作为西部陆海新通道重要门户，防城港承担着区域电煤海上调运的关键枢纽角色，水路电煤运输保障任务繁重而紧迫。
 
-干部干事创业、创造政绩，出发点和落脚点都是为了人民，一项工作算不算实绩，不能自以为是、仅凭自我判定，而应该以人民群众的真实感受、客观评价作为最终标尺。
+为守牢水上能源运输安全防线、保障电力供应平稳，防城港海事局主动履职、靠前服务，开辟电煤运输水上绿色通道，精准对接港口、发电企业及航运单位，实时掌握船舶航行、靠泊及作业计划，推动多方协同联动，持续优化电煤船舶进出港审批流程，压缩办理时限、提升通关效率，保障电煤船舶快进快卸。
 
-总而言之，人民是党的工作的最高裁决者和最终评判者，无疑也应该是政绩的最终评价者。
+据统计，2026年以来，防城港海事局已累计保障231艘次电煤运输船舶安全进出港，运输电煤约947万吨，为地方电力平稳供应筑牢水上运输保障。
 
-衡量干部业绩好不好，关键要看老百姓口碑好不好。
+下一步，该局将持续优化电煤运输保障举措，常态化做好水路运输保通保畅工作，坚守水上交通安全底线，全力保障电网平稳运行。
 
-这与老百姓所说“金杯银杯不如群众口碑，金奖银奖不如群众夸奖”是一致的。
-
-因此，必须把群众满意度纳入政绩考核的“硬指标”，不断提升群众评价在选人用人中的权重。
-
-那么，怎样做出得到群众公认的业绩？
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:14 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 22:14 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 21:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 21:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 22:17 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 21:54 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 21:57 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 22:05 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 22:15 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 22:07 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 21:57 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 22:06 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 22:13 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 22:03 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 21:58 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 21:57 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 22:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 21:59 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 22:10 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 22:00 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 22:00 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 22:10 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 22:10 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 22:11 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 22:20 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 22:15 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 22:19 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:12 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/699220665.shtml)
-- 2026-06-29 21:50 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/1830193.shtml)
-- 2026-06-29 22:12 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/866423.shtml)
-- 2026-06-29 22:09 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/501915755.shtml)
-- 2026-06-29 22:11 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/38771152.shtml)
-- 2026-06-29 21:55 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/583976.shtml)
-- 2026-06-29 21:54 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/985284444.shtml)
-- 2026-06-29 21:52 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/956892133.shtml)
-- 2026-06-29 21:48 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/67637.shtml)
-- 2026-06-29 22:05 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/3831007808.shtml)
-- 2026-06-29 21:59 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/570114592110.shtml)
-- 2026-06-29 21:59 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/190687891409.shtml)
-- 2026-06-29 21:52 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/77019013.shtml)
-- 2026-06-29 21:58 - [速度与激情9](https://www.blog.minike.top/Article/details/238725477681.shtml)
-- 2026-06-29 22:06 - [TOP Prada](http://www.blog.minike.top/Article/details/738182408.shtml)
+- 2026-06-29 22:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/552361706.shtml)
+- 2026-06-29 22:20 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/89458713908.shtml)
+- 2026-06-29 22:07 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/67702.shtml)
+- 2026-06-29 21:57 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/4385148342.shtml)
+- 2026-06-29 21:58 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/88947.shtml)
+- 2026-06-29 22:24 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/027325230.shtml)
+- 2026-06-29 22:12 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/194648070.shtml)
+- 2026-06-29 22:01 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/427087836013.shtml)
+- 2026-06-29 22:13 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/2434734.shtml)
+- 2026-06-29 22:14 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/53419.shtml)
+- 2026-06-29 22:01 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/7030212.shtml)
+- 2026-06-29 22:18 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/650330611199.shtml)
+- 2026-06-29 22:06 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/03624095.shtml)
+- 2026-06-29 22:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/3937465.shtml)
+- 2026-06-29 21:57 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/711586214.shtml)

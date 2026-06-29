@@ -1,56 +1,58 @@
-# 日本实际家庭消费连续5个月同比下滑
+# 多名美共和党人批对伊战争：耗国力伤民生，民众付出现实代价
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-日本总务省5日公布的调查结果显示，受中东局势延宕影响，日本家庭消费持续承压，4月实际家庭消费支出连续第5个月同比下滑。 数据显示，4月日本两人及以上家庭月平均消费支出同比下降0.5%。在消费支出的10个大类中，有5个类别支出同比下降。 具体来看，教育、服装及鞋类、水电燃气费等支出下滑对消费的影响最为突出。其中，教育类支出同比下降19.4%。同时，食品类支出已连续3个月同比下降。
+中新网4月29日电 围绕特朗普政府对伊朗发动军事行动，美国保守派阵营内部的分歧持续扩大。多名共和党人、特朗普昔日盟友及右翼媒体人士近期公开批评政府让美国卷入对伊战争，认为此举不仅背离了特朗普竞选期间“美国优先”和“不再发动新战争”的承诺，也正在让美国民众付出现实代价。美国共和党籍前联邦众议员玛乔丽·泰勒·格林曾是特朗普的盟友，后转变为批评者。她近日在社交媒体上谴责美国对伊朗的战
 
 ## 正文
 
-日本总务省5日公布的调查结果显示，受中东局势延宕影响，日本家庭消费持续承压，4月实际家庭消费支出连续第5个月同比下滑。
+中新网4月29日电 围绕特朗普政府对伊朗发动军事行动，美国保守派阵营内部的分歧持续扩大。
 
-数据显示，4月日本两人及以上家庭月平均消费支出同比下降0.5%。
+多名共和党人、特朗普昔日盟友及右翼媒体人士近期公开批评政府让美国卷入对伊战争，认为此举不仅背离了特朗普竞选期间“美国优先”和“不再发动新战争”的承诺，也正在让美国民众付出现实代价。
 
-在消费支出的10个大类中，有5个类别支出同比下降。
+美国共和党籍前联邦众议员玛乔丽·泰勒·格林曾是特朗普的盟友，后转变为批评者。
 
-具体来看，教育、服装及鞋类、水电燃气费等支出下滑对消费的影响最为突出。
+她近日在社交媒体上谴责美国对伊朗的战争，并指出这场战争对美国农民造成的影响。
 
-其中，教育类支出同比下降19.4%。
+她在X平台发文称：“未来某一天，父母们会告诉他们的孩子，正是由于特朗普对伊朗发起的战争才导致了农场关闭，因为农民们无力承担化肥费用以及高昂的耕作成本。
 
-同时，食品类支出已连续3个月同比下降。
+” 保守派主持人塔克·卡尔森也在节目中表达了对当前局势的担忧。
 
-日本第一生命经济研究所首席经济学家永滨利广说，设备器具及空调等耐用消费品支出对4月整体数据形成一定支撑，但这与供应短缺及涨价预期下的提前购买有关。
+3月18日，他在节目中采访了美国前国家反恐中心主任肯特。
 
-此外，日本家庭压缩教育类支出的趋势值得关注。
+肯特表示，动用武力必须极为谨慎、周密。
 
 ## 相关推荐
 
-- 2026-06-29 22:10 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 22:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 22:13 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 22:14 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 21:56 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 22:02 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 22:02 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 21:56 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 22:01 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 21:59 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 22:11 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 22:10 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 22:04 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 21:57 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 22:20 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 22:07 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 22:08 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 22:18 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 22:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 22:07 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 22:21 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 22:17 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:57 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/91825202.shtml)
-- 2026-06-29 22:13 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/991843334.shtml)
-- 2026-06-29 21:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/226381030765.shtml)
-- 2026-06-29 21:54 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/363993.shtml)
-- 2026-06-29 22:00 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/671013.shtml)
-- 2026-06-29 21:55 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/12207059.shtml)
-- 2026-06-29 22:08 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/39815877.shtml)
-- 2026-06-29 22:13 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/523154538941.shtml)
-- 2026-06-29 22:16 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/9883629.shtml)
-- 2026-06-29 21:53 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/91904978614.shtml)
-- 2026-06-29 22:01 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/455109526562.shtml)
-- 2026-06-29 22:00 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/823799.shtml)
-- 2026-06-29 21:53 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/04721.shtml)
-- 2026-06-29 22:10 - [时光音乐会](https://www.blog.minike.top/Article/details/63236804198.shtml)
-- 2026-06-29 21:52 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/402664675.shtml)
+- 2026-06-29 22:12 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/305585312026.shtml)
+- 2026-06-29 22:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/96433.shtml)
+- 2026-06-29 21:59 - [一见倾心](https://www.blog.minike.top/Article/details/9141146146.shtml)
+- 2026-06-29 22:22 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/91256259.shtml)
+- 2026-06-29 22:08 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/4197239010.shtml)
+- 2026-06-29 22:12 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/94747360630.shtml)
+- 2026-06-29 22:20 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/80791088740.shtml)
+- 2026-06-29 22:01 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/49726043562.shtml)
+- 2026-06-29 22:22 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/25217572237.shtml)
+- 2026-06-29 22:10 - [恋与深空致歉](https://www.share.minike.top/Article/details/95045067927.shtml)
+- 2026-06-29 22:22 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/78780412.shtml)
+- 2026-06-29 22:18 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/738773.shtml)
+- 2026-06-29 22:11 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/25316.shtml)
+- 2026-06-29 22:07 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/73805.shtml)
+- 2026-06-29 22:06 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/9941686029.shtml)

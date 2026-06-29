@@ -1,47 +1,50 @@
-# 凝聚人心 汇聚力量 作家蒋胜男邀您关注统战新语
+# 碰瓷疗效、花样忽悠、平台失责 这些乱象将迎来官方严打！
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 16:27 来源：中国新闻网 凝聚人心，汇聚力量，作家蒋胜男邀您关注统战新语，中央统战部统战新语快手号上线了。 责任编辑：【王祎】
+发布时间：2026年04月29日 18:11 来源：中国新闻网 4月29日，记者在市场监管总局食品安全专题新闻发布会上获悉，市场监管总局食品安全总监孙会川表示，此次专项整治，市场监管部门将实施精准锁定、靶向打击。检查对象涵盖电商平台、平台内经营者、营销服务机构及人员、广告活动主体、食品生产经营者等5类主体。据介绍，专项整治将重点整治3类违法违规行为：一是虚假宣传行为，比如普通食
 
 ## 正文
 
-发布时间：2026年06月05日 16:27 来源：中国新闻网 凝聚人心，汇聚力量，作家蒋胜男邀您关注统战新语，中央统战部统战新语快手号上线了。
+发布时间：2026年04月29日 18:11 来源：中国新闻网 4月29日，记者在市场监管总局食品安全专题新闻发布会上获悉，市场监管总局食品安全总监孙会川表示，此次专项整治，市场监管部门将实施精准锁定、靶向打击。
 
-责任编辑：【王祎】
+检查对象涵盖电商平台、平台内经营者、营销服务机构及人员、广告活动主体、食品生产经营者等5类主体。
+
+据介绍，专项整治将重点整治3类违法违规行为：一是虚假宣传行为，比如普通食品却通过各种手段明示暗示自己可以“治病、保健、防病”的；保健食品夸大功效、暗示自己可以“治病”的；二是违法广告行为，比如对食品的产地、成分、功能等胡编乱造、张冠李戴的，利用所谓“专家、学者、白大褂”站台背书，误导消费者的；三是平台机构违法行为，比如对于虚假宣传放任不管，甚至纵容造假、配合忽悠的。
+
+对于上述违法违规行为，市场监管部门将从严从重查处。
+
+责任编辑：【岳川】
 
 ## 相关推荐
 
-- 2026-06-29 21:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 22:13 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 21:56 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 21:58 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 22:16 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 22:13 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 22:14 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 22:12 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 21:48 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 22:16 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 22:14 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 21:56 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 21:59 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 22:14 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 22:13 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 22:20 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 21:59 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 22:14 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 22:09 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 22:02 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 22:12 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 22:09 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 22:18 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:00 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/6283511189.shtml)
-- 2026-06-29 21:51 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/31794.shtml)
-- 2026-06-29 22:16 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/43022931.shtml)
-- 2026-06-29 22:17 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/1732717429.shtml)
-- 2026-06-29 22:14 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/5981831788.shtml)
-- 2026-06-29 21:51 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/9563983.shtml)
-- 2026-06-29 21:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/41845.shtml)
-- 2026-06-29 21:57 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/89703562.shtml)
-- 2026-06-29 21:58 - [任泽平：AI浪潮刚刚开始](http://www.share.minike.top/Article/details/51042630245.shtml)
-- 2026-06-29 22:09 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/32539861.shtml)
-- 2026-06-29 21:49 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/47478764253.shtml)
-- 2026-06-29 22:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/55748253.shtml)
-- 2026-06-29 22:10 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/75872800.shtml)
-- 2026-06-29 22:06 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/54657505204.shtml)
-- 2026-06-29 22:00 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/4264579.shtml)
+- 2026-06-29 21:55 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/3002289562.shtml)
+- 2026-06-29 22:07 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/0291302.shtml)
+- 2026-06-29 22:20 - [网友晒14年前支教影像等来学生评论](http://www.blog.kurohicncr.top/Article/details/16437.shtml)
+- 2026-06-29 21:54 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/7693648395.shtml)
+- 2026-06-29 22:13 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/33443.shtml)
+- 2026-06-29 22:02 - [流金岁月](https://www.blog.minike.top/Article/details/70458.shtml)
+- 2026-06-29 21:57 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/07292.shtml)
+- 2026-06-29 22:04 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.kurohicncr.top/Article/details/034381.shtml)
+- 2026-06-29 21:55 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/3530428054.shtml)
+- 2026-06-29 22:03 - [货车司机恶意闯卡逃费被行拘](https://www.share.minike.top/Article/details/103418171.shtml)
+- 2026-06-29 22:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/354412755116.shtml)
+- 2026-06-29 22:12 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/019400631661.shtml)
+- 2026-06-29 22:21 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/213959.shtml)
+- 2026-06-29 21:54 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/80833.shtml)
+- 2026-06-29 22:03 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/9213869.shtml)

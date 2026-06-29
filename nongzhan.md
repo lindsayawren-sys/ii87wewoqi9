@@ -1,60 +1,56 @@
-# 特朗普表示，普尔特不会正式担任国家情报总监
+# 中国进出口银行成功举办中乌投资合作系列活动
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-中新网6月5日电 据美国消费者新闻与商业频道(CNBC)报道，美国总统特朗普当地时间4日表示，他任命的代理国家情报总监、现联邦住房金融署署长比尔·普尔特不会是国家情报总监这一关键安全职位的“长期”人选。报道称，此前，特朗普任命普尔特为代理国家情报总监，接替即将卸任的国家情报总监图尔西·加巴德。 “这不是永久性的，我认为他自己不想成为永久性的。”特朗普4日对记者表示。 尽管美国情
+来源：进出口银行 4月29日，中国进出口银行在江苏南京举办中乌投资合作交流会，为中乌产业与金融对接搭建务实平台、创造合作机遇。乌兹别克斯坦投资、工业和贸易部（以下简称乌投工贸部）副部长伊尔扎特·卡西莫夫，南京市副市长许峰，中国进出口银行副行长王康出席活动并致辞。来自乌投工贸部代表团、中国进出口银行相关单位及60余家中资企业的代表参加会议。 王康副行长在致辞中指出，作为支持中国对
 
 ## 正文
 
-中新网6月5日电 据美国消费者新闻与商业频道(CNBC)报道，美国总统特朗普当地时间4日表示，他任命的代理国家情报总监、现联邦住房金融署署长比尔·普尔特不会是国家情报总监这一关键安全职位的“长期”人选。
+来源：进出口银行 4月29日，中国进出口银行在江苏南京举办中乌投资合作交流会，为中乌产业与金融对接搭建务实平台、创造合作机遇。
 
-报道称，此前，特朗普任命普尔特为代理国家情报总监，接替即将卸任的国家情报总监图尔西·加巴德。
+乌兹别克斯坦投资、工业和贸易部（以下简称乌投工贸部）副部长伊尔扎特·卡西莫夫，南京市副市长许峰，中国进出口银行副行长王康出席活动并致辞。
 
-“这不是永久性的，我认为他自己不想成为永久性的。
+来自乌投工贸部代表团、中国进出口银行相关单位及60余家中资企业的代表参加会议。
 
-”特朗普4日对记者表示。
+王康副行长在致辞中指出，作为支持中国对外经贸投资与国际经济合作的政策性金融机构，中国进出口银行始终深耕中亚市场，高度重视并积极参与对乌合作，为乌兹别克斯坦基础设施互联互通、优势产业开发及民生改善作出了积极贡献。
 
-尽管美国情报机构的重点是外国目标，但特朗普暗示普尔特可能会深入调查国内案件。
+中国进出口银行愿以此次活动为新起点，充分发挥自身专业优势，与各方协同努力，推动中乌投融资合作向更高水平、更宽领域、更深层次迈进。
 
-“他是个非常聪明的人，你可能会从他那里了解到一些关于选举舞弊的事情。
+会上，乌投工贸部介绍了乌兹别克斯坦的营商环境及重点投资项目，中国进出口银行推介了特色金融产品与服务，中资企业代表分享了在乌投资实践经验，期间还举行了一对一圆桌会谈，促进需求精准对接。
 
-”特朗普说。
+活动期间，乌投工贸部代表团参观了江苏中亚中心，并与江苏省政府，南京市玄武区政府，以及当地有关企业举行会谈，探讨进一步拓展乌兹别克斯坦与江苏省在经贸、投资及产业等领域的交流合作。
 
-特朗普还表示，正在面试国家情报总监一职的人选。
+下一步，中国进出口银行将以本次交流会为契机，持续深化对乌金融服务，推动更多项目落地生根，为推动中乌经贸合作、共建“一带一路”高质量发展贡献金融力量。
 
 ## 相关推荐
 
-- 2026-06-29 22:10 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 22:16 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 22:13 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 22:10 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 22:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 21:51 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 21:56 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 21:59 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 21:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 21:50 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 21:56 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 22:12 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 21:50 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 22:09 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 22:15 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 22:06 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 22:06 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 21:56 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 22:05 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 22:05 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 22:23 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 22:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 21:59 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 22:20 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:49 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/467855188910.shtml)
-- 2026-06-29 22:05 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/143872.shtml)
-- 2026-06-29 22:02 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/9096570674.shtml)
-- 2026-06-29 22:08 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/806334003648.shtml)
-- 2026-06-29 22:16 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/672422.shtml)
-- 2026-06-29 22:08 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/5592109.shtml)
-- 2026-06-29 21:57 - [巴西队主帅称日本队是世界最佳之一](http://www.share.minike.top/Article/details/912584.shtml)
-- 2026-06-29 21:56 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/05667.shtml)
-- 2026-06-29 22:00 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/254581218643.shtml)
-- 2026-06-29 22:03 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/691118.shtml)
-- 2026-06-29 22:09 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/6664335.shtml)
-- 2026-06-29 22:08 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/09320.shtml)
-- 2026-06-29 21:53 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/968982072.shtml)
-- 2026-06-29 21:58 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/95051.shtml)
-- 2026-06-29 22:17 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/43616136008.shtml)
+- 2026-06-29 22:01 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/86291931315.shtml)
+- 2026-06-29 22:18 - [女心理师](https://www.share.minike.top/Article/details/47793084.shtml)
+- 2026-06-29 22:00 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/29462816354.shtml)
+- 2026-06-29 22:19 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/7077309642.shtml)
+- 2026-06-29 21:58 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/268339489.shtml)
+- 2026-06-29 22:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/825842900388.shtml)
+- 2026-06-29 22:23 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/84030993583.shtml)
+- 2026-06-29 22:20 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/002917.shtml)
+- 2026-06-29 22:10 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/6099905806.shtml)
+- 2026-06-29 22:08 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/063227877.shtml)
+- 2026-06-29 22:01 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/623329.shtml)
+- 2026-06-29 22:20 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/542926422082.shtml)
+- 2026-06-29 22:12 - [东方风云榜](https://www.blog.minike.top/Article/details/05368678119.shtml)
+- 2026-06-29 21:57 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/267857150540.shtml)
+- 2026-06-29 22:05 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/17972668.shtml)

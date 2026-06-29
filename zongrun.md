@@ -1,61 +1,55 @@
-# 中国证券投资基金业协会第四届会员代表大会在京召开
+# 中国首次发布丹麦等三国全球最低税规则国别实施指引
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-来源：中国证券投资基金业协会 6月6日，中国证券投资基金业协会第四届会员代表大会在京隆重召开，中国证监会党委书记、主席吴清出席会议并发表致辞讲话，中国证监会党委委员、副主席李明出席会议。 吴清指出，“十四五”时期特别是2023年中央金融工作会议以来，面对复杂多变的内外部环境，基金行业紧紧围绕和深入落实防风险、强监管、促高质量发展的工作主线，规模稳健增长、结构深刻调整、功能持续深
+中新社重庆4月29日电 (梁钦卿)中国国家税务总局29日在重庆举办《全球最低税规则国别实施指引》(下称“国别实施指引”)发布活动，首次对外发布丹麦、爱尔兰、阿联酋三国“国别实施指引”，“税路通”跨境税收知识产品体系实现再升级。据了解，“国别实施指引”立足“走出去”企业视角，从立法背景、立法概况、重要条款和征管要求等维度，对全球最低税税收制度规定进行系统归纳梳理，形成便于理解、便
 
 ## 正文
 
-来源：中国证券投资基金业协会 6月6日，中国证券投资基金业协会第四届会员代表大会在京隆重召开，中国证监会党委书记、主席吴清出席会议并发表致辞讲话，中国证监会党委委员、副主席李明出席会议。
+中新社重庆4月29日电 (梁钦卿)中国国家税务总局29日在重庆举办《全球最低税规则国别实施指引》(下称“国别实施指引”)发布活动，首次对外发布丹麦、爱尔兰、阿联酋三国“国别实施指引”，“税路通”跨境税收知识产品体系实现再升级。
 
-吴清指出，“十四五”时期特别是2023年中央金融工作会议以来，面对复杂多变的内外部环境，基金行业紧紧围绕和深入落实防风险、强监管、促高质量发展的工作主线，规模稳健增长、结构深刻调整、功能持续深化，在完善多层次资本市场体系、服务投资者资产管理、支持实体经济创新发展等方面作出了不可替代的重要贡献，已经成为践行中国特色金融发展之路的重要缩影和生动写照。
+据了解，“国别实施指引”立足“走出去”企业视角，从立法背景、立法概况、重要条款和征管要求等维度，对全球最低税税收制度规定进行系统归纳梳理，形成便于理解、便于应用的知识产品，帮助企业更准确理解规则要点、更稳妥做好合规管理。
 
-吴清指出，当前和今后一个时期，我国基金行业既面临重要战略机遇，也存在一些结构性矛盾，总体上正处于从量的扩张向质的提升转变的关键时期。
+同时，指引还提供立法文本的原文链接和经济合作与发展组织(OECD)已发布的文件链接，供企业参考学习。
 
-全行业要深入贯彻“十五五”规划纲要，全面落实新“国九条”和资本市场“1+N”政策体系，持续深化公募基金改革，坚决落实国办印发的《关于加强监管防范风险促进私募基金高质量发展的指导意见》，进一步强化金融报国的使命担当，抢抓机遇、直面挑战，回归本源、苦练内功，扎扎实实办好自己的事，加快建设一流投资机构，以自身高质量发展更好服务国家战略、民生福祉和资本市场持续稳定健康发展。
+“这是一套权威、系统、操作性强的本土化税务解决方案前瞻指引，为跨国企业全面评估投资环境、科学设计运营架构、系统筑牢合规防线提供了非常重要的参考依据，能够帮助我们深度掌握投资东道国的税务环境，让企业‘走出去’的步伐迈得更加稳健、更加自信。
 
-一要坚持规范为先，不断夯实合规风控内在基础。
+”中国电力建设股份有限公司海外事业部财务总监王红霞表示。
 
-私募基金要切实提高政治站位，把贯彻指导意见及配套的监管制度规则作为重中之重来抓，全面落实到展业全过程各环节，切实在理念、模式、行动上来一个大转变、大提升。
+“国别实施指引”的发布，是“税路通”跨境税收服务品牌深化“一国一策”精细化服务的举措，也是中国税务部门主动回应“走出去”企业涉税服务诉求，提升跨境税收服务针对性和有效性的实际行动。
 
-公募基金要健全公司治理架构，夯实合规风控基础，真正做到全员参与、全面覆盖、全程落实。
-
-二要坚持客户为本，始终注重投资者利益优先。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:52 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 21:58 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 22:11 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 21:58 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 22:17 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 22:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 22:11 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 22:13 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 22:03 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 21:52 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 21:51 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 22:11 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 22:04 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 22:11 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 21:53 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 22:04 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 22:02 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 21:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 21:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 22:19 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 22:13 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 22:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 22:19 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 22:15 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 22:05 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 22:16 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:06 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/414833207.shtml)
-- 2026-06-29 22:04 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/0519929508.shtml)
-- 2026-06-29 22:13 - [记者乘坐无人驾驶汽车去采访](http://www.blog.kurohicncr.top/Article/details/85165.shtml)
-- 2026-06-29 21:54 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/4124578071.shtml)
-- 2026-06-29 21:58 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/3536932.shtml)
-- 2026-06-29 22:01 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/7585230.shtml)
-- 2026-06-29 22:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/321411852.shtml)
-- 2026-06-29 22:15 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/70342255.shtml)
-- 2026-06-29 21:54 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/99134493.shtml)
-- 2026-06-29 22:10 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/85007.shtml)
-- 2026-06-29 22:16 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/179824005.shtml)
-- 2026-06-29 21:57 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/779467.shtml)
-- 2026-06-29 21:51 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/729837441.shtml)
-- 2026-06-29 22:15 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/63193923.shtml)
-- 2026-06-29 22:08 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/472766.shtml)
+- 2026-06-29 22:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/34078592679.shtml)
+- 2026-06-29 22:11 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/284214.shtml)
+- 2026-06-29 22:02 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/88534900.shtml)
+- 2026-06-29 22:07 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/19517950.shtml)
+- 2026-06-29 22:00 - [毒液2](http://www.share.kurohicncr.top/Article/details/827758585.shtml)
+- 2026-06-29 21:56 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/33171391.shtml)
+- 2026-06-29 22:09 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/78838841071.shtml)
+- 2026-06-29 21:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/87790.shtml)
+- 2026-06-29 22:18 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/806584042.shtml)
+- 2026-06-29 22:11 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/17630830.shtml)
+- 2026-06-29 22:04 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/56871469313.shtml)
+- 2026-06-29 22:22 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/629463.shtml)
+- 2026-06-29 22:14 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/6507332.shtml)
+- 2026-06-29 22:17 - [宜宾地震已转移安置225人](https://www.blog.minike.top/Article/details/20240972107.shtml)
+- 2026-06-29 22:17 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/44475.shtml)

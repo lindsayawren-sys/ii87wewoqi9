@@ -1,46 +1,59 @@
-# 光大期货0605热点追踪：焦煤突破前高，后市还有新高？
+# 长江有色：30日锌价大跌 整体成交活跃度偏低
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-专题：光大期货热点追踪视频合集 光大期货0605热点追踪：焦煤突破前高，后市还有新高？责任编辑：朱赫楠
+今日沪期锌走势：今日沪期锌震荡走软；沪锌2606主力合约开盘价23750元/吨，最高价23760元/吨，最低价23580元/吨，昨日结算价23860元/吨，今日收盘价23645元/吨，跌215元，跌幅0.90%。今日沪锌2606主力合约成交量104734手增加14484手，持仓量95744手减少4256手。伦锌北京时间15：18最新价报3316.5美元，跌12.5美元。 今日c
 
 ## 正文
 
-专题：光大期货热点追踪视频合集 光大期货0605热点追踪：焦煤突破前高，后市还有新高？
+今日沪期锌走势：今日沪期锌震荡走软；沪锌2606主力合约开盘价23750元/吨，最高价23760元/吨，最低价23580元/吨，昨日结算价23860元/吨，今日收盘价23645元/吨，跌215元，跌幅0.90%。
 
-责任编辑：朱赫楠
+今日沪锌2606主力合约成交量104734手增加14484手，持仓量95744手减少4256手。
+
+伦锌北京时间15：18最新价报3316.5美元，跌12.5美元。
+
+今日ccmn锌价统计：今日ccmn长江综合0#锌价报23550-23650元/吨，均价23600元，跌170元，1#锌价报23460-23560元/吨，均价23510元，跌170元；广东现货0#锌报23320-23620元/吨，均价23470元，跌180元，1#锌价23250-23550元/吨，均价23400元，跌180元。
+
+今日现货锌市场报价0#锌在23540-23650元/吨之间，1#锌在23470-23560元/吨之间。
+
+对比对比沪期锌2605合约0#锌贴水70-升水40元/吨，1#锌贴水140-贴水50元/吨。
+
+对比对比沪期锌2606合约0#锌贴水135-贴水25元/吨，1#锌贴水205-贴水115元/吨。
+
+ccmn锌市分析： 宏观面：美联储偏鹰叠加地缘风险，油价飙升压制金属 今日国内锌价承压大跌，主要受宏观情绪主导。
 
 ## 相关推荐
 
-- 2026-06-29 22:07 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 22:06 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 22:04 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 22:03 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 21:49 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 21:49 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 22:04 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 22:10 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 22:00 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 21:51 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 21:52 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 21:48 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 22:08 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 22:18 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 21:56 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 22:10 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 22:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 22:15 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 22:20 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 22:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 22:02 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 21:58 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 22:13 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 22:04 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 21:56 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:08 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/173152440085.shtml)
-- 2026-06-29 21:48 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/9795367.shtml)
-- 2026-06-29 22:00 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/31628507.shtml)
-- 2026-06-29 22:03 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/9936946.shtml)
-- 2026-06-29 21:51 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/044750.shtml)
-- 2026-06-29 21:50 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/883657552.shtml)
-- 2026-06-29 21:59 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/859879549159.shtml)
-- 2026-06-29 21:56 - [斛珠夫人](https://www.share.minike.top/Article/details/477383.shtml)
-- 2026-06-29 21:56 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/39504515685.shtml)
-- 2026-06-29 22:07 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/09687365.shtml)
-- 2026-06-29 21:48 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/46442936.shtml)
-- 2026-06-29 22:03 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/398946753394.shtml)
-- 2026-06-29 22:17 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/7574421840.shtml)
-- 2026-06-29 22:00 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/249209926.shtml)
-- 2026-06-29 22:17 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/0407501988.shtml)
+- 2026-06-29 21:56 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/4479041835.shtml)
+- 2026-06-29 21:56 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/47907.shtml)
+- 2026-06-29 22:19 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/50855806736.shtml)
+- 2026-06-29 22:11 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/503056580.shtml)
+- 2026-06-29 21:57 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/25692520354.shtml)
+- 2026-06-29 22:07 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/987146259.shtml)
+- 2026-06-29 22:22 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/971545137.shtml)
+- 2026-06-29 21:59 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/955978.shtml)
+- 2026-06-29 22:22 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/4754403.shtml)
+- 2026-06-29 22:17 - [锐评白玉兰提名片段](http://www.share.kurohicncr.top/Article/details/63569.shtml)
+- 2026-06-29 22:10 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/733293.shtml)
+- 2026-06-29 22:07 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/728771.shtml)
+- 2026-06-29 21:55 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/4812615557.shtml)
+- 2026-06-29 22:23 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/69835.shtml)
+- 2026-06-29 22:22 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/129881477836.shtml)

@@ -1,60 +1,44 @@
-# 【点石成金】菜油：加拿大菜籽晚播的影响
+# 安克创新 2026 年一季度净利润 4.72 亿元，同比-4.87%
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-国投期货研究院 菜油主力连续合约2609近日波动加剧，在突破万元大关后连续两日承压下行，今日跌幅超3%，仓位起伏波动也较大，显示当前市场对菜油行情矛盾的聚焦以及多空双方的较大分歧。我们认为这分歧不在欧盟菜籽市场，而主要在于加拿大菜籽播种偏慢的影响，其次在于厄尔尼诺气候预期下澳大利亚产区的天气展望。 一、加拿大播种偏慢的原因 当前处于2026/27年度加拿大菜籽播种季，但播种进度
+IT之家 4 月 29 日消息，安克创新今日发布 2026 年一季度报告：
 
 ## 正文
 
-国投期货研究院 菜油主力连续合约2609近日波动加剧，在突破万元大关后连续两日承压下行，今日跌幅超3%，仓位起伏波动也较大，显示当前市场对菜油行情矛盾的聚焦以及多空双方的较大分歧。
-
-我们认为这分歧不在欧盟菜籽市场，而主要在于加拿大菜籽播种偏慢的影响，其次在于厄尔尼诺气候预期下澳大利亚产区的天气展望。
-
-一、加拿大播种偏慢的原因 当前处于2026/27年度加拿大菜籽播种季，但播种进度明显偏慢，主要原因涉及两方面。
-
-其一，加拿大大草原地区春季的气温持续低于正常水平，如图1显示4月份气温大幅低于正常水平，导致积雪融化得较慢，土壤温度迟迟无法达到播种条件，甚至5月中上旬气温仍以偏低为主，这同样不利于过湿土壤的水分蒸发。
-
-图2为阿尔伯塔省4月1日至5月5日，即播种前一个月的累计降雨距平情况，我们可以看出东北部累计降雨大多处于“高”的状态，也即6-12年内最高的状态，同样我们可以看到省内的降雨分化是较明显的，南部和西北部降雨偏少。
-
-图3为萨斯喀彻温省5月4日土壤湿度评级分布图，其东北部、中东部均面临土壤过墒的情况，过湿的土壤使得这两个区域目前仍是播种最慢的区域，可见图5。
-
-二、播种现状如何？
-
-阿尔伯塔省：截至5月26日，阿尔伯塔省菜籽播种已经完成61%，5月30日以来的强降雨席卷了阿尔伯塔省中部和南部，为部分缺墒地块带来了急需的水分，但同样使得尚未播种的地块更加难以机械化播种，这也是市场目前较为担忧的，因为未来15天的天气预报显示阿尔伯塔省仍将面临高于正常水平的降雨。
+IT之家 4 月 29 日消息，安克创新今日发布 2026 年一季度报告：
 
 ## 相关推荐
 
-- 2026-06-29 22:05 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 22:15 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 22:13 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 22:05 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 22:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 21:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 22:10 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 22:03 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 21:50 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 21:49 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 21:55 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 22:11 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 22:05 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 22:15 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 22:03 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 22:17 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 22:00 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 22:19 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 22:20 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 21:57 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 22:02 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 22:04 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 22:03 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 21:57 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 22:19 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 22:16 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:57 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/71196050441.shtml)
-- 2026-06-29 22:06 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/180546511368.shtml)
-- 2026-06-29 22:05 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/77982871489.shtml)
-- 2026-06-29 21:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/04060041773.shtml)
-- 2026-06-29 22:05 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/0588984753.shtml)
-- 2026-06-29 22:00 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/267719394.shtml)
-- 2026-06-29 22:05 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/905653700014.shtml)
-- 2026-06-29 22:08 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/02135.shtml)
-- 2026-06-29 22:06 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/163399.shtml)
-- 2026-06-29 22:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/312029.shtml)
-- 2026-06-29 21:56 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/7765403.shtml)
-- 2026-06-29 22:15 - [王安宇聪明到导演组炸了](https://www.blog.minike.top/Article/details/72473172.shtml)
-- 2026-06-29 21:57 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/658204738.shtml)
-- 2026-06-29 22:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/891889.shtml)
-- 2026-06-29 22:05 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/767945782057.shtml)
+- 2026-06-29 22:20 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/81930.shtml)
+- 2026-06-29 22:10 - [炽夏](https://www.share.minike.top/Article/details/93228.shtml)
+- 2026-06-29 21:56 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/33381241.shtml)
+- 2026-06-29 22:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/000391176598.shtml)
+- 2026-06-29 22:14 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/076689772.shtml)
+- 2026-06-29 22:01 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/0730203922.shtml)
+- 2026-06-29 22:09 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/119789.shtml)
+- 2026-06-29 22:04 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/6282664.shtml)
+- 2026-06-29 22:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/959132028598.shtml)
+- 2026-06-29 21:59 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/8599255922.shtml)
+- 2026-06-29 22:08 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/428735.shtml)
+- 2026-06-29 22:18 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/54435.shtml)
+- 2026-06-29 22:19 - [85花告别古偶](https://www.blog.minike.top/Article/details/36711231020.shtml)
+- 2026-06-29 22:21 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/82491318454.shtml)
+- 2026-06-29 22:19 - [房价什么时候能涨](http://www.share.minike.top/Article/details/421756.shtml)

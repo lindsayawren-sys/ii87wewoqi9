@@ -1,60 +1,58 @@
-# 南海热带低压影响广东 多地狂风暴雨
+# 【澜湄印象】中老铁路助力鲜果跨境 东南亚榴莲新鲜直达餐桌
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-中新社广州6月5日电 (记者 王坚)南海热带低压自5日凌晨起开始影响广东沿海地区，粤东多地出现狂风暴雨。5日中午，深圳、汕尾、汕头、潮州等地仍有雷雨云团活动，局部雨势猛烈。 广东省气象部门介绍，当前，随着南海热带低压向东北方向移动，牵动逐渐增强的西南急流往北推，为处于副热带高压不稳定边缘的广东输送水汽。受其影响，粤东、珠三角和粤北雷雨活跃，局部雨量可达暴雨量级。 据统计，截至5
+发布时间：2026年04月29日 18:05 来源：中国新闻网 四月以来，泰国、马来西亚等东南亚国家榴莲集中上市。中老铁路作为东南亚热带水果入华的“黄金通道”，凭借高效便捷的跨境运输优势，持续赋能跨境鲜果贸易。云南磨憨铁路口岸东盟水果跨境运输运量屡创新高。截至目前，该口岸累计运输进口榴莲5.03万吨，同比增长94.2%；其中4月23日单日入境水果3661吨。助力消费者实现“榴莲
 
 ## 正文
 
-中新社广州6月5日电 (记者 王坚)南海热带低压自5日凌晨起开始影响广东沿海地区，粤东多地出现狂风暴雨。
+发布时间：2026年04月29日 18:05 来源：中国新闻网 四月以来，泰国、马来西亚等东南亚国家榴莲集中上市。
 
-5日中午，深圳、汕尾、汕头、潮州等地仍有雷雨云团活动，局部雨势猛烈。
+中老铁路作为东南亚热带水果入华的“黄金通道”，凭借高效便捷的跨境运输优势，持续赋能跨境鲜果贸易。
 
-广东省气象部门介绍，当前，随着南海热带低压向东北方向移动，牵动逐渐增强的西南急流往北推，为处于副热带高压不稳定边缘的广东输送水汽。
+云南磨憨铁路口岸东盟水果跨境运输运量屡创新高。
 
-受其影响，粤东、珠三角和粤北雷雨活跃，局部雨量可达暴雨量级。
+截至目前，该口岸累计运输进口榴莲5.03万吨，同比增长94.2%；其中4月23日单日入境水果3661吨。
 
-据统计，截至5日14时5分，澄海、惠东、乐昌暴雨橙色预警信号和惠来、汕尾、大亚湾、惠州、韶关、翁源、始兴、南雄暴雨黄色预警信号处于生效中。
+助力消费者实现“榴莲自由”。
 
-当天，粤东澄海凤翔、惠来溪西等地出现10级大风，街道两旁的树枝疯狂摇摆，有停放在路边的自行车被吹倒；饶平南部则出现7级至10级的短时大风和强雷电，当地气象部门表示，后续还可能出现小冰雹。
+为应对榴莲旺季的大批量运输需求，铁路部门优化运力配置，将中老铁路“澜湄快线”国际冷链班列的开行频次，由日常的每天2列增至旺季每天6列左右，建立榴莲运输“四优先”保障机制，全程动态盯控班列运行状态，确保鲜果运输高效顺畅。
 
-广东气象部门表示，全省此轮强降雨过程将延续至高考期间，届时强降雨还将伴有局部8级至10级短时大风等强对流天气。
-
-广东省防汛防旱防风总指挥部办公室要求，要严抓重点部位风险管控，清疏高考考点周边排水管网，安排专人盯守易积水区域，预置应急排涝力量，严密防范因内涝导致考生误考、车辆受阻；要为考点和考生集中住宿场所备好沙包、挡水板及应急供电设备；要“一点一案”落实防汛工作方案，坚决保障路网畅通，出现险情果断实施限行、封控、分流等硬性交通管制，第一时间发布绕行指引。
+(陆星羽 何思远 殷学合 杨永全 张伟明 部分视频来源 中国铁路昆明局集团有限公司、磨憨边检站) 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 22:01 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 22:00 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 22:03 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 21:48 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 21:59 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 22:00 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 21:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 21:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 21:57 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 22:12 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 22:04 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 21:48 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 21:50 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 21:52 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 21:57 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 22:09 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 21:59 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 22:19 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 22:05 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 22:10 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 21:59 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 22:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 22:18 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 21:58 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 22:01 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 22:01 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 22:11 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 22:16 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/736573983025.shtml)
-- 2026-06-29 22:08 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/45433894299.shtml)
-- 2026-06-29 22:11 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/61196.shtml)
-- 2026-06-29 21:55 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/6383500709.shtml)
-- 2026-06-29 21:57 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/174840106.shtml)
-- 2026-06-29 22:07 - [斛珠夫人](http://www.share.minike.top/Article/details/40954872.shtml)
-- 2026-06-29 22:15 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/4239321513.shtml)
-- 2026-06-29 22:14 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/67245421.shtml)
-- 2026-06-29 22:01 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/9270509.shtml)
-- 2026-06-29 21:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/1577411497.shtml)
-- 2026-06-29 22:12 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/931630.shtml)
-- 2026-06-29 22:13 - [一见倾心](https://www.share.minike.top/Article/details/509236473.shtml)
-- 2026-06-29 22:09 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/98418358.shtml)
-- 2026-06-29 22:16 - [青春环游记第三季](http://www.share.minike.top/Article/details/239097953483.shtml)
-- 2026-06-29 22:16 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/182478061672.shtml)
+- 2026-06-29 22:16 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/939608579033.shtml)
+- 2026-06-29 22:14 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/307620342.shtml)
+- 2026-06-29 22:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/7023746180.shtml)
+- 2026-06-29 22:15 - [炽夏](https://www.blog.kurohicncr.top/Article/details/2819409.shtml)
+- 2026-06-29 21:59 - [温网](http://www.blog.minike.top/Article/details/04548894575.shtml)
+- 2026-06-29 22:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/158378.shtml)
+- 2026-06-29 22:02 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/04269564444.shtml)
+- 2026-06-29 22:07 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/97410895.shtml)
+- 2026-06-29 22:08 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/995266716326.shtml)
+- 2026-06-29 22:15 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/10453.shtml)
+- 2026-06-29 22:19 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/80847.shtml)
+- 2026-06-29 22:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/71112780.shtml)
+- 2026-06-29 22:09 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/413691.shtml)
+- 2026-06-29 22:13 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/5436721435.shtml)
+- 2026-06-29 21:56 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/042300.shtml)

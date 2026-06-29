@@ -1,61 +1,51 @@
-# 法国巴黎银行：甲骨文可能进一步上调资本支出指引
+# 5月7日2时起白云机场T1航站楼航司全部转至T3运营
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-法国巴黎银行分析师周五发布报告称，甲骨文可能在即将公布的财报中进一步上调资本支出指引，该消息引发市场对这家云基础设施巨头持续加码AI投资的关注。 据法国巴黎银行分析，甲骨文管理层可能在第四财季财报中给出更高的资本支出预期。目前该公司已将2026财年资本支出指引上调至约500亿美元，较最初250亿美元的规划翻了一番，远超2025财年约210亿美元的水平。这一激进投资主要流向GPU
+中新网广州4月30日电 (记者 郭军)据广州白云机场30日通报，为进一步优化枢纽资源配置，该场将于5月6日至7日启动T1航站楼11家国内航司整体转场至T3航站楼运营，包括：国航、深航、昆明航、山东航、西藏航、海航、首都航、天津航、西部航、乌鲁木齐航、祥鹏航。5月7日2时起上述航司所有进出港航班，全部调整至T3运行，5月6日夜间进港的停场过夜航班将在T3保障。 同时，T1航站楼配
 
 ## 正文
 
-法国巴黎银行分析师周五发布报告称，甲骨文可能在即将公布的财报中进一步上调资本支出指引，该消息引发市场对这家云基础设施巨头持续加码AI投资的关注。
+中新网广州4月30日电 (记者 郭军)据广州白云机场30日通报，为进一步优化枢纽资源配置，该场将于5月6日至7日启动T1航站楼11家国内航司整体转场至T3航站楼运营，包括：国航、深航、昆明航、山东航、西藏航、海航、首都航、天津航、西部航、乌鲁木齐航、祥鹏航。
 
-据法国巴黎银行分析，甲骨文管理层可能在第四财季财报中给出更高的资本支出预期。
+5月7日2时起上述航司所有进出港航班，全部调整至T3运行，5月6日夜间进港的停场过夜航班将在T3保障。
 
-目前该公司已将2026财年资本支出指引上调至约500亿美元，较最初250亿美元的规划翻了一番，远超2025财年约210亿美元的水平。
+同时，T1航站楼配套的P1、P2、P3、P4停车场将进行功能调整，暂停对旅客开放；地铁“机场南(T1航站楼)”和城际列车“白云机场南站(T1航站楼)”5月7日起将采取“载客不停站通过”措施；过渡期内(5月7日-14日)，白云机场将开通跨区取车接驳专线，全天24小时运营，T3专线发车间隔30分钟/班，T2专线按需发车，方便在T2、T3抵达的旅客乘车前往T1各停车场取车。
 
-这一激进投资主要流向GPU基础设施和新建数据中心，以满足来自英伟达、Meta、OpenAI等AI巨头激增的云算力需求。
-
-甲骨文之所以敢于持续加码，底气来自于其创纪录的订单积压。
-
-截至第三财季末，公司剩余履约义务已飙升至5530亿美元，较上年同期增长超过四倍。
-
-其中仅一个季度就新增680亿美元的合同承诺，主要来自与Meta、英伟达等客户的数十亿美元大单。
-
-甲骨文高管此前表示，这些订单大多可快速转化为收入，因为产能已就绪或在建。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 21:53 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 22:11 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 22:13 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 22:00 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 21:59 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 21:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 22:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 22:09 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 22:14 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 21:54 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 21:51 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 22:12 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 22:06 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 22:04 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 22:05 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 21:57 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 22:16 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 22:01 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 22:22 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 22:07 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 22:01 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 21:58 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 22:06 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 22:13 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 21:57 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 22:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 22:03 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:05 - [斛珠夫人](http://www.blog.minike.top/Article/details/271351347.shtml)
-- 2026-06-29 22:13 - [委内瑞拉发生余震](https://www.share.minike.top/Article/details/9673454178.shtml)
-- 2026-06-29 21:48 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/8204927347.shtml)
-- 2026-06-29 21:50 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/25365999773.shtml)
-- 2026-06-29 22:01 - [一诺变着花样秀新驾照](http://www.blog.kurohicncr.top/Article/details/990416967.shtml)
-- 2026-06-29 22:01 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/672636640.shtml)
-- 2026-06-29 22:07 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/52881576.shtml)
-- 2026-06-29 21:56 - [世界杯高票价为何没劝退球迷](https://www.blog.kurohicncr.top/Article/details/281858.shtml)
-- 2026-06-29 22:06 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/33958639.shtml)
-- 2026-06-29 21:52 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/593330615.shtml)
-- 2026-06-29 21:55 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/90166.shtml)
-- 2026-06-29 21:53 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/40841.shtml)
-- 2026-06-29 22:09 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/5239088951.shtml)
-- 2026-06-29 21:54 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/768697214.shtml)
-- 2026-06-29 22:07 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/11334.shtml)
+- 2026-06-29 21:56 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/34290325622.shtml)
+- 2026-06-29 22:10 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/828520149608.shtml)
+- 2026-06-29 21:57 - [委内瑞拉发生余震](https://www.blog.minike.top/Article/details/42102519103.shtml)
+- 2026-06-29 22:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/31682.shtml)
+- 2026-06-29 21:59 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/671591611.shtml)
+- 2026-06-29 22:23 - [返利科技盘中上演“天地板”](https://www.blog.minike.top/Article/details/864243.shtml)
+- 2026-06-29 22:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/734562.shtml)
+- 2026-06-29 22:00 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/04840.shtml)
+- 2026-06-29 22:00 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/77718983236.shtml)
+- 2026-06-29 21:58 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/144429795.shtml)
+- 2026-06-29 22:10 - [任泽平：AI浪潮刚刚开始](http://www.blog.kurohicncr.top/Article/details/52826.shtml)
+- 2026-06-29 22:22 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/4800071640.shtml)
+- 2026-06-29 22:22 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/8939167500.shtml)
+- 2026-06-29 21:55 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/194596209.shtml)
+- 2026-06-29 22:00 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/85210402176.shtml)

@@ -1,61 +1,52 @@
-# 主要用于运飞机部件的滚装船，今日下水！
+# 中信银行：一季度实现归母净利润200.98亿元，同比增长3.02%
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-今天(6日)，我国建造的用于运输飞机部件的滚装船在中船集团武昌造船厂顺利下水。这艘船交付后，将主要用于飞机部件的运输。 今天完成下水的这艘滚装船，总长约169米、宽23.32米，船上设计安装有6个像烟囱一样的旋筒风帆。这些风帆用的是航空级别的轻便材料，经过空气动力学优化设计，能大幅提升船的省油能力和经济效益。此外，这艘船还采用了甲醇和柴油双燃料技术，可以实现无硫排放，氮氧化物排
+4月29日金融一线消息，中信银行发布2026年一季度报告。数据显示，公司2026年一季度实现营业收入546.49亿元，同比增长5.23%；归母净利润200.98亿元，同比增长3.02%。截至报告期末，集团不良贷款余额687.45亿元，较上年末增加15.29亿元；不良贷款率1.15%，与上年末持平；拨备覆盖率202.45%，较上年末下降1.16个百分点；贷款拨备率2.32%，较上
 
 ## 正文
 
-今天(6日)，我国建造的用于运输飞机部件的滚装船在中船集团武昌造船厂顺利下水。
+4月29日金融一线消息，中信银行发布2026年一季度报告。
 
-这艘船交付后，将主要用于飞机部件的运输。
+数据显示，公司2026年一季度实现营业收入546.49亿元，同比增长5.23%；归母净利润200.98亿元，同比增长3.02%。
 
-今天完成下水的这艘滚装船，总长约169米、宽23.32米，船上设计安装有6个像烟囱一样的旋筒风帆。
+截至报告期末，集团不良贷款余额687.45亿元，较上年末增加15.29亿元；不良贷款率1.15%，与上年末持平；拨备覆盖率202.45%，较上年末下降1.16个百分点；贷款拨备率2.32%，较上年末下降0.01个百分点。
 
-这些风帆用的是航空级别的轻便材料，经过空气动力学优化设计，能大幅提升船的省油能力和经济效益。
-
-此外，这艘船还采用了甲醇和柴油双燃料技术，可以实现无硫排放，氮氧化物排放较传统燃油降低80%以上，满足国际海事组织要求的最新排放标准。
-
-此外，这艘船的下水方式也与众不同，它采用了斜船架下水的方式，就像坐电梯一样平稳入水。
-
-船舶下水是造船过程中的关键一步，工艺好坏直接影响船的质量。
-
-相比需要大型船坞的浮式下水，这种斜船架下水方式，不用建大船坞，对场地要求更低，周转也更快。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 22:08 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 21:50 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 21:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 21:54 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 21:49 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 22:17 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 22:12 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 21:59 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 22:06 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 22:03 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 22:10 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 21:57 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 22:10 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 21:52 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 21:48 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 22:00 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 22:05 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 22:19 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 22:05 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 21:55 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 22:21 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 22:18 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 22:10 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 22:06 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 22:05 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 22:20 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 22:06 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 21:59 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 21:58 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/6688193.shtml)
-- 2026-06-29 22:15 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/4993729.shtml)
-- 2026-06-29 21:58 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/3594204.shtml)
-- 2026-06-29 22:02 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/895731735.shtml)
-- 2026-06-29 21:58 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/790235283.shtml)
-- 2026-06-29 21:55 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/1580271931.shtml)
-- 2026-06-29 22:11 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/46466705.shtml)
-- 2026-06-29 21:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/1763338.shtml)
-- 2026-06-29 22:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/223773.shtml)
-- 2026-06-29 21:56 - [东方风云榜](http://www.share.minike.top/Article/details/49405.shtml)
-- 2026-06-29 22:14 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/34852797.shtml)
-- 2026-06-29 22:12 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/13623025.shtml)
-- 2026-06-29 21:53 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.kurohicncr.top/Article/details/741927.shtml)
-- 2026-06-29 22:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/438205.shtml)
-- 2026-06-29 22:00 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/4176245.shtml)
+- 2026-06-29 21:57 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/815434809082.shtml)
+- 2026-06-29 21:59 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/776287.shtml)
+- 2026-06-29 22:20 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/91475215117.shtml)
+- 2026-06-29 22:07 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/21117007389.shtml)
+- 2026-06-29 22:18 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/4341714.shtml)
+- 2026-06-29 22:06 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/300245305478.shtml)
+- 2026-06-29 22:08 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/5215555658.shtml)
+- 2026-06-29 22:06 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/910719.shtml)
+- 2026-06-29 22:15 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/87407.shtml)
+- 2026-06-29 22:21 - [世界杯](https://www.blog.kurohicncr.top/Article/details/1643347.shtml)
+- 2026-06-29 22:18 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/95866.shtml)
+- 2026-06-29 22:21 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/699624842.shtml)
+- 2026-06-29 22:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/78479.shtml)
+- 2026-06-29 21:55 - [网约车出事故平台拒赔称只是中介](https://www.blog.minike.top/Article/details/8765323688.shtml)
+- 2026-06-29 22:10 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/48968666663.shtml)

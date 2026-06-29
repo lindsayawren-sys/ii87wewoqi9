@@ -1,57 +1,59 @@
-# 昔日星星之火燎原，今朝红色基因如何代代相传？
+# 俄外交部：东京审判在全人类层面具有重要意义
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-1921年7月23日，中国共产党第一次全国代表大会在上海兴业路76号召开，星星之火逐渐燎原。今年是中国共产党成立105周年。百余年间，那些写满故事的革命圣地如何书写今昔巨变，上海的红色基因如何代代相传？ 近日，澎湃新闻记者探访沪上红色场馆发现，中小学生或用“童言童语”讲述党史故事，或者在跨学科思政课上利用一次函数破译莫尔斯密码……和平年代的红色基因，润物无声，深入人心。 “童言
+当地时间4月29日，俄罗斯外交部发言人扎哈罗娃表示，东京审判在法律和全人类层面都具有重要意义。 扎哈罗娃当天在记者会上回答东京审判开庭80周年相关提问时说，二战期间日本军国主义犯下的反人类罪行没有追诉时效限制，查明这些罪行的工作将继续进行。俄方正竭尽全力进一步揭露日本军国主义的罪行，并将系统性公布相关信息。 扎哈罗娃说，二战期间，日本奴役亚洲国家，并对平民犯下了惨无人道的罪行。
 
 ## 正文
 
-1921年7月23日，中国共产党第一次全国代表大会在上海兴业路76号召开，星星之火逐渐燎原。
+当地时间4月29日，俄罗斯外交部发言人扎哈罗娃表示，东京审判在法律和全人类层面都具有重要意义。
 
-今年是中国共产党成立105周年。
+扎哈罗娃当天在记者会上回答东京审判开庭80周年相关提问时说，二战期间日本军国主义犯下的反人类罪行没有追诉时效限制，查明这些罪行的工作将继续进行。
 
-百余年间，那些写满故事的革命圣地如何书写今昔巨变，上海的红色基因如何代代相传？
+俄方正竭尽全力进一步揭露日本军国主义的罪行，并将系统性公布相关信息。
 
-近日，澎湃新闻记者探访沪上红色场馆发现，中小学生或用“童言童语”讲述党史故事，或者在跨学科思政课上利用一次函数破译莫尔斯密码……和平年代的红色基因，润物无声，深入人心。
+扎哈罗娃说，二战期间，日本奴役亚洲国家，并对平民犯下了惨无人道的罪行。
 
-“童言童语”中的党史故事 6月1日，即使是周一闭馆日，中共一大会址外的游客仍然络绎不绝。
+日本政府应该吸取历史教训，放弃当前“再军事化”和试图遗忘其在二战期间所犯战争罪行的做法。
 
-来自黄浦区卢湾一中心小学“红喇叭”小讲解员社团的小学生们，用中文、英文、沪语，甚至用快板的形式，为往来游客讲述中国共产党的建党故事。
+1946年至1948年，远东国际军事法庭对第二次世界大战中日本首要甲级战犯进行国际大审判，史称“东京审判”，共开庭800多次、出庭证人达400多名、书面证人700多名、受理证据4300多件、判决书长达1200多页，最终判决25名被告有罪，东条英机、松井石根等7人被处以绞刑。
 
-在“六一”国际儿童节即将到来之际，中共中央总书记、国家主席、中央军委主席习近平给中共一大纪念馆、南湖革命纪念馆少先队红领巾讲解员回信，对他们予以亲切勉励，并祝他们和全国的少年儿童节日快乐。
-
-“收到习爷爷的回信，我感到非常激动与自豪。
+来源：央视新闻客户端
 
 ## 相关推荐
 
-- 2026-06-29 21:52 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 21:59 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 22:04 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 22:10 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 21:59 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 22:06 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 21:50 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 22:06 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 22:17 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 21:55 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 21:54 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 22:13 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 22:21 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 21:57 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 22:20 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 21:55 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 22:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 22:07 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 22:14 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 22:14 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 22:22 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 22:05 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 22:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 22:15 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 21:57 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 22:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:00 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/8311794.shtml)
-- 2026-06-29 21:53 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/9892253.shtml)
-- 2026-06-29 22:02 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/12135.shtml)
-- 2026-06-29 22:10 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/13420.shtml)
-- 2026-06-29 22:12 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/60107.shtml)
-- 2026-06-29 21:49 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/47575767724.shtml)
-- 2026-06-29 21:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/65043.shtml)
-- 2026-06-29 21:56 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/456493180.shtml)
-- 2026-06-29 22:15 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/147768633.shtml)
-- 2026-06-29 22:15 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/2276306.shtml)
-- 2026-06-29 21:49 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/215160900.shtml)
-- 2026-06-29 22:07 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/637347.shtml)
-- 2026-06-29 22:05 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/0662650.shtml)
-- 2026-06-29 22:00 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/558201.shtml)
-- 2026-06-29 21:54 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/13949.shtml)
+- 2026-06-29 21:58 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/968624544.shtml)
+- 2026-06-29 22:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/938161738407.shtml)
+- 2026-06-29 22:09 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/7336287.shtml)
+- 2026-06-29 22:19 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/65653113.shtml)
+- 2026-06-29 22:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/208230.shtml)
+- 2026-06-29 22:01 - [福建海警位金门附近海域常态执法巡查](https://www.blog.minike.top/Article/details/88342128602.shtml)
+- 2026-06-29 21:59 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/3833243601.shtml)
+- 2026-06-29 22:20 - [济南航空航天全面起势](https://www.share.minike.top/Article/details/1790808451.shtml)
+- 2026-06-29 22:00 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/28902584884.shtml)
+- 2026-06-29 22:22 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/7550262351.shtml)
+- 2026-06-29 22:06 - [东方风云榜](http://www.blog.minike.top/Article/details/4005214860.shtml)
+- 2026-06-29 22:00 - [李思潼：不会介意大家夸我运气好](http://www.share.kurohicncr.top/Article/details/1802094872.shtml)
+- 2026-06-29 22:06 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/6198837731.shtml)
+- 2026-06-29 22:20 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/509616436.shtml)
+- 2026-06-29 22:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/83543465072.shtml)

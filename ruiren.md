@@ -1,58 +1,61 @@
-# 同心护生态 粤桂六市深化云开山司法保护区域合作
+# “下次不再见”！鲍威尔谢幕：一个“外行”掌舵美联储最动荡的八年
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-中新网茂名6月5日电 (梁盛 邹梦婵)5日是2026年“六五环境日”，以“粤桂同心护生态 法检聚力守云开”为主题的粤桂6市深化云开山司法保护区域合作会议在广东茂名市召开。广东茂名、湛江、阳江、云浮与广西梧州、玉林等6市中级法院、检察院，总结三年协作成效、签约深化合作意见，合力守护云开山粤桂生态安全屏障与生物多样性宝库。 活动中，粤桂6市中级法院、检察院签署《广东广西六市深化云开
+文章来源：华尔街见闻 任期将尽，鲍威尔留下一份功过交织的历史账单：他顶住特朗普史无前例的政治施压，守住美联储独立性；主导“软着陆”奇迹，任内月均失业率4.6%低于历任前辈；却也因误判通胀“暂时性”，酿成四十年最严峻的物价危机。八年横跨疫情、通胀与政治风暴，他用一句话为自己作注：“我有过遗憾，但并不多。” “I won‘t see you next time”任期将尽，鲍威尔时代
 
 ## 正文
 
-中新网茂名6月5日电 (梁盛 邹梦婵)5日是2026年“六五环境日”，以“粤桂同心护生态 法检聚力守云开”为主题的粤桂6市深化云开山司法保护区域合作会议在广东茂名市召开。
+文章来源：华尔街见闻 任期将尽，鲍威尔留下一份功过交织的历史账单：他顶住特朗普史无前例的政治施压，守住美联储独立性；主导“软着陆”奇迹，任内月均失业率4.6%低于历任前辈；却也因误判通胀“暂时性”，酿成四十年最严峻的物价危机。
 
-广东茂名、湛江、阳江、云浮与广西梧州、玉林等6市中级法院、检察院，总结三年协作成效、签约深化合作意见，合力守护云开山粤桂生态安全屏障与生物多样性宝库。
+八年横跨疫情、通胀与政治风暴，他用一句话为自己作注：“我有过遗憾，但并不多。
 
-活动中，粤桂6市中级法院、检察院签署《广东广西六市深化云开山司法保护区域合作的意见》文件，在跨域案件协作、生态修复联动、碳汇交易司法保障、建设生态环境司法修复基地、探索设立专门巡回法庭和检察工作室等方面达成深化合作共识，推动粤桂两地司法协作向纵深发展。
+” “I won‘t see you next time”任期将尽，鲍威尔时代进入倒计时。
 
-会上，中山大学生物博物馆副馆长、高级工程师王英勇围绕云开山生态保护与农文旅融合发展等作专题发言。
+2026年4月29日，美联储例行新闻发布会的末尾，主席杰罗姆·鲍威尔走下讲台前，向在场记者说出了这句看似轻描淡写、实则意味深长的话——“非常感谢大家，下次不再见。
 
-会前，与会人员实地考察了茂名生态环境保护与绿色低碳发展情况，参观“云开山生态司法保护成果展”，全面了解协作机制运行以来的实践成效。
+”随后，他离开讲台，走出会场，结束了自己作为美联储主席的最后一场新闻发布会。
 
-云开山脉横亘粤桂两地，山水同源、生态同脉，是粤西、桂东地区重要的生态安全屏障与生物多样性宝库，也是鉴江、黄华江等多条河流的发源地，被誉为粤西桂东生态屏障和岭南珍稀物种基因宝库。
+2026年5月15日，鲍威尔的主席任期将正式画上句点。
 
-2023年，粤桂6市12家法检单位共同签署《云开山环境资源司法保护协作框架协议》，落地云开山环境资源司法保护基地，正式搭建跨区域环境资源司法保护协作机制，对云开山脉植被森林、动物资源、水资源、矿产资源和自然景观资源加强司法保护，助力云开山区域高质量发展。
+这一天，他的继任者、特朗普提名的凯文·沃什预计将通过参议院银行委员会确认投票，接掌这一全球最具权势的货币政策职位。
 
-协作机制建立以来，粤桂六市法检机关聚焦统一办案标准、抓实生态修复、延伸司法职能，取得阶段性显著成效。
+八年，两届任期，横跨两任总统、一场百年一遇的全球大疫情、美国四十年来最严峻的通胀。
 
 ## 相关推荐
 
-- 2026-06-29 22:08 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 22:11 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 22:17 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-29 21:52 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 21:56 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 21:54 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 21:51 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 21:52 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 22:12 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 21:52 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 21:50 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 22:14 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 21:56 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 22:03 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 21:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 22:03 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 21:59 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 22:13 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 21:56 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 21:57 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 21:57 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 22:20 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 22:14 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 22:00 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 22:02 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 21:56 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 22:07 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:11 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/537642935520.shtml)
-- 2026-06-29 22:10 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/7980775537.shtml)
-- 2026-06-29 21:55 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/76127648.shtml)
-- 2026-06-29 21:59 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/0591340364.shtml)
-- 2026-06-29 22:08 - [美人鱼](http://www.blog.minike.top/Article/details/513729064.shtml)
-- 2026-06-29 22:10 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/85254823.shtml)
-- 2026-06-29 22:13 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/81096029626.shtml)
-- 2026-06-29 22:01 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/77473511.shtml)
-- 2026-06-29 21:55 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/8809600065.shtml)
-- 2026-06-29 21:59 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/99259325199.shtml)
-- 2026-06-29 21:50 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/0227729.shtml)
-- 2026-06-29 22:16 - [绘画区你赢了](http://www.share.minike.top/Article/details/379549.shtml)
-- 2026-06-29 22:17 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/9319991469.shtml)
-- 2026-06-29 22:11 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/807055.shtml)
-- 2026-06-29 22:14 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/76387478.shtml)
+- 2026-06-29 22:22 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/18827426992.shtml)
+- 2026-06-29 22:20 - [日防卫省正考虑引进美企人工智能系统](https://www.share.minike.top/Article/details/340703.shtml)
+- 2026-06-29 22:08 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/168594409815.shtml)
+- 2026-06-29 22:19 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/7874718.shtml)
+- 2026-06-29 21:58 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/17385284007.shtml)
+- 2026-06-29 22:10 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/615737230121.shtml)
+- 2026-06-29 21:58 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/781347184.shtml)
+- 2026-06-29 21:55 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/1424047842.shtml)
+- 2026-06-29 21:54 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/69304744.shtml)
+- 2026-06-29 22:06 - [房价什么时候能涨](http://www.share.minike.top/Article/details/012348224.shtml)
+- 2026-06-29 21:55 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/2548849203.shtml)
+- 2026-06-29 22:08 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/54369.shtml)
+- 2026-06-29 22:15 - [毒液2](http://www.blog.minike.top/Article/details/328191280.shtml)
+- 2026-06-29 22:06 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/208430339938.shtml)
+- 2026-06-29 22:17 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/362228683.shtml)

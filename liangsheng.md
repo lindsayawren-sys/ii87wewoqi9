@@ -1,45 +1,56 @@
-# 印尼羽毛球公开赛：刘圣书谭宁晋级印尼公开赛女双四强
+# 三亚亚沙会：中国女子三人篮球夺冠 伊朗队日入7金
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月06日 15:23 来源：央视新闻 责任编辑：【王祎】
+中新社三亚4月29日电 (记者 邢翀)29日是第六届亚洲沙滩运动会金牌数最多的一个比赛日，共诞生17枚金牌。中国队在女子三人篮球、攀岩、沙滩摔跤项目上收获3金。伊朗队成为当日最大赢家，一举拿下7金，奖牌榜排名跃升至第三位。 三人篮球项目收官，中国女队半决赛以18:16战胜泰国队惊险晋级。决赛面对菲律宾队，中国队全程领先，双方分差维持在5分以上，随着王丽丽突破上篮命中，中国队以2
 
 ## 正文
 
-发布时间：2026年06月06日 15:23 来源：央视新闻 责任编辑：【王祎】
+中新社三亚4月29日电 (记者 邢翀)29日是第六届亚洲沙滩运动会金牌数最多的一个比赛日，共诞生17枚金牌。
+
+中国队在女子三人篮球、攀岩、沙滩摔跤项目上收获3金。
+
+伊朗队成为当日最大赢家，一举拿下7金，奖牌榜排名跃升至第三位。
+
+三人篮球项目收官，中国女队半决赛以18:16战胜泰国队惊险晋级。
+
+决赛面对菲律宾队，中国队全程领先，双方分差维持在5分以上，随着王丽丽突破上篮命中，中国队以21:13力克菲律宾队，成功卫冕亚沙会金牌。
+
+中国男队半决赛以16:18惜败卡塔尔队，在铜牌争夺战中以21:13“复仇”曾在小组赛中战胜过自己的菲律宾队，刷新了中国队在亚沙会男子三人篮球项目上的历史最佳战绩。
+
+决赛中，卡塔尔队轻取泰国队，收获该项目三连冠。
+
+颜鹏是中国男子三人篮球主力，也是本次亚沙会中国体育代表团开幕式旗手。
 
 ## 相关推荐
 
-- 2026-06-29 21:59 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 22:07 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 22:09 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 22:00 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 22:01 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 22:15 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 21:51 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 22:10 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-29 22:11 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 22:08 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 22:02 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 22:16 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 21:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 22:00 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 22:07 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 22:03 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 22:15 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 22:18 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 22:11 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 21:54 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 22:03 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 22:07 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 22:12 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:06 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/899075.shtml)
-- 2026-06-29 21:59 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/36572419404.shtml)
-- 2026-06-29 22:05 - [起风了](https://www.blog.kurohicncr.top/Article/details/99335.shtml)
-- 2026-06-29 21:50 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/234842010.shtml)
-- 2026-06-29 21:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/71840341.shtml)
-- 2026-06-29 21:52 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/786896.shtml)
-- 2026-06-29 22:09 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/0704233647.shtml)
-- 2026-06-29 22:02 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/6898161.shtml)
-- 2026-06-29 21:59 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/11180.shtml)
-- 2026-06-29 21:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/49397088.shtml)
-- 2026-06-29 22:08 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/1855993.shtml)
-- 2026-06-29 22:17 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/12398212875.shtml)
-- 2026-06-29 21:52 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/5938204470.shtml)
-- 2026-06-29 22:01 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/33275669.shtml)
-- 2026-06-29 22:14 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/94103.shtml)
+- 2026-06-29 22:13 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/745307881610.shtml)
+- 2026-06-29 22:04 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/96009584.shtml)
+- 2026-06-29 22:00 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/393137403373.shtml)
+- 2026-06-29 22:07 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/59176253.shtml)
+- 2026-06-29 22:05 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/9363113.shtml)
+- 2026-06-29 22:08 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/8045768.shtml)
+- 2026-06-29 21:54 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.kurohicncr.top/Article/details/17507443062.shtml)
+- 2026-06-29 22:19 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/308052954063.shtml)
+- 2026-06-29 21:56 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/539612.shtml)
+- 2026-06-29 22:02 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/613446328846.shtml)
+- 2026-06-29 22:03 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/872710.shtml)
+- 2026-06-29 22:08 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/732650434.shtml)
+- 2026-06-29 22:21 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/446754180.shtml)
+- 2026-06-29 22:21 - [东方风云榜](https://www.share.minike.top/Article/details/15406939.shtml)
+- 2026-06-29 21:55 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/799882188.shtml)

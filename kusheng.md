@@ -1,60 +1,61 @@
-# 美国消费者借贷再度强劲增加 创2022年以来最大连续两月增幅
+# 20CM涨停，股价新高，“寒王”再登顶！华宝基金科创芯片ETF（589190）暴力冲高7.5%，标的指数4月涨幅超34%
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-美国消费者借款4月再次强劲增加，创下2022年底以来最大的连续两月增幅。 美联储周五公布的数据显示，4月未偿信贷总额增加207亿美元，3月修正后为增加222亿美元。接受调查的经济学家预估中值为增加177亿美元。 汽车贷款和学费贷款等非循环信贷4月增加91亿美元。信用卡和其他循环信贷未偿余额增加116亿美元。该报告不包括抵押贷款。 随着汽油价格上涨对收入造成更大挤压，许多美国人正
+4月30日，算力芯片全线走强，寒武纪、芯原股份20CM涨停，寒武纪股价逼近1700元创历史新高，单日成交额284.66亿元，登顶A股量价“双冠王”！杰华特、联芸科技、芯源微、思瑞浦、翱捷科技-U齐创两位数涨幅。 全“芯”布局芯片产业的科创芯片ETF华宝（589190）高开高走，场内价格涨幅一度上探7.5%，收涨6.46%，刷新上市以来的历史高点！4月行情收官，589190跟踪的
 
 ## 正文
 
-美国消费者借款4月再次强劲增加，创下2022年底以来最大的连续两月增幅。
+4月30日，算力芯片全线走强，寒武纪、芯原股份20CM涨停，寒武纪股价逼近1700元创历史新高，单日成交额284.66亿元，登顶A股量价“双冠王”！
 
-美联储周五公布的数据显示，4月未偿信贷总额增加207亿美元，3月修正后为增加222亿美元。
+杰华特、联芸科技、芯源微、思瑞浦、翱捷科技-U齐创两位数涨幅。
 
-接受调查的经济学家预估中值为增加177亿美元。
+全“芯”布局芯片产业的科创芯片ETF华宝（589190）高开高走，场内价格涨幅一度上探7.5%，收涨6.46%，刷新上市以来的历史高点！
 
-汽车贷款和学费贷款等非循环信贷4月增加91亿美元。
+4月行情收官，589190跟踪的上证科创板芯片指数单月累计上涨34.72%，跑赢同期万得全A指数涨幅（8.69%）逾26个百分点。
 
-信用卡和其他循环信贷未偿余额增加116亿美元。
+注：上证科创板芯片指数近5个完整年度涨跌幅为2021年 6.87%，2022年 -33.69%，2023年 7.26%，2024年 34.52%，2025年 61.33%，指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
 
-该报告不包括抵押贷款。
+国产芯片产业催化密集，从行情驱动来看，一方面，AI算力需求密集释放，国产算力迈入业绩加速释放期。
 
-随着汽油价格上涨对收入造成更大挤压，许多美国人正面临额外财务压力。
+寒武纪一季度总营收28.85亿元，归母净利润为10.13亿元，分别同比增长159.56%、185.04%。
 
-尽管劳动力市场动能似乎正在增强，但工资增长正在放缓，这可能促使一些消费者举债或依靠储蓄来维持支出。
+芯原股份一季度营收增长114.47%，新签订单大幅提升，年内至4月29日新签订单金额达82.4亿元，其中AI算力相关订单占比高达91.37%；截至一季度末，在手订单金额达51.33亿元，已连续十个季度保持高位，其中量产业务订单超30亿元。
 
 ## 相关推荐
 
-- 2026-06-29 22:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 21:53 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 22:14 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 21:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 22:05 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 22:01 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 21:58 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 22:07 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 22:05 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 22:07 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 21:59 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 22:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 21:57 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 22:16 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 22:05 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 22:22 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 22:10 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 21:55 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 22:12 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 22:16 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 22:02 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 22:19 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 22:01 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 21:55 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 22:18 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 22:22 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 22:13 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 22:07 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 21:56 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/552051.shtml)
-- 2026-06-29 21:49 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/5797296.shtml)
-- 2026-06-29 21:51 - [女心理师](http://www.blog.minike.top/Article/details/26187.shtml)
-- 2026-06-29 22:03 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/05720.shtml)
-- 2026-06-29 22:14 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/774883.shtml)
-- 2026-06-29 22:12 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/68631338645.shtml)
-- 2026-06-29 21:58 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/8609561.shtml)
-- 2026-06-29 21:50 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/79855785259.shtml)
-- 2026-06-29 21:50 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/6885663295.shtml)
-- 2026-06-29 22:14 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/8117619.shtml)
-- 2026-06-29 22:14 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/485581.shtml)
-- 2026-06-29 22:03 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/58779813591.shtml)
-- 2026-06-29 21:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/44406828166.shtml)
-- 2026-06-29 22:03 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/632932.shtml)
-- 2026-06-29 22:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/121336.shtml)
+- 2026-06-29 22:04 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/129578723.shtml)
+- 2026-06-29 21:58 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/4928048165.shtml)
+- 2026-06-29 22:21 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/500239.shtml)
+- 2026-06-29 22:05 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/280949.shtml)
+- 2026-06-29 22:04 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/7927807.shtml)
+- 2026-06-29 22:20 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/9064077773.shtml)
+- 2026-06-29 22:00 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/2617510.shtml)
+- 2026-06-29 22:15 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/961357282065.shtml)
+- 2026-06-29 22:21 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/47041192.shtml)
+- 2026-06-29 22:19 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/50310418.shtml)
+- 2026-06-29 22:10 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/07086295.shtml)
+- 2026-06-29 22:08 - [炽夏](http://www.blog.minike.top/Article/details/32749.shtml)
+- 2026-06-29 21:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/575360079354.shtml)
+- 2026-06-29 22:22 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/0695861.shtml)
+- 2026-06-29 22:13 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/48991.shtml)

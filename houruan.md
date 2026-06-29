@@ -1,61 +1,58 @@
-# 午盘：美股继续下滑 纳指重挫600点
+# 宏观变局下的投资逻辑：2026公募一季报观察
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-北京时间6月6日凌晨，美股周五午盘继续下滑，受到芯片股下跌影响，以科技股为主的纳斯达克指数重挫600点。美国5月非农就业人数增加17.2万，远超预期，失业率维持在4.3%。 道指跌301.60点，跌幅为0.58%，报51260.33点；纳指跌624.27点，跌幅为2.33%，报26206.68点；标普500指数跌105.13点，跌幅为1.39%，报7479.18点。 由于5月非
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！张坤、葛兰等最新布局出炉 来源：点拾投资 基金一季报上周都已经披露完了，回顾2026年一季度的A股市场，整体呈现出震荡修复的态势，但结构分化显著。受全球地缘政治（特别是中东局势）影响，能源价格维持高位，推动周期板块表现活跃。与此同时，国内政策层面对于新质生产力的支持力度不减，TMT板块在AI概念的催化下
 
 ## 正文
 
-北京时间6月6日凌晨，美股周五午盘继续下滑，受到芯片股下跌影响，以科技股为主的纳斯达克指数重挫600点。
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！
 
-美国5月非农就业人数增加17.2万，远超预期，失业率维持在4.3%。
+张坤、葛兰等最新布局出炉 来源：点拾投资 基金一季报上周都已经披露完了，回顾2026年一季度的A股市场，整体呈现出震荡修复的态势，但结构分化显著。
 
-道指跌301.60点，跌幅为0.58%，报51260.33点；纳指跌624.27点，跌幅为2.33%，报26206.68点；标普500指数跌105.13点，跌幅为1.39%，报7479.18点。
+受全球地缘政治（特别是中东局势）影响，能源价格维持高位，推动周期板块表现活跃。
 
-由于5月非农就业报告强于预期，强化了美国劳动力市场依然具有韧性的观点，美国国债收益率周五大幅攀升。
+与此同时，国内政策层面对于新质生产力的支持力度不减，TMT板块在AI概念的催化下虽有波动，但仍是市场活跃资金的重要聚集地。
 
-对抵押贷款和其他贷款借贷成本具有影响力的基准10年期美国国债收益率上升5个基点，至4.534%，创下自5月21日以来的最高水平。
+另一方面，受制于外部关税壁垒及部分行业产能出清的缓慢，传统制造业及部分出口依赖型板块表现相对疲软。
 
-对美联储政策预期更为敏感的2年期国债收益率攀升7个基点，至4.115%，为5月20日以来最高。
+市场整体风险偏好在“稳增长政策预期”与“外部通胀压力”之间反复博弈，成交量虽较去年四季度有所回升，但投资者情绪仍保持谨慎乐观。
 
-与地缘政治风险走势一致的30年期长期国债收益率跳涨5个基点，至5.021%。
+季报向来是观察机构策略与市场判断的重要窗口，往往备受关注，后续我会提到一些我觉得有记忆点的一季报和大家分享。
 
-一个基点等于0.01%，收益率与价格呈反向变动关系。
+在当前公募行业竞争日趋激烈、存量博弈加剧的背景下，中小体量公募如何依托资源禀赋寻找增量空间，是行业共同关注的课题。
 
 ## 相关推荐
 
-- 2026-06-29 22:07 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 21:55 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 22:10 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 21:51 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 22:04 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 22:07 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 22:03 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 22:09 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 21:56 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 21:55 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 22:02 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 22:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 22:14 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 21:59 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 22:11 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 22:15 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 22:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 21:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 21:58 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 22:09 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 21:55 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 21:59 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 22:09 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 21:57 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 22:10 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 22:14 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 22:00 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:49 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/716754961579.shtml)
-- 2026-06-29 22:16 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/83759.shtml)
-- 2026-06-29 21:51 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/3423377.shtml)
-- 2026-06-29 21:48 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/8329479.shtml)
-- 2026-06-29 22:01 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/40697.shtml)
-- 2026-06-29 21:51 - [世界杯](http://www.blog.kurohicncr.top/Article/details/82911.shtml)
-- 2026-06-29 21:51 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/586697.shtml)
-- 2026-06-29 22:04 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/8114590623.shtml)
-- 2026-06-29 21:48 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/00830792069.shtml)
-- 2026-06-29 22:01 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/622267199766.shtml)
-- 2026-06-29 22:02 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/62674.shtml)
-- 2026-06-29 22:01 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/1393319.shtml)
-- 2026-06-29 22:05 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/15036703.shtml)
-- 2026-06-29 22:03 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/4659359.shtml)
-- 2026-06-29 22:05 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/6843626.shtml)
+- 2026-06-29 22:17 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/8116915.shtml)
+- 2026-06-29 22:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/32606734.shtml)
+- 2026-06-29 22:16 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/8707574.shtml)
+- 2026-06-29 22:08 - [世界杯](http://www.blog.kurohicncr.top/Article/details/819343.shtml)
+- 2026-06-29 22:12 - [任泽平：AI浪潮刚刚开始](http://www.share.minike.top/Article/details/39569215950.shtml)
+- 2026-06-29 22:09 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/839638340014.shtml)
+- 2026-06-29 22:17 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/98230772536.shtml)
+- 2026-06-29 22:01 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/16677908.shtml)
+- 2026-06-29 21:56 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/296809.shtml)
+- 2026-06-29 22:16 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/3130707994.shtml)
+- 2026-06-29 22:13 - [我们的少年时代2](http://www.blog.minike.top/Article/details/4861570436.shtml)
+- 2026-06-29 22:01 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/72233808.shtml)
+- 2026-06-29 22:00 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/59142.shtml)
+- 2026-06-29 22:05 - [蔚来车主罚站](http://www.share.minike.top/Article/details/485151215669.shtml)
+- 2026-06-29 22:22 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/06647.shtml)

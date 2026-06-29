@@ -1,59 +1,45 @@
-# 波音CEO：全新总装线7月6日投产737MAX客机
+# 中华职业教育非遗教学成果展亮相2026巴黎图书文化节
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-核心要点 波音首席执行官凯利・奥特伯格周五透露，公司7 月 6 日将在西雅图北部新建的总装生产线开工制造 737MAX 客机。 奥特伯格表示：“我们新增的这条生产线和伦顿现有厂区生产线配置完全一致。7 月 6 日首架飞机正式上线装配，再过约一个月，第四条总装线就将正式投产。” 这条坐落于华盛顿州埃弗雷特的全新 737MAX的总装线，是波音实现月产 52 架目标的关键抓手，该产能
+发布时间：2026年04月30日 13:09 来源：中国新闻网 责任编辑：【曹淼欣】
 
 ## 正文
 
-核心要点 波音首席执行官凯利・奥特伯格周五透露，公司7 月 6 日将在西雅图北部新建的总装生产线开工制造 737MAX 客机。
-
-奥特伯格表示：“我们新增的这条生产线和伦顿现有厂区生产线配置完全一致。
-
-7 月 6 日首架飞机正式上线装配，再过约一个月，第四条总装线就将正式投产。
-
-” 这条坐落于华盛顿州埃弗雷特的全新 737MAX的总装线，是波音实现月产 52 架目标的关键抓手，该产能规划计划于明年达成。
-
-今年波音已将 737MAX 月产量从 42 架提升至 47 架，目前维持该产能水平。
-
-尽管波音有意提速生产、提升交付量，但产能受美国联邦航空管理局（FAA）监管约束。
-
-2024 年 1 月阿拉斯加航空一架 737MAX 客机发生舱门塞脱落事故后，FAA 出台管控政策，限制波音产能扩张。
-
-该安全事故促使监管部门针对波音生产环节的质量与安全隐患展开长期核查。
+发布时间：2026年04月30日 13:09 来源：中国新闻网 责任编辑：【曹淼欣】
 
 ## 相关推荐
 
-- 2026-06-29 21:48 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 21:51 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 22:08 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 22:03 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 21:59 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 22:00 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 21:49 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 21:48 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 22:17 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 21:57 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 22:11 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 22:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 22:14 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 22:13 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 22:03 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 22:07 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 21:59 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 22:00 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 22:00 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 22:07 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 22:01 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 22:09 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 22:21 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 21:55 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 22:03 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 21:55 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:52 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/06467.shtml)
-- 2026-06-29 22:01 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/46350.shtml)
-- 2026-06-29 21:50 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/10819.shtml)
-- 2026-06-29 21:52 - [斛珠夫人](http://www.share.minike.top/Article/details/0010701252.shtml)
-- 2026-06-29 21:59 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/95782661748.shtml)
-- 2026-06-29 22:08 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/980953651082.shtml)
-- 2026-06-29 21:50 - [巴黎区长紧急采购50台中国空调](https://www.share.kurohicncr.top/Article/details/504073.shtml)
-- 2026-06-29 21:48 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.minike.top/Article/details/7208776561.shtml)
-- 2026-06-29 22:14 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/089244173.shtml)
-- 2026-06-29 22:08 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/853393744673.shtml)
-- 2026-06-29 21:57 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/4879728.shtml)
-- 2026-06-29 21:49 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/34213.shtml)
-- 2026-06-29 22:07 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/4550569.shtml)
-- 2026-06-29 22:10 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/39654.shtml)
-- 2026-06-29 22:05 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/26914776581.shtml)
+- 2026-06-29 22:02 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/91563116339.shtml)
+- 2026-06-29 21:57 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/62706.shtml)
+- 2026-06-29 22:01 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/64053.shtml)
+- 2026-06-29 22:23 - [佛得角队长门德斯被控强奸](https://www.share.minike.top/Article/details/6451421.shtml)
+- 2026-06-29 22:13 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/3383676772.shtml)
+- 2026-06-29 21:59 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/0620030686.shtml)
+- 2026-06-29 22:15 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/50973.shtml)
+- 2026-06-29 21:55 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/2826613.shtml)
+- 2026-06-29 22:07 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/23134.shtml)
+- 2026-06-29 21:59 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/6664829.shtml)
+- 2026-06-29 22:21 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/73426875756.shtml)
+- 2026-06-29 22:21 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/5281247008.shtml)
+- 2026-06-29 21:55 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/1480427.shtml)
+- 2026-06-29 22:00 - [佛得角队长门德斯被控强奸](https://www.share.minike.top/Article/details/39536.shtml)
+- 2026-06-29 21:55 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/5777357.shtml)

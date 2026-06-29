@@ -1,59 +1,61 @@
-# 零食巨头的生鲜赌局：良品铺子卖菜背后的万亿围城与跨界硬仗
+# 欧洲央行维持存款利率在2.00%不变 符合预期
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-2026年5月，武汉汉口城市广场，“良品铺子·鲜生活”正式开业。这家260平方米的社区超市，门口挂着“好好生活、好好吃饭”的标语，店内陈列从水果蔬菜、肉禽蛋类延展到现制熟食、现烤烘焙——而良品铺子最熟悉的休闲零食，仅占据了货架的一角。 “卖零食的尽头是卖菜”——行业观察家们用这句话调侃这波集体转型。但在这句轻松的调侃背后，是一场在巨亏年报中翻开新篇的战略冒险。2025年全年，良
+欧洲央行维持存款利率不变，符合经济学家预期。 存款利率维持在2.00%不变。（经济学家预期为2.00%） 彭博调查的63位经济学家均预期为2.00%。 主要再融资利率维持在2.15%不变。（预期为2.15%） 彭博调查的50位经济学家中，49位预期为2.15%；1位经济学家预期为2.00%。 边际贷款利率维持在2.40%不变。（预期为2.40%） 彭博调查的20位经济学家均预期
 
 ## 正文
 
-2026年5月，武汉汉口城市广场，“良品铺子·鲜生活”正式开业。
+欧洲央行维持存款利率不变，符合经济学家预期。
 
-这家260平方米的社区超市，门口挂着“好好生活、好好吃饭”的标语，店内陈列从水果蔬菜、肉禽蛋类延展到现制熟食、现烤烘焙——而良品铺子最熟悉的休闲零食，仅占据了货架的一角。
+存款利率维持在2.00%不变。
 
-“卖零食的尽头是卖菜”——行业观察家们用这句话调侃这波集体转型。
+（经济学家预期为2.00%） 彭博调查的63位经济学家均预期为2.00%。
 
-但在这句轻松的调侃背后，是一场在巨亏年报中翻开新篇的战略冒险。
+主要再融资利率维持在2.15%不变。
 
-2025年全年，良品铺子归母净利润亏损1.48亿元，关店719家。
+（预期为2.15%） 彭博调查的50位经济学家中，49位预期为2.15%；1位经济学家预期为2.00%。
 
-仅仅两个月后，这家公司在2026年一季报中交出了营收20.4亿元、同比增长17.78%，净利润4770万元、成功扭亏为盈的成绩单。
+边际贷款利率维持在2.40%不变。
 
-就在扭亏公告发布后的第三周，它以“鲜生活”新业态加速进入社区超市赛道。
+（预期为2.40%） 彭博调查的20位经济学家均预期为2.40%。
 
-为什么非卖菜不可？
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 22:13 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 22:03 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 21:48 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 21:51 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 22:10 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 22:14 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 22:17 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 21:48 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 21:54 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 22:17 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 22:11 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 22:13 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 21:59 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 22:05 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 22:00 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 22:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 22:02 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 22:08 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 22:13 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 22:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 22:18 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 22:19 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 22:01 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 21:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 22:10 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 22:01 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 22:11 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 22:18 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:59 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/5738690372.shtml)
-- 2026-06-29 22:14 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/35995424874.shtml)
-- 2026-06-29 22:06 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/704282826150.shtml)
-- 2026-06-29 22:11 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/382053140101.shtml)
-- 2026-06-29 22:13 - [济南航空航天全面起势](http://www.share.minike.top/Article/details/019922970186.shtml)
-- 2026-06-29 22:16 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/596944888591.shtml)
-- 2026-06-29 21:57 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/1119543054.shtml)
-- 2026-06-29 22:03 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/660643137258.shtml)
-- 2026-06-29 22:11 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/66992626.shtml)
-- 2026-06-29 22:06 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/14474.shtml)
-- 2026-06-29 22:10 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/2540763650.shtml)
-- 2026-06-29 21:52 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/9254355.shtml)
-- 2026-06-29 21:57 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/5501234361.shtml)
-- 2026-06-29 21:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/199433.shtml)
-- 2026-06-29 21:58 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/824489.shtml)
+- 2026-06-29 22:15 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/753348007.shtml)
+- 2026-06-29 22:02 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/791781720118.shtml)
+- 2026-06-29 22:09 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/1659092.shtml)
+- 2026-06-29 21:56 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/954075.shtml)
+- 2026-06-29 22:13 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/97368265.shtml)
+- 2026-06-29 22:20 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/223833.shtml)
+- 2026-06-29 21:54 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/1387372.shtml)
+- 2026-06-29 22:01 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/39649266.shtml)
+- 2026-06-29 22:17 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/19125677738.shtml)
+- 2026-06-29 22:09 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/391372366797.shtml)
+- 2026-06-29 22:10 - [巴西10号球衣是天才传承史](https://www.blog.kurohicncr.top/Article/details/74347872.shtml)
+- 2026-06-29 22:00 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/14369812.shtml)
+- 2026-06-29 21:56 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/519466887400.shtml)
+- 2026-06-29 21:57 - [周杰伦千禧年就有小卡了](http://www.blog.minike.top/Article/details/938998044.shtml)
+- 2026-06-29 22:16 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/0583828521.shtml)

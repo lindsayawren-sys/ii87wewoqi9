@@ -1,60 +1,57 @@
-# 康宁杰瑞制药-B：执行董事及管理层增持股份
+# 紫燕食品戈吴超接棒近三年，一季度净利暴增447%至8329万，金融资产收益7268万成关键推手 | 长三角资本局
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-康宁杰瑞制药-B（09966）发布公告，公司董事会已获徐霆博士（公司控股股东、首席执行官兼执行董事）告知，彼于2026年6月4日以自有资金在公开市场购入合共55.4万股公司普通股。此外，公司若干管理层成员于2026年6月4日及此前数周在公开市场购入合共12.2万股股份。徐霆博士及有关管理层成员购入的所有股份总代价为498.5万港元，相当于每股股份约7.375港元的平均购买价。紧
+文|新浪财经上海站 十里 4月29日，紫燕食品交出了一份看起来很亮眼的一季报——净利暴增447%，但是利润大头却不在卤味。 2026年一季度，公司实现营业收入7.03亿元，同比增长24.64%；归属于上市公司股东的净利润8329万元，同比大增447.29%；基本每股收益由0.0369元升至0.2022元，加权平均净资产收益率提升至3.98%。 但这份高增长背后，真正值得看的不是
 
 ## 正文
 
-康宁杰瑞制药-B（09966）发布公告，公司董事会已获徐霆博士（公司控股股东、首席执行官兼执行董事）告知，彼于2026年6月4日以自有资金在公开市场购入合共55.4万股公司普通股。
+文|新浪财经上海站 十里 4月29日，紫燕食品交出了一份看起来很亮眼的一季报——净利暴增447%，但是利润大头却不在卤味。
 
-此外，公司若干管理层成员于2026年6月4日及此前数周在公开市场购入合共12.2万股股份。
+2026年一季度，公司实现营业收入7.03亿元，同比增长24.64%；归属于上市公司股东的净利润8329万元，同比大增447.29%；基本每股收益由0.0369元升至0.2022元，加权平均净资产收益率提升至3.98%。
 
-徐霆博士及有关管理层成员购入的所有股份总代价为498.5万港元，相当于每股股份约7.375港元的平均购买价。
+但这份高增长背后，真正值得看的不是“卤味卖得多好”，而是利润从哪里来。
 
-紧随本次股份增持后，徐霆博士直接及间接持有合共3.14亿股股份，占公司已发行股份（不包括库存股份）总数的约32.4%。
+一季报显示，紫燕食品当期非经常性损益为7495万元，占归母净利润比重近九成。
 
-徐霆博士表示，本次股份增持乃基于董事及管理层对公司未来前景及长远发展的坚定信心。
+其中，金融资产公允价值变动收益达7268万元，政府补助2606万元。
 
-当前交易价格并未反映公司的实际价值。
+这意味着，公司一季度利润暴增，核心拉动力并不完全来自主营业务，而是金融资产收益和政府补助等非经常性项目。
 
-具体而言，公司产品KN026二线及以上治疗HER2+ GC/GEJ已于2026年5月在中国获批上市，KN026 新辅助治疗HER2+ BC的III期临床研究的显著性结果已于2026 ASCO年会以LBA 口头报告形式呈列。
+扣除非经常性损益后，公司一季度净利润为834万元，同比增长66.77%。
 
-目前，KN026针对一线HER2+ BC、HER2+ BC新辅助及辅助治疗及一线HER2+ GC/GEJ、JSKN003针对二线HER2+ BC、二线及以上HER2低表达BC、PROC 全人群及HER2+ CRC以及JSKN016针对后线TNBC等多个适应症的多项注册临床研究正在顺利进行中。
+这个数字同样改善，但和8329万元归母净利润放在一起，反差明显。
 
 ## 相关推荐
 
-- 2026-06-29 22:02 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 22:13 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 22:15 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 21:51 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 22:15 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 21:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 22:12 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 21:59 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 21:58 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 22:15 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 21:58 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 22:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 22:00 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 22:01 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 21:55 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 22:11 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 22:16 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 22:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 22:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 22:13 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 22:19 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 22:23 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 22:10 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 21:54 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 22:16 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:00 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/7717863565.shtml)
-- 2026-06-29 21:49 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/6218736.shtml)
-- 2026-06-29 22:00 - [《贺子珍》](https://www.blog.minike.top/Article/details/2427433.shtml)
-- 2026-06-29 22:07 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/34360.shtml)
-- 2026-06-29 21:52 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/85515574.shtml)
-- 2026-06-29 21:51 - [小娘惹](http://www.share.kurohicncr.top/Article/details/039672010.shtml)
-- 2026-06-29 21:49 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/140118256980.shtml)
-- 2026-06-29 22:14 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/03442.shtml)
-- 2026-06-29 22:04 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/46047.shtml)
-- 2026-06-29 22:07 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/51056.shtml)
-- 2026-06-29 22:05 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/8014015.shtml)
-- 2026-06-29 21:55 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/7858411.shtml)
-- 2026-06-29 22:05 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/5792958.shtml)
-- 2026-06-29 21:50 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/903866782.shtml)
-- 2026-06-29 21:49 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/334289915.shtml)
+- 2026-06-29 22:01 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/40722.shtml)
+- 2026-06-29 21:58 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/35062419447.shtml)
+- 2026-06-29 22:15 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/77794877145.shtml)
+- 2026-06-29 22:09 - [扬名立万](http://www.blog.minike.top/Article/details/483737.shtml)
+- 2026-06-29 22:22 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/943606154663.shtml)
+- 2026-06-29 21:56 - [东方风云榜直播](http://www.blog.minike.top/Article/details/81121127.shtml)
+- 2026-06-29 21:54 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/35523359485.shtml)
+- 2026-06-29 22:02 - [请回答王牌2019](http://www.share.minike.top/Article/details/5299513.shtml)
+- 2026-06-29 22:01 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/44761772940.shtml)
+- 2026-06-29 22:03 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/3980410853.shtml)
+- 2026-06-29 21:57 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/206377070727.shtml)
+- 2026-06-29 22:00 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/08869528600.shtml)
+- 2026-06-29 22:15 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/7845441.shtml)
+- 2026-06-29 22:05 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/70205167892.shtml)
+- 2026-06-29 22:09 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/421474856.shtml)

@@ -1,56 +1,60 @@
-# 长飞光纤光缆盘中涨近8% 高端光纤预制棒价格涨幅近550%
+# 国家统计局发布2025年农民工监测调查报告
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-长飞光纤光缆（06869）盘中涨超8%，截至发稿，股价上涨3.51%，现报259.60港元，成交额41.16亿港元。 光棒作为光纤制造“母体”，经高温拉丝可制数千公里光纤，其利润约占光纤产业链的70%。据央视财经，目前最抢手的光棒产品是“A2类光纤预制棒”，这类光棒拉出来的光纤抗弯曲能力强，在AI算力基建与入户通信场景中广泛应用。数据显示，A2类预制棒报价由2025年初的22元
+中新网4月30日电 据国家统计局网站消息，4月30日，国家统计局发布2025年农民工监测调查报告。 一、农民工规模、分布及流向 (一)农民工总量略有增加 2025年全国农民工总量30115万人，比上年增加142万人，增长0.5%。其中，本地农民工12109万人，比上年增加7万人，增长0.1%；外出农民工18006万人，比上年增加135万人，增长0.8%。年末在城镇居住的进城农民
 
 ## 正文
 
-长飞光纤光缆（06869）盘中涨超8%，截至发稿，股价上涨3.51%，现报259.60港元，成交额41.16亿港元。
+中新网4月30日电 据国家统计局网站消息，4月30日，国家统计局发布2025年农民工监测调查报告。
 
-光棒作为光纤制造“母体”，经高温拉丝可制数千公里光纤，其利润约占光纤产业链的70%。
+一、农民工规模、分布及流向 (一)农民工总量略有增加 2025年全国农民工总量30115万人，比上年增加142万人，增长0.5%。
 
-据央视财经，目前最抢手的光棒产品是“A2类光纤预制棒”，这类光棒拉出来的光纤抗弯曲能力强，在AI算力基建与入户通信场景中广泛应用。
+其中，本地农民工12109万人，比上年增加7万人，增长0.1%；外出农民工18006万人，比上年增加135万人，增长0.8%。
 
-数据显示，A2类预制棒报价由2025年初的22元至30元/等效芯公里涨至2026年的160元/等效芯公里，涨幅近550%。
+年末在城镇居住的进城农民工13092万人。
 
-业内人士表示，短期内，光棒供给紧缺的情况仍会阶段性固化，拥有光棒产能的企业将成为本轮行情的最大受益方。
+在外出农民工中，跨省流动6765万人，比上年减少75万人，下降1.1%；省内流动11241万人，比上年增加210万人，增长1.9%。
 
-公开资料显示，长飞光纤光缆是全球唯一掌握PCVD、OVD、VAD三大主流光棒制备工艺的企业，构建了“棒-纤-缆”全产业链竞争壁垒，光棒自给率达100%，产能规模全球第一。
+跨省流动规模占外出农民工比重为37.6%，比上年下降0.7个百分点。
 
-据悉，在技术壁垒更高的G.654.E超低损耗高端光纤市场，公司市占率高达80%-90%，将充分受益于AI算力基础设施建设带来的高端光纤需求爆发。
+分区域看，东部地区外出农民工中跨省流动占12.3%，中部地区占51.4%，西部地区占44.0%，东北地区占31.1%。
 
-责任编辑：卢昱君
+(二)各区域农民工人数均有增加 从输出地看，东部地区农民工10563万人，比上年增加34万人，增长0.3%；中部地区10054万人，比上年增加42万人，增长0.4%；西部地区8460万人，比上年增加46万人，增长0.5%；东北地区1038万人，比上年增加20万人，增长2.0%。
 
 ## 相关推荐
 
-- 2026-06-29 22:08 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 22:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 22:00 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 21:57 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 22:15 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 21:50 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 22:04 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 22:10 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 21:51 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 22:01 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 21:56 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 22:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 21:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 22:01 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 22:06 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 22:04 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 21:59 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 21:55 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 22:13 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 22:19 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 21:59 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 22:02 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 22:07 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 22:15 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:55 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/505009.shtml)
-- 2026-06-29 22:07 - [曼城官宣马雷斯卡出任主教练](https://www.share.kurohicncr.top/Article/details/22576626518.shtml)
-- 2026-06-29 22:06 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/42807.shtml)
-- 2026-06-29 22:08 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/37091.shtml)
-- 2026-06-29 22:17 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/68668.shtml)
-- 2026-06-29 21:56 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/30420294.shtml)
-- 2026-06-29 22:05 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/4013715.shtml)
-- 2026-06-29 21:56 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/826799214099.shtml)
-- 2026-06-29 21:48 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/02978708.shtml)
-- 2026-06-29 22:12 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/920081685.shtml)
-- 2026-06-29 21:55 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/211334624484.shtml)
-- 2026-06-29 21:53 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/04938056.shtml)
-- 2026-06-29 21:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/09749407.shtml)
-- 2026-06-29 21:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/68768.shtml)
-- 2026-06-29 22:02 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/229864.shtml)
+- 2026-06-29 22:17 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/936479479.shtml)
+- 2026-06-29 22:02 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/00925471421.shtml)
+- 2026-06-29 22:10 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/2815419117.shtml)
+- 2026-06-29 21:55 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/97121193690.shtml)
+- 2026-06-29 22:19 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/7578952426.shtml)
+- 2026-06-29 21:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/759297.shtml)
+- 2026-06-29 22:01 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/6850064.shtml)
+- 2026-06-29 22:02 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/3568037.shtml)
+- 2026-06-29 21:58 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/263218188.shtml)
+- 2026-06-29 22:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/80549154.shtml)
+- 2026-06-29 22:24 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/455651566.shtml)
+- 2026-06-29 22:06 - [世界杯](http://www.share.minike.top/Article/details/905911809843.shtml)
+- 2026-06-29 22:10 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/09194.shtml)
+- 2026-06-29 22:03 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/933777422.shtml)
+- 2026-06-29 22:22 - [女子发现孩子非现任亲生起诉前任](http://www.share.kurohicncr.top/Article/details/88966541.shtml)

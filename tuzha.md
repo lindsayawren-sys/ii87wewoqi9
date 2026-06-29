@@ -1,59 +1,57 @@
-# 2026年法网：兹维列夫与科博利晋级男单决赛
+# 印度南部一医院围墙倒塌致7死7伤
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-中新社巴黎6月5日电 (记者 李洋)2026年法国网球公开赛当地时间5日结束男单半决赛。赛会2号种子、德国名将兹维列夫与10号种子、意大利选手科博利晋级决赛。 兹维列夫当天对阵26号种子、来自捷克的门希克。两人之前曾有一次较量，兹维列夫取胜。当天首盘两人激烈缠斗，兹维列夫盘中一度挽救三个破发点，并在盘末实现破发，以7:5赢得首盘。第二盘兹维列夫两度破发，以6:2再赢一盘。 第三
+中新社北京4月30日电 据印度《德干先驱报》报道，当地时间29日傍晚，印度南部城市班加罗尔一处医院围墙突然倒塌，造成至少7人死亡、7人受伤。 当地警方表示，遇难者包括一名儿童和在路边做小生意的商贩；伤者中有商贩、躲雨的路人和在班加罗尔旅游的游客。 事发时当地正遭遇雷暴和强降雨，围墙在傍晚约5时45分突然坍塌，压倒在附近避雨的人群。 印媒援引消息人士的话说，这段墙体已有约30年历
 
 ## 正文
 
-中新社巴黎6月5日电 (记者 李洋)2026年法国网球公开赛当地时间5日结束男单半决赛。
+中新社北京4月30日电 据印度《德干先驱报》报道，当地时间29日傍晚，印度南部城市班加罗尔一处医院围墙突然倒塌，造成至少7人死亡、7人受伤。
 
-赛会2号种子、德国名将兹维列夫与10号种子、意大利选手科博利晋级决赛。
+当地警方表示，遇难者包括一名儿童和在路边做小生意的商贩；伤者中有商贩、躲雨的路人和在班加罗尔旅游的游客。
 
-兹维列夫当天对阵26号种子、来自捷克的门希克。
+事发时当地正遭遇雷暴和强降雨，围墙在傍晚约5时45分突然坍塌，压倒在附近避雨的人群。
 
-两人之前曾有一次较量，兹维列夫取胜。
+印媒援引消息人士的话说，这段墙体已有约30年历史，长期老化及额外施工负荷可能导致结构受损，在极端天气影响下最终失稳。
 
-当天首盘两人激烈缠斗，兹维列夫盘中一度挽救三个破发点，并在盘末实现破发，以7:5赢得首盘。
+事故发生后，附近居民第一时间参与救援，但消防车辆一度因道路受阻延误到场。
 
-第二盘兹维列夫两度破发，以6:2再赢一盘。
+印度总理莫迪在社交媒体上对事故表示哀悼，称事件“令人遗憾”。
 
-第三盘门希克状态有所回升，兹维列夫以3:6告负。
+目前伤者已被送医救治，当地政府正在展开调查。
 
-第四盘兹维列夫没有再给对手机会，率先破发并将优势保持到盘末，以6:3取胜，并以3:1的总比分赢得全场比赛胜利。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 21:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 22:05 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 21:58 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 21:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 21:54 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 22:00 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 22:06 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 22:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 21:48 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 21:58 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 22:14 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 21:54 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 21:54 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 22:22 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 22:14 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 22:19 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 21:58 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 22:13 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 21:58 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 22:21 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 22:13 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 22:20 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 22:18 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:15 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/857253374323.shtml)
-- 2026-06-29 21:54 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/0791254.shtml)
-- 2026-06-29 22:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/11430484789.shtml)
-- 2026-06-29 21:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/166907.shtml)
-- 2026-06-29 22:04 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/315530324362.shtml)
-- 2026-06-29 22:11 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.minike.top/Article/details/7483227669.shtml)
-- 2026-06-29 22:03 - [斛珠夫人](https://www.blog.minike.top/Article/details/2161666652.shtml)
-- 2026-06-29 22:07 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/28365970.shtml)
-- 2026-06-29 21:54 - [多人将马路护栏当球网打羽毛球](http://www.blog.kurohicncr.top/Article/details/221273919199.shtml)
-- 2026-06-29 22:17 - [我和我的家乡](https://www.share.minike.top/Article/details/951831.shtml)
-- 2026-06-29 22:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/60394401.shtml)
-- 2026-06-29 22:11 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/671466170.shtml)
-- 2026-06-29 21:51 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/510011143.shtml)
-- 2026-06-29 21:52 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/02279901.shtml)
-- 2026-06-29 21:48 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/122718086.shtml)
+- 2026-06-29 21:58 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/074980.shtml)
+- 2026-06-29 22:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/6020705.shtml)
+- 2026-06-29 22:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/733759901471.shtml)
+- 2026-06-29 22:03 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/7593276.shtml)
+- 2026-06-29 22:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/67295310.shtml)
+- 2026-06-29 22:14 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/37359850.shtml)
+- 2026-06-29 22:11 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/33381874886.shtml)
+- 2026-06-29 21:57 - [华工科技龙虎榜数据](https://www.blog.minike.top/Article/details/95820.shtml)
+- 2026-06-29 21:54 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/478925.shtml)
+- 2026-06-29 22:03 - [炽夏](http://www.share.minike.top/Article/details/22102125229.shtml)
+- 2026-06-29 21:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/41617.shtml)
+- 2026-06-29 22:04 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/7553634636.shtml)
+- 2026-06-29 22:02 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/85715.shtml)
+- 2026-06-29 22:23 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/3079279.shtml)
+- 2026-06-29 22:19 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/009186394999.shtml)

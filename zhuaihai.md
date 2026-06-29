@@ -1,57 +1,46 @@
-# OEXN:油价回吐后仍看库存变化
+# 胜宏科技获摩根大通增持约126.88万股 每股作价约324.04港元
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-6月5日，OEXN表示，国际油价在连续上行后出现回吐，说明市场对扰动的反应开始从情绪驱动转向供需核算。即便短线紧张情绪略有缓和，交易员仍在重新评估美国库存收紧与运输风险之间的叠加影响。 就盘面表现而言，OEXN认为这轮回落更像是技术性整理，而不是对原油基本面进行彻底改写。美国库存此前释放出偏紧信号，使得市场难以迅速放下对供应端余量的担忧；同时，一旦航运与保险成本继续波动，原油价
+香港联交所最新数据显示，4月23日，摩根大通增持胜宏科技（02476）126.8785万股，每股作价324.0436港元，总金额约为4.11亿港元。增持后最新持股数目约为2019.75万股，持股比例为21.07%。责任编辑：卢昱君
 
 ## 正文
 
-6月5日，OEXN表示，国际油价在连续上行后出现回吐，说明市场对扰动的反应开始从情绪驱动转向供需核算。
+香港联交所最新数据显示，4月23日，摩根大通增持胜宏科技（02476）126.8785万股，每股作价324.0436港元，总金额约为4.11亿港元。
 
-即便短线紧张情绪略有缓和，交易员仍在重新评估美国库存收紧与运输风险之间的叠加影响。
+增持后最新持股数目约为2019.75万股，持股比例为21.07%。
 
-就盘面表现而言，OEXN认为这轮回落更像是技术性整理，而不是对原油基本面进行彻底改写。
-
-美国库存此前释放出偏紧信号，使得市场难以迅速放下对供应端余量的担忧；同时，一旦航运与保险成本继续波动，原油价格弹性仍可能被重新放大。
-
-从节奏上看，原油短线或许会在风险溢价回落与库存收缩之间来回拉锯。
-
-若后续数据继续证实供应偏紧，价格中枢未必会明显下移，更多可能表现为震荡中的偏强修复。
-
-后市方面，OEXN提到，判断油价是否重新转强，关键还是看库存变化、运力恢复效率以及市场对供应安全边际的重新定价；只要这几项指标没有显著改善，原油仍具备反复走强的条件。
-
-参考链接： https：//www.investing.com/news/commodities-news/oil-dips-after-3day-surge-as-traders-watch-gulf-hostilities-us-stock-draw-4725511责任编辑：陈平
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:12 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 22:15 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 22:17 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 22:10 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 22:03 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 22:04 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 22:05 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 22:01 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 22:14 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 22:03 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 22:10 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 22:12 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 22:02 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 22:05 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 22:05 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 22:07 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 22:19 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 22:04 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 21:57 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 21:54 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 22:14 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/5639592.shtml)
-- 2026-06-29 22:04 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/22754187.shtml)
-- 2026-06-29 21:59 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/917959.shtml)
-- 2026-06-29 22:08 - [世界杯](http://www.blog.minike.top/Article/details/31666340232.shtml)
-- 2026-06-29 21:53 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/8746425.shtml)
-- 2026-06-29 22:16 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/88582.shtml)
-- 2026-06-29 22:14 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/88894.shtml)
-- 2026-06-29 22:09 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/260122.shtml)
-- 2026-06-29 22:16 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/5569985.shtml)
-- 2026-06-29 22:03 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/51155197179.shtml)
-- 2026-06-29 21:50 - [乌克兰发广告全球征兵](https://www.share.kurohicncr.top/Article/details/9196090.shtml)
-- 2026-06-29 22:08 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/4861674290.shtml)
-- 2026-06-29 21:53 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/588963040.shtml)
-- 2026-06-29 22:01 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/24211465.shtml)
-- 2026-06-29 22:00 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/957967922902.shtml)
+- 2026-06-29 21:55 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/6816095.shtml)
+- 2026-06-29 21:58 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/9111622.shtml)
+- 2026-06-29 21:56 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/83920328.shtml)
+- 2026-06-29 22:02 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/223780.shtml)
+- 2026-06-29 22:06 - [爱很美味](https://www.share.minike.top/Article/details/9857612315.shtml)
+- 2026-06-29 21:56 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/592737.shtml)
+- 2026-06-29 21:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/5425141786.shtml)
+- 2026-06-29 22:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/38549373523.shtml)
+- 2026-06-29 22:07 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/600398970329.shtml)
+- 2026-06-29 22:23 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/2467051.shtml)
+- 2026-06-29 22:11 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/09177067.shtml)
+- 2026-06-29 21:55 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/29842.shtml)
+- 2026-06-29 22:06 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/449111.shtml)
+- 2026-06-29 21:55 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/1243789.shtml)
+- 2026-06-29 22:10 - [扫黑风暴](https://www.blog.minike.top/Article/details/8696698023.shtml)

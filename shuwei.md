@@ -1,56 +1,60 @@
-# 美丽中国行丨全球仅此一株 四项硬核举措守护翠云廊绿色“国宝”
+# 安世半导体控制权纠纷拖累，闻泰科技2025年净亏损扩大至87.5亿元
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-翠云廊，以剑州古城为中心，分布在长达三百余里的剑门蜀道上，是世界上最大的人工古柏林。古时驿道旁的古柏身兼多重实用价值，既是指路路标，又能固土护路基、遮阳供路人歇脚，是古代蜀道天然的交通配套设施。蜀道翠云廊剑阁段现存古树7803株， 其中古柏7778株，包括2300岁的“剑阁柏”和“帅大柏”、1800岁的“隆中对柏”等。 一众古树里，有一棵特殊的古树——剑阁柏。剑阁柏是翠云廊内树
+中国半导体制造商闻泰科技周三发布财报，2025年净亏损扩大至87.5亿元，而上年同期亏损为28.3亿元。公司指出，业绩恶化主要因子公司安世半导体的控制权纠纷持续发酵。 财报显示，闻泰科技2025年营收为312.5亿元，同比下降57.5%。公司表示，截至报告期末，其对安世境外相关主体的控制权仍处于受限状态。这些实体已不再遵循上市公司指令开展业务，并暂停了对安世中国相关部门的晶圆供
 
 ## 正文
 
-翠云廊，以剑州古城为中心，分布在长达三百余里的剑门蜀道上，是世界上最大的人工古柏林。
+中国半导体制造商闻泰科技周三发布财报，2025年净亏损扩大至87.5亿元，而上年同期亏损为28.3亿元。
 
-古时驿道旁的古柏身兼多重实用价值，既是指路路标，又能固土护路基、遮阳供路人歇脚，是古代蜀道天然的交通配套设施。
+公司指出，业绩恶化主要因子公司安世半导体的控制权纠纷持续发酵。
 
-蜀道翠云廊剑阁段现存古树7803株， 其中古柏7778株，包括2300岁的“剑阁柏”和“帅大柏”、1800岁的“隆中对柏”等。
+财报显示，闻泰科技2025年营收为312.5亿元，同比下降57.5%。
 
-一众古树里，有一棵特殊的古树——剑阁柏。
+公司表示，截至报告期末，其对安世境外相关主体的控制权仍处于受限状态。
 
-剑阁柏是翠云廊内树龄最老、身高最高的一株古柏，具有松树和柏树的双重特征，果实如松，裂纹如柏，目前全世界仅此一株。
+这些实体已不再遵循上市公司指令开展业务，并暂停了对安世中国相关部门的晶圆供应，严重影响了公司生产制造的连续性。
 
-专家介绍，为实现剑阁柏的长效保育，当地针对性开展了“剑阁柏”专项保护措施： 做体检：采用应力波检测技术，定期开展空腐检测，精准排查树体内部隐蔽腐朽问题； “套马甲”：在树干中部加装纤维加固“马甲”，再与周边树木通过硬支护进行弹性连接，全方位保障树体结构安全； 做微创：对主干腐烂部位清腐消毒、做防腐处理，遏制腐坏继续向内蔓延； “穿靴子”：采取根部支撑保护、扩展营养面积、土壤综合改良等技术措施，对树的基部进行“穿靴”保护。
+该纠纷源于2025年9月，荷兰政府以治理问题为由，从母公司手中接管了总部位于荷兰的安世半导体。
 
-据了解，当地对重点古树名木实施“一树一策”的精准保护，即针对每一棵古柏，制定单独的科学防护方案以及救治措施。
+闻泰科技表示，正通过法律途径维权，同时加速推进境内供应链建设，依托现有产能保障对客户供应。
 
-多举措养护之下，古柏生长条件不断改善，这条延续千年的古蜀道愈发青翠，焕然新生。
+安世中国方面，已完成部分车规级12英寸晶圆产品的小规模试产，预计产能将在2026年下半年逐步释放。
 
 ## 相关推荐
 
-- 2026-06-29 21:51 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 21:59 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 22:01 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 22:08 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 22:01 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 22:07 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 22:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 22:10 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 21:58 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 21:54 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 22:12 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 22:17 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 22:00 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 22:05 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 22:08 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 22:22 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 22:14 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 21:58 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 21:59 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 22:16 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 22:09 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 22:14 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 22:05 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 22:12 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:48 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/27943464.shtml)
-- 2026-06-29 22:13 - [爱很美味](http://www.share.kurohicncr.top/Article/details/49595.shtml)
-- 2026-06-29 21:49 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/83584925388.shtml)
-- 2026-06-29 21:57 - [流金岁月](http://www.share.kurohicncr.top/Article/details/350477596.shtml)
-- 2026-06-29 21:56 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/295342.shtml)
-- 2026-06-29 21:55 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/493949.shtml)
-- 2026-06-29 21:54 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/5726196268.shtml)
-- 2026-06-29 22:03 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/82541414.shtml)
-- 2026-06-29 21:54 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/388355410.shtml)
-- 2026-06-29 21:59 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/142703.shtml)
-- 2026-06-29 22:08 - [起风了](https://www.blog.kurohicncr.top/Article/details/69908996684.shtml)
-- 2026-06-29 21:57 - [炽夏](https://www.blog.kurohicncr.top/Article/details/12431220723.shtml)
-- 2026-06-29 22:11 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/620383.shtml)
-- 2026-06-29 22:02 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/384185.shtml)
-- 2026-06-29 22:06 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/88323.shtml)
+- 2026-06-29 22:19 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/2965392.shtml)
+- 2026-06-29 22:12 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/81976.shtml)
+- 2026-06-29 22:21 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/7231148.shtml)
+- 2026-06-29 22:01 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/3449352769.shtml)
+- 2026-06-29 22:13 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/79481005.shtml)
+- 2026-06-29 21:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/4918162985.shtml)
+- 2026-06-29 22:11 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/24322293766.shtml)
+- 2026-06-29 22:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/75274118.shtml)
+- 2026-06-29 22:04 - [急先锋](https://www.blog.kurohicncr.top/Article/details/457593955397.shtml)
+- 2026-06-29 22:01 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/25683.shtml)
+- 2026-06-29 22:00 - [巴西队主帅称日本队是世界最佳之一](http://www.share.minike.top/Article/details/6218977831.shtml)
+- 2026-06-29 22:09 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/1953127664.shtml)
+- 2026-06-29 21:55 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.minike.top/Article/details/945092.shtml)
+- 2026-06-29 22:05 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/798018650220.shtml)
+- 2026-06-29 22:14 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/9079880137.shtml)

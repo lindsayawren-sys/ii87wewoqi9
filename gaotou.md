@@ -1,56 +1,61 @@
-# 民建邯郸市委召开十二届二次主委会暨理论学习中心组2026年第二次学习会议
+# 美联储维持利率不变 鲍威尔称将留任理事
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-为推进“参政为公、实干为民”主题教育走深走实、见行见效，凝聚思想政治共识、汇聚团结奋进力量，6月4日，民建邯郸市委召开十二届二次主委会暨理论学习中心组2026年第二次学习会议。民建邯郸市委主委凌涛主持会议，民建邯郸市委副主委王铁炜、杨晓梅、马腾壑、吴双印、张建平参加会议。会议学习了习近平总书记重要文章《前瞻布局和发展未来产业》，学习了各民主党派中央、全国工商联、无党派代表人士队
+中新社纽约4月29日电(记者 王帆)美国联邦储备委员会29日宣布，将联邦基金利率目标区间维持在3.5%至3.75%之间的水平不变。这是美联储今年连续第三次选择“按兵不动”，符合市场预期，但决策过程中有4人投反对票，凸显内部分歧加剧。美联储在为期两天的货币政策例会后发表声明称，近期各项指标表明美国经济活动在稳健扩张。新增就业岗位数量仍然较低，近几个月来失业率变化不大。通货膨胀率处
 
 ## 正文
 
-为推进“参政为公、实干为民”主题教育走深走实、见行见效，凝聚思想政治共识、汇聚团结奋进力量，6月4日，民建邯郸市委召开十二届二次主委会暨理论学习中心组2026年第二次学习会议。
+中新社纽约4月29日电(记者 王帆)美国联邦储备委员会29日宣布，将联邦基金利率目标区间维持在3.5%至3.75%之间的水平不变。
 
-民建邯郸市委主委凌涛主持会议，民建邯郸市委副主委王铁炜、杨晓梅、马腾壑、吴双印、张建平参加会议。
+这是美联储今年连续第三次选择“按兵不动”，符合市场预期，但决策过程中有4人投反对票，凸显内部分歧加剧。
 
-会议学习了习近平总书记重要文章《前瞻布局和发展未来产业》，学习了各民主党派中央、全国工商联、无党派代表人士队伍建设研讨会精神，学习了中共邯郸市委十届十二次全会精神，讨论通过了民建邯郸市第十二届专门委员会事宜，安排了近期工作。
+美联储在为期两天的货币政策例会后发表声明称，近期各项指标表明美国经济活动在稳健扩张。
 
-会议还研究了其它事项。
+新增就业岗位数量仍然较低，近几个月来失业率变化不大。
 
-会议强调，深入开展“参政为公、实干为民”主题教育，必须始终以坚持中国共产党领导、巩固团结奋斗共同思想政治基础为根本目标，加强自身建设、发挥我国新型政党制度优势，服务“十五五”高质量开局、助力中国式现代化，让“学思想、讲大局、重实干、出实绩”的总要求全面体现、深度落实。
+通货膨胀率处于较高水平，部分反映了近期全球能源价格的上涨。
 
-会议要求，要深入学习贯彻习近平新时代中国特色社会主义思想，自觉赓续“与党同心、爱国为民、精诚合作、敬业奉献”的优良传统，始终在思想上政治上行动上同以习近平同志为核心的中共中央保持高度一致。
+美联储寻求在较长时期内实现充分就业和2%通胀目标。
 
-要把“公心”融入参政履职的全过程，把“民心”作为干事创业的风向标，树立“政绩为谁而树、树什么样的政绩、靠什么树政绩”的正确导向。
+中东局势的发展加剧了经济前景的不确定性。
 
-要发挥“关键少数”的示范作用，带头深入基层、贴近群众，在调查研究中摸清实情、找准对策，在社会服务中践行初心、展现作为。
+美联储密切关注其双重使命面临的风险。
 
 ## 相关推荐
 
-- 2026-06-29 22:06 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 22:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 22:16 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 21:59 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 22:02 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 22:07 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 22:00 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 22:12 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 22:15 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 21:54 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 22:09 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 22:07 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 22:03 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 22:07 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 22:03 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 22:23 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 22:14 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 22:18 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 22:14 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 22:23 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 22:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 21:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 22:14 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 22:15 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 22:02 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/8415355125.shtml)
-- 2026-06-29 22:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/4189179.shtml)
-- 2026-06-29 21:53 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/39527.shtml)
-- 2026-06-29 21:55 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/6688053.shtml)
-- 2026-06-29 22:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/85342355.shtml)
-- 2026-06-29 21:54 - [起风了](https://www.share.kurohicncr.top/Article/details/19284329.shtml)
-- 2026-06-29 21:49 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/95376741190.shtml)
-- 2026-06-29 22:07 - [月亮](https://www.blog.minike.top/Article/details/68951981750.shtml)
-- 2026-06-29 22:08 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/361569111.shtml)
-- 2026-06-29 22:06 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/815404612.shtml)
-- 2026-06-29 21:48 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/5410348774.shtml)
-- 2026-06-29 22:02 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/25188.shtml)
-- 2026-06-29 22:03 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/17022574050.shtml)
-- 2026-06-29 22:01 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/588901426574.shtml)
-- 2026-06-29 21:50 - [沉睡花园](http://www.blog.minike.top/Article/details/4570125.shtml)
+- 2026-06-29 21:57 - [英法德葡存在什么隐患](https://www.share.minike.top/Article/details/154133061.shtml)
+- 2026-06-29 22:23 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/86239224.shtml)
+- 2026-06-29 22:00 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/2076870996.shtml)
+- 2026-06-29 21:54 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/6606693.shtml)
+- 2026-06-29 22:03 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/28796386299.shtml)
+- 2026-06-29 21:58 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/4019020.shtml)
+- 2026-06-29 22:12 - [任泽平：AI浪潮刚刚开始](https://www.share.minike.top/Article/details/03463582244.shtml)
+- 2026-06-29 21:57 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.kurohicncr.top/Article/details/3192432.shtml)
+- 2026-06-29 22:00 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/86256626435.shtml)
+- 2026-06-29 21:56 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.minike.top/Article/details/78936822308.shtml)
+- 2026-06-29 22:07 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/696975223124.shtml)
+- 2026-06-29 22:19 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/11094.shtml)
+- 2026-06-29 22:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/18185.shtml)
+- 2026-06-29 22:13 - [月亮](http://www.share.kurohicncr.top/Article/details/420847340.shtml)
+- 2026-06-29 21:59 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/575463.shtml)

@@ -1,50 +1,61 @@
-# 外媒：巴林拉响防空警报
+# 外交部：日本“新型军国主义”成势为患 已对世界和平稳定构成现实威胁
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-中新网6月6日电 据卡塔尔半岛电视台报道，当地时间6日，巴林拉响防空警报。巴林内政部在社交媒体上发文，呼吁民众保持冷静并前往最近的安全地点。 巴林内政部没有说明拉响防空警报的具体原因。
+4月30日，外交部发言人林剑主持例行记者会。有记者问：据报道，日本已敲定修改自卫队官阶名称的方案，并计划于年内向国会提交相关修订草案。新的更名方案将恢复二战结束前日本军队的“大将”“大佐”等称谓。发言人对此有何评论？ 林剑表示，如今日方要谋求恢复二战时军衔称谓，并且堂而皇之地以“荣誉感”为由，这是在制度与认知层面搞突破，也是在受害国人民的伤口上撒盐，我们不禁要问日方是否仍沉迷于
 
 ## 正文
 
-中新网6月6日电 据卡塔尔半岛电视台报道，当地时间6日，巴林拉响防空警报。
+4月30日，外交部发言人林剑主持例行记者会。
 
-巴林内政部在社交媒体上发文，呼吁民众保持冷静并前往最近的安全地点。
+有记者问：据报道，日本已敲定修改自卫队官阶名称的方案，并计划于年内向国会提交相关修订草案。
 
-巴林内政部没有说明拉响防空警报的具体原因。
+新的更名方案将恢复二战结束前日本军队的“大将”“大佐”等称谓。
+
+发言人对此有何评论？
+
+林剑表示，如今日方要谋求恢复二战时军衔称谓，并且堂而皇之地以“荣誉感”为由，这是在制度与认知层面搞突破，也是在受害国人民的伤口上撒盐，我们不禁要问日方是否仍沉迷于重温军国主义旧梦？
+
+所谓的“荣誉感”究竟又指的是什么？
+
+日本“新型军国主义”成势为患，已对世界的和平稳定构成现实威胁，包括中国人民在内的国际社会正义力量都应当对此高度警惕，坚决维护二战胜利成果，绝不让历史悲剧再度上演。
+
+（总台央视记者 赵晶）责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 22:15 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 22:01 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 21:51 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 21:50 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 21:49 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 22:00 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 22:06 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 22:02 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 22:11 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 22:00 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 22:05 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 21:48 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 21:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 21:58 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 22:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 22:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 22:06 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 22:09 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 22:10 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 21:55 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 22:23 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 22:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 21:54 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 22:05 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 22:09 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 22:19 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 22:19 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 22:01 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 21:58 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:12 - [炽夏](http://www.blog.minike.top/Article/details/22007965058.shtml)
-- 2026-06-29 21:59 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/750992685.shtml)
-- 2026-06-29 21:51 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/44935.shtml)
-- 2026-06-29 21:48 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/0359954656.shtml)
-- 2026-06-29 21:50 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/944053466.shtml)
-- 2026-06-29 22:10 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/4499638222.shtml)
-- 2026-06-29 21:48 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/646422.shtml)
-- 2026-06-29 21:53 - [世界杯高票价为何没劝退球迷](https://www.share.kurohicncr.top/Article/details/6111579276.shtml)
-- 2026-06-29 21:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/44668.shtml)
-- 2026-06-29 21:51 - [记者暗访养老机构消防安全](http://www.share.minike.top/Article/details/3910178849.shtml)
-- 2026-06-29 21:49 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/2401994.shtml)
-- 2026-06-29 22:05 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/26187497.shtml)
-- 2026-06-29 21:58 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/475114.shtml)
-- 2026-06-29 22:11 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/66469.shtml)
-- 2026-06-29 21:48 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/29328164.shtml)
+- 2026-06-29 22:04 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/70673673041.shtml)
+- 2026-06-29 22:03 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/293268002.shtml)
+- 2026-06-29 22:09 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/81802096.shtml)
+- 2026-06-29 22:06 - [极限挑战第一季](https://www.blog.minike.top/Article/details/0065547.shtml)
+- 2026-06-29 22:11 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/00313997.shtml)
+- 2026-06-29 21:55 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/5765673151.shtml)
+- 2026-06-29 22:18 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/384892415142.shtml)
+- 2026-06-29 21:57 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/73759.shtml)
+- 2026-06-29 22:18 - [啊啊啊](https://www.blog.minike.top/Article/details/0691100.shtml)
+- 2026-06-29 22:08 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/56632322712.shtml)
+- 2026-06-29 22:03 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/09433.shtml)
+- 2026-06-29 22:19 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/7331898.shtml)
+- 2026-06-29 22:11 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/906293154.shtml)
+- 2026-06-29 22:20 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/15223.shtml)
+- 2026-06-29 22:08 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/574417200.shtml)

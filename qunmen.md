@@ -1,55 +1,58 @@
-# 吴清：基金行业服务投资者超过8.6亿人渗透率达60%，公募近五年累计分红2.5万亿元
+# 马斯克连续第二天出庭作证，详述与OpenAI关系彻底破裂
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。吴清表示，近年来，基金行业主动适应居民多元化资产配置需要，加快推动指数型、配置型、绝对收益产品发展，服务投资者超过8.6亿人、渗透率达60%。其中，公募基金规模已突破39万亿元，五年来累计分红2.5万亿元，为投资者创造
+马斯克进入庭审作证第二天，在交叉质询环节与 OpenAI 代理律师激烈争辩。双方律师都聚焦于马斯克与这家开启全球人工智能竞赛的机构之间持续恶化的关系。 马斯克指控，OpenAI 变更公司架构，背弃了最初的非营利使命；而 OpenAI 则辩称，马斯克发起诉讼，目的是打压 OpenAI，为他自家人工智能公司 xAI 扫清竞争对手。 马斯克的代理律师呈上了这位亿万富豪与 OpenAI
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+马斯克进入庭审作证第二天，在交叉质询环节与 OpenAI 代理律师激烈争辩。
 
-6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。
+双方律师都聚焦于马斯克与这家开启全球人工智能竞赛的机构之间持续恶化的关系。
 
-吴清表示，近年来，基金行业主动适应居民多元化资产配置需要，加快推动指数型、配置型、绝对收益产品发展，服务投资者超过8.6亿人、渗透率达60%。
+马斯克指控，OpenAI 变更公司架构，背弃了最初的非营利使命；而 OpenAI 则辩称，马斯克发起诉讼，目的是打压 OpenAI，为他自家人工智能公司 xAI 扫清竞争对手。
 
-其中，公募基金规模已突破39万亿元，五年来累计分红2.5万亿元，为投资者创造利润3.6万亿元，已成为投资者共享中国经济发展红利的重要渠道之一。
+马斯克的代理律师呈上了这位亿万富豪与 OpenAI 高层（包括 CEO 山姆・奥尔特曼）过往的往来通信，用以佐证 OpenAI 存在误导行为。
 
-私募证券投资基金规模超过7.8万亿元，较“十三五”末增长近一倍，在满足差异化资产配置需求方面发挥着越来越重要的作用。
+OpenAI 律师威廉・萨维特则接连质询马斯克：他对公司的实际贡献、以及设立营利主体是否最初源自他的想法。
 
-责任编辑：常福强
+双方交锋数次气氛紧张，萨维特多次要求马斯克只能用 “是” 或 “否” 作答。
+
+马斯克将于周四连续第三天出庭作证。
+
+OpenAI 律师将完成交叉质询，随后马斯克的律师将展开第二轮问询。
 
 ## 相关推荐
 
-- 2026-06-29 21:50 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 22:04 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 22:04 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 22:15 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 22:12 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 21:48 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 21:48 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 21:55 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 22:08 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 21:55 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 22:17 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 22:11 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 22:14 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 22:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 21:54 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 22:00 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 22:16 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 21:54 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 22:21 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 22:00 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 22:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 21:55 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 22:22 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 22:14 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 22:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:13 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/323745094.shtml)
-- 2026-06-29 21:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/8636673.shtml)
-- 2026-06-29 22:17 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/29459029763.shtml)
-- 2026-06-29 21:59 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/66041730.shtml)
-- 2026-06-29 22:15 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/329315916.shtml)
-- 2026-06-29 22:12 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.minike.top/Article/details/7118686.shtml)
-- 2026-06-29 22:01 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/23572166.shtml)
-- 2026-06-29 21:53 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/443603209197.shtml)
-- 2026-06-29 22:15 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/998177010.shtml)
-- 2026-06-29 21:58 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/359211.shtml)
-- 2026-06-29 22:16 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/4299593000.shtml)
-- 2026-06-29 22:09 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/81235420012.shtml)
-- 2026-06-29 21:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/064437.shtml)
-- 2026-06-29 21:53 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/686446384.shtml)
-- 2026-06-29 21:49 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/56811509.shtml)
+- 2026-06-29 22:11 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/227728216.shtml)
+- 2026-06-29 22:21 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/7602626970.shtml)
+- 2026-06-29 21:54 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/132473138.shtml)
+- 2026-06-29 21:59 - [英法德葡存在什么隐患](https://www.blog.minike.top/Article/details/8395883.shtml)
+- 2026-06-29 22:01 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/41714161.shtml)
+- 2026-06-29 22:00 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/4367643.shtml)
+- 2026-06-29 22:06 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/26688.shtml)
+- 2026-06-29 22:20 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/689366304021.shtml)
+- 2026-06-29 22:12 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/39436887.shtml)
+- 2026-06-29 22:00 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/3979860769.shtml)
+- 2026-06-29 22:06 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/04308.shtml)
+- 2026-06-29 22:10 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/04508462707.shtml)
+- 2026-06-29 21:56 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/7646826.shtml)
+- 2026-06-29 22:01 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/48004604971.shtml)
+- 2026-06-29 22:16 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/7030084616.shtml)

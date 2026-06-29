@@ -1,58 +1,56 @@
-# 516斤胖友在沪成功减重近100斤
+# 河南：中铁装备可变径圆形顶管机集群下线 将用于迪拜市政工程
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-中新网上海6月5日电 (记者 陈静)记者5日获悉，体重曾达516斤的林楠(化名)在沪接受了干预和微创手术(腹腔镜袖状胃切除术)。术后，上海多学科医生合作，对其开展加速康复策略和精细化管理，如今他成功减重近100斤。29岁的林楠因重度肥胖引发多种严重代谢疾病，日常起居、睡眠行动均严重受限，生命健康长期处于高危状态。为保障手术安全、最大化减重效果，上海交通大学医学院附属新华医院先为
+凤何以成为中华民族文化标识？“王的盛宴”：从“No Kings”到“TWO KINGS”“王的演讲”：满堂笑声之后，查尔斯说了大家爱听的，唯独漏了英美必须听的记者手记：亚沙会，让世界从三亚看见开放中国AI末日论：真实风险还是叙事陷阱？伊朗战事已烧250亿美元？美国国会听证会大打“口水仗”电子烟携带不吸也违法！香港控烟新规生效人这一辈子，一定要去一趟东方！AI短剧疑融脸肖战王一博
 
 ## 正文
 
-中新网上海6月5日电 (记者 陈静)记者5日获悉，体重曾达516斤的林楠(化名)在沪接受了干预和微创手术(腹腔镜袖状胃切除术)。
+凤何以成为中华民族文化标识？
 
-术后，上海多学科医生合作，对其开展加速康复策略和精细化管理，如今他成功减重近100斤。
+“王的盛宴”：从“No Kings”到“TWO KINGS”“王的演讲”：满堂笑声之后，查尔斯说了大家爱听的，唯独漏了英美必须听的记者手记：亚沙会，让世界从三亚看见开放中国AI末日论：真实风险还是叙事陷阱？
 
-29岁的林楠因重度肥胖引发多种严重代谢疾病，日常起居、睡眠行动均严重受限，生命健康长期处于高危状态。
+伊朗战事已烧250亿美元？
 
-为保障手术安全、最大化减重效果，上海交通大学医学院附属新华医院先为其开展阶段性术前干预治疗，通过营养、运动、药物、心理多维度调理，帮助患者体重从516斤降至454斤，心肺、代谢、肝功能指标逐步改善，多种合并症得到初步控制。
+美国国会听证会大打“口水仗”电子烟携带不吸也违法！
 
-为攻克超高体重患者手术难题，医院组建普外科、麻醉科、呼吸内科、心理科等多学科核心诊疗团队，通过多次联合会诊，全面排查手术风险，结合患者身体耐受度，敲定个性化手术及围手术期诊疗方案，为高难度手术的顺利实施做好全方位筹备。
+香港控烟新规生效人这一辈子，一定要去一趟东方！
 
-5月中下旬，普外科专家龚伟带领减重外科团队，为林楠实施腹腔镜袖状胃切除术。
+AI短剧疑融脸肖战王一博？
 
-本次手术面临多重挑战，患者的超大体重导致腹腔脂肪大量堆积，手术视野暴露、解剖结构分离、穿刺点位选择均存在极大阻碍；同时，重度肥胖引发的心肺功能储备不足，也让麻醉诱导、术中生命体征维持面临严峻挑战。
+律师分析如何认定AI角色构成肖像权侵权孙杨工作室：“妈妈致电节目组删除嘉宾言论”为恶意捏造“长期封锁”伊朗，美国的财政扛得住吗？
 
-整场手术仅耗时2小时，术中患者出血量仅10ml。
+不抄硅谷、不仿德国，中国金融支持创新如何走出“第三条路”？
 
 ## 相关推荐
 
-- 2026-06-29 21:55 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 22:05 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 21:53 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 22:07 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 22:00 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 22:01 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 21:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 21:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 22:08 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 22:17 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 22:10 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 22:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 21:59 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 22:21 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 22:14 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 22:10 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 22:02 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 22:05 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 22:03 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 22:05 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 22:01 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 21:54 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:12 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/192399443.shtml)
-- 2026-06-29 22:08 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/42827560.shtml)
-- 2026-06-29 22:11 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/467314.shtml)
-- 2026-06-29 22:00 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/1311936515.shtml)
-- 2026-06-29 22:00 - [天道](http://www.blog.minike.top/Article/details/1197388627.shtml)
-- 2026-06-29 22:14 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/5956113.shtml)
-- 2026-06-29 21:58 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/3428906.shtml)
-- 2026-06-29 21:59 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/1017521.shtml)
-- 2026-06-29 22:00 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/0206011.shtml)
-- 2026-06-29 22:08 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/09328796811.shtml)
-- 2026-06-29 21:57 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/93170330271.shtml)
-- 2026-06-29 21:56 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/16038.shtml)
-- 2026-06-29 21:59 - [炽夏](https://www.blog.minike.top/Article/details/0586854.shtml)
-- 2026-06-29 21:48 - [新官上任三把火](https://www.blog.minike.top/Article/details/260815514925.shtml)
-- 2026-06-29 22:17 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/66836088.shtml)
+- 2026-06-29 22:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/42458260240.shtml)
+- 2026-06-29 22:01 - [沙丘](http://www.blog.kurohicncr.top/Article/details/297535774.shtml)
+- 2026-06-29 22:02 - [济南航空航天全面起势](https://www.blog.minike.top/Article/details/0088161.shtml)
+- 2026-06-29 22:02 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/785807.shtml)
+- 2026-06-29 22:02 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/160075269.shtml)
+- 2026-06-29 22:02 - [《贺子珍》](http://www.blog.minike.top/Article/details/4025095936.shtml)
+- 2026-06-29 22:04 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.kurohicncr.top/Article/details/534149741455.shtml)
+- 2026-06-29 22:13 - [返利科技盘中上演“天地板”](https://www.share.kurohicncr.top/Article/details/70763357.shtml)
+- 2026-06-29 22:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/50439614687.shtml)
+- 2026-06-29 22:22 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/5769691.shtml)
+- 2026-06-29 22:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/85361.shtml)
+- 2026-06-29 22:02 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/815305.shtml)
+- 2026-06-29 22:16 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/95115.shtml)
+- 2026-06-29 21:55 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/431785509.shtml)
+- 2026-06-29 22:21 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/7897025.shtml)

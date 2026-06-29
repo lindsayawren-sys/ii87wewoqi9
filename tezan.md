@@ -1,60 +1,56 @@
-# 数据中心业务潜力受关注，Hyliion股价创52周新高
+# 芒果超媒连续两年业绩双降、归母净利润近乎腰斩 内容投入“高成本、低转化”毛利率创8年新低
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-Hyliion Holdings股价周四跳涨逾15%，盘中触及7.48美元的52周新高。投资者对该公司KARNO发电模块在数据中心领域的应用前景表现出浓厚兴趣，推动该股延续近期强劲涨势。 此前一天，该股收盘价为6.46美元。周四开盘后股价迅速走高，最终收于7.47美元，涨幅达15.63%，市值升至约13.3亿美元。 市场关注焦点集中在Hyliion KARNO发电模块针对AI数
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！ 出品：新浪财经上市公司研究院 作者：cici 近日，芒果发布2025年及2026年第一季度成绩单。2025年全年营收138.13亿元，同比减少1.89%；归母净利润12.27亿元，同比减少10.06%。2026年第一季度营收30.84亿元，同比增长6.35%；归母净利润1.99亿元，同比暴跌47.37%。
 
 ## 正文
 
-Hyliion Holdings股价周四跳涨逾15%，盘中触及7.48美元的52周新高。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-投资者对该公司KARNO发电模块在数据中心领域的应用前景表现出浓厚兴趣，推动该股延续近期强劲涨势。
+出品：新浪财经上市公司研究院 作者：cici 近日，芒果发布2025年及2026年第一季度成绩单。
 
-此前一天，该股收盘价为6.46美元。
+2025年全年营收138.13亿元，同比减少1.89%；归母净利润12.27亿元，同比减少10.06%。
 
-周四开盘后股价迅速走高，最终收于7.47美元，涨幅达15.63%，市值升至约13.3亿美元。
+2026年第一季度营收30.84亿元，同比增长6.35%；归母净利润1.99亿元，同比暴跌47.37%。
 
-市场关注焦点集中在Hyliion KARNO发电模块针对AI数据中心市场的布局。
+自2018年重组上市以来，芒果超媒曾凭借“国有背景+市场化运作”的独特模式，在长视频行业连续多年实现盈利，被誉为“长视频行业唯一的盈利之光”。
 
-该公司CEO Thomas Healy近期表示，随着AI应用对电力的需求急剧上升，传统电网基础设施已难以满足新建数据中心的需求，等待电网连接的时间可能长达数年。
+然而过去两年，这道光正变得越来越暗淡。
 
-这一背景下，KARNO模块化的现场发电方案成为数据中心运营商寻求替代能源选项时的重要考量。
+Wind数据显示，芒果超媒的营收和净利润已连续两年下滑。
 
-根据公司第一季度财报，Hyliion已与数据中心开发商VFG Holdings签署了非约束性意向书，计划在未来五年内部署多达250个KARNO核心，总发电容量约50兆瓦。
+2025年本就是疲态尽显的一年，进入2026年，尽管营收端出现回暖迹象，利润层面却断崖式下跌近五成。
 
 ## 相关推荐
 
-- 2026-06-29 21:53 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 22:11 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 22:11 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 22:13 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 22:09 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 22:16 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 22:09 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 21:57 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 22:03 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 22:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 22:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 22:16 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 21:59 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 22:00 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 21:58 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 22:23 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 22:08 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 21:57 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 22:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 22:04 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 22:19 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 22:22 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 22:22 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 22:02 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:11 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/711605.shtml)
-- 2026-06-29 22:12 - [多人将马路护栏当球网打羽毛球](http://www.share.kurohicncr.top/Article/details/33122858214.shtml)
-- 2026-06-29 21:49 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/4050506950.shtml)
-- 2026-06-29 22:15 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/64588502930.shtml)
-- 2026-06-29 22:00 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/096895.shtml)
-- 2026-06-29 22:02 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/0839685751.shtml)
-- 2026-06-29 22:03 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/909536.shtml)
-- 2026-06-29 21:53 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/3588188.shtml)
-- 2026-06-29 21:49 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/863112.shtml)
-- 2026-06-29 22:15 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/868813217924.shtml)
-- 2026-06-29 21:52 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/999022.shtml)
-- 2026-06-29 22:10 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/31582152881.shtml)
-- 2026-06-29 22:05 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/448017.shtml)
-- 2026-06-29 22:03 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/15199.shtml)
-- 2026-06-29 21:50 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/74691717324.shtml)
+- 2026-06-29 21:59 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/403911715.shtml)
+- 2026-06-29 22:22 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/497006804386.shtml)
+- 2026-06-29 22:03 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/37689.shtml)
+- 2026-06-29 22:11 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/0153706.shtml)
+- 2026-06-29 22:00 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/3797121.shtml)
+- 2026-06-29 22:22 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.minike.top/Article/details/078217729131.shtml)
+- 2026-06-29 22:19 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/02600698383.shtml)
+- 2026-06-29 21:58 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/28079606.shtml)
+- 2026-06-29 22:20 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/196423.shtml)
+- 2026-06-29 22:13 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/4896869.shtml)
+- 2026-06-29 22:22 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/1942244034.shtml)
+- 2026-06-29 22:06 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/121391.shtml)
+- 2026-06-29 22:12 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/466674.shtml)
+- 2026-06-29 22:23 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/55586528.shtml)
+- 2026-06-29 22:11 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/16448.shtml)

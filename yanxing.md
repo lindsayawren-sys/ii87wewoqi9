@@ -1,56 +1,48 @@
-# 特朗普称相信美国和印度将达成期待已久的贸易协议
+# 地铁里小朋友想要站座椅上看窗外 老人出手竟这般暖心 网友：细节见文明 为你们点赞
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普表示，相信华盛顿和新德里在本周结束新一轮谈判后，将达成期待已久的贸易协议。 “我们会达成协议的，因为我喜欢，你知道的，我非常喜欢你们的总理。”特朗普周四在椭圆形办公室对记者说，“他是我的好朋友。我们相处得很好，而且我们将达成协议。我们的关系非常好。”特朗普说的是印度总理纳伦德拉·莫迪。 在几个小时前，印度商务部表示，双方仍致力于达成双边贸易协定。由首席谈判
+发布时间：2026年04月30日 19:42 来源：中国新闻网 地铁里小朋友想要站座椅上看窗外，老人出手竟这般暖心，网友：细节见文明，为你们点赞！ 责任编辑：【李光伟】
 
 ## 正文
 
-美国总统唐纳德·特朗普表示，相信华盛顿和新德里在本周结束新一轮谈判后，将达成期待已久的贸易协议。
+发布时间：2026年04月30日 19:42 来源：中国新闻网 地铁里小朋友想要站座椅上看窗外，老人出手竟这般暖心，网友：细节见文明，为你们点赞！
 
-“我们会达成协议的，因为我喜欢，你知道的，我非常喜欢你们的总理。
-
-”特朗普周四在椭圆形办公室对记者说，“他是我的好朋友。
-
-我们相处得很好，而且我们将达成协议。
-
-我们的关系非常好。
-
-”特朗普说的是印度总理纳伦德拉·莫迪。
-
-在几个小时前，印度商务部表示，双方仍致力于达成双边贸易协定。
-
-由首席谈判代表Brendan Lynch率领的美国代表团本周在新德里，旨在推进谈判进程并敲定临时协议的细节。
+责任编辑：【李光伟】
 
 ## 相关推荐
 
-- 2026-06-29 22:14 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 22:07 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 22:16 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 21:56 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 21:56 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 21:52 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 22:06 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 22:10 - [温网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 22:05 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 22:08 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 21:57 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 22:09 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 22:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 21:58 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 22:09 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 22:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 21:55 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 21:55 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 21:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 21:58 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 22:22 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 22:09 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 22:21 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 22:07 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:04 - [多人将马路护栏当球网打羽毛球](http://www.share.kurohicncr.top/Article/details/90625166.shtml)
-- 2026-06-29 21:54 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/5446316731.shtml)
-- 2026-06-29 21:57 - [急先锋](http://www.blog.kurohicncr.top/Article/details/6151284743.shtml)
-- 2026-06-29 22:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/652769005938.shtml)
-- 2026-06-29 21:53 - [斗破苍穹](http://www.blog.minike.top/Article/details/490684626.shtml)
-- 2026-06-29 21:53 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/456215857307.shtml)
-- 2026-06-29 22:17 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/164814261988.shtml)
-- 2026-06-29 22:13 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/14379811321.shtml)
-- 2026-06-29 21:57 - [TOP Prada](http://www.blog.minike.top/Article/details/70574410696.shtml)
-- 2026-06-29 22:05 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/273509044.shtml)
-- 2026-06-29 22:01 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/850259779.shtml)
-- 2026-06-29 21:51 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/396622269.shtml)
-- 2026-06-29 22:14 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/515077.shtml)
-- 2026-06-29 22:15 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/18742.shtml)
-- 2026-06-29 21:54 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/1741686.shtml)
+- 2026-06-29 22:19 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/5134408075.shtml)
+- 2026-06-29 21:57 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/2936436.shtml)
+- 2026-06-29 22:07 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/031797194020.shtml)
+- 2026-06-29 21:55 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/335430367.shtml)
+- 2026-06-29 22:10 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/81613706339.shtml)
+- 2026-06-29 21:54 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/429265958.shtml)
+- 2026-06-29 21:57 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/144260274501.shtml)
+- 2026-06-29 21:59 - [一生一世](http://www.blog.minike.top/Article/details/998493.shtml)
+- 2026-06-29 22:14 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/67040.shtml)
+- 2026-06-29 22:22 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/09375.shtml)
+- 2026-06-29 22:00 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/113854998879.shtml)
+- 2026-06-29 21:54 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/165984843.shtml)
+- 2026-06-29 22:08 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/19708941.shtml)
+- 2026-06-29 21:59 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/0948013928.shtml)
+- 2026-06-29 22:08 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/8553139951.shtml)

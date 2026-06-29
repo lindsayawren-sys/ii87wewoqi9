@@ -1,58 +1,60 @@
-# 粉笔上市三年半市值近乎腰斩！CEO张小龙:“炒股是最有潜力就业方向”
+# 广东海警局开展“清港清湾”行动 维护休渔秩序
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-近日，在线职业教育公司粉笔（02469.HK）创始人、CEO张小龙在一场面向高校学子的讲座中公开表示，“炒股是未来最有潜力的就业方向”，并以个人携8000万元资金入市、月赚5300万元的经历为例，鼓励学生尽早参与资本市场。讲座期间因不满学生互动状态，张小龙情绪失控，相关录音火速在全网扩散。 受言论风波冲击，粉笔股价接连下探，近两个交易日累计跌幅达12%；截至6月5日收盘，该股较
+中新网广州4月29日电 (方伟彬 邓容烜 周培跃)广东海警局29日发布消息，该局统筹各级机构，以“清港清湾”“普法宣传”等活动一体推进联动执法，共同维护休渔秩序，守护海洋生态与渔业资源可持续发展。 据广东海警局介绍，5月1日12时，南海全面进入2026年伏季休渔期，新修订的《中华人民共和国渔业法》(下称新《渔业法》)同步施行。 在“清港清湾”方面，行动实现全域覆盖，通过立体管控
 
 ## 正文
 
-近日，在线职业教育公司粉笔（02469.HK）创始人、CEO张小龙在一场面向高校学子的讲座中公开表示，“炒股是未来最有潜力的就业方向”，并以个人携8000万元资金入市、月赚5300万元的经历为例，鼓励学生尽早参与资本市场。
+中新网广州4月29日电 (方伟彬 邓容烜 周培跃)广东海警局29日发布消息，该局统筹各级机构，以“清港清湾”“普法宣传”等活动一体推进联动执法，共同维护休渔秩序，守护海洋生态与渔业资源可持续发展。
 
-讲座期间因不满学生互动状态，张小龙情绪失控，相关录音火速在全网扩散。
+据广东海警局介绍，5月1日12时，南海全面进入2026年伏季休渔期，新修订的《中华人民共和国渔业法》(下称新《渔业法》)同步施行。
 
-受言论风波冲击，粉笔股价接连下探，近两个交易日累计跌幅达12%；截至6月5日收盘，该股较2026年初累计跌幅已超过70%，上市3年半，市值已蒸发超过九成，沦为“仙股”，公司总市值目前维持在约13亿港元水平。
+在“清港清湾”方面，行动实现全域覆盖，通过立体管控筑牢防线。
 
-一场变味的“职业规划讲座” 近日粉笔股价持续走弱，导火索源于6月3日在中国人民大学哲学院举办的一场讲座。
+潮州、揭阳、惠州、东莞、江门、茂名、湛江等海警机构联合公安、农业农村、海洋综合执法及当地村镇等单位，构建“海上巡查+岸线管控+科技赋能”的立体防控网。
 
-据多家媒体报道，张小龙本次讲座原定主题为考公辅导行业分享，但在正式开场前临时调整为“AI时代的职业生涯规划”。
+广东多地加密巡逻频次，采取错峰执法、突击检查、无人机巡查、码头排查与视频轮巡相结合的方式，对辖区渔港、码头、岙口进行拉网式清查。
 
-然而在分享环节，张小龙并未解读AI时代趋势下的多元就业机遇，反而称“未来最有潜力的就业方向”是炒股，并分享个人携8000万元资金入市、月赚5300万元的经历。
+海警执法员重点核对船舶证书、核查停泊状态、检查网具封存情况，严查“三无”船舶与禁用渔具，精准锁定高风险点位，依法查扣违规船舶，快查严处顶风作案行为，确保应休渔船“船靠港、人上岸、网入库”，以高压态势从源头消除非法捕捞隐患。
 
-因对现场互动效果不满，张小龙情绪失控并发表不当言论，随后中途离场。
+在“普法宣传”方面，工作注重精准下沉，推动法治理念深入人心。
 
-相关录音及文字实录在网络迅速传播。
+该局坚持普法与执法并行，汕头、汕尾、广州、深圳、中山、珠海、阳江海警局积极开展“送法上船头、送法进渔村”宣传活动。
 
 ## 相关推荐
 
-- 2026-06-29 22:13 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 21:49 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 21:48 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 21:55 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 22:06 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 22:13 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 21:48 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 22:12 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 22:11 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 22:00 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 21:54 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 21:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 22:19 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 22:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 21:59 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 22:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 22:07 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 21:57 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 21:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 21:55 - [东方风云榜直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 21:56 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 22:16 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 22:07 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 22:10 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 22:09 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 21:55 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:03 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/354540309.shtml)
-- 2026-06-29 22:01 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/64056801.shtml)
-- 2026-06-29 22:13 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/22559980.shtml)
-- 2026-06-29 21:57 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.kurohicncr.top/Article/details/168422.shtml)
-- 2026-06-29 21:48 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/835524005.shtml)
-- 2026-06-29 21:59 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/125252569.shtml)
-- 2026-06-29 21:54 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/81655384.shtml)
-- 2026-06-29 22:17 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/1180986.shtml)
-- 2026-06-29 22:08 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/30491.shtml)
-- 2026-06-29 22:07 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/520842.shtml)
-- 2026-06-29 21:58 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/75420698.shtml)
-- 2026-06-29 22:12 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/93520274.shtml)
-- 2026-06-29 21:49 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/72901297.shtml)
-- 2026-06-29 22:17 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/549197.shtml)
-- 2026-06-29 22:05 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/9878428369.shtml)
+- 2026-06-29 21:59 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/9925752.shtml)
+- 2026-06-29 22:12 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/426614685.shtml)
+- 2026-06-29 22:14 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/53157549105.shtml)
+- 2026-06-29 21:57 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.minike.top/Article/details/3328199.shtml)
+- 2026-06-29 22:04 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/159354488859.shtml)
+- 2026-06-29 21:55 - [周杰伦千禧年就有小卡了](http://www.share.kurohicncr.top/Article/details/588265767.shtml)
+- 2026-06-29 21:54 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/610198.shtml)
+- 2026-06-29 22:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/480554.shtml)
+- 2026-06-29 22:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/057602.shtml)
+- 2026-06-29 22:22 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/31407.shtml)
+- 2026-06-29 22:16 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/155853556.shtml)
+- 2026-06-29 22:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/02468147.shtml)
+- 2026-06-29 22:14 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/8408697697.shtml)
+- 2026-06-29 22:04 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/75254.shtml)
+- 2026-06-29 22:23 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/273559.shtml)

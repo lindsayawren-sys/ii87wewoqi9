@@ -1,54 +1,59 @@
-# CPT Markets:金银波动关注油价与收益率
+# 国防部：中方愿与各方一道推动上合组织高质量发展
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-6月5日，CPT Markets表示，金银走势目前仍处在多重变量交织的环境中，美元、油价与美债收益率之间的联动，正在持续影响贵金属的短线定价。黄金一度承压而白银相对抗跌，也显示资金在避险与利率之间仍在反复权衡。 从交易背景看，CPT Markets认为油价走高会推升通胀担忧，进而抬高收益率与美元强度，这对黄金往往形成压制；但另一方面，能源风险又会保留部分防御需求，因此贵金属很难
+4月30日下午，国防部举行例行记者会，国防部新闻发言人张晓刚大校答记者问。 记者：中国国防部长董军刚刚访问俄罗斯、吉尔吉斯斯坦，并出席在吉举行的上海合作组织成员国国防部长会议。请介绍有关情况。 张晓刚：我们对董军部长访问俄罗斯、吉尔吉斯斯坦作了报道。董军部长出席上海合作组织成员国国防部长会议作大会发言时强调，习近平主席提出的全球发展倡议、全球安全倡议、全球文明倡议、全球治理倡议
 
 ## 正文
 
-6月5日，CPT Markets表示，金银走势目前仍处在多重变量交织的环境中，美元、油价与美债收益率之间的联动，正在持续影响贵金属的短线定价。
+4月30日下午，国防部举行例行记者会，国防部新闻发言人张晓刚大校答记者问。
 
-黄金一度承压而白银相对抗跌，也显示资金在避险与利率之间仍在反复权衡。
+记者：中国国防部长董军刚刚访问俄罗斯、吉尔吉斯斯坦，并出席在吉举行的上海合作组织成员国国防部长会议。
 
-从交易背景看，CPT Markets认为油价走高会推升通胀担忧，进而抬高收益率与美元强度，这对黄金往往形成压制；但另一方面，能源风险又会保留部分防御需求，因此贵金属很难出现单一方向的顺畅波动。
+请介绍有关情况。
 
-白银相较黄金表现更有韧性，也说明市场并未完全撤出金属板块，而是在不同品种之间重新分配风险。
+张晓刚：我们对董军部长访问俄罗斯、吉尔吉斯斯坦作了报道。
 
-接下来贵金属的节奏，仍将高度依赖宏观数据与外部市场对通胀路径的再判断。
+董军部长出席上海合作组织成员国国防部长会议作大会发言时强调，习近平主席提出的全球发展倡议、全球安全倡议、全球文明倡议、全球治理倡议，为动荡不安的世界注入宝贵的稳定性确定性。
 
-后续方面，CPT Markets分析称，若收益率回升放缓且油价波动收敛，黄金有望逐步稳住区间；若这两项变量再度同步走强，贵金属或仍将维持高波动运行。
+上合组织作为践行多边主义的典范，应坚定维护国际秩序，共同捍卫公平正义，协力推动完善安全治理，以共同发展消弭动荡冲突土壤，为实现本次会议倡导的“可持续和平、发展和繁荣”贡献上合力量。
 
-参考链接： https：//www.kitco.com/news/article/2026-06-01/silver-firms-while-gold-slips-hormuz-uncertainty-kitco-am-report责任编辑：陈平
+站在上合组织25周年新起点，中国军队愿与各方一道，不断提升机制效能，加强人员培训夯实基础，以行动导向筑牢安全屏障，推动组织实现更加团结、更重协作、更富活力、更有作为的高质量发展。
 
 ## 相关推荐
 
-- 2026-06-29 22:12 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 22:10 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 22:09 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 22:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 21:51 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 21:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 22:12 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 22:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 21:56 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 21:57 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 22:10 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 21:57 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 22:21 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 22:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 21:55 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 22:15 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 22:10 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 22:02 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 22:03 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 22:14 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 22:19 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 22:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 22:02 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 22:06 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 22:05 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/0035806283.shtml)
-- 2026-06-29 22:10 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/404218422.shtml)
-- 2026-06-29 21:51 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/6430851141.shtml)
-- 2026-06-29 22:08 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/38012956519.shtml)
-- 2026-06-29 21:49 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/9907411089.shtml)
-- 2026-06-29 22:00 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/4556234.shtml)
-- 2026-06-29 22:06 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/338035885165.shtml)
-- 2026-06-29 21:58 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/599855209.shtml)
-- 2026-06-29 22:07 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/52045071.shtml)
-- 2026-06-29 21:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/7281046263.shtml)
-- 2026-06-29 21:50 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/7563427.shtml)
-- 2026-06-29 21:50 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/1249981.shtml)
-- 2026-06-29 22:06 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/74585.shtml)
-- 2026-06-29 22:12 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/44090017.shtml)
-- 2026-06-29 22:05 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/64002762316.shtml)
+- 2026-06-29 22:23 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/6384246511.shtml)
+- 2026-06-29 22:19 - [任泽平：AI浪潮刚刚开始](http://www.blog.kurohicncr.top/Article/details/46375.shtml)
+- 2026-06-29 22:13 - [一汽大众黄金超混技术来袭](https://www.share.minike.top/Article/details/45760743858.shtml)
+- 2026-06-29 21:57 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.minike.top/Article/details/5445217351.shtml)
+- 2026-06-29 22:00 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/10101767.shtml)
+- 2026-06-29 21:57 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/9061027612.shtml)
+- 2026-06-29 21:55 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/222594185544.shtml)
+- 2026-06-29 22:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/0389063515.shtml)
+- 2026-06-29 22:08 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/26466.shtml)
+- 2026-06-29 21:56 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/7243824.shtml)
+- 2026-06-29 22:18 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/051881.shtml)
+- 2026-06-29 22:10 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/10838.shtml)
+- 2026-06-29 22:13 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/25994825139.shtml)
+- 2026-06-29 22:01 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/3522090929.shtml)
+- 2026-06-29 22:15 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/553272.shtml)

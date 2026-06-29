@@ -1,61 +1,56 @@
-# 全环节严密监管 江西开展烟花爆竹全链条安全集中整治工作
+# 东京审判中国检察官向哲濬之子向隆万：历史不容忘却
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-中新网南昌6月5日电 (记者 李韵涵)6月5日，江西省烟花爆竹“打非治违”工作新闻发布会在南昌召开。记者从会上了解到，今年五月初以来，江西收缴、查扣烟花爆竹成品6.5万余箱、原材料约260公斤。 “江西是烟花爆竹主要产区，安全生产责任重大。”据江西省政府副秘书长邵高介绍，今年5月初以来，江西省委、省政府充分研判违规原辅材料流入、订单转移可能引发的超能力生产、非法生产、非法运输等
+中新网绍兴4月30日电(林波 孙琳茹)“父亲在法庭上的样子，和我记忆中的他判若两人。”4月30日，上海交通大学东京审判研究中心名誉主任、东京审判中国检察官向哲濬之子向隆万接受中新网专访时，回忆起1946年5月父亲第一次在远东国际军事法庭上的影像，依然难掩激动。 当日，《远东国际军事法庭庭审记录·全译本》(以下简称《全译本》)首发式暨学术座谈会在浙江越秀外国语学院举行。 向隆万回
 
 ## 正文
 
-中新网南昌6月5日电 (记者 李韵涵)6月5日，江西省烟花爆竹“打非治违”工作新闻发布会在南昌召开。
+中新网绍兴4月30日电(林波 孙琳茹)“父亲在法庭上的样子，和我记忆中的他判若两人。
 
-记者从会上了解到，今年五月初以来，江西收缴、查扣烟花爆竹成品6.5万余箱、原材料约260公斤。
+”4月30日，上海交通大学东京审判研究中心名誉主任、东京审判中国检察官向哲濬之子向隆万接受中新网专访时，回忆起1946年5月父亲第一次在远东国际军事法庭上的影像，依然难掩激动。
 
-“江西是烟花爆竹主要产区，安全生产责任重大。
+当日，《远东国际军事法庭庭审记录·全译本》(以下简称《全译本》)首发式暨学术座谈会在浙江越秀外国语学院举行。
 
-”据江西省政府副秘书长邵高介绍，今年5月初以来，江西省委、省政府充分研判违规原辅材料流入、订单转移可能引发的超能力生产、非法生产、非法运输等突出风险，紧密部署从今年5月起至明年3月组织开展全省烟花爆竹全链条安全集中整治工作。
+向隆万回忆说，那一天，向哲濬驳斥了一位辩护律师的观点。
 
-截至目前，江西共查处涉烟花爆竹刑事案件11起、行政案件682起，抓获违法犯罪嫌疑人450人，责令企业停产整顿93家次，罚款50余万元，收缴、查扣烟花爆竹成品6.5万余箱、原材料约260公斤，检查从业单位3.8万余家次，督促整改隐患7300余处，约谈警示从业单位94家次，一大批长期隐蔽、反复反弹的顽固性隐患得到有力整治。
+对方声称，日中之间在1941年12月之前并不存在战争状态，因此起诉书中的相关指控不应成立。
 
-据了解，江西压实乡镇街道网格化排查责任，组织网格员、公安派出所、应急管理等力量，运用治安“三张图”和“慧探”App，聚焦高风险点位开展排查标注，排查可疑场所26万余处，重拳打击非法生产、储存烟花爆竹“黑窝点”。
+向哲濬当场严正指出，从“九一八”事变开始，成千上万的中国民众已经因此丧生，这是全世界都知道的事实。
 
-据介绍，公安机关发挥技术手段优势，加强情报研判，突出通道查控，查处非法、违规运输案件95起，会同乡镇和有关部门在重要省际口设置查缉点49个，排查可疑车辆6.7万余辆，查处非法、违规运输案件27起，牢牢守住入口“安全关”。
+“他在法庭上非常从容，但大义凛然。
 
-此外，江西各部门落实“管行业必须管安全、管业务必须管安全、管生产经营必须管安全”的要求，紧盯产、销、运、燃和质量全环节强化安全监管措施。
+”向隆万说，在他的成长记忆中，父亲是一位慈祥的老人，与邻里关系和睦。
 
 ## 相关推荐
 
-- 2026-06-29 21:50 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 22:17 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 21:49 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 21:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 22:16 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 22:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 21:55 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 22:06 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 22:12 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 21:51 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 21:51 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 22:06 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 22:01 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 22:12 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 21:59 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 22:16 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 22:11 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 22:21 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 22:19 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 22:06 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 22:21 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 22:03 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 22:05 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 22:11 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 22:15 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:11 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/13162.shtml)
-- 2026-06-29 22:14 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/981685992.shtml)
-- 2026-06-29 21:58 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/71271940515.shtml)
-- 2026-06-29 22:09 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/2471185.shtml)
-- 2026-06-29 22:07 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/409936229648.shtml)
-- 2026-06-29 22:08 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/5595893.shtml)
-- 2026-06-29 22:10 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/80435913718.shtml)
-- 2026-06-29 21:56 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/418508897745.shtml)
-- 2026-06-29 21:54 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/067446.shtml)
-- 2026-06-29 22:06 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/221431.shtml)
-- 2026-06-29 21:54 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/988299.shtml)
-- 2026-06-29 22:00 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/1915872.shtml)
-- 2026-06-29 21:50 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/63417286827.shtml)
-- 2026-06-29 21:59 - [一汽大众黄金超混技术来袭](http://www.share.kurohicncr.top/Article/details/64963.shtml)
-- 2026-06-29 22:17 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/327604571612.shtml)
+- 2026-06-29 22:05 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/33332476.shtml)
+- 2026-06-29 21:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/1307748.shtml)
+- 2026-06-29 22:12 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/212371652180.shtml)
+- 2026-06-29 21:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/8288875760.shtml)
+- 2026-06-29 22:06 - [房价什么时候能涨](https://www.share.minike.top/Article/details/937285.shtml)
+- 2026-06-29 21:55 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/22088.shtml)
+- 2026-06-29 22:01 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/918215.shtml)
+- 2026-06-29 22:17 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/0366493.shtml)
+- 2026-06-29 22:20 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/15652195700.shtml)
+- 2026-06-29 22:12 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/9048948.shtml)
+- 2026-06-29 22:20 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/6712644429.shtml)
+- 2026-06-29 22:05 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/6141245100.shtml)
+- 2026-06-29 22:02 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/33991050061.shtml)
+- 2026-06-29 22:12 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/073986145.shtml)
+- 2026-06-29 22:16 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/1846141202.shtml)

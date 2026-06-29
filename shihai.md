@@ -1,56 +1,60 @@
-# 贯城河复涌记
+# 净利上涨132.82%，大金重工为何不同
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-“中国式现代化是人与自然和谐共生的现代化。” ——习近平 一个人，30年，7张手绘图，记录下贵阳市贯城河失而复得之变。 最早的彩绘已泛黄，89岁的“老贵阳”雷月琴，每次翻阅这7张图，眼里总是泛着光。中国生态文明先进个人、全国优秀志愿者，义务巡河数十年。1994年第一次手绘贯城河周边区域图，贯城河标红线提示为“污染”。2004年，第二张手绘图中的贯城河变成了灰色的“死河”。200
+（来源：财经思享汇）为何是大金重工能够分到欧洲风电“大蛋糕”，而不是其他几家？作者 | 夏万明编辑 | 管东生2025年，中国的绿电企业走出了两个截然不同的走势。其中大金重工（002487.SZ）一路生花，股价实现四倍涨幅，营业总收入61.74亿元，增长63.34%；归母净利润为11.03亿元，更是增长132.82%。相比之下，隆基绿能（601012.SH）、晶科能源（6882
 
 ## 正文
 
-“中国式现代化是人与自然和谐共生的现代化。
+（来源：财经思享汇）为何是大金重工能够分到欧洲风电“大蛋糕”，而不是其他几家？
 
-” ——习近平 一个人，30年，7张手绘图，记录下贵阳市贯城河失而复得之变。
+作者 | 夏万明编辑 | 管东生2025年，中国的绿电企业走出了两个截然不同的走势。
 
-最早的彩绘已泛黄，89岁的“老贵阳”雷月琴，每次翻阅这7张图，眼里总是泛着光。
+其中大金重工（002487.SZ）一路生花，股价实现四倍涨幅，营业总收入61.74亿元，增长63.34%；归母净利润为11.03亿元，更是增长132.82%。
 
-中国生态文明先进个人、全国优秀志愿者，义务巡河数十年。
+相比之下，隆基绿能（601012.SH）、晶科能源（688223.SH）等龙头则相形见绌，业绩处于亏损状况，股价也跌宕起伏。
 
-1994年第一次手绘贯城河周边区域图，贯城河标红线提示为“污染”。
+这样的成绩在A股市场里虽不算顶尖，但在同行业却是独一份。
 
-2004年，第二张手绘图中的贯城河变成了灰色的“死河”。
+大金重工做到了逆势增长，而天顺风能（002531.SZ）、泰胜风能（300129.SZ）和天能重工（300569.SZ）三家企业的业绩基本呈下降趋势，其中两家处于亏损状态。
 
-2008至2015年4次落笔，1次标注“死河”，其余了无痕迹。
+更重要的是，2026年一季度，大金重工仍然保持增长势头。
 
-“喝上一口干净的水”，成了雷月琴的心愿。
+营业总收入19.07亿元，同比增长67.17%；归母净利润4.35亿元，同比增长88.19%。
 
 ## 相关推荐
 
-- 2026-06-29 22:04 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 22:04 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 22:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 22:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 21:57 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 21:58 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 22:17 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 22:00 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 22:00 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 21:52 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 22:17 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 22:13 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 22:14 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 22:00 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 22:23 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 22:13 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 22:16 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 22:21 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 21:57 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 22:01 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 22:20 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 22:17 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 22:05 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 22:04 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:04 - [85花告别古偶](http://www.blog.minike.top/Article/details/05325728.shtml)
-- 2026-06-29 21:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/3091902911.shtml)
-- 2026-06-29 21:50 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/8566885.shtml)
-- 2026-06-29 22:12 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/811642.shtml)
-- 2026-06-29 22:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/63107075416.shtml)
-- 2026-06-29 21:57 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/423999912550.shtml)
-- 2026-06-29 21:56 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/7937648.shtml)
-- 2026-06-29 22:04 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/4968854.shtml)
-- 2026-06-29 21:59 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/971493806947.shtml)
-- 2026-06-29 22:01 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/2053394769.shtml)
-- 2026-06-29 21:49 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/151917288980.shtml)
-- 2026-06-29 22:16 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/292328855018.shtml)
-- 2026-06-29 21:54 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/621483.shtml)
-- 2026-06-29 22:15 - [厨房装空调还是装冷烟机](https://www.share.minike.top/Article/details/246740442.shtml)
-- 2026-06-29 22:15 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/63296.shtml)
+- 2026-06-29 22:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/460815.shtml)
+- 2026-06-29 22:19 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/841601.shtml)
+- 2026-06-29 22:16 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/1262727.shtml)
+- 2026-06-29 21:54 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/9131022690.shtml)
+- 2026-06-29 22:01 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/124436175.shtml)
+- 2026-06-29 21:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/985969718646.shtml)
+- 2026-06-29 22:22 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/2052201214.shtml)
+- 2026-06-29 22:17 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/056034.shtml)
+- 2026-06-29 22:16 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/11991730.shtml)
+- 2026-06-29 22:16 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/209020103616.shtml)
+- 2026-06-29 22:14 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/50956564.shtml)
+- 2026-06-29 22:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/3574293.shtml)
+- 2026-06-29 22:23 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/9392036.shtml)
+- 2026-06-29 22:14 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/7668255926.shtml)
+- 2026-06-29 22:11 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/216337.shtml)

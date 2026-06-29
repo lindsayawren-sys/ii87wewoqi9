@@ -1,56 +1,61 @@
-# 一边罚款过百万，一边狂卖5亿瓶：“五个女博士”经营暗藏五大隐忧
+# 中国官方：传统医药技术委员会已发布中医药国际标准135项
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-当一款普通风味饮料以“口服美容神器”的名义卖出5亿瓶，当高知光环背后的产品连保健食品资质都不具备，当罚款不断却丝毫未能阻挡其增长势头——网红口服美容品牌“五个女博士”的“金刚不坏之身”，究竟能维持多久？ “老公气我，喝！熬夜追剧，喝！又老一岁，喝！”2023年，这则饱含情绪宣泄的电梯广告将“五个女博士”推向舆论风口。北京市朝阳区市场监督管理局因该广告“违背社会良好风尚”对品牌关
+中新社北京4月29日电 (记者 李纯)中国国家中医药管理局政策法规与监督司司长朱桂29日在北京介绍说，传统医药技术委员会(ISO/TC 249)已发布中医药国际标准135项。 当天，国家中医药管理局举行专题发布会，介绍中医药标准化工作进展及新发布中医药国家标准有关情况。国家市场监督管理总局标准技术管理司副司长朱美娜在发布会上介绍说，国际标准化组织(ISO)成立传统医药技术委员会
 
 ## 正文
 
-当一款普通风味饮料以“口服美容神器”的名义卖出5亿瓶，当高知光环背后的产品连保健食品资质都不具备，当罚款不断却丝毫未能阻挡其增长势头——网红口服美容品牌“五个女博士”的“金刚不坏之身”，究竟能维持多久？
+中新社北京4月29日电 (记者 李纯)中国国家中医药管理局政策法规与监督司司长朱桂29日在北京介绍说，传统医药技术委员会(ISO/TC 249)已发布中医药国际标准135项。
 
-“老公气我，喝！
+当天，国家中医药管理局举行专题发布会，介绍中医药标准化工作进展及新发布中医药国家标准有关情况。
 
-熬夜追剧，喝！
+国家市场监督管理总局标准技术管理司副司长朱美娜在发布会上介绍说，国际标准化组织(ISO)成立传统医药技术委员会(ISO/TC 249)，秘书处设在中国。
 
-又老一岁，喝！
+朱美娜表示，截至目前，ISO/TC 249已正式发布135项、正在研制66项中医药国际标准，实现了ISO领域中医药国际标准跨越式发展，对促进中医药国际贸易和中医药国际化有着深远影响。
 
-”2023年，这则饱含情绪宣泄的电梯广告将“五个女博士”推向舆论风口。
+其中，中国牵头制定了《中医药术语 第1部分：中药材术语》等数十项国际标准，不断提升中国中医药产业发展水平和国际影响力。
 
-北京市朝阳区市场监督管理局因该广告“违背社会良好风尚”对品牌关联公司开出40万元罚单，广告制作方和发布商也相继被罚，累计罚款超百万元。
+朱桂也表示，近年来，中国形成了以中医药国家标准、行业标准、地方标准、团体标准及中医药国际标准为主要内容的标准体系框架。
 
-然而，处罚并未让这家网红品牌收敛。
+其中，在中医药国际标准方面，ISO/TC 249已发布中医药国际标准135项，包括中药类84项、中医药术语类20项、医疗器械设备类31项。
 
-2025年7月，山东淄博博山区市场监督管理局再次对其经销商作出行政处罚，原因是在京东平台使用“源头防护胶原流失”“符合全球47个国家的食品安全标准”等无法证实的宣传用语，构成虚假广告。
+当天的发布会还介绍了国家标准《针灸技术操作规范 第4部分：三棱针》的落地应用情况。
 
 ## 相关推荐
 
-- 2026-06-29 22:06 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 21:59 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 22:00 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 21:53 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 22:14 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 22:08 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 21:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 21:49 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 22:05 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 22:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 21:56 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 22:06 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 22:13 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 22:03 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 22:07 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 22:03 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 21:54 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 22:03 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 22:06 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 22:00 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 22:04 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 22:09 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 22:03 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 22:12 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 22:09 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:00 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/38543.shtml)
-- 2026-06-29 21:57 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/9808951004.shtml)
-- 2026-06-29 21:58 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/753433.shtml)
-- 2026-06-29 21:53 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/50243612073.shtml)
-- 2026-06-29 22:05 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/20562409.shtml)
-- 2026-06-29 22:02 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/866169094.shtml)
-- 2026-06-29 22:10 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/38682064018.shtml)
-- 2026-06-29 21:54 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/3771870146.shtml)
-- 2026-06-29 22:14 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/86308467907.shtml)
-- 2026-06-29 22:16 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/35260979632.shtml)
-- 2026-06-29 22:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/393833.shtml)
-- 2026-06-29 22:03 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/4315967529.shtml)
-- 2026-06-29 21:51 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/495033460787.shtml)
-- 2026-06-29 22:00 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/73441415356.shtml)
-- 2026-06-29 22:14 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/423302.shtml)
+- 2026-06-29 22:06 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/293648322878.shtml)
+- 2026-06-29 21:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/193213467.shtml)
+- 2026-06-29 22:06 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/08763480214.shtml)
+- 2026-06-29 22:21 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/975749617.shtml)
+- 2026-06-29 22:21 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/69235320021.shtml)
+- 2026-06-29 22:22 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/1326204.shtml)
+- 2026-06-29 22:18 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/77934719306.shtml)
+- 2026-06-29 22:06 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/13463160547.shtml)
+- 2026-06-29 21:55 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/46398842130.shtml)
+- 2026-06-29 22:15 - [青春环游记第三季](http://www.blog.minike.top/Article/details/23990.shtml)
+- 2026-06-29 22:22 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/058779997.shtml)
+- 2026-06-29 22:10 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/701503150770.shtml)
+- 2026-06-29 22:04 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/44618463.shtml)
+- 2026-06-29 22:18 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/7043316029.shtml)
+- 2026-06-29 22:06 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/37108.shtml)

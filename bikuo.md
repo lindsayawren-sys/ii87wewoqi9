@@ -1,57 +1,56 @@
-# 独家视频丨习近平：你连任后首访选择中国 体现了对发展中老关系的高度重视
+# 水利部：“十四五”期间立项实施576个科技攻关项目
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-视频：习近平：你连任后首访选择中国 体现了对发展中老关系的高度重视来源：央视新闻客户端 6月5日下午，中共中央总书记、国家主席习近平在人民大会堂同来华进行国事访问的老挝人民革命党中央总书记、国家主席通伦举行会谈。 习近平指出，你连任后首访选择中国，体现了对发展中老关系的高度重视。今年是中老建交65周年暨“中老友好年”。年初以来，我们通过互致信函、互派特使等形式密切沟通。相信在以
+中新网4月29日电 水利部4月29日召开水利科技创新成效新闻发布会。水利部副部长祖雷鸣介绍，“十四五”以来，水利行业体系化推进水利科技创新工作，加快构建先进、实用的水利科技支撑体系，因地制宜发展水利新质生产力，为推动水利高质量发展、保障我国水安全提供了有力支撑。主要取得以下几方面工作成效：一是科技攻关取得重大突破。聚焦重大国家战略和水利高质量发展需要，通过各类渠道立项实施576
 
 ## 正文
 
-视频：习近平：你连任后首访选择中国 体现了对发展中老关系的高度重视来源：央视新闻客户端 6月5日下午，中共中央总书记、国家主席习近平在人民大会堂同来华进行国事访问的老挝人民革命党中央总书记、国家主席通伦举行会谈。
+中新网4月29日电 水利部4月29日召开水利科技创新成效新闻发布会。
 
-习近平指出，你连任后首访选择中国，体现了对发展中老关系的高度重视。
+水利部副部长祖雷鸣介绍，“十四五”以来，水利行业体系化推进水利科技创新工作，加快构建先进、实用的水利科技支撑体系，因地制宜发展水利新质生产力，为推动水利高质量发展、保障我国水安全提供了有力支撑。
 
-今年是中老建交65周年暨“中老友好年”。
+主要取得以下几方面工作成效：一是科技攻关取得重大突破。
 
-年初以来，我们通过互致信函、互派特使等形式密切沟通。
+聚焦重大国家战略和水利高质量发展需要，通过各类渠道立项实施576个科技攻关项目，持续开展水利基础研究、应用基础研究和高新技术研发，取得一系列重大突破。
 
-相信在以你为首的老挝党新一届中央领导集体领导下，老挝将会如期完成老挝党十二大确立的目标任务。
+一批水利科技创新研究成果获评国家级和省部级科技奖励，“黄河调水调沙理论与实践”等5项成果入选“绿水青山就是金山银山”理念提出20周年“生态文明领域20项重大科技成果”。
 
-总监制丨申勇 监制丨许达 记者丨史伟 杨紫童 马喆 卢心雨 摄像丨李铮 胡玮 王哈男 章猛 杨波 陆泓宇 录音丨李远
+数字孪生水利体系、水文监测预报、大坝建设运维、泥沙输移与调控、农业节水灌溉、水库群联合调度、河湖生态修复等领域科技水平已居于国际领先位置。
+
+二是科技体制改革纵深推进。
+
+成立水利部科技领导小组，由水利部部长担任组长，加强对水利科技工作的组织领导和统筹协调。
 
 ## 相关推荐
 
-- 2026-06-29 22:17 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 21:52 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 22:12 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 22:15 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 22:17 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 22:16 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 22:06 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 21:49 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 22:01 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 22:11 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 21:57 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 21:58 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 21:54 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 21:54 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 22:17 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 22:12 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 22:23 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 22:16 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 22:02 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 22:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 22:18 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 22:05 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 22:21 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 22:08 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 22:05 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:58 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/28452479291.shtml)
-- 2026-06-29 22:07 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/124561082.shtml)
-- 2026-06-29 22:10 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/622266.shtml)
-- 2026-06-29 22:16 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/515424211.shtml)
-- 2026-06-29 21:49 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/96456927154.shtml)
-- 2026-06-29 22:02 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/47815825699.shtml)
-- 2026-06-29 22:06 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/439471.shtml)
-- 2026-06-29 22:11 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/9636782.shtml)
-- 2026-06-29 22:09 - [逃狱兄弟](https://www.share.minike.top/Article/details/866297346416.shtml)
-- 2026-06-29 21:54 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/78182.shtml)
-- 2026-06-29 21:52 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.minike.top/Article/details/64106073480.shtml)
-- 2026-06-29 21:57 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/186151496.shtml)
-- 2026-06-29 21:57 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/489693.shtml)
-- 2026-06-29 21:57 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/38000.shtml)
-- 2026-06-29 21:50 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/870034359409.shtml)
+- 2026-06-29 22:04 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/5731684.shtml)
+- 2026-06-29 22:08 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/023695936900.shtml)
+- 2026-06-29 22:15 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/0840868.shtml)
+- 2026-06-29 22:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/157777.shtml)
+- 2026-06-29 21:55 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/3937854629.shtml)
+- 2026-06-29 21:59 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/044166661584.shtml)
+- 2026-06-29 22:07 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/9992628930.shtml)
+- 2026-06-29 22:06 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/7760833277.shtml)
+- 2026-06-29 22:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/3982159691.shtml)
+- 2026-06-29 22:21 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/5870443.shtml)
+- 2026-06-29 21:55 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/012925440350.shtml)
+- 2026-06-29 22:10 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/3770751.shtml)
+- 2026-06-29 21:56 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/0792495.shtml)
+- 2026-06-29 22:07 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/9672276.shtml)
+- 2026-06-29 22:16 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/45582.shtml)

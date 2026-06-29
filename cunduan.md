@@ -1,61 +1,59 @@
-# 最高法：正在起草适用生态环境法典时间效力司法解释
+# 新浪财经李兀：防范“漂绿”须从披露规范、评价标准、强化监督三方面同时入手
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-中新网6月5日电 6月5日，最高人民法院举行新闻发布会，发布《中国环境资源审判(2025)》《中国环境司法发展报告(2025年)》，以及2025年度人民法院环境资源审判典型案例。最高人民法院副院长杨临萍透露，目前，最高人民法院正在起草适用生态环境法典时间效力司法解释，为全面准确贯彻实施法典做好准备。杨临萍介绍，生态环境法典即将于今年8月15日正式施行。人民法院是学习贯彻实施生态
+专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。新浪财经总编辑李兀在演讲中谈到，“漂绿”现象不仅在中国，在国际上也是争议极大的话题，甚至导致部分“反可持续”或“反ESG”派别主张“把洗脚水都泼了，把孩子也泼出去”。 他认为，要有效防范“漂绿”，须从披露规范、评价标准和强化监督三个方面同时入手。 第一
 
 ## 正文
 
-中新网6月5日电 6月5日，最高人民法院举行新闻发布会，发布《中国环境资源审判(2025)》《中国环境司法发展报告(2025年)》，以及2025年度人民法院环境资源审判典型案例。
+专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。
 
-最高人民法院副院长杨临萍透露，目前，最高人民法院正在起草适用生态环境法典时间效力司法解释，为全面准确贯彻实施法典做好准备。
+新浪财经总编辑李兀在演讲中谈到，“漂绿”现象不仅在中国，在国际上也是争议极大的话题，甚至导致部分“反可持续”或“反ESG”派别主张“把洗脚水都泼了，把孩子也泼出去”。
 
-杨临萍介绍，生态环境法典即将于今年8月15日正式施行。
+他认为，要有效防范“漂绿”，须从披露规范、评价标准和强化监督三个方面同时入手。
 
-人民法院是学习贯彻实施生态环境法典的重要主体。
+第一，披露必须规范。
 
-法典审议通过后，最高人民法院第一时间印发学习贯彻法典的通知，指导各级人民法院自觉扛起贯彻实施好生态环境法典的政治责任、法治责任、审判责任。
+李兀表示，当前国际标准尚未统一，但有志之士正在持续推进，这是“重中之重”。
 
-制定贯彻实施法典任务清单，列明4方面17项任务，逐项明确具体要求、责任部门和完成时限。
+他借用热播剧《太平年》中的一句台词——“须去做，方知晓”提到，“可持续发展事业、高质量发展其实也是类似的，我们从业人员觉得它是一个美好的前景，各利益相关方都要为此不断努力，去提高披露的规范性。
 
-开展专题学习培训，举行党组理论学习读书班生态环境法典专题辅导报告会，结合审判实务重点难点问题组织编写生态环境法典适用参考书籍，举办全国法院生态环境法典专题轮训。
+” 第二，提升评价标准。
 
-统筹立改废释，全面开展生态环境领域相关司法解释、规范性文件的清理修订，高质量起草法典配套司法解释。
+他认为，ESG评级体系中与气候相关的权重需要调整。
 
 ## 相关推荐
 
-- 2026-06-29 22:04 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 21:55 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 21:58 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 21:51 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 21:52 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 22:16 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 22:04 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 21:50 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 21:48 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 22:07 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 21:58 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 21:55 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-29 21:56 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 22:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 22:03 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 22:13 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 22:14 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 22:13 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 21:56 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 22:01 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 22:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 22:08 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 22:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 22:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 22:14 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 22:10 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 22:13 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 21:56 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:55 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/210936516.shtml)
-- 2026-06-29 22:00 - [李思潼：不会介意大家夸我运气好](https://www.share.kurohicncr.top/Article/details/284723.shtml)
-- 2026-06-29 22:09 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/37637806644.shtml)
-- 2026-06-29 22:09 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/30963060237.shtml)
-- 2026-06-29 22:06 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/452113017.shtml)
-- 2026-06-29 22:05 - [恋与深空 巧合](https://www.share.minike.top/Article/details/138248201.shtml)
-- 2026-06-29 21:54 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/364447581.shtml)
-- 2026-06-29 22:15 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/59034147.shtml)
-- 2026-06-29 22:11 - [华工科技龙虎榜数据](https://www.share.minike.top/Article/details/984088.shtml)
-- 2026-06-29 22:14 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/33064682.shtml)
-- 2026-06-29 21:54 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/008434118299.shtml)
-- 2026-06-29 22:06 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/732249336.shtml)
-- 2026-06-29 21:48 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/5263339453.shtml)
-- 2026-06-29 21:57 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/134646405.shtml)
-- 2026-06-29 22:00 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/1160091.shtml)
+- 2026-06-29 22:22 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/624485.shtml)
+- 2026-06-29 22:16 - [天道](http://www.blog.kurohicncr.top/Article/details/7608947.shtml)
+- 2026-06-29 22:10 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/41713.shtml)
+- 2026-06-29 22:12 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/89237.shtml)
+- 2026-06-29 22:23 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/705712822.shtml)
+- 2026-06-29 22:07 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/81738286009.shtml)
+- 2026-06-29 21:56 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/97435.shtml)
+- 2026-06-29 22:24 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/00307.shtml)
+- 2026-06-29 22:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/74381528.shtml)
+- 2026-06-29 21:55 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/05532036.shtml)
+- 2026-06-29 22:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/61485600.shtml)
+- 2026-06-29 22:23 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/008042229.shtml)
+- 2026-06-29 22:23 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/7092580.shtml)
+- 2026-06-29 22:17 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/288410452.shtml)
+- 2026-06-29 22:07 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/040424.shtml)

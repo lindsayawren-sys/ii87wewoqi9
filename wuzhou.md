@@ -1,60 +1,54 @@
-# 四川省自贡市原副市长陈华斌一审获刑十年六个月
+# 以军称哈马斯军事情报总部作战部门负责人身亡
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-中新网成都6月5日电 (记者 刘忠俊)6月5日，四川省乐山市中级人民法院一审公开宣判自贡市人民政府原党组成员、副市长陈华斌受贿一案。被告人陈华斌犯受贿罪，被判处有期徒刑十年六个月，并处罚金人民币100万元；对侦查机关查扣在案的受贿所得财物，依法予以追缴，上缴国库。 经法院审理查明，2012年至2023年，陈华斌利用其担任绵阳市投资促进局党组书记、局长，绵阳市游仙区委副书记、区长
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社耶路撒冷4月29日电（记者王卓伦庞昕熠）以色列国防军与以色列国家安全总局（辛贝特）29日发表联合声明称，双方28日在加沙地带北部发动空袭，打死巴勒斯坦伊斯兰抵抗运动（哈马斯）军事情报总部作战部门负责人伊亚德·艾哈迈德·阿卜杜勒-拉赫曼·尚巴里。 声明称，尚巴里近年来负责汇总整个加沙地带的作战态势评估，
 
 ## 正文
 
-中新网成都6月5日电 (记者 刘忠俊)6月5日，四川省乐山市中级人民法院一审公开宣判自贡市人民政府原党组成员、副市长陈华斌受贿一案。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-被告人陈华斌犯受贿罪，被判处有期徒刑十年六个月，并处罚金人民币100万元；对侦查机关查扣在案的受贿所得财物，依法予以追缴，上缴国库。
+新华社耶路撒冷4月29日电（记者王卓伦庞昕熠）以色列国防军与以色列国家安全总局（辛贝特）29日发表联合声明称，双方28日在加沙地带北部发动空袭，打死巴勒斯坦伊斯兰抵抗运动（哈马斯）军事情报总部作战部门负责人伊亚德·艾哈迈德·阿卜杜勒-拉赫曼·尚巴里。
 
-经法院审理查明，2012年至2023年，陈华斌利用其担任绵阳市投资促进局党组书记、局长，绵阳市游仙区委副书记、区长等职务便利，为他人在土地供应、项目承揽等方面提供便利、谋取利益，非法收受他人财物，共计折合人民币1179万余元，其中606万余元款项至案发尚未实际获取。
+声明称，尚巴里近年来负责汇总整个加沙地带的作战态势评估，是哈马斯军事情报体系中的关键人物。
 
-乐山市中级人民法院审理认为，陈华斌身为党员领导干部、国家工作人员，利用职务便利收受他人财物、为他人谋利，其行为已构成受贿罪，且受贿数额特别巨大，依法应予从严惩处。
+他长期参与收集以军部队情报，用于制定并实施针对以军的袭击计划，对在该地区行动的以军构成“直接威胁”。
 
-鉴于陈华斌部分受贿系未遂，其到案后如实供述监察机关已掌握的全部受贿犯罪事实，认罪认罚，积极退赃，受贿所得财物已全部追缴到案，对其可依法从轻处罚。
+此外，他还参与策划了哈马斯在2023年10月7日对以色列发动的大规模袭击。
 
-法庭遂依法作出上述判决。
+声明称，以军南方司令部部队目前仍按相关协议部署在该地区，并将继续采取行动，以消除任何“即时威胁”。
 
-据了解，本案已于2026年3月31日在乐山市中级人民法院公开开庭审理。
-
-庭审中，检察机关依法出示了相关证据，被告人陈华斌及其辩护人进行了质证，控辩双方在法庭的主持下充分发表意见，陈华斌进行了最后陈述，并当庭表示认罪悔罪。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 22:13 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 22:04 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 22:14 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 22:03 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 21:48 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 22:05 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 22:16 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 22:11 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 22:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 22:08 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 22:16 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 22:15 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 22:05 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 22:16 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 21:57 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 22:06 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 22:22 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 22:05 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 22:09 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 22:15 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 22:10 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 22:16 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 22:19 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:58 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/239860737346.shtml)
-- 2026-06-29 22:05 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/133216205.shtml)
-- 2026-06-29 22:16 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/6262926685.shtml)
-- 2026-06-29 22:11 - [扬名立万](https://www.share.kurohicncr.top/Article/details/725769082.shtml)
-- 2026-06-29 22:12 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/6132633157.shtml)
-- 2026-06-29 22:16 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/840849.shtml)
-- 2026-06-29 21:58 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/8301115.shtml)
-- 2026-06-29 22:13 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/7413314.shtml)
-- 2026-06-29 21:50 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/172012311.shtml)
-- 2026-06-29 22:14 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/609858051813.shtml)
-- 2026-06-29 22:15 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/3891107538.shtml)
-- 2026-06-29 22:01 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/52925881829.shtml)
-- 2026-06-29 22:14 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/280802458.shtml)
-- 2026-06-29 22:09 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/993683.shtml)
-- 2026-06-29 22:07 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/769988078.shtml)
+- 2026-06-29 22:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/996020.shtml)
+- 2026-06-29 21:54 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/894270.shtml)
+- 2026-06-29 22:22 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/62339484.shtml)
+- 2026-06-29 22:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/22084007.shtml)
+- 2026-06-29 22:08 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/7933320324.shtml)
+- 2026-06-29 22:09 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/77670429723.shtml)
+- 2026-06-29 22:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/684052445.shtml)
+- 2026-06-29 22:07 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/720778.shtml)
+- 2026-06-29 22:19 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/39415337.shtml)
+- 2026-06-29 22:07 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/47998.shtml)
+- 2026-06-29 22:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/34190884689.shtml)
+- 2026-06-29 21:57 - [宜宾地震已转移安置225人](https://www.blog.kurohicncr.top/Article/details/03700927203.shtml)
+- 2026-06-29 22:22 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/486926622.shtml)
+- 2026-06-29 22:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/94160107698.shtml)
+- 2026-06-29 22:03 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/678061482.shtml)

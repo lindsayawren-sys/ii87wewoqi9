@@ -1,57 +1,56 @@
-# 追觅俞浩内部发言疑似回应外界传闻 称精力必须100%放在技术研发和产品上
+# “香港金融之夜”活动在港举办
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-6月5日，《每日经济新闻》记者从接近追觅科技的人士处获悉，追觅科技创始人俞浩在公司内部大群发言中透露2026年第一季度追觅扫地机器人斩获全球市场销量、销售额两项第一。 俞浩称，公司应心无旁骛做实业，提供最好的技术和产品。“精力必须100%放在技术研发和产品上。实业这条路没有捷径可走，唯有脚踏实地。谁走得稳、走得实，谁才能走得远。”接下来，“研发投入只会增加，要把钱花在解决用户痛
+中新网香港4月30日电 (记者 戴小橦)中央广播电视总台“央视财经金融强国——香港金融之夜”30日在香港举办。活动以“汇聚、驱动、链通”为主题，现场同步发布了“央视财经粤港澳大湾区城市活力指数2026”。 香港特区政府财政司司长陈茂波出席活动并致辞表示，今年香港特区政府提出“金融+”发展策略，目标是让金融赋能渗透到产业每一个环节，加快推动金融、创科与产业发展三者之间的相互赋能，
 
 ## 正文
 
-6月5日，《每日经济新闻》记者从接近追觅科技的人士处获悉，追觅科技创始人俞浩在公司内部大群发言中透露2026年第一季度追觅扫地机器人斩获全球市场销量、销售额两项第一。
+中新网香港4月30日电 (记者 戴小橦)中央广播电视总台“央视财经金融强国——香港金融之夜”30日在香港举办。
 
-俞浩称，公司应心无旁骛做实业，提供最好的技术和产品。
+活动以“汇聚、驱动、链通”为主题，现场同步发布了“央视财经粤港澳大湾区城市活力指数2026”。
 
-“精力必须100%放在技术研发和产品上。
+香港特区政府财政司司长陈茂波出席活动并致辞表示，今年香港特区政府提出“金融+”发展策略，目标是让金融赋能渗透到产业每一个环节，加快推动金融、创科与产业发展三者之间的相互赋能，以香港所长服务国家所需，同时为自身开拓更广阔的发展空间。
 
-实业这条路没有捷径可走，唯有脚踏实地。
+中央广播电视总台亚太总站站长曹毅致辞表示，在“十五五”开局之年的新起点，活动聚焦香港的金融创新与实践。
 
-谁走得稳、走得实，谁才能走得远。
+面向未来，希望共同探索香港发挥金融优势，在服务国家现代化建设中实现自身繁荣发展的新路径。
 
-”接下来，“研发投入只会增加，要把钱花在解决用户痛点的地方，不搞花架子”。
+活动现场分享了“香港金融之夜典型案例”，聚焦全球资本的配置高地、智能时代创新的金融引擎、人民币国际化的战略枢纽三个方面，展现香港金融服务国家战略、融入新发展格局、打造全球金融枢纽的创新实践。
 
-6月5日，俞浩微博显示被禁言。
+活动现场，中央广播电视总台财经节目中心发布“央视财经粤港澳大湾区城市活力指数2026”。
 
-此外有消息称，某市辖区正在要求统计辖区内企业与追觅科技已开展合作的情况，包括但不限于：合作项目、总体规模、资金投入、财政及国资投入情况、目前经营情况等。
+指数聚焦粤港澳世界级城市群，结合大湾区金融中心、科创高地、开放融合等特色，独家解析粤港澳大湾区各城市活力表现。
 
 ## 相关推荐
 
-- 2026-06-29 21:48 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 22:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 21:56 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 22:16 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 22:01 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 21:48 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 22:06 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 21:55 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 22:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 21:50 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 21:48 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 21:58 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 22:23 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 22:23 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 22:00 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 22:15 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 22:14 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 22:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 22:09 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 22:17 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 22:06 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:48 - [东方风云榜](http://www.share.minike.top/Article/details/22564853783.shtml)
-- 2026-06-29 21:50 - [TOP Prada](https://www.share.minike.top/Article/details/2745661794.shtml)
-- 2026-06-29 21:59 - [沙丘](http://www.blog.minike.top/Article/details/882500.shtml)
-- 2026-06-29 22:12 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/73362391.shtml)
-- 2026-06-29 22:11 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/995140094341.shtml)
-- 2026-06-29 21:54 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/60642.shtml)
-- 2026-06-29 22:15 - [明星大侦探第一季](http://www.share.minike.top/Article/details/92772.shtml)
-- 2026-06-29 22:13 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/030862912.shtml)
-- 2026-06-29 22:16 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/97645.shtml)
-- 2026-06-29 22:02 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/267948290468.shtml)
-- 2026-06-29 22:05 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/33224.shtml)
-- 2026-06-29 21:50 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/18539061.shtml)
-- 2026-06-29 22:12 - [金刚川](https://www.share.minike.top/Article/details/7466826648.shtml)
-- 2026-06-29 22:10 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/637670285773.shtml)
-- 2026-06-29 22:01 - [金鹰奖第二阶段投票明日开启](https://www.share.minike.top/Article/details/5217758208.shtml)
+- 2026-06-29 22:18 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/65622871.shtml)
+- 2026-06-29 21:55 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/069361.shtml)
+- 2026-06-29 22:12 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/18362376365.shtml)
+- 2026-06-29 21:54 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/441875.shtml)
+- 2026-06-29 22:22 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/3825864106.shtml)
+- 2026-06-29 22:15 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/35244.shtml)
+- 2026-06-29 22:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/5960958035.shtml)
+- 2026-06-29 22:11 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/00741175.shtml)
+- 2026-06-29 22:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/55794657.shtml)
+- 2026-06-29 22:03 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/5081689.shtml)
+- 2026-06-29 22:21 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/94961099063.shtml)
+- 2026-06-29 22:08 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/255854542.shtml)
+- 2026-06-29 22:09 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/69099214.shtml)
+- 2026-06-29 22:18 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/1950051.shtml)
+- 2026-06-29 22:09 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/148747.shtml)

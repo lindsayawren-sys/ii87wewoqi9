@@ -1,54 +1,57 @@
-# 住建部就《住房公积金管理条例（修订征求意见稿）》公开征求意见
+# 美国上周首次失业救济申领人数下降
 
-> 更新时间：2026-06-29 22:18:03 UTC+8
+> 更新时间：2026-06-29 22:24:03 UTC+8
 
 ## 摘要
 
-为深化住房公积金制度改革，更好满足缴存人多元化住房需求，我部启动了《住房公积金管理条例》修订工作。现根据工作安排，将《住房公积金管理条例(修订征求意见稿)》向社会公开征求意见，可通过以下途径和方式提出反馈意见：一、电子邮件：gjjtl@mohurd.gov.cn 二、信函：北京市海淀区三里河9号住房城乡建设部法规司，邮编：100835。 请在电子邮件主题和信封上注明“住房公积金
+上周美国首次失业救济申领人数降幅超预期。尽管就业增长放缓，但裁员情况总体受控。 美国劳工部周四公布，在截至4月25日的一周内，首次申请失业救济人数为18.9万人，低于前一周公布的21.5万人。机构调查的经济学家此前预期新增申领人数为21.2万人。 持续申领失业救济人数可反映失业总人数规模。该数据在截至4月18日的一周降至179万人，前一周为181万人。持续申领数据较首次申领数据
 
 ## 正文
 
-为深化住房公积金制度改革，更好满足缴存人多元化住房需求，我部启动了《住房公积金管理条例》修订工作。
+上周美国首次失业救济申领人数降幅超预期。
 
-现根据工作安排，将《住房公积金管理条例(修订征求意见稿)》向社会公开征求意见，可通过以下途径和方式提出反馈意见：一、电子邮件：gjjtl@mohurd.gov.cn 二、信函：北京市海淀区三里河9号住房城乡建设部法规司，邮编：100835。
+尽管就业增长放缓，但裁员情况总体受控。
 
-请在电子邮件主题和信封上注明“住房公积金管理条例公开征求意见”。
+美国劳工部周四公布，在截至4月25日的一周内，首次申请失业救济人数为18.9万人，低于前一周公布的21.5万人。
 
-意见反馈截止日期为2026年7月5日。
+机构调查的经济学家此前预期新增申领人数为21.2万人。
 
-住房城乡建设部 2026年6月5日
+持续申领失业救济人数可反映失业总人数规模。
+
+该数据在截至4月18日的一周降至179万人，前一周为181万人。
+
+持续申领数据较首次申领数据滞后一周。
+
+美联储在4月维持利率稳定，并指出就业岗位新增数量整体维持低位，近几个月失业率基本保持不变。
 
 ## 相关推荐
 
-- 2026-06-29 22:04 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 21:48 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 21:49 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 21:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 22:11 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 22:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 21:50 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 21:54 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 21:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 22:07 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 22:03 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 21:58 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 22:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 21:57 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 22:18 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 22:01 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 22:16 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 22:21 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 22:12 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 22:04 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 21:55 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 22:12 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 22:19 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 22:17 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 22:15 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:54 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/306192.shtml)
-- 2026-06-29 22:00 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/99589.shtml)
-- 2026-06-29 22:11 - [时光音乐会](http://www.blog.minike.top/Article/details/15817115050.shtml)
-- 2026-06-29 22:04 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/303153.shtml)
-- 2026-06-29 21:51 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/3137339.shtml)
-- 2026-06-29 21:50 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/6326880.shtml)
-- 2026-06-29 22:04 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/271595310.shtml)
-- 2026-06-29 22:02 - [回顾世界杯争议事件](https://www.blog.minike.top/Article/details/2883361.shtml)
-- 2026-06-29 21:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/6832246257.shtml)
-- 2026-06-29 22:11 - [曼城官宣马雷斯卡出任主教练](https://www.share.minike.top/Article/details/31162815.shtml)
-- 2026-06-29 22:14 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/28164555959.shtml)
-- 2026-06-29 21:53 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/19572251116.shtml)
-- 2026-06-29 21:52 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/201786638.shtml)
-- 2026-06-29 22:03 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/529992416948.shtml)
-- 2026-06-29 21:55 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/038277610847.shtml)
+- 2026-06-29 22:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/054073.shtml)
+- 2026-06-29 22:11 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/61777.shtml)
+- 2026-06-29 22:22 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/0090963279.shtml)
+- 2026-06-29 22:07 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/34463883.shtml)
+- 2026-06-29 21:55 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/47477098579.shtml)
+- 2026-06-29 22:18 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/64285526348.shtml)
+- 2026-06-29 22:13 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/98748746.shtml)
+- 2026-06-29 22:00 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/7170260.shtml)
+- 2026-06-29 22:06 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/6968974804.shtml)
+- 2026-06-29 21:58 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/097479.shtml)
+- 2026-06-29 22:23 - [广东水利防汛Ⅳ级应急响应结束](https://www.share.minike.top/Article/details/3306488.shtml)
+- 2026-06-29 22:20 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/52705.shtml)
+- 2026-06-29 22:20 - [东方风云榜直播](https://www.blog.minike.top/Article/details/922243637516.shtml)
+- 2026-06-29 21:57 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/51449002936.shtml)
+- 2026-06-29 22:20 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/7311512683.shtml)
