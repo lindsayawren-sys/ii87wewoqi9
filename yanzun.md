@@ -1,48 +1,57 @@
-# 2026“守望传承·千里婵娟”艺术展在悉尼举行
+# 白鸽在线港股IPO：6月29日压线上市规避巨额兑付 营收高增却持续巨亏 去中介化趋势或构成威胁
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月08日 19:51 来源：中国新闻网 2026“守望传承·千里婵娟”艺术展日前在澳大利亚悉尼开幕。 本次艺术展由澳大利亚福建乡情联谊会主办，以中国传统水墨艺术为主线，汇聚来自澳大利亚、中国、日本、韩国、越南等国家和地区艺术家的优秀作品，融合中华书画、西方油画以及澳大利亚原住民艺术等多元艺术形式，彰显不同文明交流互鉴、美美与共的时代气象。 据悉，本次艺术
+国内第三方场景保险中介公司白鸽在线正式开启港股全球发售（2672.HK），预计将于6月29日上市 。依托出行、物流、普惠金融等九大场景布局，公司 2023-2025 年营收连续走高，但增收不增利矛盾突出，连续三年亏损持续扩大。叠加客户高度集中、行业去中介化冲击、现金流承压、基石认购力度偏弱等多重隐患，本次上市估值合理性、长期经营稳定性均存较大不确定性。 营收高速扩张 亏损逐年放
 
 ## 正文
 
-发布时间：2026年06月08日 19:51 来源：中国新闻网 2026“守望传承·千里婵娟”艺术展日前在澳大利亚悉尼开幕。
+国内第三方场景保险中介公司白鸽在线正式开启港股全球发售（2672.HK），预计将于6月29日上市 。
 
-本次艺术展由澳大利亚福建乡情联谊会主办，以中国传统水墨艺术为主线，汇聚来自澳大利亚、中国、日本、韩国、越南等国家和地区艺术家的优秀作品，融合中华书画、西方油画以及澳大利亚原住民艺术等多元艺术形式，彰显不同文明交流互鉴、美美与共的时代气象。
+依托出行、物流、普惠金融等九大场景布局，公司 2023-2025 年营收连续走高，但增收不增利矛盾突出，连续三年亏损持续扩大。
 
-据悉，本次艺术展将持续至6月22日。
+叠加客户高度集中、行业去中介化冲击、现金流承压、基石认购力度偏弱等多重隐患，本次上市估值合理性、长期经营稳定性均存较大不确定性。
 
-(记者 薄雯雯 制作 王嘉怡） 责任编辑：【刘湃】
+营收高速扩张 亏损逐年放大 毛利率长期低迷 2023 至 2025 年，公司营收从 6.6亿元增长至 12.3 亿元，三年复合增速超 36%，规模扩张速度亮眼。
+
+但盈利端表现持续恶化：年度净亏损由 1718 万元扩大至 4667 万元，亏损规模近乎翻三倍；即便剔除股份支付、上市开支等非经常性损益，经调整净亏损仍连续三年维持高位，盈利能力未见改善。
+
+盈利短板根源在于商业模式利润空间极度狭窄。
+
+三年综合毛利率仅 7.9%、9.1%、8.4%，常年未突破 10%。
+
+公司核心保险交易业务赚取渠道佣金，大部分收入需以转介费、推广费结算给场景合作方，上下游挤压下留存收益微薄。
 
 ## 相关推荐
 
-- 2026-06-30 03:47 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 03:29 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 03:53 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 03:49 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 03:37 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 03:40 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 03:40 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 03:41 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 03:25 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 03:53 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 03:42 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 03:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 03:45 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 03:48 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 03:38 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 03:42 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 03:52 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 03:58 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-30 03:40 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 03:47 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 03:41 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:32 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/99558.shtml)
-- 2026-06-30 03:36 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/5147168467.shtml)
-- 2026-06-30 03:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/18739503537.shtml)
-- 2026-06-30 03:48 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/82428153.shtml)
-- 2026-06-30 03:53 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/253800.shtml)
-- 2026-06-30 03:32 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/51724889220.shtml)
-- 2026-06-30 03:50 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/797099712.shtml)
-- 2026-06-30 03:50 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/780750.shtml)
-- 2026-06-30 03:41 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/08935851378.shtml)
-- 2026-06-30 03:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/788191744.shtml)
-- 2026-06-30 03:34 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/0117910440.shtml)
-- 2026-06-30 03:27 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/570547.shtml)
-- 2026-06-30 03:28 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/384326.shtml)
-- 2026-06-30 03:52 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/704148780279.shtml)
-- 2026-06-30 03:52 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/71566.shtml)
+- 2026-06-30 03:38 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/892742564558.shtml)
+- 2026-06-30 03:59 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/60463116220.shtml)
+- 2026-06-30 03:36 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/88102141602.shtml)
+- 2026-06-30 03:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/59819618.shtml)
+- 2026-06-30 03:53 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/349356727514.shtml)
+- 2026-06-30 03:36 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/841252.shtml)
+- 2026-06-30 03:57 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/829661090440.shtml)
+- 2026-06-30 03:35 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/95659123837.shtml)
+- 2026-06-30 03:56 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/86332.shtml)
+- 2026-06-30 03:38 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/42679670118.shtml)
+- 2026-06-30 03:32 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/13237.shtml)
+- 2026-06-30 03:41 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/4680149.shtml)
+- 2026-06-30 03:37 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/94127.shtml)
+- 2026-06-30 03:49 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/4902073947.shtml)
+- 2026-06-30 03:31 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/212687341.shtml)

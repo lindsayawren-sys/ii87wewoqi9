@@ -1,45 +1,59 @@
-# 贵州省安顺市委原书记杨昌鹏接受纪律审查和监察调查
+# 养车比养生还玄乎？戳破部分4S店的歪心思
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-中新网6月6日电 据贵州省纪委监委消息：贵州省安顺市委原书记杨昌鹏涉嫌严重违纪违法，目前正接受贵州省纪委监委纪律审查和监察调查。
+在行业价格战背景下，4S店靠什么赚钱？半月谈记者调查发现，随着汽车行业面临结构性调整，一些4S店新车销售不得不“赔本赚吆喝”。为了摆脱亏损局面并追求利润最大化，部分4S店利用车主对理赔、维修规则不熟悉的弱点，在售后环节动起了歪心思。卖一辆亏一辆，售后服务成救命稻草 人们日常所说的4S店，对应着四项业务：Sales(整车销售)、Spareparts(零配件供应)、Service(
 
 ## 正文
 
-中新网6月6日电 据贵州省纪委监委消息：贵州省安顺市委原书记杨昌鹏涉嫌严重违纪违法，目前正接受贵州省纪委监委纪律审查和监察调查。
+在行业价格战背景下，4S店靠什么赚钱？
+
+半月谈记者调查发现，随着汽车行业面临结构性调整，一些4S店新车销售不得不“赔本赚吆喝”。
+
+为了摆脱亏损局面并追求利润最大化，部分4S店利用车主对理赔、维修规则不熟悉的弱点，在售后环节动起了歪心思。
+
+卖一辆亏一辆，售后服务成救命稻草 人们日常所说的4S店，对应着四项业务：Sales(整车销售)、Spareparts(零配件供应)、Service(维修保养)、Survey(信息反馈)。
+
+当下，汽车行业价格战愈演愈烈，整车销售的核心业务面临价格倒挂的尴尬局面。
+
+广州某大型汽车销售服务集团销售总监胡军(化名)向半月谈记者坦言，以其门店主销的一款运动型新能源车型为例，车辆厂家指导价25万元，受价格战冲击，终端实际成交价仅15万元左右，而门店整车进货成本为16万元，每售出一台，新车门店就亏损1万元左右。
+
+“卖车亏损，几乎是整个行业的常态。
+
+”胡军告诉半月谈记者，在完成销售指标后，厂家后续会有一些返利，但返利周期长达2至3个月，而且部分返利还是以新车抵扣的形式发放，难以缓解门店的资金流压力。
 
 ## 相关推荐
 
-- 2026-06-30 03:38 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 03:44 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 03:25 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 03:34 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 03:43 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 03:36 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 03:45 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 03:25 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 03:46 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 03:39 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 03:50 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 03:50 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 03:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 03:53 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 03:48 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 03:55 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 03:58 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 03:51 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 03:35 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 03:48 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 03:31 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 03:41 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 03:46 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 03:34 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 03:42 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 03:49 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:27 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/59337378.shtml)
-- 2026-06-30 03:44 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/1094793359.shtml)
-- 2026-06-30 03:52 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/567077237.shtml)
-- 2026-06-30 03:38 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/9597689602.shtml)
-- 2026-06-30 03:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/4202640864.shtml)
-- 2026-06-30 03:48 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/0439472691.shtml)
-- 2026-06-30 03:28 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/445013.shtml)
-- 2026-06-30 03:31 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/185977729.shtml)
-- 2026-06-30 03:50 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/078292.shtml)
-- 2026-06-30 03:36 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/81890.shtml)
-- 2026-06-30 03:46 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/0384596940.shtml)
-- 2026-06-30 03:30 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/616559047.shtml)
-- 2026-06-30 03:44 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/06236078.shtml)
-- 2026-06-30 03:52 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/9228560.shtml)
-- 2026-06-30 03:36 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/7954773594.shtml)
+- 2026-06-30 03:46 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/5463339.shtml)
+- 2026-06-30 03:49 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/866059942.shtml)
+- 2026-06-30 03:51 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/81158827967.shtml)
+- 2026-06-30 03:38 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/91869.shtml)
+- 2026-06-30 03:52 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/95876417.shtml)
+- 2026-06-30 03:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/91037.shtml)
+- 2026-06-30 03:33 - [日本淘汰](https://www.share.minike.top/Article/details/7888996.shtml)
+- 2026-06-30 03:54 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/99794.shtml)
+- 2026-06-30 03:54 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/9290538.shtml)
+- 2026-06-30 03:47 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/359912.shtml)
+- 2026-06-30 03:40 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/532764257615.shtml)
+- 2026-06-30 03:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/905236376748.shtml)
+- 2026-06-30 03:35 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/517734.shtml)
+- 2026-06-30 03:32 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/62443697.shtml)
+- 2026-06-30 03:31 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/924649474.shtml)

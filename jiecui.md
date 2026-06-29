@@ -1,51 +1,58 @@
-# 流动摊贩持剪刀威胁城管 四川天府通报：当事人被行拘五日
+# 伊朗强调可自由使用被解冻资产
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-中新网6月6日电 据“天府生态城管”微信公众号消息，四川天府新区生态环境和城市管理局6月6日发布通报称，5月11日，四川天府新区生态环境和城市管理局两名执法人员在华阳街道美岸路三段巡查市容秩序时，发现一流动摊贩违规占用机动车道经营，当即亮证劝导并责令其立即整改，当事人拒不改正。次日巡查时，发现该流动摊贩仍在该点位占用机动车道经营，城管执法人员再次普法劝导，该流动摊贩仍拒不改正，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰6月23日电（记者沙达提陈霄）据伊朗伊斯兰共和国通讯社23日报道，伊朗外交部发言人巴加埃当天在德黑兰举行的每周例行记者会上表示，伊朗将完全根据国家利益决定如何使用其被解冻资产，且不会受到任何限制。 此前有媒体猜测根据伊美达成的协议，伊朗被解冻资金的使用权限或将受限，可能仅限于购买包括美国食品在内
 
 ## 正文
 
-中新网6月6日电 据“天府生态城管”微信公众号消息，四川天府新区生态环境和城市管理局6月6日发布通报称，5月11日，四川天府新区生态环境和城市管理局两名执法人员在华阳街道美岸路三段巡查市容秩序时，发现一流动摊贩违规占用机动车道经营，当即亮证劝导并责令其立即整改，当事人拒不改正。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-次日巡查时，发现该流动摊贩仍在该点位占用机动车道经营，城管执法人员再次普法劝导，该流动摊贩仍拒不改正，还手持剪刀威胁城管执法人员，藐视法律、情节恶劣，城管执法人员当即报警处置，并将执法全过程视频资料移交公安机关。
+新华社德黑兰6月23日电（记者沙达提陈霄）据伊朗伊斯兰共和国通讯社23日报道，伊朗外交部发言人巴加埃当天在德黑兰举行的每周例行记者会上表示，伊朗将完全根据国家利益决定如何使用其被解冻资产，且不会受到任何限制。
 
-6月2日，该流动摊贩因违反有关规定，被成都市公安局天府新区分局依法行政拘留五日。
+此前有媒体猜测根据伊美达成的协议，伊朗被解冻资金的使用权限或将受限，可能仅限于购买包括美国食品在内的特定商品。
 
-请广大市民自觉遵守城市管理规定，积极配合城管执法工作，共同维护整洁有序的城市环境。
+巴加埃对此驳斥说，“这方面没有任何限制”，在购买商品方面，“伊朗农业部等相关机构将根据价格和质量做出决定”。
+
+巴加埃还说，美国颁发的伊朗原油、石化产品、成品油及相关服务的销售许可证已于22日生效，同样的原则也适用于已解冻的伊朗资产。
+
+“伊朗此前被冻结的资产现在完全可用，并可根据自身优先事项自由使用。
+
+” 在巴加埃表态后，美国总统特朗普23日在社交媒体发文称，美国财政部解冻的伊朗资产将存入由美国控制的托管账户，并将专用于从美国购买食品和医疗物资，包括美国的玉米、小麦和大豆。
+
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 03:36 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 03:41 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 03:32 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 03:30 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 03:53 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 03:49 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-30 03:47 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-30 03:27 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 03:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 03:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 03:52 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 03:42 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 03:33 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 03:45 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 03:32 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 03:55 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 03:55 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 03:44 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 03:54 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 03:44 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 03:43 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 03:51 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 03:48 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 03:52 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-30 03:31 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:29 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/70985.shtml)
-- 2026-06-30 03:44 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/53785420.shtml)
-- 2026-06-30 03:32 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/80602734722.shtml)
-- 2026-06-30 03:36 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/491219978899.shtml)
-- 2026-06-30 03:29 - [内马尔替补](http://www.share.minike.top/Article/details/9683267628.shtml)
-- 2026-06-30 03:39 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/1006952044.shtml)
-- 2026-06-30 03:36 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/54207461.shtml)
-- 2026-06-30 03:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/72859.shtml)
-- 2026-06-30 03:48 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/55128.shtml)
-- 2026-06-30 03:36 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/170864971962.shtml)
-- 2026-06-30 03:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/0445312.shtml)
-- 2026-06-30 03:32 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/27524.shtml)
-- 2026-06-30 03:42 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/29205.shtml)
-- 2026-06-30 03:26 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/240296.shtml)
-- 2026-06-30 03:53 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/807301.shtml)
+- 2026-06-30 03:30 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/50493099.shtml)
+- 2026-06-30 03:38 - [急先锋](http://www.share.minike.top/Article/details/6245265951.shtml)
+- 2026-06-30 03:44 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/09480854.shtml)
+- 2026-06-30 03:44 - [勇敢的心第二部](https://www.share.minike.top/Article/details/87358.shtml)
+- 2026-06-30 03:55 - [巴西绝杀](http://www.share.minike.top/Article/details/625172872654.shtml)
+- 2026-06-30 03:51 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/9060053411.shtml)
+- 2026-06-30 03:31 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/851577290973.shtml)
+- 2026-06-30 03:43 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/126156212.shtml)
+- 2026-06-30 03:40 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/447428.shtml)
+- 2026-06-30 03:51 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/75025.shtml)
+- 2026-06-30 03:49 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/529630.shtml)
+- 2026-06-30 03:45 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/42119999.shtml)
+- 2026-06-30 03:30 - [千与千寻](http://www.share.minike.top/Article/details/4998964255.shtml)
+- 2026-06-30 03:30 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/8587097.shtml)
+- 2026-06-30 03:56 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/007701.shtml)

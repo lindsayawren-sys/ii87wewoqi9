@@ -1,50 +1,59 @@
-# 摩根大通将10年期美债收益率预期上调至4.70%
+# 全球灯塔工厂新名单公布，中国占比过半
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-据6月6日的一份报告，摩根大通策略师建议维持做空美国国债、做多德国国债的策略。“我们目前预计2年期和10年期美债收益率将分别升至4.20%和4.70%，较我们之前的预测高出30个基点和20个基点，” Jay Barry等该行策略师写道。过去一年美国劳动力市场在“稳健增长”的背景下趋稳，引发了市场对当前货币政策立场是否“实际上具有紧缩性”的质疑。责任编辑：王永生
+专题：2026第十七届夏季达沃斯论坛 世界经济论坛 世界经济论坛公布16个新工厂加入全球灯塔网络，至此该网络已汇聚全球238个一流工厂。 新晋灯塔工厂折射出工业竞争力的三大变革方向：端到端智能化、人机协同、以可持续发展赋能经营绩效。 世界经济论坛同步推出全新项目“影响力之星”（Impact Stars），表彰有望重塑行业运营模式的突破性工业创新成果。 了解2026年新领军者年会
 
 ## 正文
 
-据6月6日的一份报告，摩根大通策略师建议维持做空美国国债、做多德国国债的策略。
+专题：2026第十七届夏季达沃斯论坛 世界经济论坛 世界经济论坛公布16个新工厂加入全球灯塔网络，至此该网络已汇聚全球238个一流工厂。
 
-“我们目前预计2年期和10年期美债收益率将分别升至4.20%和4.70%，较我们之前的预测高出30个基点和20个基点，” Jay Barry等该行策略师写道。
+新晋灯塔工厂折射出工业竞争力的三大变革方向：端到端智能化、人机协同、以可持续发展赋能经营绩效。
 
-过去一年美国劳动力市场在“稳健增长”的背景下趋稳，引发了市场对当前货币政策立场是否“实际上具有紧缩性”的质疑。
+世界经济论坛同步推出全新项目“影响力之星”（Impact Stars），表彰有望重塑行业运营模式的突破性工业创新成果。
 
-责任编辑：王永生
+了解2026年新领军者年会的更多信息，请访问世界经济论坛官网。
+
+在社交媒体上关注年会动态，欢迎使用话题标签#2026夏季达沃斯。
+
+详细了解全球灯塔网络，请点击阅读原文。
+
+世界经济论坛今日宣布，全球灯塔网络新增16家成员，目前网络已汇聚全球238座顶尖制造及供应链运营基地。
+
+这些灯塔工厂充分展示了企业正通过规模化应用先进技术，持续提升生产效率、供应链韧性、可持续发展能力、客户服务水平与人才发展成效。
 
 ## 相关推荐
 
-- 2026-06-30 03:35 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 03:46 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 03:41 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 03:41 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 03:40 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 03:46 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 03:29 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 03:39 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 03:42 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 03:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 03:33 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 03:27 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 03:39 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 03:54 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 03:48 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 03:58 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 03:35 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 03:46 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 03:37 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 03:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 03:55 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 03:34 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 03:54 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 03:35 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 03:56 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:42 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/890525242905.shtml)
-- 2026-06-30 03:41 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/151180455.shtml)
-- 2026-06-30 03:27 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/051816467.shtml)
-- 2026-06-30 03:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/880451.shtml)
-- 2026-06-30 03:42 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/49880.shtml)
-- 2026-06-30 03:49 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/4796977265.shtml)
-- 2026-06-30 03:50 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/1884751985.shtml)
-- 2026-06-30 03:49 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/148291728735.shtml)
-- 2026-06-30 03:24 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/40320552431.shtml)
-- 2026-06-30 03:52 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/43117715481.shtml)
-- 2026-06-30 03:38 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/562780864.shtml)
-- 2026-06-30 03:29 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/13716907.shtml)
-- 2026-06-30 03:41 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/59324.shtml)
-- 2026-06-30 03:30 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/1429673668.shtml)
-- 2026-06-30 03:53 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/4246886.shtml)
+- 2026-06-30 03:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/0586037200.shtml)
+- 2026-06-30 03:31 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/01212026130.shtml)
+- 2026-06-30 03:49 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/84504967.shtml)
+- 2026-06-30 03:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/334821.shtml)
+- 2026-06-30 03:37 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/565226.shtml)
+- 2026-06-30 03:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/82697055.shtml)
+- 2026-06-30 03:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/322460.shtml)
+- 2026-06-30 03:44 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/49500619789.shtml)
+- 2026-06-30 03:39 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/3993231623.shtml)
+- 2026-06-30 03:41 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/1068095771.shtml)
+- 2026-06-30 03:38 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/040577.shtml)
+- 2026-06-30 03:43 - [一见倾心](https://www.share.kurohicncr.top/Article/details/04541301.shtml)
+- 2026-06-30 03:42 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/03032774.shtml)
+- 2026-06-30 03:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/3850872683.shtml)
+- 2026-06-30 03:50 - [天道](https://www.blog.minike.top/Article/details/2397004417.shtml)

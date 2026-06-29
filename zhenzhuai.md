@@ -1,59 +1,59 @@
-# 首航高科（002665）、云创数据（920305）投资者索赔案均再提交法院立案
+# 龙宇股份（603003）股民索赔案已再次开庭，并再提交立案，前期已有胜诉
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-2026年6月3日，上海久诚律师事务所股票索赔律师许峰代理的首航高科（002665）虚假陈述引发的投资者索赔案再向法院提交一次立案，该案已经进入诉讼时效倒计时。（许峰律师专栏） 许峰律师代理的首航高科投资者索赔案已多次向兰州中院提交立案，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2025年5月23日，首航高科公告收到监会下发的《行政处罚决定
+6月18日、22日，上海久诚律师事务所股票索赔律师许峰代理的龙宇股份（603003）虚假陈述投资者索赔案再次向上海金融法院提交两次立案。2026年6月22日，部分案件也已在上海金融法院开庭审理。（许峰律师专栏） 此前2026年5月29日，许峰律师代理的龙宇股份投资者索赔案收到投资者一审胜诉判决，目前进入二审。 许峰律师提示，部分投资者诉龙宇股份虚假陈述索赔案已有判决结果，已有投
 
 ## 正文
 
-2026年6月3日，上海久诚律师事务所股票索赔律师许峰代理的首航高科（002665）虚假陈述引发的投资者索赔案再向法院提交一次立案，该案已经进入诉讼时效倒计时。
+6月18日、22日，上海久诚律师事务所股票索赔律师许峰代理的龙宇股份（603003）虚假陈述投资者索赔案再次向上海金融法院提交两次立案。
 
-（许峰律师专栏） 许峰律师代理的首航高科投资者索赔案已多次向兰州中院提交立案，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+2026年6月22日，部分案件也已在上海金融法院开庭审理。
 
-2025年5月23日，首航高科公告收到监会下发的《行政处罚决定书》，经查明，首航高科存在以下违法事实： 1、未按规定披露使用募集资金为控股股东提供担保事项。
+（许峰律师专栏） 此前2026年5月29日，许峰律师代理的龙宇股份投资者索赔案收到投资者一审胜诉判决，目前进入二审。
 
-2、未按规定披露控股股东非经营性占用资金导致的关联交易。
+许峰律师提示，部分投资者诉龙宇股份虚假陈述索赔案已有判决结果，已有投资者获得两审胜诉判决。
 
-专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，在2017年7月1日到2023年12月5日之间买入首航高科股票，并且在2023年12月5日后卖出或继续持有股票的投资者，目前还可发起索赔。
+需要提示的是，目前该案还在索赔诉讼时效内，符合条件的投资者还可发起索赔，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-（首航高科维权入口） 除了首航高科投资者索赔案再提交一次法院立案，2026年6月3日，许峰律师代理的云创数据（920305）投资者索赔案也再提交法院立案。
+2025年11月7日，龙宇股份公告收到证监会《行政处罚决定书》，经查明，龙宇股份违法事实如下： 一、2019年、2020年、2021年、2022年年度报告虚增营业收入、利润。
 
-许峰律师代理的云创数据投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，律师团队同步也还在接受其他投资者的索赔委托。
+二、未按规定披露非经营性资金占用相关关联交易事项。
 
-2026年4月29日，云创数据公告收到江苏证监局下发的《行政处罚事先告知书》，经查明云创数据涉嫌存在以下违法事实： 一、云创数据2020年至2023年年度报告、2024年半年度报告涉嫌存在虚假记载。
+专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，根据前期投资者胜诉判决，在2020年4月28日到2024年4月30日之间买入龙宇股份股票，并且在2024年4月30日后卖出或继续持有股票的投资者，目前还可发起索赔。
 
 ## 相关推荐
 
-- 2026-06-30 03:49 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 03:52 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 03:34 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 03:35 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 03:31 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 03:44 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 03:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 03:35 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 03:45 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 03:29 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 03:37 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 03:49 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 03:32 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 03:50 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 03:51 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 03:44 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 03:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 03:34 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 03:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 03:50 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 03:37 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 03:51 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 03:41 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 03:47 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 03:37 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 03:45 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:41 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/06463.shtml)
-- 2026-06-30 03:30 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/8690634.shtml)
-- 2026-06-30 03:53 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/4106893.shtml)
-- 2026-06-30 03:29 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/0917182465.shtml)
-- 2026-06-30 03:39 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/24764897625.shtml)
-- 2026-06-30 03:53 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/9489285.shtml)
-- 2026-06-30 03:47 - [沙丘](http://www.share.kurohicncr.top/Article/details/44252.shtml)
-- 2026-06-30 03:33 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/12637.shtml)
-- 2026-06-30 03:33 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/932715.shtml)
-- 2026-06-30 03:47 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/42628416.shtml)
-- 2026-06-30 03:40 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/164801916.shtml)
-- 2026-06-30 03:46 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/5275176.shtml)
-- 2026-06-30 03:25 - [扬名立万](http://www.blog.minike.top/Article/details/427595.shtml)
-- 2026-06-30 03:51 - [张凌赫 客串](http://www.blog.minike.top/Article/details/4173895546.shtml)
-- 2026-06-30 03:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/47214202503.shtml)
+- 2026-06-30 03:47 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/626727328.shtml)
+- 2026-06-30 03:49 - [一见倾心](https://www.blog.minike.top/Article/details/447163.shtml)
+- 2026-06-30 03:56 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/08764683.shtml)
+- 2026-06-30 03:37 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/862100662.shtml)
+- 2026-06-30 03:44 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/613182.shtml)
+- 2026-06-30 03:35 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/46689015529.shtml)
+- 2026-06-30 03:49 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/96779703.shtml)
+- 2026-06-30 03:54 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/8516311627.shtml)
+- 2026-06-30 03:47 - [《共患难》](http://www.share.minike.top/Article/details/0356872.shtml)
+- 2026-06-30 03:46 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/09314.shtml)
+- 2026-06-30 03:46 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/4984657225.shtml)
+- 2026-06-30 03:30 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/98426.shtml)
+- 2026-06-30 03:31 - [起风了](https://www.share.kurohicncr.top/Article/details/500165.shtml)
+- 2026-06-30 03:59 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/838309.shtml)
+- 2026-06-30 03:59 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/768808.shtml)

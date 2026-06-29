@@ -1,47 +1,56 @@
-# 美官员称击落伊朗数架无人机
+# 王小洪在北京调研禁毒工作时强调 坚持综合施策系统治理 纵深推进新时代禁毒人民战争
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月06日 13:21 来源：央视新闻 责任编辑：【王祎】
+新华社北京6月23日电 在第39个国际禁毒日到来之际，国务委员、国家禁毒委员会主任王小洪23日来到北京市少年宫、北京市禁毒科技中心和国药物流有限责任公司调研禁毒工作，看望慰问一线禁毒工作者。他强调，要深入学习贯彻习近平总书记关于禁毒工作的重要指示精神，坚定拥护“两个确立”、坚决做到“两个维护”，树立和践行正确政绩观，坚持综合施策、系统治理，进一步健全毒品治理体系，纵深推进新时代
 
 ## 正文
 
-发布时间：2026年06月06日 13:21 来源：央视新闻 责任编辑：【王祎】
+新华社北京6月23日电 在第39个国际禁毒日到来之际，国务委员、国家禁毒委员会主任王小洪23日来到北京市少年宫、北京市禁毒科技中心和国药物流有限责任公司调研禁毒工作，看望慰问一线禁毒工作者。
+
+他强调，要深入学习贯彻习近平总书记关于禁毒工作的重要指示精神，坚定拥护“两个确立”、坚决做到“两个维护”，树立和践行正确政绩观，坚持综合施策、系统治理，进一步健全毒品治理体系，纵深推进新时代禁毒人民战争。
+
+在北京市少年宫，王小洪实地调研“护航青少年健康成长”禁毒宣传主题活动开展情况，观摩禁毒文化作品展、禁毒戏剧社、“禁毒卫士”体验营等活动，并与现场开展活动的青少年互动交流。
+
+他指出，要创新开展全民禁毒宣传教育，以防范药物滥用为重点，突出抓好青少年毒品预防教育，筑牢青少年识毒拒毒防线，共同呵护青少年特别是未成年人健康成长。
+
+在北京市禁毒科技中心，王小洪深入了解缴获麻精药品检验鉴定和禁毒科技应用等工作。
+
+他强调，要紧密结合推进公安机关新质战斗力提升工程，加强禁毒基础技术研究，健全毒情监测预警网络，强化科技赋能禁毒实战，深化涉麻精药品等成瘾性物质打击整治，持续向毒品犯罪发起凌厉攻势。
+
+王小洪还来到国药物流有限责任公司，仔细听取麻精药品经营和流通管理等情况介绍。
+
+他要求，围绕麻精药品生产、储存、运输、销售、使用等各环节，坚持全链条追溯制度，推进落实信息化管理措施，建立完善更加积极主动的行刑衔接机制，严防出现流弊、形成滥用。
 
 ## 相关推荐
 
-- 2026-06-30 03:24 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 03:29 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 03:31 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 03:49 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 03:39 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 03:28 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 03:45 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 03:36 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 03:29 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 03:27 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 03:49 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 03:51 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 03:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 03:24 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 03:43 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-30 03:53 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 03:47 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 03:30 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 03:49 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 03:49 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 03:47 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 03:59 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 03:55 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 03:53 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-30 03:53 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:26 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/67983409.shtml)
-- 2026-06-30 03:29 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/0674258900.shtml)
-- 2026-06-30 03:25 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/17037423.shtml)
-- 2026-06-30 03:39 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/2457516.shtml)
-- 2026-06-30 03:35 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/43199516992.shtml)
-- 2026-06-30 03:30 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/66188.shtml)
-- 2026-06-30 03:25 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/990364.shtml)
-- 2026-06-30 03:32 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/479401054.shtml)
-- 2026-06-30 03:24 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/292866081.shtml)
-- 2026-06-30 03:46 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/784119.shtml)
-- 2026-06-30 03:43 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/960264175.shtml)
-- 2026-06-30 03:31 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/222013.shtml)
-- 2026-06-30 03:52 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/94701.shtml)
-- 2026-06-30 03:34 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/204102898.shtml)
-- 2026-06-30 03:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/250612.shtml)
+- 2026-06-30 03:47 - [起风了](http://www.share.minike.top/Article/details/5926016.shtml)
+- 2026-06-30 03:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/7232374.shtml)
+- 2026-06-30 03:50 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/32614500.shtml)
+- 2026-06-30 03:48 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/42434473663.shtml)
+- 2026-06-30 03:41 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/95254458.shtml)
+- 2026-06-30 03:43 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/614359.shtml)
+- 2026-06-30 03:40 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/76386.shtml)
+- 2026-06-30 03:44 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/0008345958.shtml)
+- 2026-06-30 03:35 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/239433247308.shtml)
+- 2026-06-30 03:41 - [小娘惹](http://www.blog.minike.top/Article/details/023789.shtml)
+- 2026-06-30 03:32 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/2275274.shtml)
+- 2026-06-30 03:55 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/20786.shtml)
+- 2026-06-30 03:35 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/2271148975.shtml)
+- 2026-06-30 03:32 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/87522.shtml)
+- 2026-06-30 03:31 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/399213163845.shtml)

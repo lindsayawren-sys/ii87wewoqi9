@@ -1,48 +1,45 @@
-# 菲律宾棉兰老岛海域发生7.9级强震 对当地镍矿整体影响相对有限
+# 今年广州白云机场口岸进出境超千万人次
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-上海有色网 周一早间（6月8日），菲律宾南部棉兰老岛海域发生7.9级强烈地震并引发区域海啸预警。SMM第一时间调研显示，此次地震对该国镍矿供应的整体影响有限。尽管受海啸警报影响，局部受灾区域内个别镍矿企业已暂时停止了发往印尼的货物装载作业，但由于本次震源深度较深，且海啸波主要面向印尼方向，其他绝大多数矿区均反馈震感轻微、暂无影响，目前整体矿区生产及日常运营维持正常。责任编辑：李
+发布时间：2026年06月24日 09:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-上海有色网 周一早间（6月8日），菲律宾南部棉兰老岛海域发生7.9级强烈地震并引发区域海啸预警。
-
-SMM第一时间调研显示，此次地震对该国镍矿供应的整体影响有限。
-
-尽管受海啸警报影响，局部受灾区域内个别镍矿企业已暂时停止了发往印尼的货物装载作业，但由于本次震源深度较深，且海啸波主要面向印尼方向，其他绝大多数矿区均反馈震感轻微、暂无影响，目前整体矿区生产及日常运营维持正常。
-
-责任编辑：李铁民
+发布时间：2026年06月24日 09:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 03:41 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 03:40 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 03:35 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 03:34 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-30 03:30 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 03:44 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 03:53 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 03:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 03:42 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 03:30 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 03:51 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 03:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 03:51 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 03:54 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 03:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 03:37 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 03:32 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 03:33 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 03:35 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 03:42 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 03:32 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 03:33 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-30 03:55 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:37 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/63991586.shtml)
-- 2026-06-30 03:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/68562675010.shtml)
-- 2026-06-30 03:42 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/230117477878.shtml)
-- 2026-06-30 03:25 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/703551588.shtml)
-- 2026-06-30 03:29 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/3955559.shtml)
-- 2026-06-30 03:34 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/807873560.shtml)
-- 2026-06-30 03:26 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/5178752.shtml)
-- 2026-06-30 03:30 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/612886788.shtml)
-- 2026-06-30 03:30 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/53195075.shtml)
-- 2026-06-30 03:39 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/82516519749.shtml)
-- 2026-06-30 03:24 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/22116713.shtml)
-- 2026-06-30 03:24 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/090091.shtml)
-- 2026-06-30 03:41 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/87504001.shtml)
-- 2026-06-30 03:34 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/0317616980.shtml)
-- 2026-06-30 03:37 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/52057.shtml)
+- 2026-06-30 03:53 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/503522420432.shtml)
+- 2026-06-30 03:42 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/1906279.shtml)
+- 2026-06-30 03:45 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/32272331799.shtml)
+- 2026-06-30 03:57 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/86998.shtml)
+- 2026-06-30 03:50 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/45019.shtml)
+- 2026-06-30 03:41 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/88537387.shtml)
+- 2026-06-30 03:59 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/0278689.shtml)
+- 2026-06-30 03:34 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/264494584359.shtml)
+- 2026-06-30 03:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/4797693510.shtml)
+- 2026-06-30 03:53 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/886523.shtml)
+- 2026-06-30 03:53 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/042833994452.shtml)
+- 2026-06-30 03:51 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/057277.shtml)
+- 2026-06-30 03:45 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/963983438424.shtml)
+- 2026-06-30 03:48 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/28749401243.shtml)
+- 2026-06-30 03:30 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/117236.shtml)

@@ -1,57 +1,53 @@
-# 六个核桃卖不动，养元饮品去赌芯片了？
+# 中创环保，董事长被刑拘并辞职
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：市值风云 吃老本，撞大运。 作者 | 白猫 编辑 | 小白 前段时间，养元饮品（603156.SH）的走势着实有点让人侧目，股价连创新高，看到这种风骚姿态，风云君不免疑惑：难道大家突然又爱上喝六个核桃了？ （市值风云PC端） 其实，真正把这家老牌饮料公司推上历史新高的，不是货架上的易拉罐，而是公司花1
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中创环保公告，公司董事会近日收到公司董事长张红亮的书面辞职报告，张红亮因涉嫌刑事犯罪被公安机关刑事拘留，无法正常履职，故申请辞去公司董事、董事长及董事会下属各专门委员会担任的全部职务，辞职后不再担任公司任何职务。公司表示该事件不影响正常经营活动，将尽快完成董事补选及新任董事长选举工作。 盘面上，今日截至收盘
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来源：市值风云 吃老本，撞大运。
+中创环保公告，公司董事会近日收到公司董事长张红亮的书面辞职报告，张红亮因涉嫌刑事犯罪被公安机关刑事拘留，无法正常履职，故申请辞去公司董事、董事长及董事会下属各专门委员会担任的全部职务，辞职后不再担任公司任何职务。
 
-作者 | 白猫 编辑 | 小白 前段时间，养元饮品（603156.SH）的走势着实有点让人侧目，股价连创新高，看到这种风骚姿态，风云君不免疑惑：难道大家突然又爱上喝六个核桃了？
+公司表示该事件不影响正常经营活动，将尽快完成董事补选及新任董事长选举工作。
 
-（市值风云PC端） 其实，真正把这家老牌饮料公司推上历史新高的，不是货架上的易拉罐，而是公司花16亿买的那张长江存储0.99%股份的“彩票”。
+盘面上，今日截至收盘，中创环保跌1.83%，报8.04元/股，最新总市值为31亿元。
 
-16亿砸向长江存储 故事的引爆点要回到公司先前的一张公告上。
-
-4月25日晚，养元饮品公告掏出16亿元，通过旗下泉泓投资增资长江存储母公司长控集团，拿到了0.99%的股份。
-
-（公告编号：2025-012） 这一巴掌直接拍在了半导体存储芯片的国产替代和AI大潮上。
-
-长江存储是一家集芯片设计、生产制造、封装测试及系统解决方案于一体的存储器IDM企业，产品广泛应用于移动通信、消费数码、计算机、服务器及数据中心等领域。
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 03:28 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 03:28 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 03:26 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 03:45 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-30 03:31 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 03:44 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 03:24 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 03:40 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 03:47 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-30 03:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 03:30 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 03:30 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 03:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 03:35 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 03:57 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 03:55 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 03:40 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 03:54 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 03:51 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 03:36 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 03:45 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 03:32 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 03:43 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 03:41 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:36 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/532667036191.shtml)
-- 2026-06-30 03:45 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/7470237.shtml)
-- 2026-06-30 03:52 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/666245370.shtml)
-- 2026-06-30 03:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/8975164.shtml)
-- 2026-06-30 03:51 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/05562081201.shtml)
-- 2026-06-30 03:49 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/063506.shtml)
-- 2026-06-30 03:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/0306448107.shtml)
-- 2026-06-30 03:42 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/08109446.shtml)
-- 2026-06-30 03:24 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/13096881280.shtml)
-- 2026-06-30 03:36 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/5109816265.shtml)
-- 2026-06-30 03:33 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/246870302784.shtml)
-- 2026-06-30 03:25 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/0482812763.shtml)
-- 2026-06-30 03:25 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/0109016579.shtml)
-- 2026-06-30 03:42 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/123775277.shtml)
-- 2026-06-30 03:46 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/23186.shtml)
+- 2026-06-30 03:48 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/5282737189.shtml)
+- 2026-06-30 03:54 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/71752052.shtml)
+- 2026-06-30 03:47 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/9076962400.shtml)
+- 2026-06-30 03:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/00788742.shtml)
+- 2026-06-30 03:48 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/77062458.shtml)
+- 2026-06-30 03:44 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/423024.shtml)
+- 2026-06-30 03:50 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/20349869.shtml)
+- 2026-06-30 03:38 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/524923648.shtml)
+- 2026-06-30 03:36 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/819056.shtml)
+- 2026-06-30 03:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/2211299.shtml)
+- 2026-06-30 03:37 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/25394.shtml)
+- 2026-06-30 03:37 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/047223.shtml)
+- 2026-06-30 03:40 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/764963.shtml)
+- 2026-06-30 03:52 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/40191019.shtml)
+- 2026-06-30 03:38 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/5534051.shtml)

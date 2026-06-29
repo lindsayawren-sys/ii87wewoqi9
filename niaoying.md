@@ -1,56 +1,60 @@
-# 一纸侨批寄乡愁 光影牵起万里侨乡情
+# 外交部：各国企业参展链博会 反映出对中国经济前景的信心
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-中新网银川6月5日电 (李佩珊 孔婷婷 李苑瑶 李晓歌)薄薄一纸侨批，连着天涯游子与故土亲人。电影《给阿嬷的情书》以家书为线索，细细描摹老一辈华侨漂洋过海、靠侨批鸿雁传情的旧日时光。6月5日，宁夏侨联邀请在宁侨胞、侨务工作者集体观影，大家结合自身侨缘故事围坐畅谈，在光影里重温绵延百年的侨眷乡情。 过去交通闭塞、书信难传，远赴菲律宾、马来西亚、澳大利亚等地谋生的闽粤先辈，全凭侨批
+6月23日，外交部发言人郭嘉昆主持例行记者会。总台记者提问，昨天，第四届中国国际供应链促进博览会在北京顺义开幕，吸引超过1200家中外参展商，其中美国参展企业和机构数量继续位列外资参展商榜首。我们注意到，中方近期密集举办系列博览会，中国-南亚博览会上周在昆明闭幕，后天中国-亚欧博览会将在乌鲁木齐举行。有分析认为，在一些国家“筑墙设垒”、推行保护主义的同时，中国则选择进一步敞开开
 
 ## 正文
 
-中新网银川6月5日电 (李佩珊 孔婷婷 李苑瑶 李晓歌)薄薄一纸侨批，连着天涯游子与故土亲人。
+6月23日，外交部发言人郭嘉昆主持例行记者会。
 
-电影《给阿嬷的情书》以家书为线索，细细描摹老一辈华侨漂洋过海、靠侨批鸿雁传情的旧日时光。
+总台记者提问，昨天，第四届中国国际供应链促进博览会在北京顺义开幕，吸引超过1200家中外参展商，其中美国参展企业和机构数量继续位列外资参展商榜首。
 
-6月5日，宁夏侨联邀请在宁侨胞、侨务工作者集体观影，大家结合自身侨缘故事围坐畅谈，在光影里重温绵延百年的侨眷乡情。
+我们注意到，中方近期密集举办系列博览会，中国-南亚博览会上周在昆明闭幕，后天中国-亚欧博览会将在乌鲁木齐举行。
 
-过去交通闭塞、书信难传，远赴菲律宾、马来西亚、澳大利亚等地谋生的闽粤先辈，全凭侨批捎去家书与生活费。
+有分析认为，在一些国家“筑墙设垒”、推行保护主义的同时，中国则选择进一步敞开开放的大门。
 
-海外华侨省吃俭用，把血汗钱连同牵挂写进信纸，托人寄回老家赡养老小，方寸侨批，盛满异国谋生的辛苦与惦念家人的温情。
+请问发言人对此有何评论？
 
-影片里坚守华文、传承乡音的细节，戳中不少在场侨胞的切身经历。
+郭嘉昆表示，链博会是全球首个以供应链为主题的国家级展会，为中外企业提供展链条、展生态、展场景的平台，搭建找合作伙伴、找解决方案的桥梁。
 
-新西兰宁夏同乡会(拟)会长马博常年旅居海外，身边许多闽南华裔后代久居异国，平日鲜少使用国语，却执着守住家乡方言，靠着乡音留住宗族印记，和影片故事不谋而合。
+本届链博会吸引超过1200家参展商，涉及85个国家、地区和国际组织，世界500强及行业龙头企业参展比例超过65%。
 
-“不少老一辈华侨仍然坚持督促子女修习汉字、研读华文，以语言为纽带，守住扎根心底的家国根脉。
+各国企业的参展热情，反映出对中国大市场的重视、对中国经济前景的信心。
 
 ## 相关推荐
 
-- 2026-06-30 03:52 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 03:34 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 03:31 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 03:38 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 03:42 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 03:49 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 03:44 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-30 03:37 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 03:53 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 03:52 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 03:51 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 03:32 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 03:42 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 03:47 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-30 03:48 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 03:46 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 03:57 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 03:55 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 03:54 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 03:42 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 03:42 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 03:39 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 03:40 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 03:35 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:40 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/7781722.shtml)
-- 2026-06-30 03:40 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/242610374641.shtml)
-- 2026-06-30 03:40 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/63962548648.shtml)
-- 2026-06-30 03:50 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/2621847274.shtml)
-- 2026-06-30 03:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/03901.shtml)
-- 2026-06-30 03:27 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/12265612487.shtml)
-- 2026-06-30 03:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/295615898434.shtml)
-- 2026-06-30 03:51 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/40769170926.shtml)
-- 2026-06-30 03:34 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/903010.shtml)
-- 2026-06-30 03:43 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/694415.shtml)
-- 2026-06-30 03:38 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/245151.shtml)
-- 2026-06-30 03:42 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/931170.shtml)
-- 2026-06-30 03:53 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/6113807.shtml)
-- 2026-06-30 03:30 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/37065758.shtml)
-- 2026-06-30 03:25 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/336709013.shtml)
+- 2026-06-30 03:50 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/89369494.shtml)
+- 2026-06-30 03:43 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/922460104013.shtml)
+- 2026-06-30 03:53 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/3391022.shtml)
+- 2026-06-30 03:41 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/21058514655.shtml)
+- 2026-06-30 03:31 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/541892.shtml)
+- 2026-06-30 03:45 - [月亮](http://www.blog.minike.top/Article/details/68394548744.shtml)
+- 2026-06-30 03:35 - [蔚来车主罚站](https://www.share.minike.top/Article/details/3936541.shtml)
+- 2026-06-30 03:39 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/206894933362.shtml)
+- 2026-06-30 03:49 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/02931.shtml)
+- 2026-06-30 03:42 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/318855913182.shtml)
+- 2026-06-30 03:44 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/77986779379.shtml)
+- 2026-06-30 03:36 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/437374.shtml)
+- 2026-06-30 03:31 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/148185326.shtml)
+- 2026-06-30 03:39 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/8221531899.shtml)
+- 2026-06-30 03:31 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/64799.shtml)

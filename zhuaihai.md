@@ -1,59 +1,45 @@
-# 港股油气股拉升 山东墨龙大涨逾30% 以军证实打击伊朗石化工厂
+# 以总理称以军在黎南部行动“不受限制”
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-港股油气设备与服务股持续走强，山东墨龙午后大涨逾30%，百勤油服涨超7%，中石化油服涨超1%。 消息面上，布伦特原油期货现涨超5%，报96.7美元/桶，WTI原油期货现涨4.6%。 以色列国防军8日早间证实，以色列空军当天打击了位于伊朗西南部马赫沙赫尔的石油化工综合体多个目标。据伊朗媒体报道，马赫沙赫尔石化公司当天遭以色列袭击，部分设施受损。目前尚无人员伤亡报告。相关部门正在评
+发布时间：2026年06月23日 10:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-港股油气设备与服务股持续走强，山东墨龙午后大涨逾30%，百勤油服涨超7%，中石化油服涨超1%。
-
-消息面上，布伦特原油期货现涨超5%，报96.7美元/桶，WTI原油期货现涨4.6%。
-
-以色列国防军8日早间证实，以色列空军当天打击了位于伊朗西南部马赫沙赫尔的石油化工综合体多个目标。
-
-据伊朗媒体报道，马赫沙赫尔石化公司当天遭以色列袭击，部分设施受损。
-
-目前尚无人员伤亡报告。
-
-相关部门正在评估损失情况。
-
-当天稍早前，以军称再次监测到伊朗多枚导弹来袭，耶路撒冷及以色列南部多个城市拉响防空警报。
-
-以色列媒体随后报道说，所有来袭导弹均被拦截。
+发布时间：2026年06月23日 10:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 03:25 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 03:25 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 03:32 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-30 03:50 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 03:39 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 03:42 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 03:28 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 03:42 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 03:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 03:49 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 03:44 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 03:49 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 03:46 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 03:47 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 03:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 03:49 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 03:31 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 03:43 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 03:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 03:33 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 03:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 03:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 03:43 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 03:32 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 03:41 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 03:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:29 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/7194042970.shtml)
-- 2026-06-30 03:53 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/91951.shtml)
-- 2026-06-30 03:44 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/82328.shtml)
-- 2026-06-30 03:47 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/192685312.shtml)
-- 2026-06-30 03:45 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/6256084105.shtml)
-- 2026-06-30 03:29 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/376357128943.shtml)
-- 2026-06-30 03:46 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/66128.shtml)
-- 2026-06-30 03:35 - [日本进球](https://www.blog.minike.top/Article/details/15456571.shtml)
-- 2026-06-30 03:33 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/1637999.shtml)
-- 2026-06-30 03:29 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/18384.shtml)
-- 2026-06-30 03:40 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/82268.shtml)
-- 2026-06-30 03:52 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/985569899287.shtml)
-- 2026-06-30 03:34 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/38684519897.shtml)
-- 2026-06-30 03:26 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/382567322.shtml)
-- 2026-06-30 03:38 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/415728.shtml)
+- 2026-06-30 03:37 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/28213.shtml)
+- 2026-06-30 03:42 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/11750932216.shtml)
+- 2026-06-30 03:53 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/434374256366.shtml)
+- 2026-06-30 03:35 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/419978329927.shtml)
+- 2026-06-30 03:45 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/203408118171.shtml)
+- 2026-06-30 03:50 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/854485393726.shtml)
+- 2026-06-30 03:51 - [巴西扳平比分](http://www.blog.minike.top/Article/details/01696228.shtml)
+- 2026-06-30 03:44 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/79888.shtml)
+- 2026-06-30 03:45 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/254555412.shtml)
+- 2026-06-30 03:36 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/09469964.shtml)
+- 2026-06-30 03:56 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/6002676.shtml)
+- 2026-06-30 03:44 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/755099440.shtml)
+- 2026-06-30 03:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/8199574036.shtml)
+- 2026-06-30 03:52 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/19386035.shtml)
+- 2026-06-30 03:57 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/87643225.shtml)

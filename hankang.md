@@ -1,58 +1,48 @@
-# “丝路心相通”国际爱心包裹惠及柬埔寨670余所学校
+# 外交部：中印双方涉边境问题沟通渠道畅通
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-【东盟专线】“丝路心相通”国际爱心包裹惠及柬埔寨670余所学校 中新社金边6月7日电 (记者 杨强)“丝路心相通—2026年柬埔寨爱心包裹(体育包)发放仪式”6日在西哈努克省举行。这批凝聚中国民间爱心的物资将陆续发放至柬埔寨全国12个省670余所学校，惠及当地广大青少年学生，助力柬基层校园体育事业发展。 此次活动由中国乡村发展基金会与柬埔寨民间社会组织联盟论坛联合主办。柬埔寨副
+新华社北京6月23日电（记者曹嘉玥、万倩仪）外交部发言人郭嘉昆23日在例行记者会上说，当前中印边境局势总体稳定，双方涉边境问题沟通渠道畅通，正在积极落实中印边界问题特别代表第24次会晤共识，同时也在认真筹备举行特别代表第25次会晤。（完）责任编辑：刘万里 SF014
 
 ## 正文
 
-【东盟专线】“丝路心相通”国际爱心包裹惠及柬埔寨670余所学校 中新社金边6月7日电 (记者 杨强)“丝路心相通—2026年柬埔寨爱心包裹(体育包)发放仪式”6日在西哈努克省举行。
+新华社北京6月23日电（记者曹嘉玥、万倩仪）外交部发言人郭嘉昆23日在例行记者会上说，当前中印边境局势总体稳定，双方涉边境问题沟通渠道畅通，正在积极落实中印边界问题特别代表第24次会晤共识，同时也在认真筹备举行特别代表第25次会晤。
 
-这批凝聚中国民间爱心的物资将陆续发放至柬埔寨全国12个省670余所学校，惠及当地广大青少年学生，助力柬基层校园体育事业发展。
-
-此次活动由中国乡村发展基金会与柬埔寨民间社会组织联盟论坛联合主办。
-
-柬埔寨副首相兼土地管理、城市规划和建设部大臣赛桑奥，柬埔寨民间社会组织联盟论坛主席盖里维希，西哈努克省省长蒙西纳，中国和平发展基金会驻柬办事处主任王亚辉等中柬嘉宾出席仪式。
-
-赛桑奥在致辞中高度肯定中方长期以来对柬埔寨的无私援助与大力支持。
-
-他说，此次爱心捐赠帮扶举措生动诠释了柬中两国守望相助、患难与共的深厚感情，同时再次印证了两国牢不可破的“铁杆友谊”。
-
-盖里维希表示，近年来，以中国和平发展基金会、中国乡村发展基金会为代表的中国社会组织深耕柬埔寨基层一线，聚焦贫困地区教育发展与民生改善，落地实施一系列暖心公益项目，为当地社会事业进步作出积极贡献。
-
-柬方对中方的持续善举表示诚挚感谢。
+（完）责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 03:47 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 03:30 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 03:35 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 03:25 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 03:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 03:53 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 03:48 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 03:51 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 03:33 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 03:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 03:31 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 03:36 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 03:39 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 03:35 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 03:52 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 03:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 03:42 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 03:45 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 03:47 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 03:43 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 03:49 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 03:57 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 03:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 03:58 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 03:49 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 03:54 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:36 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/20066.shtml)
-- 2026-06-30 03:49 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/859671.shtml)
-- 2026-06-30 03:48 - [金刚川](https://www.share.kurohicncr.top/Article/details/85229825926.shtml)
-- 2026-06-30 03:31 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/9995720.shtml)
-- 2026-06-30 03:52 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/23728767573.shtml)
-- 2026-06-30 03:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/140001991045.shtml)
-- 2026-06-30 03:35 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/53027635.shtml)
-- 2026-06-30 03:51 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/89778855.shtml)
-- 2026-06-30 03:43 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/46609.shtml)
-- 2026-06-30 03:26 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/415232217832.shtml)
-- 2026-06-30 03:27 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/03676970.shtml)
-- 2026-06-30 03:31 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/7664030.shtml)
-- 2026-06-30 03:38 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/852098.shtml)
-- 2026-06-30 03:25 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/26990730284.shtml)
-- 2026-06-30 03:36 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/61710585979.shtml)
+- 2026-06-30 03:37 - [千与千寻](https://www.share.minike.top/Article/details/76294515.shtml)
+- 2026-06-30 03:48 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/7768803499.shtml)
+- 2026-06-30 03:49 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/8625934725.shtml)
+- 2026-06-30 03:51 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/362503.shtml)
+- 2026-06-30 03:55 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/969160081.shtml)
+- 2026-06-30 03:34 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/342544576854.shtml)
+- 2026-06-30 03:44 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/399593567.shtml)
+- 2026-06-30 03:33 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/8776480326.shtml)
+- 2026-06-30 03:44 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/31548629.shtml)
+- 2026-06-30 03:31 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/76684128.shtml)
+- 2026-06-30 03:50 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/31229878688.shtml)
+- 2026-06-30 03:44 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/635582.shtml)
+- 2026-06-30 03:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/7526827.shtml)
+- 2026-06-30 03:33 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/039310015206.shtml)
+- 2026-06-30 03:50 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/986736391.shtml)

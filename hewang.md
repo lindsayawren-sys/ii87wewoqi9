@@ -1,57 +1,42 @@
-# “小而美”何以释放大能量
+# 美总统与意总理近日公开爆发争执
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-【理响中国】“小而美”何以释放大能量 一间非遗小院、一条古村小径、一顿田间晚餐……越来越多“小而美”的乡村场景，正在成为乡村文旅的新亮点。“十五五”规划纲要提出，培育壮大乡村特色产业和乡村休闲旅游、文化体验、农村电商等新产业新业态。2026年中央一号文件提出，推进乡村旅游提档升级，发展“小而美”文旅业态。从规模扩张转向品质深耕、从粗放开发转向内涵提升，乡村文旅正迎来转型升级。
+发布时间：2026年06月24日 10:43 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-【理响中国】“小而美”何以释放大能量 一间非遗小院、一条古村小径、一顿田间晚餐……越来越多“小而美”的乡村场景，正在成为乡村文旅的新亮点。
-
-“十五五”规划纲要提出，培育壮大乡村特色产业和乡村休闲旅游、文化体验、农村电商等新产业新业态。
-
-2026年中央一号文件提出，推进乡村旅游提档升级，发展“小而美”文旅业态。
-
-从规模扩张转向品质深耕、从粗放开发转向内涵提升，乡村文旅正迎来转型升级。
-
-近年来，我国游客的消费需求已悄然变化：走马观花、打卡式的“到此一游”不再吃香，取而代之的是沉浸式、个性化、有情感链接的旅游体验。
-
-对于家庭客群和“Z世代”群体，吸引他们的不只是“大景区”“大项目”，而是那些承载乡土记忆、体现生活美学的“小场景”“小空间”。
-
-一处非遗手作工坊、一场田间音乐会、一顿乡野风味餐食——体量虽小，却更贴近生活，恰恰契合了当下文旅消费的新趋势。
-
-“小而美”并不意味着“小打小闹”。
+发布时间：2026年06月24日 10:43 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 03:40 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 03:39 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 03:25 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 03:29 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 03:54 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-30 03:26 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 03:54 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 03:28 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-30 03:50 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 03:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 03:53 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 03:50 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 03:45 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 03:58 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 03:46 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 03:59 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 03:38 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 03:34 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 03:38 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 03:37 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 03:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/40828193.shtml)
-- 2026-06-30 03:25 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/48946273.shtml)
-- 2026-06-30 03:29 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/7441720.shtml)
-- 2026-06-30 03:34 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/16875688.shtml)
-- 2026-06-30 03:33 - [内马尔替补](https://www.blog.minike.top/Article/details/00088720703.shtml)
-- 2026-06-30 03:35 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/9446957202.shtml)
-- 2026-06-30 03:52 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/0272442961.shtml)
-- 2026-06-30 03:42 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/04230076.shtml)
-- 2026-06-30 03:33 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/5219241194.shtml)
-- 2026-06-30 03:45 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/822483615798.shtml)
-- 2026-06-30 03:54 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/15127519336.shtml)
-- 2026-06-30 03:39 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/305150.shtml)
-- 2026-06-30 03:25 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/316311.shtml)
-- 2026-06-30 03:48 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/82008905976.shtml)
-- 2026-06-30 03:49 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/52793619232.shtml)
+- 2026-06-30 03:56 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/8155041.shtml)
+- 2026-06-30 03:39 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/36719967777.shtml)
+- 2026-06-30 03:37 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/4835099.shtml)
+- 2026-06-30 03:44 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/100717249.shtml)
+- 2026-06-30 03:54 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/530333.shtml)
+- 2026-06-30 03:49 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/5111477.shtml)
+- 2026-06-30 03:48 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/13072442794.shtml)
+- 2026-06-30 03:54 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/840764.shtml)
+- 2026-06-30 03:48 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/51716350803.shtml)
+- 2026-06-30 03:35 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/796104.shtml)
+- 2026-06-30 03:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/993820.shtml)
+- 2026-06-30 03:34 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/65644329044.shtml)
+- 2026-06-30 03:35 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/995034773.shtml)
+- 2026-06-30 03:51 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/19052.shtml)
+- 2026-06-30 03:55 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/1850074806.shtml)

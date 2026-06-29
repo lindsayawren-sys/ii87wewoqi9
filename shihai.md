@@ -1,61 +1,59 @@
-# 四川康定4.5级地震：暂无人员伤亡情况报告
+# 加息预期降温提振美债 两年期国债拍卖需求强劲
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-中新网成都6月8日电 (记者 刘忠俊)记者8日从四川省甘孜州康定市委宣传部、四川省地震局获悉，康定4.5级地震暂未收到人员伤亡情况报告，已启动地震四级应急服务响应。 中国地震台网正式测定，6月8日5时7分在甘孜州康定市发生4.5级地震，震源深度10公里，震中位于北纬29.90度，东经101.91度。 地震发生时，康定市城区震感明显。“感觉摇了下，其他没有什么情况。”家住康定城区
+美国国债价格上涨，因美国股市遭遇抛售刺激避险需求，以及油价下跌令市场削减对美联储未来一年加息的押注。 全球半导体股票遭遇抛售，加剧了市场对AI相关股票前期涨幅过大的担忧，进而刺激了对政府债券和美元等避险资产的需求。此次两年期国债拍卖需求强劲。 油价下跌同样减轻了美联储通过加息来对抗通胀的压力。互换合约显示，市场对未来一年内加息超过一次的预期概率略有下降，目前定价反映出到2027
 
 ## 正文
 
-中新网成都6月8日电 (记者 刘忠俊)记者8日从四川省甘孜州康定市委宣传部、四川省地震局获悉，康定4.5级地震暂未收到人员伤亡情况报告，已启动地震四级应急服务响应。
+美国国债价格上涨，因美国股市遭遇抛售刺激避险需求，以及油价下跌令市场削减对美联储未来一年加息的押注。
 
-中国地震台网正式测定，6月8日5时7分在甘孜州康定市发生4.5级地震，震源深度10公里，震中位于北纬29.90度，东经101.91度。
+全球半导体股票遭遇抛售，加剧了市场对AI相关股票前期涨幅过大的担忧，进而刺激了对政府债券和美元等避险资产的需求。
 
-地震发生时，康定市城区震感明显。
+此次两年期国债拍卖需求强劲。
 
-“感觉摇了下，其他没有什么情况。
+油价下跌同样减轻了美联储通过加息来对抗通胀的压力。
 
-”家住康定城区的杨姓居民称。
+互换合约显示，市场对未来一年内加息超过一次的预期概率略有下降，目前定价反映出到2027年中期将累计加息约45个基点。
 
-地震发生后，四川省地震局迅速启动地震四级应急服务响应，并与中国地震台网中心、四川省地震局康定地震监测中心站、甘孜州应急管理局联合会商，向中国地震局和四川省委、省政府汇报了初步震情，部署应急响应工作。
+“目前市场已充分消化美联储更为鹰派的政策预期，”RBC Capital Markets利率策略师Izaac Brook表示，经通胀调整后的两年期国债收益率已升至美联储2024年9月开始降息以来的最高水平。
 
-同时，调度甘孜州防震减灾部门核查灾情，先期指派康定地震监测中心站4名同志赶赴震中，开展现场应急处置工作。
+美国国债价格上涨带动收益率下行1至4个基点，其中对美联储政策利率变化最敏感的短期国债收益率领跌。
 
-目前，甘孜州、康定市应急管理部门正在震中开展地震灾情核查工作。
+两年期国债收益率下跌超过4个基点，至4.19%。
 
 ## 相关推荐
 
-- 2026-06-30 03:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-30 03:36 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 03:30 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 03:28 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 03:31 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 03:46 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 03:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 03:52 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 03:32 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 03:40 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 03:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 03:37 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 03:50 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 03:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 03:30 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 03:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 03:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 03:40 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 03:55 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 03:30 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 03:34 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 03:59 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 03:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 03:33 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 03:30 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 03:51 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 03:49 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 03:52 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:29 - [千与千寻](http://www.share.minike.top/Article/details/31079661300.shtml)
-- 2026-06-30 03:37 - [沙丘](https://www.share.kurohicncr.top/Article/details/645546209682.shtml)
-- 2026-06-30 03:39 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/830985187.shtml)
-- 2026-06-30 03:29 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/435345750.shtml)
-- 2026-06-30 03:48 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/286365004.shtml)
-- 2026-06-30 03:48 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/755669620.shtml)
-- 2026-06-30 03:46 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/51065.shtml)
-- 2026-06-30 03:38 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/974891.shtml)
-- 2026-06-30 03:46 - [《贺子珍》](https://www.blog.minike.top/Article/details/30355610215.shtml)
-- 2026-06-30 03:29 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/197113585.shtml)
-- 2026-06-30 03:50 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/970025198548.shtml)
-- 2026-06-30 03:50 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/639715740864.shtml)
-- 2026-06-30 03:25 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/26297.shtml)
-- 2026-06-30 03:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/3300419.shtml)
-- 2026-06-30 03:39 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/2430349.shtml)
+- 2026-06-30 03:30 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/914767674072.shtml)
+- 2026-06-30 03:54 - [绘画区你赢了](https://www.blog.minike.top/Article/details/92355456.shtml)
+- 2026-06-30 03:45 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/004208220899.shtml)
+- 2026-06-30 03:55 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/261121972.shtml)
+- 2026-06-30 03:41 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/64680.shtml)
+- 2026-06-30 03:36 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/1303573988.shtml)
+- 2026-06-30 03:49 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/869618351559.shtml)
+- 2026-06-30 03:36 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/04484.shtml)
+- 2026-06-30 03:37 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/90593216.shtml)
+- 2026-06-30 03:50 - [《共患难》](http://www.blog.minike.top/Article/details/6139518.shtml)
+- 2026-06-30 03:36 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/69641.shtml)
+- 2026-06-30 03:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/160158009.shtml)
+- 2026-06-30 03:50 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/0690863088.shtml)
+- 2026-06-30 03:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/48244553349.shtml)
+- 2026-06-30 03:32 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/45629346015.shtml)

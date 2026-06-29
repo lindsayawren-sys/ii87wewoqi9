@@ -1,57 +1,59 @@
-# 中东，突传大消息！以色列发动空袭！美国或用伊朗资产赔偿海湾盟友！
+# 携手维护全球产供链稳定畅通
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-以军称打击黎巴嫩南部约150处真主党目标 当地时间6日，以色列国防军表示，在5日、6日两天，以军在黎巴嫩南部对约150处真主党武装基础设施实施空袭和火力打击。以军称，打击目标包括武器储存点、指挥中心、火箭发射装置以及其他用于开展军事行动的设施。 以军表示，这些设施被真主党用于策划和实施针对以军部队的袭击。 此外，当地时间6日，以色列国防军证实，有两名以军士兵近日在黎巴嫩南部执行
+新华社北京6月22日电 新华时评｜携手维护全球产供链稳定畅通 新华社记者闫洁 钟雅 第四届中国国际供应链促进博览会22日拉开帷幕。作为全球首个以供应链为主题的国家级展会，本届链博会有676家中外企业参展，多家具有全球影响力的跨国链主企业首次亮相。 越来越多外国企业将目光投向链博会这一链接全球产供链网络的重要平台，凸显各国企业希望找伙伴、觅合作、寻商机的共同诉求和呼声。尤其是在保
 
 ## 正文
 
-以军称打击黎巴嫩南部约150处真主党目标 当地时间6日，以色列国防军表示，在5日、6日两天，以军在黎巴嫩南部对约150处真主党武装基础设施实施空袭和火力打击。
+新华社北京6月22日电 新华时评｜携手维护全球产供链稳定畅通 新华社记者闫洁 钟雅 第四届中国国际供应链促进博览会22日拉开帷幕。
 
-以军称，打击目标包括武器储存点、指挥中心、火箭发射装置以及其他用于开展军事行动的设施。
+作为全球首个以供应链为主题的国家级展会，本届链博会有676家中外企业参展，多家具有全球影响力的跨国链主企业首次亮相。
 
-以军表示，这些设施被真主党用于策划和实施针对以军部队的袭击。
+越来越多外国企业将目光投向链博会这一链接全球产供链网络的重要平台，凸显各国企业希望找伙伴、觅合作、寻商机的共同诉求和呼声。
 
-此外，当地时间6日，以色列国防军证实，有两名以军士兵近日在黎巴嫩南部执行任务期间死亡。
+尤其是在保护主义冲击世界经济、地缘冲突频仍、全球产业链供应链碎片化加剧的背景下，链博会的举行彰显中国以实际行动增强全球产供链韧性、坚定维护多边贸易体制的决心和诚意。
 
-以军称，一名以军上尉此前在4日夜间遭真主党无人机袭击受重伤，被送医后于6日早晨不治身亡。
+全球产供链脆弱性日益凸显，更需各国同舟共济、携手应对挑战。
 
-另一起事件发生在5日，一名以军士兵在黎巴嫩南部执行任务期间疑似武器意外走火死亡。
+当前，巩固全球化分工格局、维护全球产供链稳定畅通已成为各国业界普遍共识。
 
-美或用伊朗资产赔偿海湾盟友 当地时间6月6日，据知情人士向媒体透露，美国财政部长贝森特已指示团队“评估海湾盟国的相关情况，并核算伊朗造成损失的修复成本”。
+链博会为全球上中下游、大中小企业搭建起高效对接和融通平台，有助于各方挖掘产业互补优势并建立合作关系、对冲地缘冲突对全球产供链的扰动，并将带动更多企业深度参与全球价值链，分享全球生产网络，提升全球产供链效能。
 
-消息人士称，美国打算利用相关机制，将冻结的伊朗资产转交给海湾盟友，用以资助其“应对伊朗未来可能造成的破坏并进行重建与修缮工作”。
+近年来，中国作为全球产供链重要枢纽的地位进一步凸显。
 
 ## 相关推荐
 
-- 2026-06-30 03:37 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 03:46 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 03:44 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 03:42 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 03:44 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 03:38 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 03:38 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 03:45 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 03:35 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 03:34 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 03:50 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 03:45 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 03:52 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 03:42 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 03:31 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 03:45 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 03:55 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-30 03:30 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 03:59 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 03:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 03:46 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 03:47 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 03:40 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 03:55 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:32 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/474459859.shtml)
-- 2026-06-30 03:40 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/15909721377.shtml)
-- 2026-06-30 03:44 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/400384312.shtml)
-- 2026-06-30 03:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/464066359.shtml)
-- 2026-06-30 03:54 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/7147370062.shtml)
-- 2026-06-30 03:35 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/525211138.shtml)
-- 2026-06-30 03:51 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/1340712361.shtml)
-- 2026-06-30 03:41 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/65748.shtml)
-- 2026-06-30 03:53 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/601407073631.shtml)
-- 2026-06-30 03:27 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/55116284404.shtml)
-- 2026-06-30 03:53 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/443438712238.shtml)
-- 2026-06-30 03:29 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/39539.shtml)
-- 2026-06-30 03:38 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/152454612119.shtml)
-- 2026-06-30 03:49 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/117436126.shtml)
-- 2026-06-30 03:51 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/51938864.shtml)
+- 2026-06-30 03:59 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/8439991.shtml)
+- 2026-06-30 03:43 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/19415.shtml)
+- 2026-06-30 03:45 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/920818.shtml)
+- 2026-06-30 03:54 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/819149975373.shtml)
+- 2026-06-30 03:46 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/69171.shtml)
+- 2026-06-30 03:55 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/7437783.shtml)
+- 2026-06-30 03:55 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/0573464.shtml)
+- 2026-06-30 03:32 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/98593459.shtml)
+- 2026-06-30 03:37 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/753953.shtml)
+- 2026-06-30 03:34 - [一生一世](https://www.share.kurohicncr.top/Article/details/886863.shtml)
+- 2026-06-30 03:51 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/89737.shtml)
+- 2026-06-30 03:46 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/4357443.shtml)
+- 2026-06-30 03:38 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/2225653.shtml)
+- 2026-06-30 03:42 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/756626557.shtml)
+- 2026-06-30 03:44 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/77803289.shtml)

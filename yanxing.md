@@ -1,59 +1,61 @@
-# 手机广告弹窗乱象屡禁不绝，别让App偷走用户的“拒绝权”
+# 从销冠到“老赖”，哪吒汽车创始人方运舟、原CEO张勇1.16亿元股权被冻结 | 长三角资本局
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-别让App偷走用户的“拒绝权” 走路晃一下手机，广告弹出来了；坐公交颠一下，下载页面跳出来了。这不是段子，而是无数人每天经历的“数字绑架”。近日，工业和信息化部组织第三方检测机构抽查，发现31款App及SDK(软件工具开发包)存在侵害用户权益行为，涉及信息窗口点击乱跳转、违规收集个人信息等问题。疯读小说、Now冥想、水印宝……名单拉出来，不少是手机里的“老熟人”。此类问题年年通
+文|新浪财经上海站 十里 6月17日，哪吒汽车的故事又翻到并不体面的一页。 天眼查信息显示，哪吒汽车创始人方运舟与原CEO张勇新增两则股权冻结信息，被冻结股权标的为桐乡合创德力贰企业管理咨询合伙企业（有限合伙），冻结股权数额合计1.16亿元，冻结期限三年，执行法院为上海市长宁区人民法院。 这不是两人第一次被司法风险推到台前。就在一个月前，方运舟、张勇刚被冻结1767万元股权。今
 
 ## 正文
 
-别让App偷走用户的“拒绝权” 走路晃一下手机，广告弹出来了；坐公交颠一下，下载页面跳出来了。
+文|新浪财经上海站 十里 6月17日，哪吒汽车的故事又翻到并不体面的一页。
 
-这不是段子，而是无数人每天经历的“数字绑架”。
+天眼查信息显示，哪吒汽车创始人方运舟与原CEO张勇新增两则股权冻结信息，被冻结股权标的为桐乡合创德力贰企业管理咨询合伙企业（有限合伙），冻结股权数额合计1.16亿元，冻结期限三年，执行法院为上海市长宁区人民法院。
 
-近日，工业和信息化部组织第三方检测机构抽查，发现31款App及SDK(软件工具开发包)存在侵害用户权益行为，涉及信息窗口点击乱跳转、违规收集个人信息等问题。
+这不是两人第一次被司法风险推到台前。
 
-疯读小说、Now冥想、水印宝……名单拉出来，不少是手机里的“老熟人”。
+就在一个月前，方运舟、张勇刚被冻结1767万元股权。
 
-此类问题年年通报年年犯，不禁让人要问：我们的手机，到底是我们自己的，还是广告商的？
+今年3月，两人还因“有履行能力而拒不履行”22.68万元欠款，被法院列为失信被执行人。
 
-从此次通报内容看，有7款App存在信息窗口点击乱跳转的问题。
+22.68万元，对于一家曾经冲击港股IPO、背后站着地方国资和明星股东的新势力车企来说，并不是一个大数字。
 
-这些App通过降低触发门槛、隐藏关闭按钮等方式，让用户在无意间就完成了点击、下载甚至授权，实质上是剥夺了用户对自身设备的控制权。
+但正因为金额不大，反而更刺眼。
 
-这类行为已超出正常商业推广边界，涉嫌违反广告法、消费者权益保护法、反不正当竞争法等法律法规。
+它像一个小小的裂口，把哪吒汽车这几年从高光到失速、从融资到重整、从造车故事到信用坍塌的过程照得很清楚。
 
 ## 相关推荐
 
-- 2026-06-30 03:43 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 03:24 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 03:40 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 03:27 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 03:52 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 03:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-30 03:36 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 03:41 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-30 03:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 03:36 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 03:44 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 03:50 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 03:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 03:47 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 03:41 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 03:56 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 03:47 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 03:37 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 03:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 03:55 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 03:58 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 03:51 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 03:49 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 03:41 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 03:56 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 03:58 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 03:42 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 03:43 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:39 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/0292064.shtml)
-- 2026-06-30 03:36 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/98618.shtml)
-- 2026-06-30 03:45 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/4738381.shtml)
-- 2026-06-30 03:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/971981207118.shtml)
-- 2026-06-30 03:24 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/58963.shtml)
-- 2026-06-30 03:26 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/45877.shtml)
-- 2026-06-30 03:32 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/379822607444.shtml)
-- 2026-06-30 03:53 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/7983030.shtml)
-- 2026-06-30 03:25 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/44416.shtml)
-- 2026-06-30 03:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/816272230.shtml)
-- 2026-06-30 03:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/987308563524.shtml)
-- 2026-06-30 03:53 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/83042948794.shtml)
-- 2026-06-30 03:37 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/068198372.shtml)
-- 2026-06-30 03:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/681492867.shtml)
-- 2026-06-30 03:32 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/22770152.shtml)
+- 2026-06-30 03:59 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/650879839.shtml)
+- 2026-06-30 03:37 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/56169188.shtml)
+- 2026-06-30 03:41 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/805592953141.shtml)
+- 2026-06-30 03:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/420922.shtml)
+- 2026-06-30 03:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/24579451.shtml)
+- 2026-06-30 03:52 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/804431585.shtml)
+- 2026-06-30 03:54 - [日本 高位逼抢](https://www.share.minike.top/Article/details/0716353.shtml)
+- 2026-06-30 03:36 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/8741196.shtml)
+- 2026-06-30 03:40 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/8170485.shtml)
+- 2026-06-30 03:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/442073436919.shtml)
+- 2026-06-30 03:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/2951139036.shtml)
+- 2026-06-30 03:30 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/275469425.shtml)
+- 2026-06-30 03:31 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/0988515.shtml)
+- 2026-06-30 03:31 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/07023815.shtml)
+- 2026-06-30 03:56 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/75033372276.shtml)

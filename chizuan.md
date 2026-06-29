@@ -1,58 +1,58 @@
-# “侨批留韵・光影传心”—青岛市举办侨界主题观影活动
+# 濮耐股份刑事案件信息披露不及时 受损股民可进行预索赔登记
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-6月5日，由青岛市侨办主办、崂山区侨办与崂山区侨联承办的“侨批留韵・光影传心”主题观影活动在崂山区举办。青岛市委统战部、崂山区委统战部有关领导参加，市、区两级侨务干部、侨界代表等120余人，集体观看侨批题材影片《给阿嬷的情书》，共同感受侨批背后的家国情怀。银幕诉乡愁：一封“给阿嬷的情书” 影片以入选《世界记忆名录》的侨批史料为创作蓝本，将老一辈华侨漂洋过海、艰辛打拼，却始终把对
+登录新浪财经APP 搜索【信披】查看更多考评等级 此前，濮阳濮耐高温材料（集团）股份有限公司（以下简称“濮耐股份（维权）”）披露了收到检察院出具的《起诉书》等相关刑事案件信息。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2025年5月1日-2026年4月24日期间买入且有持仓，无论在2026年4月25日及之后是否卖出的投资者，可通过“新
 
 ## 正文
 
-6月5日，由青岛市侨办主办、崂山区侨办与崂山区侨联承办的“侨批留韵・光影传心”主题观影活动在崂山区举办。
+登录新浪财经APP 搜索【信披】查看更多考评等级 此前，濮阳濮耐高温材料（集团）股份有限公司（以下简称“濮耐股份（维权）”）披露了收到检察院出具的《起诉书》等相关刑事案件信息。
 
-青岛市委统战部、崂山区委统战部有关领导参加，市、区两级侨务干部、侨界代表等120余人，集体观看侨批题材影片《给阿嬷的情书》，共同感受侨批背后的家国情怀。
+上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2025年5月1日-2026年4月24日期间买入且有持仓，无论在2026年4月25日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。
 
-银幕诉乡愁：一封“给阿嬷的情书” 影片以入选《世界记忆名录》的侨批史料为创作蓝本，将老一辈华侨漂洋过海、艰辛打拼，却始终把对家乡的牵挂写进一封封批信的真实故事搬上银幕。
+（赵敬国律师专栏） 回顾本案，2026年4月25日濮耐股份发布《关于公司收到起诉书的公告》。
 
-随着镜头的流转，现场观众仿佛穿越时空，触摸到那些泛黄信纸上滚烫的思念，体会“江海万里，心中念你，便不觉得遥远”的质朴深情。
+公告显示，濮耐股份、万华物流及被告人祁长生、孟秋凤、姚书阳、王丽波涉嫌走私国家禁止进出口的货物、物品罪，违规申报出口天然鳞片石墨共计1，243.55吨。
 
-观影忆初心：一句句心声，道出侨界真情 “电影里阿嬷守着信箱的样子，让我一下想起了自己的父辈。
+鲅鱼圈海关缉私分局已于2025年5月至2025年9月期间对被告人祁长生、孟秋凤、姚书阳、王丽波执行逮捕。
 
-”一位归侨代表说，“我们要把这份重信守义、爱国爱乡的精神传下去，为青岛的发展尽一份力。
+信本股民索赔团队提醒，濮耐股份刑事案件信息披露不及时，受损投资者可通过“新浪股民维权平台”自愿预登记索赔。
 
-”现场观影的一位海外侨界代表动情地说，“身为海外侨胞，最懂影片里山海隔不断的乡愁、岁月抹不去的情意，虽远离故土，但始终牵挂家国、眷恋乡情，守望相助的初心从未改变，文化传承的信念从未淡漠。
+索赔条件： 濮耐股份：于2025年5月1日-2026年4月24日期间买入且有持仓，无论在2026年4月25日及之后是否卖出（具体赔付范围由法院确定）（濮耐股份维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
 
-”侨务工作者分享了自己的感受：“影片就像在讲述我爷爷奶奶的故事，小时候听到的潮汕人民远赴南洋打拼的情景一下子生动立体起来。
+赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
 
 ## 相关推荐
 
-- 2026-06-30 03:39 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 03:29 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 03:25 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 03:42 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 03:31 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 03:32 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 03:41 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 03:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 03:27 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 03:53 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 03:33 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 03:53 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 03:42 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 03:43 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 03:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 03:55 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 03:43 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 03:50 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 03:41 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 03:55 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 03:37 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 03:45 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 03:43 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 03:59 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:27 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/9252241.shtml)
-- 2026-06-30 03:39 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/128305395602.shtml)
-- 2026-06-30 03:33 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/12241212.shtml)
-- 2026-06-30 03:52 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/13754480.shtml)
-- 2026-06-30 03:36 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/807428669.shtml)
-- 2026-06-30 03:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/52944296137.shtml)
-- 2026-06-30 03:26 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/075401725880.shtml)
-- 2026-06-30 03:48 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/0643721.shtml)
-- 2026-06-30 03:37 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/50400048546.shtml)
-- 2026-06-30 03:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/9666119421.shtml)
-- 2026-06-30 03:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/336143.shtml)
-- 2026-06-30 03:41 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/10231372088.shtml)
-- 2026-06-30 03:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/7462046.shtml)
-- 2026-06-30 03:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/494601.shtml)
-- 2026-06-30 03:36 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/66686.shtml)
+- 2026-06-30 03:44 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/118281.shtml)
+- 2026-06-30 03:43 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/789619765035.shtml)
+- 2026-06-30 03:49 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/4659097.shtml)
+- 2026-06-30 03:58 - [世界杯](http://www.blog.kurohicncr.top/Article/details/70777001687.shtml)
+- 2026-06-30 03:45 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/364381742144.shtml)
+- 2026-06-30 03:58 - [TOP Prada](http://www.blog.minike.top/Article/details/39089265227.shtml)
+- 2026-06-30 03:38 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/489982117475.shtml)
+- 2026-06-30 03:33 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/9177432565.shtml)
+- 2026-06-30 03:50 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/040959919285.shtml)
+- 2026-06-30 03:49 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/620629432509.shtml)
+- 2026-06-30 03:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/2942126425.shtml)
+- 2026-06-30 03:36 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/83012669734.shtml)
+- 2026-06-30 03:32 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/241963099.shtml)
+- 2026-06-30 03:40 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/35102.shtml)
+- 2026-06-30 03:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/8981731515.shtml)

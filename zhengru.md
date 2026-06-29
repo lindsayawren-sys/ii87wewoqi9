@@ -1,61 +1,56 @@
-# 财政金融“组合拳” 更大力度支持扩内需
+# “中国建造”托起佛得角世界杯梦想
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：今年，我国设立1000亿元财政金融协同促内需专项资金，财政金融部门组合运用贷款贴息、融资担保、风险补偿等方式，引导更多资金流向投资和消费重点领域，激发市场活力。 在上海农产品中心批发市场，对做冷冻水产生意的王新建来说，每年的五六月都是批量备货的旺季，往往需要贷款来周转资金。但今年的200万元贷款却不太一样，可以获得1个百分点、为期一年的贴息。 王新建享受
+2比2！北京时间6月22日，逼平“四星”乌拉圭队； 一周前，0比0，逼平冲刺卫冕的夺冠热门西班牙队。 本届世界杯上，写下传奇剧本的黑马，是一支名不见经传的非洲球队——佛得角队。其世界排名一度低至182位，如今已飙升至历史性的第63位。 佛得角地处非洲西北角，是一个由10个火山岛组成的岛国，人口才50多万、国土面积仅4033平方公里，这样一个小国却做到了大多数足球强国都很难做到的
 
 ## 正文
 
-央视网消息(新闻联播)：今年，我国设立1000亿元财政金融协同促内需专项资金，财政金融部门组合运用贷款贴息、融资担保、风险补偿等方式，引导更多资金流向投资和消费重点领域，激发市场活力。
+2比2！
 
-在上海农产品中心批发市场，对做冷冻水产生意的王新建来说，每年的五六月都是批量备货的旺季，往往需要贷款来周转资金。
+北京时间6月22日，逼平“四星”乌拉圭队； 一周前，0比0，逼平冲刺卫冕的夺冠热门西班牙队。
 
-但今年的200万元贷款却不太一样，可以获得1个百分点、为期一年的贴息。
+本届世界杯上，写下传奇剧本的黑马，是一支名不见经传的非洲球队——佛得角队。
 
-王新建享受的财政贴息，得益于国家今年扩大了服务业经营主体贷款贴息范围。
+其世界排名一度低至182位，如今已飙升至历史性的第63位。
 
-在原有餐饮、文旅等8类基础上，新增了零售等3类消费领域。
+佛得角地处非洲西北角，是一个由10个火山岛组成的岛国，人口才50多万、国土面积仅4033平方公里，这样一个小国却做到了大多数足球强国都很难做到的事。
 
-数据显示，一季度新发放的服务业经营主体贷款中，近70%的贷款主体都是像王新建一样的小微企业和个体工商户。
+佛得角队冲击世界杯的关键高光一战，发生在2025年10月13日。
 
-贷款资金有效支持了一批餐馆扩建、民宿升级等消费服务提升项目。
+彼时，世界杯预选赛D组最后一轮在佛得角普拉亚国家体育场举行。
 
-今年，我国财政金融协同发力，创新实施一揽子扩内需政策。
+佛得角3比0战胜斯威士兰，以小组头名晋级2026美加墨世界杯，历史上首次闯入世界杯决赛圈，成为世界杯史上国土面积最小参赛国。
 
 ## 相关推荐
 
-- 2026-06-30 03:25 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 03:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 03:49 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 03:26 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 03:41 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 03:45 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 03:36 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 03:32 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 03:41 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 03:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 03:30 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-30 03:44 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 03:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 03:36 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 03:53 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 03:59 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 03:45 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 03:58 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 03:37 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-30 03:57 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 03:34 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 03:42 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 03:44 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 03:38 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 03:56 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:52 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/8212778642.shtml)
-- 2026-06-30 03:25 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/814851999.shtml)
-- 2026-06-30 03:43 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/06503.shtml)
-- 2026-06-30 03:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/965236408801.shtml)
-- 2026-06-30 03:49 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/75147.shtml)
-- 2026-06-30 03:39 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/53126300.shtml)
-- 2026-06-30 03:27 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/76676298235.shtml)
-- 2026-06-30 03:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/6875968.shtml)
-- 2026-06-30 03:25 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/7406166939.shtml)
-- 2026-06-30 03:39 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/04274520589.shtml)
-- 2026-06-30 03:37 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/10715328.shtml)
-- 2026-06-30 03:52 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/726726.shtml)
-- 2026-06-30 03:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/00521.shtml)
-- 2026-06-30 03:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/2652474.shtml)
-- 2026-06-30 03:38 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/258437072745.shtml)
+- 2026-06-30 03:57 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/581869310.shtml)
+- 2026-06-30 03:48 - [青春环游记第三季](http://www.blog.minike.top/Article/details/7595650.shtml)
+- 2026-06-30 03:50 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/02610824.shtml)
+- 2026-06-30 03:59 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/5961480.shtml)
+- 2026-06-30 03:56 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/434937.shtml)
+- 2026-06-30 03:48 - [美股](https://www.blog.minike.top/Article/details/6705095490.shtml)
+- 2026-06-30 03:42 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/940330.shtml)
+- 2026-06-30 03:43 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/15693288.shtml)
+- 2026-06-30 03:35 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/65009.shtml)
+- 2026-06-30 03:57 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/082293.shtml)
+- 2026-06-30 03:53 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/0191890564.shtml)
+- 2026-06-30 03:33 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/75558776639.shtml)
+- 2026-06-30 03:52 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/914218076362.shtml)
+- 2026-06-30 03:33 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/5468057820.shtml)
+- 2026-06-30 03:49 - [月亮](http://www.share.minike.top/Article/details/7409559.shtml)

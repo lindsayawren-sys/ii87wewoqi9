@@ -1,56 +1,56 @@
-# AI巨无霸，冲击IPO！警惕资本市场“最贵的陷阱”
+# 物理AI规模化之王将登陆港股！Momenta开启物理AI万亿产业周期
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！“这次不同”或是资本市场最贵陷阱！ 人工智能初创公司Anthropic本周官方宣布，已向美国证券交易委员会（SEC）秘密递交S-1招股书，就在交表前夕，该公司刚刚宣布完成了H轮融资，投后估值为6.5万亿元人民币（9650亿美元）。这家成立时间仅5年、今年二季度才开始盈利的公司，正创造着资本市场历史上的奇迹。
+6月23日，全球领先的物理AI公司Momenta在港交所刊发聆讯后资料集（PHIP），这意味着公司已通过港交所聆讯，正式进入IPO冲刺阶段。中金公司和德意志银行为其联席保荐人。成功挂牌后，Momenta将以物理AI基座模型的构建者及高达65%的第三方城市NOA销量市占率，成为“物理AI第一股”。 招股书显示，Momenta近三年营收规模实现跨越式增长：2023年至2025年，M
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月23日，全球领先的物理AI公司Momenta在港交所刊发聆讯后资料集（PHIP），这意味着公司已通过港交所聆讯，正式进入IPO冲刺阶段。
 
-“这次不同”或是资本市场最贵陷阱！
+中金公司和德意志银行为其联席保荐人。
 
-人工智能初创公司Anthropic本周官方宣布，已向美国证券交易委员会（SEC）秘密递交S-1招股书，就在交表前夕，该公司刚刚宣布完成了H轮融资，投后估值为6.5万亿元人民币（9650亿美元）。
+成功挂牌后，Momenta将以物理AI基座模型的构建者及高达65%的第三方城市NOA销量市占率，成为“物理AI第一股”。
 
-这家成立时间仅5年、今年二季度才开始盈利的公司，正创造着资本市场历史上的奇迹。
+招股书显示，Momenta近三年营收规模实现跨越式增长：2023年至2025年，Momenta营业收入从7.43亿元增长至24.13亿元，三年翻三倍，年均复合增长率超80%。
 
-自2022年11月ChatGPT正式发布以来，全球股市陷入了对人工智能板块的追逐之中。
+截至2025年底，公司现金储备超100亿元，为加速Robo市场和全球化发展提供了有力支撑。
 
-在为时两年多的上涨之后，AI板块市盈率超过百倍的个股比比皆是，远超2000年互联网泡沫破裂前夕的估值高度。
+这一强劲业绩表现的背后，是Momenta在行业里率先跑通了数据和商业的规模化闭环。
 
-人们相信人工智能板块已经挣脱了传统的估值方式。
+目前，搭载Momenta系统的量产车辆规模已超90万台，已成功交付超100款量产车型，累计定点车型数超210款，并实现最快不到40天交付10万台的高效部署。
 
-不过，当这一切发生时，一定要牢记约翰·邓普顿的那句名言：“英语里‘最贵’的四个单词是This time，it’s diffrent（这次与以往不同）。
+Momenta将自己定位为物理AI基座模型的构建者。
 
 ## 相关推荐
 
-- 2026-06-30 03:43 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 03:24 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 03:35 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 03:46 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 03:40 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 03:42 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 03:49 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 03:44 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 03:46 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 03:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 03:56 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 03:53 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 03:45 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 03:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 03:43 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-30 03:31 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 03:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 03:54 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 03:50 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 03:46 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:27 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/912822051005.shtml)
-- 2026-06-30 03:49 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/945543.shtml)
-- 2026-06-30 03:25 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/1344372.shtml)
-- 2026-06-30 03:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/6178959344.shtml)
-- 2026-06-30 03:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/94738787.shtml)
-- 2026-06-30 03:46 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/447650.shtml)
-- 2026-06-30 03:28 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/976414069.shtml)
-- 2026-06-30 03:40 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/2319815005.shtml)
-- 2026-06-30 03:43 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/81507.shtml)
-- 2026-06-30 03:47 - [第一炉香](http://www.share.kurohicncr.top/Article/details/286911.shtml)
-- 2026-06-30 03:29 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/28382.shtml)
-- 2026-06-30 03:44 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/4556836.shtml)
-- 2026-06-30 03:40 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/126259.shtml)
-- 2026-06-30 03:52 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/633791366.shtml)
-- 2026-06-30 03:50 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/948448.shtml)
+- 2026-06-30 03:45 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/092765575989.shtml)
+- 2026-06-30 03:44 - [美股](https://www.blog.kurohicncr.top/Article/details/723245.shtml)
+- 2026-06-30 03:50 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/32639510.shtml)
+- 2026-06-30 03:46 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/309269960336.shtml)
+- 2026-06-30 03:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/32099091298.shtml)
+- 2026-06-30 03:54 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/97143773622.shtml)
+- 2026-06-30 03:31 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/33964298179.shtml)
+- 2026-06-30 03:55 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/057345404338.shtml)
+- 2026-06-30 03:45 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/36901.shtml)
+- 2026-06-30 03:35 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/935222.shtml)
+- 2026-06-30 03:31 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/879960090447.shtml)
+- 2026-06-30 03:32 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/920880926898.shtml)
+- 2026-06-30 03:58 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/6323260366.shtml)
+- 2026-06-30 03:41 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/44099874.shtml)
+- 2026-06-30 03:55 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/770320.shtml)

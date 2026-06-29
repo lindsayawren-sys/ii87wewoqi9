@@ -1,59 +1,43 @@
-# 千年象棋文化再掀热潮 第六届上海杯象棋大师公开赛启动
+# 共识教育百问百答 | 张淑瑛：怎么从实践中增进各民族文化互鉴融通？——以广西米粉为例
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-中新网上海6月6日电 (记者 缪璐)第六届上海杯象棋大师公开赛(以下简称“上海杯”)6日在嘉定南翔启动。上海棋院院长刘世振介绍：“本届赛事面向全球象棋高手公开报名，邀请中国象棋协会积分前列的棋手与海外棋手同场竞技。”公开赛海选将于8月8日至9日举行，预计吸引约200名来自世界各地的棋手参加。 历经六载深耕，作为上海自主培育的本土赛事IP，上海杯已跻身中国象棋协会A级积分赛事、上
+发布时间：2026年06月24日 09:31 来源：中央社会主义学院 责任编辑：【周驰】
 
 ## 正文
 
-中新网上海6月6日电 (记者 缪璐)第六届上海杯象棋大师公开赛(以下简称“上海杯”)6日在嘉定南翔启动。
-
-上海棋院院长刘世振介绍：“本届赛事面向全球象棋高手公开报名，邀请中国象棋协会积分前列的棋手与海外棋手同场竞技。
-
-”公开赛海选将于8月8日至9日举行，预计吸引约200名来自世界各地的棋手参加。
-
-历经六载深耕，作为上海自主培育的本土赛事IP，上海杯已跻身中国象棋协会A级积分赛事、上海赛事品牌“H”级别行列。
-
-本届上海杯包括公开赛、青少年团体赛、名人邀请赛和业余赛四类赛事活动，由国家体育总局棋牌运动管理中心、中国象棋协会、上海市体育局、上海市体育总会、上海市嘉定区人民政府联合主办，总奖金突破百万元(人民币，下同)。
-
-刘世振表示，本届赛事不仅拓宽了国际视野，也为新生代棋手成长搭建了舞台。
-
-公开赛正赛于9月9日至13日举行，席位扩增至48席，其中男子32席、女子16席，创历届之最(含外卡男子2席、女子1席)，将采用精彩刺激的两局分先单败淘汰赛制，最终决出第六届上海杯男女冠军。
-
-启动仪式现场，青少年棋手成为焦点——多位领导共同向小棋手代表赠予活动包，祝他们在棋艺道路上茁壮成长。
+发布时间：2026年06月24日 09:31 来源：中央社会主义学院 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-30 03:36 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 03:33 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 03:28 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 03:45 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 03:52 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 03:32 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 03:30 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-30 03:31 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 03:50 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 03:44 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 03:43 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 03:29 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 03:29 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 03:59 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 03:43 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 03:51 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 03:32 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 03:36 - [人类...完蛋了...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 03:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 03:42 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 03:44 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 03:51 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 03:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 03:44 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:51 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/355312001016.shtml)
-- 2026-06-30 03:36 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/748065.shtml)
-- 2026-06-30 03:25 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/9771326651.shtml)
-- 2026-06-30 03:28 - [乔家的儿女](http://www.share.minike.top/Article/details/11844.shtml)
-- 2026-06-30 03:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/19512305.shtml)
-- 2026-06-30 03:33 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/60480.shtml)
-- 2026-06-30 03:34 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/090954.shtml)
-- 2026-06-30 03:45 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/5414356307.shtml)
-- 2026-06-30 03:30 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/991165277.shtml)
-- 2026-06-30 03:53 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/65342138.shtml)
-- 2026-06-30 03:52 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/328374674.shtml)
-- 2026-06-30 03:24 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/665686889168.shtml)
-- 2026-06-30 03:35 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/5131227.shtml)
-- 2026-06-30 03:48 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/70647394717.shtml)
-- 2026-06-30 03:36 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/7236244941.shtml)
+- 2026-06-30 03:40 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/829451.shtml)
+- 2026-06-30 03:47 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/465105403277.shtml)
+- 2026-06-30 03:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/179335.shtml)
+- 2026-06-30 03:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/884912090.shtml)
+- 2026-06-30 03:34 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/015148121.shtml)
+- 2026-06-30 03:47 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/79831370599.shtml)
+- 2026-06-30 03:30 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/8189121287.shtml)
+- 2026-06-30 03:56 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/428262138.shtml)
+- 2026-06-30 03:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/1221157.shtml)
+- 2026-06-30 03:37 - [世界杯](http://www.share.kurohicncr.top/Article/details/515205.shtml)
+- 2026-06-30 03:51 - [世界杯](http://www.blog.minike.top/Article/details/1007386193.shtml)
+- 2026-06-30 03:48 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/400155808940.shtml)
+- 2026-06-30 03:38 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/21014059.shtml)
+- 2026-06-30 03:56 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/96541.shtml)
+- 2026-06-30 03:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/05686774549.shtml)

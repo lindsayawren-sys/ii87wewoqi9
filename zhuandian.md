@@ -1,47 +1,59 @@
-# 习近平总书记同金正恩总书记交往的精彩瞬间
+# 欧洲多地遭遇极端高温：英、法、西、意发布高温红色预警
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月07日 19:33 来源：新华社 责任编辑：【韦俊龙】
+核心要点 新一轮极端高温席卷欧洲多地，多个国家拉响气象红色预警，气温突破 40 摄氏度，这片全球气候变暖速度最快的大洲大范围陷入高危高温天气。 英国气象局于周一罕见地针对周三、周四发布极端高温红色预警，预警提示：未来几天英国极大概率刷新 6 月历史最高气温。 红色高温预警代表异常持续的闷热酷暑天气，会对全民健康造成潜在危害，民众需要大幅调整日常出行与生活安排。 英国气象部门预测
 
 ## 正文
 
-发布时间：2026年06月07日 19:33 来源：新华社 责任编辑：【韦俊龙】
+核心要点 新一轮极端高温席卷欧洲多地，多个国家拉响气象红色预警，气温突破 40 摄氏度，这片全球气候变暖速度最快的大洲大范围陷入高危高温天气。
+
+英国气象局于周一罕见地针对周三、周四发布极端高温红色预警，预警提示：未来几天英国极大概率刷新 6 月历史最高气温。
+
+红色高温预警代表异常持续的闷热酷暑天气，会对全民健康造成潜在危害，民众需要大幅调整日常出行与生活安排。
+
+英国气象部门预测，本周当地最高气温至少可达 39 摄氏度，连续多晚夜间气温都不会低于 20 摄氏度。
+
+英国气象局首席预报员副手马克・西达韦表示：“红色预警仅针对最极端的气象灾害。
+
+本轮热浪预计将带来严重、大范围的负面影响，不仅是传统高温易感人群，许多普通民众的身体健康都可能受到损害。
+
+” 法国、西班牙、意大利同样发布高温红色预警，德国、瑞士等国也同步发布高温相关预警。
+
+路透社周一消息，法国本轮热浪已造成至少 18 人遇难。
 
 ## 相关推荐
 
-- 2026-06-30 03:50 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 03:33 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 03:48 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-30 03:50 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 03:28 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-30 03:44 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 03:29 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 03:36 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 03:26 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 03:29 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 03:26 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 03:25 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 03:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-30 03:31 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 03:33 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 03:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 03:35 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 03:34 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 03:35 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 03:59 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-30 03:52 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 03:34 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-30 03:58 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 03:55 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 03:57 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 03:39 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 03:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 03:45 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:46 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/9580692098.shtml)
-- 2026-06-30 03:25 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/8345880709.shtml)
-- 2026-06-30 03:29 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/06339.shtml)
-- 2026-06-30 03:26 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/2293087.shtml)
-- 2026-06-30 03:46 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/93636980468.shtml)
-- 2026-06-30 03:43 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/333487820.shtml)
-- 2026-06-30 03:24 - [一生一世](http://www.blog.minike.top/Article/details/016079558329.shtml)
-- 2026-06-30 03:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/7700368.shtml)
-- 2026-06-30 03:45 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/743902288.shtml)
-- 2026-06-30 03:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/66147.shtml)
-- 2026-06-30 03:38 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/40300.shtml)
-- 2026-06-30 03:50 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/085316.shtml)
-- 2026-06-30 03:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/743875260.shtml)
-- 2026-06-30 03:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/9679366.shtml)
-- 2026-06-30 03:39 - [流金岁月](https://www.share.kurohicncr.top/Article/details/421482192376.shtml)
+- 2026-06-30 03:56 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/255961.shtml)
+- 2026-06-30 03:58 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/4612559.shtml)
+- 2026-06-30 03:41 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/937217.shtml)
+- 2026-06-30 03:44 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/33911238244.shtml)
+- 2026-06-30 03:31 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/83127921885.shtml)
+- 2026-06-30 03:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/190884382.shtml)
+- 2026-06-30 03:40 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/595698955221.shtml)
+- 2026-06-30 03:38 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/094798.shtml)
+- 2026-06-30 03:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/0079100.shtml)
+- 2026-06-30 03:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/377930950747.shtml)
+- 2026-06-30 03:48 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/04699901553.shtml)
+- 2026-06-30 03:59 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/057620899213.shtml)
+- 2026-06-30 03:46 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/86423090386.shtml)
+- 2026-06-30 03:47 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/08445124160.shtml)
+- 2026-06-30 03:30 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/329172266.shtml)

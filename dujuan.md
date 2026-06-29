@@ -1,59 +1,58 @@
-# 200多名中外学子在沪以纸板竹竿探索AI时代“家”的新定义
+# 探访吉林舒兰原生野山参展馆：“参王”串起千年参脉
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-中新网上海6月8日电 (记者 许婧)6月6日至7日，2026同济大学国际建造节暨“风语筑”创新建筑设计与建造竞赛落地上海复兴岛——全球创客岛。黄浦江边码头的老旧厂房内，33件作品从无到有、连片排布，构筑起一座临时微型人居城市。 这是赛事创办18年来首次走出同济大学校园。来自海内外的33支队伍、231名师生，包括10支同济大学代表队、18所国内建筑院校队伍、5支欧美亚国际院校队伍
+中新网吉林6月23日电 题：探访吉林舒兰原生野山参展馆：“参王”串起千年参脉 中新网记者 苍雁 石洪宇 仲夏时节，吉林省舒兰市上营镇群山环抱间，一座原生野山参展馆持续迎来中外游客。场馆采用赣派庭院融合东北民居设计，建筑与四周苍翠山林浑然相融。 走进展馆，“镇馆之宝”——一株千年野山参静静陈列于中央展柜，根须舒展、体态灵动。这株“参王”曾亮相长春国际医药健康产业博览会，吸引海内外
 
 ## 正文
 
-中新网上海6月8日电 (记者 许婧)6月6日至7日，2026同济大学国际建造节暨“风语筑”创新建筑设计与建造竞赛落地上海复兴岛——全球创客岛。
+中新网吉林6月23日电 题：探访吉林舒兰原生野山参展馆：“参王”串起千年参脉 中新网记者 苍雁 石洪宇 仲夏时节，吉林省舒兰市上营镇群山环抱间，一座原生野山参展馆持续迎来中外游客。
 
-黄浦江边码头的老旧厂房内，33件作品从无到有、连片排布，构筑起一座临时微型人居城市。
+场馆采用赣派庭院融合东北民居设计，建筑与四周苍翠山林浑然相融。
 
-这是赛事创办18年来首次走出同济大学校园。
+走进展馆，“镇馆之宝”——一株千年野山参静静陈列于中央展柜，根须舒展、体态灵动。
 
-来自海内外的33支队伍、231名师生，包括10支同济大学代表队、18所国内建筑院校队伍、5支欧美亚国际院校队伍以及首次参赛的国际高中生队伍，围绕“你所定义的家”这一主题，在10小时限时建造中，用纸板与竹竿，在4米×3米的有限空间里，搭建起AI时代“家”的想象。
+这株“参王”曾亮相长春国际医药健康产业博览会，吸引海内外客商关注。
 
-本届赛事主题“你所定义的家”由建筑师柳亦春拟定。
+以这株镇馆“参王”为线索，整座展馆完整铺展绵延千年的人参文脉。
 
-命题跳出传统住宅框架，既回望故土居所、记忆家园，也畅想AI技术赋能下的未来栖居，同时将自然界各类生物巢穴纳入创作范畴，引导参赛者打破固有思维，探索“家”多元、可变、可迭代的当代内涵。
+漫步展厅，一条清晰的时间轴徐徐铺展，完整呈现人参文化脉络：从神农传说、清代贡山疆域图，到传统放山工具、现代精深加工工艺。
 
-一旁黄浦江畔的码头塔吊、沧桑老厂房，与创作主题相映成趣，百年工业空间与新生代建筑构想完成跨时空对话。
+这座藏于群山之间的特色文博场馆，完整还原舒兰野山参的“前世今生”。
 
-本次评审团阵容权威，由亚洲建筑师协会主席伍江担任评委会主席，汇聚国内顶尖建筑院系负责人、外籍教授、一线建筑师及设计院专家，从材料运用、空间营造、主题表达等维度综合评审，共设置18个奖项。
+展馆不仅系统梳理舒兰人参千年历史脉络，更清晰标注出舒兰在吉林人参产业版图中的独特区位优势。
 
 ## 相关推荐
 
-- 2026-06-30 03:37 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 03:50 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 03:52 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 03:36 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 03:47 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 03:27 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 03:51 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 03:37 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 03:47 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 03:35 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 03:27 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 03:45 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 03:43 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 03:31 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 03:31 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 03:35 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 03:49 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 03:45 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 03:51 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 03:39 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 03:52 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 03:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 03:57 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 03:34 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 03:38 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:50 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/55176256.shtml)
-- 2026-06-30 03:30 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/86567479979.shtml)
-- 2026-06-30 03:24 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/947123.shtml)
-- 2026-06-30 03:27 - [极限挑战第一季](https://www.blog.minike.top/Article/details/53102113817.shtml)
-- 2026-06-30 03:53 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/767290708.shtml)
-- 2026-06-30 03:36 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/92005116455.shtml)
-- 2026-06-30 03:47 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/46788353.shtml)
-- 2026-06-30 03:25 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/2343530.shtml)
-- 2026-06-30 03:31 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/1341645.shtml)
-- 2026-06-30 03:42 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/10836027.shtml)
-- 2026-06-30 03:34 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/48077597733.shtml)
-- 2026-06-30 03:33 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/1994323.shtml)
-- 2026-06-30 03:34 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/178652095.shtml)
-- 2026-06-30 03:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/784241454.shtml)
-- 2026-06-30 03:39 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/03504637942.shtml)
+- 2026-06-30 03:46 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/28477575.shtml)
+- 2026-06-30 03:45 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/405757533.shtml)
+- 2026-06-30 03:58 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/9855438.shtml)
+- 2026-06-30 03:54 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/909651.shtml)
+- 2026-06-30 03:58 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/23329678.shtml)
+- 2026-06-30 03:41 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/077200876.shtml)
+- 2026-06-30 03:45 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/42843.shtml)
+- 2026-06-30 03:54 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/50182318.shtml)
+- 2026-06-30 03:44 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/27022.shtml)
+- 2026-06-30 03:31 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/50528870854.shtml)
+- 2026-06-30 03:50 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/54671405.shtml)
+- 2026-06-30 03:38 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/6584403257.shtml)
+- 2026-06-30 03:34 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/5626496197.shtml)
+- 2026-06-30 03:30 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/5353150778.shtml)
+- 2026-06-30 03:32 - [天道](http://www.share.kurohicncr.top/Article/details/8169804820.shtml)

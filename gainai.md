@@ -1,56 +1,61 @@
-# 吴清：完善程序化交易监管机制，防范滥用技术优势，坚决打击操纵市场、扰乱市场秩序行为
+# 五粮液索赔持续推进 又一批股民提交起诉
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。吴清表示，近年来，程序化交易已成为包括我国在内的全球各主要资本市场的重要交易方式。除了大家熟知的量化私募外，外资、公募及其他专业机构投资者，甚至一些个人投资者，都不同程度采用程序化交易的方式。充分考虑个人投资者占大多数
+登录新浪财经APP 搜索【信披】查看更多考评等级 近日，股民诉宜宾五粮液（维权）股份有限公司（简称：五粮液，代码：000858）证券虚假陈述案持续推进。原告代理人之一、浙江裕丰律师事务所厉健律师表示，5月27日成渝金融法院已正式受理股民罗某诉五粮液案，本周我们又代理一批股民提交起诉材料。（厉健律师专栏） 案情回溯，2026年4月30日晚，五粮液发布《关于前期会计差错更正的公告》
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 近日，股民诉宜宾五粮液（维权）股份有限公司（简称：五粮液，代码：000858）证券虚假陈述案持续推进。
 
-6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。
+原告代理人之一、浙江裕丰律师事务所厉健律师表示，5月27日成渝金融法院已正式受理股民罗某诉五粮液案，本周我们又代理一批股民提交起诉材料。
 
-吴清表示，近年来，程序化交易已成为包括我国在内的全球各主要资本市场的重要交易方式。
+（厉健律师专栏） 案情回溯，2026年4月30日晚，五粮液发布《关于前期会计差错更正的公告》。
 
-除了大家熟知的量化私募外，外资、公募及其他专业机构投资者，甚至一些个人投资者，都不同程度采用程序化交易的方式。
+公告显示：五粮液对2025年业务模式进行梳理，基于谨慎性原则，调整2025年部分业务收入确认相关核算。
 
-充分考虑个人投资者占大多数的国情市情，先后出台了一系列程序化交易监管规则制度，建立交易报告机制，强化针对性监测监控，从严监管异常交易行为，引导降频降速，强化交易业务单元管理等。
+此次前期会计差错更正涉及2025年已披露的一季度、半年度、 三季度合并资产负债表与合并利润表的部分项目，不影响现金流量表列示。
 
-在此基础上，我们还将深入调研，持续完善程序化交易监管的机制安排，更突出公平和规范，加强针对性监管，切实防范滥用技术优势，坚决打击操纵市场、扰乱市场秩序等违法违规行为。
+其中，‌2025年前三季度营收‌：由609.45亿元下调至306.38亿元，‌下调约50%‌；‌2025年前三季度归母净利润‌：由215.11亿元下调至64.75亿元，‌下调约70%‌。
 
-责任编辑：常福强
+根据最高人民法院虚假陈述司法解释，上市公司等因证券虚假陈述行为导致投资者权益受损，投资者可以依法起诉索赔，索赔范围包括投资差额损失、佣金和印花税损失。
+
+“新司法解释已明确取消前置程序，根据会计差错更正公告等初步证据，受损股民可依法索赔，我们正在分批代理投资者起诉。
 
 ## 相关推荐
 
-- 2026-06-30 03:45 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 03:52 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 03:53 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 03:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 03:50 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 03:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-30 03:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 03:38 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 03:36 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 03:43 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 03:48 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 03:29 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 03:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 03:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 03:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 03:45 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 03:51 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 03:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 03:36 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 03:49 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 03:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-30 03:51 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 03:33 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 03:52 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 03:38 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 03:38 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 03:46 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:25 - [我们的少年时代2](http://www.share.minike.top/Article/details/06163792.shtml)
-- 2026-06-30 03:42 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/00502580835.shtml)
-- 2026-06-30 03:53 - [日本进球](http://www.blog.minike.top/Article/details/799498786.shtml)
-- 2026-06-30 03:48 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/406285329.shtml)
-- 2026-06-30 03:33 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/326299.shtml)
-- 2026-06-30 03:35 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/8472658.shtml)
-- 2026-06-30 03:48 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/1281598289.shtml)
-- 2026-06-30 03:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/5609797574.shtml)
-- 2026-06-30 03:34 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/0299241.shtml)
-- 2026-06-30 03:44 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/28212637.shtml)
-- 2026-06-30 03:24 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/2456920.shtml)
-- 2026-06-30 03:32 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/09178599.shtml)
-- 2026-06-30 03:50 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/373260.shtml)
-- 2026-06-30 03:33 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/48172.shtml)
-- 2026-06-30 03:44 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/91703703.shtml)
+- 2026-06-30 03:43 - [我和我的家乡](https://www.share.minike.top/Article/details/63598363563.shtml)
+- 2026-06-30 03:54 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/3623338.shtml)
+- 2026-06-30 03:31 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/982058630836.shtml)
+- 2026-06-30 03:57 - [啊啊啊](https://www.share.minike.top/Article/details/6552170.shtml)
+- 2026-06-30 03:36 - [斗破苍穹](http://www.share.minike.top/Article/details/476689504.shtml)
+- 2026-06-30 03:42 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/0572143461.shtml)
+- 2026-06-30 03:30 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/648360.shtml)
+- 2026-06-30 03:43 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/44133770937.shtml)
+- 2026-06-30 03:47 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/60154.shtml)
+- 2026-06-30 03:40 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/908072.shtml)
+- 2026-06-30 03:42 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/84728455355.shtml)
+- 2026-06-30 03:50 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/46940.shtml)
+- 2026-06-30 03:34 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/225750.shtml)
+- 2026-06-30 03:37 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/6820782822.shtml)
+- 2026-06-30 03:40 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/012782.shtml)

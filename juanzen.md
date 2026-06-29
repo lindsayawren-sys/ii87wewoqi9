@@ -1,59 +1,46 @@
-# 中国住房公积金拟拓宽使用范围：自住住房装修、支付物业费纳入提取范围
+# 张磊获批出任巨野中银富登村镇银行行长
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-中新社北京6月6日电 中国住房和城乡建设部日前就《住房公积金管理条例(修订征求意见稿)》公开征求意见。 此番征求意见稿的修订涉及拓宽住房公积金使用范围、扩大缴存覆盖面、缩短批贷时限等内容。 中国从20世纪90年代开始实行住房公积金制度，其主要目的是帮助职工解决住房问题。1999年，国务院颁布施行《住房公积金管理条例》。专家指出，当前，房地产市场供求关系发生重大变化，对住房公积金
+6月24日金融一线消息，国家金融监督管理总局菏泽监管分局近日发布批复，核准张磊巨野中银富登村镇银行有限公司行长任职资格。 责任编辑：秦艺
 
 ## 正文
 
-中新社北京6月6日电 中国住房和城乡建设部日前就《住房公积金管理条例(修订征求意见稿)》公开征求意见。
+6月24日金融一线消息，国家金融监督管理总局菏泽监管分局近日发布批复，核准张磊巨野中银富登村镇银行有限公司行长任职资格。
 
-此番征求意见稿的修订涉及拓宽住房公积金使用范围、扩大缴存覆盖面、缩短批贷时限等内容。
-
-中国从20世纪90年代开始实行住房公积金制度，其主要目的是帮助职工解决住房问题。
-
-1999年，国务院颁布施行《住房公积金管理条例》。
-
-专家指出，当前，房地产市场供求关系发生重大变化，对住房公积金制度运行提出新要求，有必要对条例进行修订完善。
-
-具体来看，此番征求意见稿拓宽了住房公积金的使用范围，将自住住房装修、支付物业费纳入可提取住房公积金的情形，增加经国务院批准的其他住房消费情形作为兜底条款。
-
-同时，扩大了缴存覆盖面。
-
-明确原条例规定单位以外的其他单位及其在职职工，可参照条例规定执行；个体工商户、非全日制从业人员以及其他灵活就业人员，可自愿参加住房公积金制度。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 03:34 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 03:42 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 03:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 03:38 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-30 03:26 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 03:37 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 03:42 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 03:35 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 03:48 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 03:27 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 03:24 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 03:52 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 03:37 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 03:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 03:53 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 03:39 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 03:52 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 03:33 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 03:42 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 03:40 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 03:38 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 03:55 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 03:42 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 03:35 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 03:38 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:47 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/39111.shtml)
-- 2026-06-30 03:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/812297260226.shtml)
-- 2026-06-30 03:39 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/91543963128.shtml)
-- 2026-06-30 03:27 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/52878598340.shtml)
-- 2026-06-30 03:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/95941236705.shtml)
-- 2026-06-30 03:36 - [金刚川](https://www.blog.minike.top/Article/details/408058164160.shtml)
-- 2026-06-30 03:53 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/61561.shtml)
-- 2026-06-30 03:42 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/690925.shtml)
-- 2026-06-30 03:35 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/2661352.shtml)
-- 2026-06-30 03:51 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/928704612002.shtml)
-- 2026-06-30 03:40 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/561980568.shtml)
-- 2026-06-30 03:40 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/3194324.shtml)
-- 2026-06-30 03:34 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/7729186.shtml)
-- 2026-06-30 03:31 - [送你一朵小红花](https://www.share.minike.top/Article/details/37867988886.shtml)
-- 2026-06-30 03:41 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/10636110.shtml)
+- 2026-06-30 03:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/49901332.shtml)
+- 2026-06-30 03:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/753918342.shtml)
+- 2026-06-30 03:43 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/7345559.shtml)
+- 2026-06-30 03:35 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/318945.shtml)
+- 2026-06-30 03:59 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/862203467.shtml)
+- 2026-06-30 03:33 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/3571756775.shtml)
+- 2026-06-30 03:41 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/69169129238.shtml)
+- 2026-06-30 03:33 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/35110.shtml)
+- 2026-06-30 03:31 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/26039.shtml)
+- 2026-06-30 03:44 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/433645791.shtml)
+- 2026-06-30 03:42 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/00269.shtml)
+- 2026-06-30 03:38 - [人类...完蛋了...](http://www.share.minike.top/Article/details/796775577293.shtml)
+- 2026-06-30 03:59 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/854733047214.shtml)
+- 2026-06-30 03:40 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/269827.shtml)
+- 2026-06-30 03:52 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/303422223.shtml)

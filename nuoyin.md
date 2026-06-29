@@ -1,57 +1,46 @@
-# 轴向磁通电机研究取得新突破 “夹心饼干”助力驱动产业发展
+# 中国AI，正在帮东盟“造大脑”
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-中新网北京6月6日电 题：轴向磁通电机研究取得新突破 “夹心饼干”助力驱动产业发展 记者 张素 电机，俗称“马达”，也是所有会动机器的“心脏”。中国科研团队近日发布新一代轴向磁通电机研发进展：一款体积更小、重量更轻、能效更高的“马达”，已步入产业化轨道。 相关成果由盘毂动力联合中国科学院宁波材料技术与工程研究所研发推出。双方旨在推动轴向磁通电机加快走向大规模普及应用，赋能国内高
+发布时间：2026年06月23日 11:28 来源：中国新闻网 在第四届中国国际供应链促进博览会现场，中国-东盟信息港股份有限公司总裁钟能接受中新网采访时表示，中国-东盟信息港股份有限公司联合全国头部AI企业，帮助东盟国家构建自主可控的国家本地语大模型。通过构建东盟小语种语料库和翻译模型，更好地为中国AI企业铺设高速出海新通道。(宋宇晟 陈庆洋） 责任编辑：【岳川】
 
 ## 正文
 
-中新网北京6月6日电 题：轴向磁通电机研究取得新突破 “夹心饼干”助力驱动产业发展 记者 张素 电机，俗称“马达”，也是所有会动机器的“心脏”。
+发布时间：2026年06月23日 11:28 来源：中国新闻网 在第四届中国国际供应链促进博览会现场，中国-东盟信息港股份有限公司总裁钟能接受中新网采访时表示，中国-东盟信息港股份有限公司联合全国头部AI企业，帮助东盟国家构建自主可控的国家本地语大模型。
 
-中国科研团队近日发布新一代轴向磁通电机研发进展：一款体积更小、重量更轻、能效更高的“马达”，已步入产业化轨道。
+通过构建东盟小语种语料库和翻译模型，更好地为中国AI企业铺设高速出海新通道。
 
-相关成果由盘毂动力联合中国科学院宁波材料技术与工程研究所研发推出。
-
-双方旨在推动轴向磁通电机加快走向大规模普及应用，赋能国内高端电驱动产业集群实现高质量、规模化发展。
-
-功率更大的“夹心饼干” 按照内部磁通方向不同，电机分为轴向磁通电机和径向磁通电机。
-
-对于前者的外形，研发团队形象称之为“夹心饼干”：其主流结构为，上下两层“饼干”是带磁铁的转子，中间“馅料”是缠绕着线圈的定子，磁场从上到下垂直穿过，让转子转动。
-
-据介绍，人类发明的第一台电机就是“夹心饼干”式的轴向磁通电机。
-
-但受核心材料与生产工艺制约，始终未能大规模应用。
+(宋宇晟 陈庆洋） 责任编辑：【岳川】
 
 ## 相关推荐
 
-- 2026-06-30 03:40 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 03:34 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 03:42 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 03:49 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 03:27 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 03:44 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 03:30 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 03:34 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 03:41 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 03:52 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 03:46 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 03:57 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 03:45 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-30 03:43 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 03:52 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 03:47 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 03:30 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 03:55 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 03:30 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 03:31 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 03:48 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:47 - [巴西2比1日本](http://www.blog.minike.top/Article/details/5401477.shtml)
-- 2026-06-30 03:31 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/76177486371.shtml)
-- 2026-06-30 03:26 - [第一炉香](https://www.share.kurohicncr.top/Article/details/545136.shtml)
-- 2026-06-30 03:46 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/4957839884.shtml)
-- 2026-06-30 03:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/71628530407.shtml)
-- 2026-06-30 03:53 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/21666176710.shtml)
-- 2026-06-30 03:44 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/9397375180.shtml)
-- 2026-06-30 03:39 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/70561656.shtml)
-- 2026-06-30 03:25 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/20161065.shtml)
-- 2026-06-30 03:35 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/462335854.shtml)
-- 2026-06-30 03:27 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/560768670678.shtml)
-- 2026-06-30 03:47 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/8400607341.shtml)
-- 2026-06-30 03:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/569949.shtml)
-- 2026-06-30 03:28 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/54871334.shtml)
-- 2026-06-30 03:34 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/97288387936.shtml)
+- 2026-06-30 03:41 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/108774313558.shtml)
+- 2026-06-30 03:47 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/738688.shtml)
+- 2026-06-30 03:59 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/1951775.shtml)
+- 2026-06-30 03:44 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/61417481031.shtml)
+- 2026-06-30 03:39 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/50007.shtml)
+- 2026-06-30 03:48 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/953293697.shtml)
+- 2026-06-30 03:58 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/76521.shtml)
+- 2026-06-30 03:52 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/114176937.shtml)
+- 2026-06-30 03:33 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/780363658490.shtml)
+- 2026-06-30 03:41 - [我和我的家乡](https://www.blog.minike.top/Article/details/3752884370.shtml)
+- 2026-06-30 03:42 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/763951652.shtml)
+- 2026-06-30 03:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/51005900251.shtml)
+- 2026-06-30 03:31 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/17582.shtml)
+- 2026-06-30 03:30 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/50943319755.shtml)
+- 2026-06-30 03:47 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/02330521.shtml)

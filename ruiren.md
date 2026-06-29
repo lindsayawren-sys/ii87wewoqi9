@@ -1,47 +1,56 @@
-# 北京警方：涉高考报警快速处置 确保每名考生安全顺利赴考
+# 交通银行：刘雷首席信息官任职资格获核准
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月07日 13:34 来源：中国新闻网 2026年高考于6月7日开考，记者来到北京师范大学附属实验中学，不到7点，该考点门前的民警们就开始投入工作，在考点周围指挥交通、疏导车辆、维持秩序。北京市公安局内保总队校园支队副中队长闫晓博介绍，今年北京全市设置120个考点，共有8.49万名考生报名参加考试，北京市公安局按照一考点一方案的工作标准，对全市所有考点逐
+6月23日金融一线消息，交通银行发布公告，刘雷任该行首席信息官的任职资格获国家金融监督管理总局核准生效。 简历显示，刘雷，男，1972年生。刘雷2025年起任交通银行金融科技部总经理、金融科技创新研究院院长，工程师。曾任交通银行数字化转型办公室主任，软件开发中心总经理，期间兼任交银金融科技有限公司董事长、总裁、交银金融科技有限责任公司筹建组副组长，软件开发中心（上海）总经理，软
 
 ## 正文
 
-发布时间：2026年06月07日 13:34 来源：中国新闻网 2026年高考于6月7日开考，记者来到北京师范大学附属实验中学，不到7点，该考点门前的民警们就开始投入工作，在考点周围指挥交通、疏导车辆、维持秩序。
+6月23日金融一线消息，交通银行发布公告，刘雷任该行首席信息官的任职资格获国家金融监督管理总局核准生效。
 
-北京市公安局内保总队校园支队副中队长闫晓博介绍，今年北京全市设置120个考点，共有8.49万名考生报名参加考试，北京市公安局按照一考点一方案的工作标准，对全市所有考点逐个制定了针对性的安保方案，同时开通爱心护考绿色通道，对所有涉及到高考的报警求助一律提级响应，快速处置，确保每一位考生都能够安全顺利赴考。
+简历显示，刘雷，男，1972年生。
 
-(记者 刘世炯 吕少威 制作 王雪尔） 责任编辑：【李季】
+刘雷2025年起任交通银行金融科技部总经理、金融科技创新研究院院长，工程师。
+
+曾任交通银行数字化转型办公室主任，软件开发中心总经理，期间兼任交银金融科技有限公司董事长、总裁、交银金融科技有限责任公司筹建组副组长，软件开发中心（上海）总经理，软件开发中心副总经理、兼任研发中心（深圳）总经理，软件开发中心总经理助理，软件开发中心总工程师办公室高级经理、开发一部高级经理、开发一部副高级经理等职务。
+
+刘雷1994年于华东理工大学获工学学士学位。
+
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 03:35 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 03:41 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 03:32 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 03:40 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 03:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 03:38 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 03:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 03:27 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 03:39 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 03:51 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 03:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 03:50 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 03:31 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 03:30 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 03:34 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 03:36 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 03:35 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 03:49 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 03:45 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 03:49 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 03:51 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 03:32 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 03:58 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 03:54 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 03:38 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:29 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/013457.shtml)
-- 2026-06-30 03:30 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/658078644271.shtml)
-- 2026-06-30 03:29 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/67684664627.shtml)
-- 2026-06-30 03:25 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/87724944344.shtml)
-- 2026-06-30 03:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/94513724.shtml)
-- 2026-06-30 03:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/84545104.shtml)
-- 2026-06-30 03:29 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/2994998.shtml)
-- 2026-06-30 03:47 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/72300926300.shtml)
-- 2026-06-30 03:48 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/95421326.shtml)
-- 2026-06-30 03:50 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/2165949.shtml)
-- 2026-06-30 03:38 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/708149.shtml)
-- 2026-06-30 03:25 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/904480433435.shtml)
-- 2026-06-30 03:39 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/984796334836.shtml)
-- 2026-06-30 03:39 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/578236688349.shtml)
-- 2026-06-30 03:39 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/79484.shtml)
+- 2026-06-30 03:48 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/4431125469.shtml)
+- 2026-06-30 03:30 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/5074132.shtml)
+- 2026-06-30 03:47 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/9987989.shtml)
+- 2026-06-30 03:39 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/63879830282.shtml)
+- 2026-06-30 03:40 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/90143065334.shtml)
+- 2026-06-30 03:50 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/795459.shtml)
+- 2026-06-30 03:44 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/93968658.shtml)
+- 2026-06-30 03:38 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/6470887.shtml)
+- 2026-06-30 03:52 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/19537464713.shtml)
+- 2026-06-30 03:32 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/5820017.shtml)
+- 2026-06-30 03:49 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/574596.shtml)
+- 2026-06-30 03:41 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/80764166.shtml)
+- 2026-06-30 03:45 - [小娘惹](http://www.blog.minike.top/Article/details/30067.shtml)
+- 2026-06-30 03:55 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/517487.shtml)
+- 2026-06-30 03:59 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/88116.shtml)

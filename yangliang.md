@@ -1,61 +1,59 @@
-# 直播海报：高考进行中 | 云端祈福，静候少年佳音
+# 四家A股公司退市，即将摘牌
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-2026年高考今日开考，1290万人奔赴考场全球动荡加剧，中国—东盟为何更需命运与共？衣服起球就是质量差？别错怪了衣服美伊战事，是接近和平还是滑向深渊？国产机器人凭什么让世界“买账”？曾沛慈：19年后，我勇敢面对内心的声音经合组织产业补贴报告站不住脚被蚊子咬了能迅速止痒的4个方法，希望大家都用不上一张照片或引发法律后果！国家安全部发布重要提示2026年高考明日开考，这些考前提醒
+6月22日晚，退市国化、退市岩石公告称，公司退市整理期已于6月22日结束，上海证券交易所将于6月29日对公司股票予以摘牌。 同日晚，退市熊猫、退市华嵘公告称，公司退市整理期已于6月22日结束，上海证券交易所将于6月26日对公司股票予以摘牌。 5月22日，退市国化、退市熊猫、退市华嵘、退市岩石收到上海证券交易所股票终止上市决定，上海证券交易所决定终止公司股票上市。 退市国化公告显
 
 ## 正文
 
-2026年高考今日开考，1290万人奔赴考场全球动荡加剧，中国—东盟为何更需命运与共？
+6月22日晚，退市国化、退市岩石公告称，公司退市整理期已于6月22日结束，上海证券交易所将于6月29日对公司股票予以摘牌。
 
-衣服起球就是质量差？
+同日晚，退市熊猫、退市华嵘公告称，公司退市整理期已于6月22日结束，上海证券交易所将于6月26日对公司股票予以摘牌。
 
-别错怪了衣服美伊战事，是接近和平还是滑向深渊？
+5月22日，退市国化、退市熊猫、退市华嵘、退市岩石收到上海证券交易所股票终止上市决定，上海证券交易所决定终止公司股票上市。
 
-国产机器人凭什么让世界“买账”？
+退市国化公告显示，公司2025年年报显示，公司2025年度净利润为负且营业收入低于3亿元，内部控制被出具否定意见的审计报告。
 
-曾沛慈：19年后，我勇敢面对内心的声音经合组织产业补贴报告站不住脚被蚊子咬了能迅速止痒的4个方法，希望大家都用不上一张照片或引发法律后果！
+公司股票触及终止上市条件。
 
-国家安全部发布重要提示2026年高考明日开考，这些考前提醒要注意美国“抢”铜，扰乱全球供应链秩序重逢泪奔！
+经上交所上市审核委员会审议，上交所决定终止公司股票上市。
 
-台湾“中天小姐姐”再回胡同看望“北京奶奶”中央统战部官方快手号“统战新语”上线 多个官号关注并留言招聘需求暴涨！
+Wind数据显示，6月22日，退市国化股价收盘报1.71元/股，总市值为7.5亿元。
 
-“AI圈最火岗位”，到底是干嘛的？
+退市岩石公告显示，公司2025年年报显示，公司2025年度净利润为负且营业收入低于3亿元，财务报告被出具保留意见的审计报告，内部控制被出具否定意见的审计报告。
 
 ## 相关推荐
 
-- 2026-06-30 03:27 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 03:42 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 03:36 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 03:48 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 03:45 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 03:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 03:38 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 03:53 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 03:39 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 03:47 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 03:27 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 03:51 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 03:42 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 03:42 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 03:51 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 03:43 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 03:47 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 03:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 03:58 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 03:42 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 03:55 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 03:31 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 03:30 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 03:33 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 03:39 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 03:40 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 03:36 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 03:55 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:44 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/55520407428.shtml)
-- 2026-06-30 03:41 - [起风了](https://www.blog.kurohicncr.top/Article/details/50682.shtml)
-- 2026-06-30 03:35 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/4049613373.shtml)
-- 2026-06-30 03:50 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/68806135.shtml)
-- 2026-06-30 03:25 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/47117078.shtml)
-- 2026-06-30 03:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/43649.shtml)
-- 2026-06-30 03:52 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/08894.shtml)
-- 2026-06-30 03:34 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/62431775188.shtml)
-- 2026-06-30 03:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/275519738575.shtml)
-- 2026-06-30 03:48 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/650060989263.shtml)
-- 2026-06-30 03:29 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/45636.shtml)
-- 2026-06-30 03:46 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/406949564499.shtml)
-- 2026-06-30 03:50 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/19245.shtml)
-- 2026-06-30 03:47 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/969949.shtml)
-- 2026-06-30 03:28 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/22805359259.shtml)
+- 2026-06-30 03:39 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/160034415.shtml)
+- 2026-06-30 03:44 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/4525694263.shtml)
+- 2026-06-30 03:44 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/851823319.shtml)
+- 2026-06-30 03:45 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/4272181.shtml)
+- 2026-06-30 03:41 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/24399665140.shtml)
+- 2026-06-30 03:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/777884.shtml)
+- 2026-06-30 03:41 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/61829268.shtml)
+- 2026-06-30 03:54 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/01450477729.shtml)
+- 2026-06-30 03:43 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/400035808.shtml)
+- 2026-06-30 03:35 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/648653.shtml)
+- 2026-06-30 03:38 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/603511709542.shtml)
+- 2026-06-30 03:58 - [恋与深空回应争议](http://www.share.minike.top/Article/details/046193324.shtml)
+- 2026-06-30 03:53 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/942529.shtml)
+- 2026-06-30 03:56 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/4862765.shtml)
+- 2026-06-30 03:33 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/541072739869.shtml)

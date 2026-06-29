@@ -1,51 +1,51 @@
-# Fortior遭Temasek Holdings (Private) Limited减持2.1万股 每股作价约147.08港元
+# 12国媒体人行走陵水 助海南自贸港圈粉海外
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，6月2日，Temasek Holdings （Private） Limited减持Fortior（01304）2.1万股，每股作价147.0794港元，总金额约为308.87万港元。减持后最新持股数目为129万股，最新持股比例为5.98%。责任编辑：卢昱君
+发布时间：2026年06月22日 21:21 来源：中国新闻网 6月22日，“何以中国·行走陵水”陵水旅游文化国际传播活动在海南陵水启动。来自泰国、日本、韩国、埃及、俄罗斯、加拿大等12个国家的海外华文媒体及外籍博主，将深入探访陵水，通过镜头、笔触，向世界讲述“Lingshui Travel”的精彩故事。(记者 李宇凡 林士杰) 责任编辑：【罗攀】
 
 ## 正文
 
-香港联交所最新数据显示，6月2日，Temasek Holdings （Private） Limited减持Fortior（01304）2.1万股，每股作价147.0794港元，总金额约为308.87万港元。
+发布时间：2026年06月22日 21:21 来源：中国新闻网 6月22日，“何以中国·行走陵水”陵水旅游文化国际传播活动在海南陵水启动。
 
-减持后最新持股数目为129万股，最新持股比例为5.98%。
+来自泰国、日本、韩国、埃及、俄罗斯、加拿大等12个国家的海外华文媒体及外籍博主，将深入探访陵水，通过镜头、笔触，向世界讲述“Lingshui Travel”的精彩故事。
 
-责任编辑：卢昱君
+(记者 李宇凡 林士杰) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 03:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 03:39 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-30 03:52 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 03:40 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 03:40 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 03:32 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 03:26 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 03:37 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 03:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 03:50 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 03:35 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 03:28 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 03:53 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 03:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 03:42 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 03:34 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 03:37 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 03:45 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 03:30 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 03:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 03:53 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 03:52 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 03:35 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 03:48 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 03:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 03:59 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 03:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 03:42 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 03:38 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 03:37 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:33 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/23155831.shtml)
-- 2026-06-30 03:29 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/93479.shtml)
-- 2026-06-30 03:34 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/87294205.shtml)
-- 2026-06-30 03:39 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/954954935104.shtml)
-- 2026-06-30 03:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/05387141.shtml)
-- 2026-06-30 03:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/292946009998.shtml)
-- 2026-06-30 03:33 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/4476929606.shtml)
-- 2026-06-30 03:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/6234053.shtml)
-- 2026-06-30 03:51 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/199060090268.shtml)
-- 2026-06-30 03:38 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/676812.shtml)
-- 2026-06-30 03:50 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/873022418564.shtml)
-- 2026-06-30 03:48 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/981195.shtml)
-- 2026-06-30 03:26 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/894419.shtml)
-- 2026-06-30 03:46 - [金刚川](http://www.blog.minike.top/Article/details/47653.shtml)
-- 2026-06-30 03:52 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/79908102704.shtml)
+- 2026-06-30 03:40 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/49020.shtml)
+- 2026-06-30 03:44 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/808347.shtml)
+- 2026-06-30 03:59 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/80990.shtml)
+- 2026-06-30 03:39 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/30647639992.shtml)
+- 2026-06-30 03:56 - [我们的少年时代2](http://www.blog.minike.top/Article/details/2769057272.shtml)
+- 2026-06-30 03:57 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/7557145650.shtml)
+- 2026-06-30 03:56 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/361067267.shtml)
+- 2026-06-30 03:41 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/7972100.shtml)
+- 2026-06-30 03:36 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/61125042460.shtml)
+- 2026-06-30 03:44 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/3428692393.shtml)
+- 2026-06-30 03:33 - [日本反击率先破门](http://www.blog.minike.top/Article/details/0400640.shtml)
+- 2026-06-30 03:52 - [我们的少年时代2](http://www.share.minike.top/Article/details/097468110.shtml)
+- 2026-06-30 03:46 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/989245.shtml)
+- 2026-06-30 03:34 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/56859272990.shtml)
+- 2026-06-30 03:58 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/92943896419.shtml)

@@ -1,58 +1,52 @@
-# 牛弹琴：轮到伊朗威胁美国了
+# 圣贝拉集团午前涨逾5% 拟收购弗蕾亚旗下月子会所业务少数股权
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-不是我们不明白，而是这个世界变化实在太快。国际关系的天平，从来不会永远倾向一方。 前一段时间，感觉还是美国很强势，反正，美国总统各种威胁伊朗；但几天过去，感觉风水轮流转，轮到伊朗威胁美国了。 北京时间6月6日凌晨，看CNN的头条，就是一则独家报道，标题是：伊朗威胁扩大战争，因与美国的谈判陷入僵局。 请注意：伊朗威胁！ 内容，确实很劲爆。 因为CNN这次约到的采访对象，是伊朗最高
+圣贝拉集团（02508）盘中涨超5%，截至发稿，股价上涨4.73%，现报3.54港元，成交额812.23万港元。 6月22日，圣贝拉集团发布公告，该集团已完成向若干独立第三方（卖方）收购武汉弗蕾亚健康管理有限公司（弗蕾亚）旗下月子会所业务少数股权的战略收购，总代价约为人民币2240万元。本次收购涉及收购的权益为：武汉和安母婴护理有限公司的30%股权；武汉辰月母婴护理有限公司的3
 
 ## 正文
 
-不是我们不明白，而是这个世界变化实在太快。
+圣贝拉集团（02508）盘中涨超5%，截至发稿，股价上涨4.73%，现报3.54港元，成交额812.23万港元。
 
-国际关系的天平，从来不会永远倾向一方。
+6月22日，圣贝拉集团发布公告，该集团已完成向若干独立第三方（卖方）收购武汉弗蕾亚健康管理有限公司（弗蕾亚）旗下月子会所业务少数股权的战略收购，总代价约为人民币2240万元。
 
-前一段时间，感觉还是美国很强势，反正，美国总统各种威胁伊朗；但几天过去，感觉风水轮流转，轮到伊朗威胁美国了。
+本次收购涉及收购的权益为：武汉和安母婴护理有限公司的30%股权；武汉辰月母婴护理有限公司的30%股权；武汉嘉月汇健康咨询有限公司的40%股权；及武汉丰华健康咨询有限公司的40%股权（统称“目标公司”）。
 
-北京时间6月6日凌晨，看CNN的头条，就是一则独家报道，标题是：伊朗威胁扩大战争，因与美国的谈判陷入僵局。
+根据本次收购双方的协议，倘目标公司于约定期间内达成双方协定的业绩目标，公司有权要求卖方按与本次收购相同的市盈率（P/E）倍数估值，进一步向集团出售目标公司的额外股权，使集团于相关目标公司的持股比例增至约60%至80%。
 
-请注意：伊朗威胁！
+董事会认为，本次收购符合集团的整体发展战略，有利于进一步巩固集团在中国及亚洲产后护理行业的领先地位。
 
-内容，确实很劲爆。
-
-因为CNN这次约到的采访对象，是伊朗最高领袖穆杰塔巴·哈梅内伊的军事顾问穆罕森·雷扎伊。
-
-雷扎伊是一个强硬派，作为伊朗政坛元老，他参加过两伊战争，曾是革命卫队的领导人，还曾出任过伊朗副总统。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:36 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 03:49 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 03:52 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 03:35 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 03:52 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 03:46 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 03:48 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 03:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 03:43 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 03:52 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 03:25 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 03:30 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 03:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 03:37 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 03:52 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 03:53 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 03:31 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 03:39 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 03:45 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 03:41 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 03:41 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 03:32 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:24 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/1636644.shtml)
-- 2026-06-30 03:46 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/384792.shtml)
-- 2026-06-30 03:27 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/34772922512.shtml)
-- 2026-06-30 03:52 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/01821108857.shtml)
-- 2026-06-30 03:35 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/43703.shtml)
-- 2026-06-30 03:46 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/6672332517.shtml)
-- 2026-06-30 03:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/355855847944.shtml)
-- 2026-06-30 03:53 - [金刚川](http://www.share.minike.top/Article/details/1170915646.shtml)
-- 2026-06-30 03:41 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/72190004699.shtml)
-- 2026-06-30 03:42 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/68131241.shtml)
-- 2026-06-30 03:41 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/10842.shtml)
-- 2026-06-30 03:39 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/07702050.shtml)
-- 2026-06-30 03:41 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/89584.shtml)
-- 2026-06-30 03:45 - [蔚来车主罚站](http://www.share.minike.top/Article/details/179892978178.shtml)
-- 2026-06-30 03:25 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/70266724.shtml)
+- 2026-06-30 03:44 - [逃狱兄弟](http://www.blog.minike.top/Article/details/492022378655.shtml)
+- 2026-06-30 03:48 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/16910475.shtml)
+- 2026-06-30 03:48 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/74802992.shtml)
+- 2026-06-30 03:51 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/9832486.shtml)
+- 2026-06-30 03:33 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/728517771.shtml)
+- 2026-06-30 03:56 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/424800182.shtml)
+- 2026-06-30 03:37 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/9364061.shtml)
+- 2026-06-30 03:39 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/6805118.shtml)
+- 2026-06-30 03:55 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/72511632041.shtml)
+- 2026-06-30 03:38 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/982144.shtml)
+- 2026-06-30 03:39 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/66362820022.shtml)
+- 2026-06-30 03:46 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/7414711505.shtml)
+- 2026-06-30 03:57 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/6384986054.shtml)
+- 2026-06-30 03:34 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/2887389.shtml)
+- 2026-06-30 03:37 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/040888.shtml)

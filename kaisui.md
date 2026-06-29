@@ -1,60 +1,61 @@
-# 业内首个中文服务跨洲邮轮航线在上海启航
+# 高途12年，陈向东以“顺天和人”穿越AI时代周期
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-中新网上海6月5日电 (记者 李佳佳)维京游轮旗下首艘为中国游客定制的中小型豪华海轮“维京伊敦号”5日带领逾700位游客从上海虹口北外滩启程，并计划于60天后抵达西班牙巴塞罗那(塔拉戈纳)。据称，该航线也是业内首个中文服务的跨洲航线。 首个中文服务跨洲航线“60日亚非欧发现之旅”以长线航程为纽带，横跨太平洋、印度洋以及大西洋，串联亚洲、非洲与欧洲的16国27个目的地。从上海启航
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年5月22日，北京飞往深圳的航班上，高途集团（NYSE：GOTU）创始人、董事长兼CEO陈向东合上笔记本电脑，望向舷窗外厚重的云层。这是他熟悉的长途飞行节奏，处理完工作，漫长的航程的时间留给自己独处与思索。 就在这3个多小时里，一个他思考了许久的词汇忽然清晰地浮现在脑海，像是一道一直隐约可见、此刻终
 
 ## 正文
 
-中新网上海6月5日电 (记者 李佳佳)维京游轮旗下首艘为中国游客定制的中小型豪华海轮“维京伊敦号”5日带领逾700位游客从上海虹口北外滩启程，并计划于60天后抵达西班牙巴塞罗那(塔拉戈纳)。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据称，该航线也是业内首个中文服务的跨洲航线。
+2026年5月22日，北京飞往深圳的航班上，高途集团（NYSE：GOTU）创始人、董事长兼CEO陈向东合上笔记本电脑，望向舷窗外厚重的云层。
 
-首个中文服务跨洲航线“60日亚非欧发现之旅”以长线航程为纽带，横跨太平洋、印度洋以及大西洋，串联亚洲、非洲与欧洲的16国27个目的地。
+这是他熟悉的长途飞行节奏，处理完工作，漫长的航程的时间留给自己独处与思索。
 
-从上海启航后，“维京伊敦号”将带领游客前往新加坡、泰国普吉岛、斯里兰卡等地，邂逅亚洲璀璨的文化瑰宝；随后远航至非洲海岸，在塞舌尔、南非、纳米比亚等地追寻独特自然奇观，并探访摩洛哥各具风情的城市；最终沉醉于西班牙的艺术与激情中，全方位领略跨洲文明的交汇体验。
+就在这3个多小时里，一个他思考了许久的词汇忽然清晰地浮现在脑海，像是一道一直隐约可见、此刻终于显影的光——“顺天和人”。
 
-在启航仪式现场，来自天津、也是第三次登上维京游轮的游客代表周凤荣分享了她的期待：“这次长达60天的跨洲旅行，能亲身感受亚非欧三大洲的人文风貌，是前所未有的体验。
+更早之前，2025年9月他提出“本真心”，2026年2月提出“始善利人”，至此，三位一体的思想框架成型。
 
-我期待接下来收获更多难忘的见闻，跟随维京看到更广阔的世界。
+“顺是顺应，顺应规律、常识、天道；和是让每一个人和和美美、激发善意与潜能，天人合一、高标准。
 
-” 作为高端定位的中小型豪华海轮，载客量仅为930人的“维京伊敦号”，得益于“小而美”的船舶设计，可驶入大型邮轮无法靠泊的码头，离游览目的地更近，让宾客享受更充裕的岸上时光。
+”陈向东做如此阐释。
 
-全船采用北欧设计风格，六大房型均配备阳台，无赌场、无闹腾娱乐，兼具简约质感与宁静氛围。
+三层心法：从本真心到顺天和人，构建企业精神底色 陈向东今年55岁，他说这个年龄让他明白了许多年轻时不懂的事情。
 
 ## 相关推荐
 
-- 2026-06-30 03:41 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 03:40 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 03:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 03:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 03:40 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-30 03:24 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 03:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 03:27 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 03:51 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 03:53 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-30 03:32 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 03:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 03:51 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 03:28 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 03:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 03:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 03:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 03:43 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 03:38 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 03:45 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 03:53 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 03:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 03:34 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 03:34 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 03:55 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 03:36 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 03:41 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 03:48 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 03:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:38 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/006292774.shtml)
-- 2026-06-30 03:44 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/8879041151.shtml)
-- 2026-06-30 03:29 - [一见倾心](https://www.share.minike.top/Article/details/448075814121.shtml)
-- 2026-06-30 03:33 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/97531984748.shtml)
-- 2026-06-30 03:35 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/94942579.shtml)
-- 2026-06-30 03:45 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/7090641778.shtml)
-- 2026-06-30 03:38 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/4307982373.shtml)
-- 2026-06-30 03:48 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/496094743320.shtml)
-- 2026-06-30 03:37 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/83048576574.shtml)
-- 2026-06-30 03:32 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/24349141.shtml)
-- 2026-06-30 03:26 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/10468182.shtml)
-- 2026-06-30 03:46 - [房价什么时候能涨](https://www.share.minike.top/Article/details/50969.shtml)
-- 2026-06-30 03:26 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/921582903989.shtml)
-- 2026-06-30 03:50 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/393448761329.shtml)
-- 2026-06-30 03:47 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/91994973208.shtml)
+- 2026-06-30 03:59 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/37920377486.shtml)
+- 2026-06-30 03:43 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/44042402950.shtml)
+- 2026-06-30 03:43 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/0648373602.shtml)
+- 2026-06-30 03:34 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/054204166749.shtml)
+- 2026-06-30 03:34 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/247728004.shtml)
+- 2026-06-30 03:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/771614117.shtml)
+- 2026-06-30 03:45 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/5162476.shtml)
+- 2026-06-30 03:40 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/26857362.shtml)
+- 2026-06-30 03:55 - [内马尔替补](https://www.blog.minike.top/Article/details/779007134.shtml)
+- 2026-06-30 03:46 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/505974695.shtml)
+- 2026-06-30 03:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/884743134505.shtml)
+- 2026-06-30 03:49 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/16034807.shtml)
+- 2026-06-30 03:34 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/308540.shtml)
+- 2026-06-30 03:45 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/4849597.shtml)
+- 2026-06-30 03:40 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/538845.shtml)

@@ -1,56 +1,60 @@
-# 管900亿的中邮基金总经理张志名做视频号，合规从来不是最大的问题
+# 两部门启动2026年度智能体育典型案例征集工作
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-来源：投资基摩人 原标题：管900亿的总经理做视频号，合规从来不是最大的问题 中邮基金总经理张志名做视频号这事儿，业内讨论不少，但方向基本跑偏了。 几乎所有讨论都扎堆在“合规不合规”上——内容有没有过审？有没有推荐产品？有没有踩营销红线？ 这些问题当然重要，但它们有一个共同特点：可控。 合规是可以用制度封死的。选题前先问“能不能对投资者形成正向引导”，内容过公司合规审核，全程规
+中新网北京6月24日电 为加快推进体育产业高质量发展，全面提升体育产品和服务数字化、智能化水平，国家体育总局办公厅、工业和信息化部办公厅近期联合印发专项通知，正式启动2026年度智能体育典型案例征集工作。本次征集在2022年度、2024年度两批案例基础上，动态优化申报方向、拓展创新应用场景，持续打造可复制、可推广的行业标杆，以科技赋能全民体育、助力经济社会高质量发展。 本次征集
 
 ## 正文
 
-来源：投资基摩人 原标题：管900亿的总经理做视频号，合规从来不是最大的问题 中邮基金总经理张志名做视频号这事儿，业内讨论不少，但方向基本跑偏了。
+中新网北京6月24日电 为加快推进体育产业高质量发展，全面提升体育产品和服务数字化、智能化水平，国家体育总局办公厅、工业和信息化部办公厅近期联合印发专项通知，正式启动2026年度智能体育典型案例征集工作。
 
-几乎所有讨论都扎堆在“合规不合规”上——内容有没有过审？
+本次征集在2022年度、2024年度两批案例基础上，动态优化申报方向、拓展创新应用场景，持续打造可复制、可推广的行业标杆，以科技赋能全民体育、助力经济社会高质量发展。
 
-有没有推荐产品？
+本次征集紧扣人工智能、元宇宙、脑机接口、数字孪生、5G/6G等前沿技术应用，设置四大征集方向，全面覆盖体育领域数字化、智能化应用场景。
 
-有没有踩营销红线？
+在全民健身智慧化产品与服务方面，面向大众日常健身需求，征集各类智能运动穿戴设备、专业健身器材、沉浸式运动装备，以及线上健身课程、健康管理等配套服务。
 
-这些问题当然重要，但它们有一个共同特点：可控。
+相关产品兼顾老年、青少年等不同人群使用需求，依托智能监测、动作指导等功能，让大众健身更科学、更便捷。
 
-合规是可以用制度封死的。
+围绕竞技体育数智化赋能，征集服务专业赛事与训练的各类智能产品。
 
-选题前先问“能不能对投资者形成正向引导”，内容过公司合规审核，全程规避产品推介——这套流程走下来，红线基本碰不到。
+涵盖运动员训练分析、体能监测、技战术规划设备，赛事智能判罚、高清转播系统，以及运动损伤修复、科学康复相关产品，用数字技术为竞技体育训练、办赛、康复全流程保驾护航。
 
-但真正的风险，从来不在可控的区域里。
+针对体育设施智慧化升级，重点征集体育场馆、户外公共体育场地的数字化改造方案。
 
 ## 相关推荐
 
-- 2026-06-30 03:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 03:41 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 03:41 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 03:36 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 03:52 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 03:28 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 03:51 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 03:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 03:29 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 03:27 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 03:35 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 03:37 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 03:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 03:49 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 03:30 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 03:45 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 03:35 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 03:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 03:35 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 03:46 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 03:36 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 03:47 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 03:38 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 03:47 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/322761.shtml)
-- 2026-06-30 03:37 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/642520660.shtml)
-- 2026-06-30 03:35 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/3408302.shtml)
-- 2026-06-30 03:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/69007.shtml)
-- 2026-06-30 03:25 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/583134174383.shtml)
-- 2026-06-30 03:30 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/09035.shtml)
-- 2026-06-30 03:46 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/9609038256.shtml)
-- 2026-06-30 03:49 - [点菜也要教吗](https://www.blog.minike.top/Article/details/0950237.shtml)
-- 2026-06-30 03:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/00380.shtml)
-- 2026-06-30 03:29 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/97691651.shtml)
-- 2026-06-30 03:49 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/132682369556.shtml)
-- 2026-06-30 03:46 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/83921.shtml)
-- 2026-06-30 03:25 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/601593785785.shtml)
-- 2026-06-30 03:53 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/668801440.shtml)
-- 2026-06-30 03:40 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/36579.shtml)
+- 2026-06-30 03:40 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/19918119.shtml)
+- 2026-06-30 03:52 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/245942022.shtml)
+- 2026-06-30 03:39 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/692456.shtml)
+- 2026-06-30 03:50 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/83447036401.shtml)
+- 2026-06-30 03:48 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/3647807013.shtml)
+- 2026-06-30 03:30 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/97827.shtml)
+- 2026-06-30 03:35 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/357339.shtml)
+- 2026-06-30 03:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/45169489.shtml)
+- 2026-06-30 03:57 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/296489479122.shtml)
+- 2026-06-30 03:56 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/90760759.shtml)
+- 2026-06-30 03:54 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/40486405.shtml)
+- 2026-06-30 03:47 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/9199583335.shtml)
+- 2026-06-30 03:47 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/11106460784.shtml)
+- 2026-06-30 03:39 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/86835.shtml)
+- 2026-06-30 03:37 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/458307.shtml)

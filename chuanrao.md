@@ -1,58 +1,60 @@
-# 美股半导体及人工智能板块盘前反弹 科技股暴跌引发市场关注
+# Cerebras上市后首份财报预测毛利率下滑，股价盘后跌10%
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-纽约股市周一盘前交易中，半导体及人工智能（AI）基础设施类股票迎来集体反弹，多只核心标的显著回升，正逐步收复上周五因地缘政治引发的巨大跌幅。 市场数据显示，具有行业风向标意义的 VanEck 半导体 ETF 在盘前交易中上涨 3.3%。此前，费城半导体指数在上周五暴跌 10%，创下 2020 年 3 月以来的最大单日跌幅。在最新盘前时段中，相关个股波动显著。其中，Marvell
+Cerebras在其上月首次公开募股（IPO）后的首份财报中表示，营收几乎翻倍。但该公司预计毛利率将下降，导致股价在盘后交易中下跌10%。 公司业绩如下：每股亏损22美分；营收1.934亿美元。 根据公告，公司第一季度营收较去年同期的9950万美元增长92%。净亏损从去年同期的2390万美元（合每股46美分）收窄至1400万美元。 Cerebras利用投资者对AI模型运行基础设
 
 ## 正文
 
-纽约股市周一盘前交易中，半导体及人工智能（AI）基础设施类股票迎来集体反弹，多只核心标的显著回升，正逐步收复上周五因地缘政治引发的巨大跌幅。
+Cerebras在其上月首次公开募股（IPO）后的首份财报中表示，营收几乎翻倍。
 
-市场数据显示，具有行业风向标意义的 VanEck 半导体 ETF 在盘前交易中上涨 3.3%。
+但该公司预计毛利率将下降，导致股价在盘后交易中下跌10%。
 
-此前，费城半导体指数在上周五暴跌 10%，创下 2020 年 3 月以来的最大单日跌幅。
+公司业绩如下：每股亏损22美分；营收1.934亿美元。
 
-在最新盘前时段中，相关个股波动显著。
+根据公告，公司第一季度营收较去年同期的9950万美元增长92%。
 
-其中，Marvell 领涨 8.7%，美光科技上涨 5.7%，超威半导体（AMD）上涨 2.8%，英伟达上涨 2.4%，台积电美股上涨 3.2%。
+净亏损从去年同期的2390万美元（合每股46美分）收窄至1400万美元。
 
-此外，英特尔、西部数据、Super Micro 等产业链骨干企业也均出现不同程度的温和上涨。
+Cerebras利用投资者对AI模型运行基础设施的兴趣，于5月在纳斯达克上市。
 
-针对上周五科技股的剧烈回调，英伟达首席执行官黄仁勋日前公开表示，全球人工智能基础设施的建设才刚刚开始，科技股的短期暴跌反而为长线资金创造了买入机会。
+IPO定价为每股185美元，开盘价为350美元，首日收盘报311.07美元。
 
-市场分析人士普遍指出，虽然全球半导体产业链在经历前期高歌猛进后正面临地缘冲突外溢与高估值的双重考验，但短期技术性回调并未动摇由生成式人工智能需求催生的行业基本面。
+此后该股已下跌28%，周二收盘价为226.72美元。
 
 ## 相关推荐
 
-- 2026-06-30 03:35 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 03:47 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 03:51 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 03:49 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 03:53 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 03:43 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 03:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 03:39 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 03:40 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 03:50 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 03:28 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 03:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 03:49 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 03:53 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 03:50 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 03:58 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 03:51 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 03:41 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 03:32 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 03:59 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 03:56 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 03:50 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 03:55 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 03:49 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 03:44 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 03:32 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:46 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/799287.shtml)
-- 2026-06-30 03:44 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/194418188105.shtml)
-- 2026-06-30 03:38 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/96896473768.shtml)
-- 2026-06-30 03:28 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/7887312500.shtml)
-- 2026-06-30 03:39 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/765488344526.shtml)
-- 2026-06-30 03:28 - [TOP Prada](https://www.blog.minike.top/Article/details/3361199.shtml)
-- 2026-06-30 03:49 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/881526171251.shtml)
-- 2026-06-30 03:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/69294674905.shtml)
-- 2026-06-30 03:28 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/80121.shtml)
-- 2026-06-30 03:25 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/394533.shtml)
-- 2026-06-30 03:45 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/86921100053.shtml)
-- 2026-06-30 03:38 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/97575.shtml)
-- 2026-06-30 03:27 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/3684497070.shtml)
-- 2026-06-30 03:52 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/89577971.shtml)
-- 2026-06-30 03:50 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/03436450369.shtml)
+- 2026-06-30 03:47 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/097886183.shtml)
+- 2026-06-30 03:53 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/8364746.shtml)
+- 2026-06-30 03:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/05411744721.shtml)
+- 2026-06-30 03:32 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/4201771116.shtml)
+- 2026-06-30 03:52 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/42144289259.shtml)
+- 2026-06-30 03:53 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/07770293.shtml)
+- 2026-06-30 03:33 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/44873.shtml)
+- 2026-06-30 03:51 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/4659105.shtml)
+- 2026-06-30 03:52 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/1530034944.shtml)
+- 2026-06-30 03:46 - [起风了](https://www.share.kurohicncr.top/Article/details/96054760291.shtml)
+- 2026-06-30 03:45 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/0593258671.shtml)
+- 2026-06-30 03:47 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/217897826623.shtml)
+- 2026-06-30 03:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/516937510.shtml)
+- 2026-06-30 03:46 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/49323.shtml)
+- 2026-06-30 03:48 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/369029181.shtml)

@@ -1,60 +1,58 @@
-# 易方达基金刘晓艳：基金行业应正视三大短板，须以“苦练内功”提质增效
+# 伟大征程｜大国底气：国防和科技战线取得新成就
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-专题：官宣！易方达刘晓艳当选基金业协会兼职会长！ 6月6日上午，中国证券投资基金业协会第四届会员代表大会在京举行。证监会主席吴清在会上表示，力争“十五五”时期建设一流投资机构取得突破性进展。为此，他强调全行业要做到“四个坚持”：坚持规范为先，不断夯实合规风控内在基础；坚持客户为本，始终注重投资者利益优先；坚持功能为要，更好发挥培育新质生产力作用；坚持创新为基，持续增强行业高质量
+新华社北京6月22日电 题：大国底气：国防和科技战线取得新成就 新华社记者杨湛菲 仲夏时节，祖国西北巴丹吉林沙漠深处，东风航天城满目青绿。 这里更广为人知的名字是“酒泉卫星发射中心”。不到一个月前，搭载3名航天员的神舟二十三号载人飞船从这里启航，驶向“天宫”空间站。 习近平总书记深刻指出：“自力更生是中华民族自立于世界民族之林的奋斗基点，自主创新是我们攀登世界科技高峰的必由之路
 
 ## 正文
 
-专题：官宣！
+新华社北京6月22日电 题：大国底气：国防和科技战线取得新成就 新华社记者杨湛菲 仲夏时节，祖国西北巴丹吉林沙漠深处，东风航天城满目青绿。
 
-易方达刘晓艳当选基金业协会兼职会长！
+这里更广为人知的名字是“酒泉卫星发射中心”。
 
-6月6日上午，中国证券投资基金业协会第四届会员代表大会在京举行。
+不到一个月前，搭载3名航天员的神舟二十三号载人飞船从这里启航，驶向“天宫”空间站。
 
-证监会主席吴清在会上表示，力争“十五五”时期建设一流投资机构取得突破性进展。
+习近平总书记深刻指出：“自力更生是中华民族自立于世界民族之林的奋斗基点，自主创新是我们攀登世界科技高峰的必由之路。
 
-为此，他强调全行业要做到“四个坚持”：坚持规范为先，不断夯实合规风控内在基础；坚持客户为本，始终注重投资者利益优先；坚持功能为要，更好发挥培育新质生产力作用；坚持创新为基，持续增强行业高质量发展内生动力。
+” 今日我们取得的成就，正是建立在20世纪50年代以来，一代代先辈筚路蓝缕、攻坚克难，一步步亲手打下的坚实根基之上。
 
-易方达基金董事长刘晓艳在大会期间表示，基金行业应正视专业优势不够突出，产品同质化、竞争内卷化，专业服务能力存在差距，权益类基金规模占比有待提升等问题，将这些短板弱项作为下一步苦练内功、提质增效的发力点。
+那是一段格外艰难的岁月—— 研制“东方红一号”时，科学家们靠半自动手摇计算器处理大量运算任务，一条轨道算了整整一年；“两弹一星”研制团队在戈壁荒滩、深山峡谷建立基地，隐姓埋名，断绝与外界有碍工作的往来，有人甚至献出了宝贵生命；研制新中国第一艘核潜艇“长征一号”，在没有图纸资料、没有专家权威、没有外来援助的“三无”基础上起步…… 只有把关键核心技术掌握在自己手中，才能从根本上保障国家经济安全、国防安全和其他安全。
 
-刘晓艳指出，行业应持续迭代升级适应新质生产力发展需求的投研体系，提升对新产业、新技术发展趋势的洞察力，积极围绕新质生产力主题布局权益类基金，引导耐心资本向国家战略和国民经济重点领域集聚。
+危机关头，我们的先辈们挺过来了，中国国防科技事业挺过来了。
 
-与此同时，基金行业应积极参与上市公司治理，助力企业提升长期价值；持续提升产品、服务、业务、组织等方面创新的广度和深度，加快智能化转型，探索应用人工智能、大数据等新技术，赋能投资投研、风控、客服等各个业务环节。
+1964年10月16日，戈壁滩上一声巨响，我国第一颗原子弹爆炸成功。
 
 ## 相关推荐
 
-- 2026-06-30 03:27 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 03:28 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 03:31 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 03:40 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 03:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 03:47 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 03:50 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 03:26 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 03:37 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 03:24 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 03:52 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 03:33 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 03:42 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 03:39 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 03:55 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 03:46 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 03:32 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 03:40 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 03:43 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 03:54 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 03:39 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 03:38 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 03:55 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 03:36 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 03:46 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 03:43 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:37 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/490928190216.shtml)
-- 2026-06-30 03:50 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/301371042.shtml)
-- 2026-06-30 03:50 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/574687661.shtml)
-- 2026-06-30 03:44 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/38444434.shtml)
-- 2026-06-30 03:32 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/178958.shtml)
-- 2026-06-30 03:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/1366818.shtml)
-- 2026-06-30 03:45 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/644577818485.shtml)
-- 2026-06-30 03:40 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/598573456488.shtml)
-- 2026-06-30 03:34 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/5290085956.shtml)
-- 2026-06-30 03:30 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/2894434.shtml)
-- 2026-06-30 03:31 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/0845266844.shtml)
-- 2026-06-30 03:40 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/9654980177.shtml)
-- 2026-06-30 03:30 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/8218878016.shtml)
-- 2026-06-30 03:43 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/251985114.shtml)
-- 2026-06-30 03:39 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/1118845969.shtml)
+- 2026-06-30 03:47 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/640825437.shtml)
+- 2026-06-30 03:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/12921301.shtml)
+- 2026-06-30 03:40 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/3613426.shtml)
+- 2026-06-30 03:38 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/410114945.shtml)
+- 2026-06-30 03:34 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/843257138586.shtml)
+- 2026-06-30 03:39 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/27354805.shtml)
+- 2026-06-30 03:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/03048447999.shtml)
+- 2026-06-30 03:57 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/09252.shtml)
+- 2026-06-30 03:36 - [周生如故](http://www.blog.minike.top/Article/details/7164307670.shtml)
+- 2026-06-30 03:54 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/90328692574.shtml)
+- 2026-06-30 03:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/1286553.shtml)
+- 2026-06-30 03:33 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/76877.shtml)
+- 2026-06-30 03:58 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/92376.shtml)
+- 2026-06-30 03:44 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/60397935788.shtml)
+- 2026-06-30 03:55 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/137490524693.shtml)

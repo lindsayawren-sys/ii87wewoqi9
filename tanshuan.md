@@ -1,60 +1,56 @@
-# “爱达·地中海”号邮轮回归天津 京津冀游客出行再添新选择
+# 锂矿股午后拉升 天齐锂业及赣锋锂业均涨近3%
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-中新网天津6月7日电 (记者 周亚强)记者从天津东疆边检站获悉，“爱达·地中海”号邮轮7日正式回归天津母港，天津国际邮轮母港至此同时拥有“爱达·地中海”号和“理想”号两艘母港运营邮轮，为京津冀游客出行增加了更多选择。 当日7时许，“爱达·地中海”号邮轮搭载近2400名旅客缓缓靠泊天津国际邮轮母港；15时许，邮轮又搭载近1000名旅客驶往韩国，开启六天五晚的邮轮之旅。据边检部门介
+锂矿股午后拉升，截至发稿，天齐锂业（09696）上涨2.69%，报43.48港元；赣锋锂业（01772）上涨2.63%，报56.55港元。 消息面上，6月24日午后，碳酸锂主力合约拉升超3%，最高涨至161900元/吨。国贸期货认为，在视下窝矿获取新的建设用地预审与选址建议书后，市场炒作其复产预期提高，压制期价。现实层面，供给扩张受限，需求持续旺盛，形成下方支撑。信达期货指出，
 
 ## 正文
 
-中新网天津6月7日电 (记者 周亚强)记者从天津东疆边检站获悉，“爱达·地中海”号邮轮7日正式回归天津母港，天津国际邮轮母港至此同时拥有“爱达·地中海”号和“理想”号两艘母港运营邮轮，为京津冀游客出行增加了更多选择。
+锂矿股午后拉升，截至发稿，天齐锂业（09696）上涨2.69%，报43.48港元；赣锋锂业（01772）上涨2.63%，报56.55港元。
 
-当日7时许，“爱达·地中海”号邮轮搭载近2400名旅客缓缓靠泊天津国际邮轮母港；15时许，邮轮又搭载近1000名旅客驶往韩国，开启六天五晚的邮轮之旅。
+消息面上，6月24日午后，碳酸锂主力合约拉升超3%，最高涨至161900元/吨。
 
-据边检部门介绍，今年6月至8月，天津邮轮口岸预计运行邮轮30余个航次，出入境旅客数量持续走高。
+国贸期货认为，在视下窝矿获取新的建设用地预审与选址建议书后，市场炒作其复产预期提高，压制期价。
 
-为应对密集的船期和增大的客流，东疆边检站与邮轮公司、码头公司建立实时信息共享机制，提前做好信息预审和备案，精简现场查验流程，最大程度减少旅客现场等待时间，保障安全高效快速通关。
+现实层面，供给扩张受限，需求持续旺盛，形成下方支撑。
 
-该站还全面启用邮轮管控系统，以科技赋能通关服务，实现旅客“到港即下”，最大限度缩短入境时间。
+信达期货指出，需求方面，下游6月排产持续创下历史新高，5月行业去库的背景下，6月需求的进一步走强有望加速去库。
 
-针对需换乘飞机、高铁的联程旅客，东疆边检站专门开辟速通通道，安排专人现场引导分流，精准衔接邮轮出行与空铁换乘，有效解决了中转旅客换乘时间紧、通关耗时长的问题。
-
-东疆边检站表示，将持续坚守岗位，以高标准勤务、高品质服务护航两艘母港运营邮轮，着力提升旅客通关体验，为天津邮轮产业高质量发展贡献力量。
-
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:34 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 03:38 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 03:40 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 03:40 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 03:51 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 03:51 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 03:45 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 03:39 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 03:50 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 03:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 03:46 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 03:27 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 03:43 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 03:27 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 03:46 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 03:49 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 03:33 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 03:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 03:59 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 03:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 03:45 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 03:41 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-30 03:55 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 03:57 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 03:58 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 03:53 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 03:37 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 03:38 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:48 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/84626.shtml)
-- 2026-06-30 03:49 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/614304.shtml)
-- 2026-06-30 03:48 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/37884.shtml)
-- 2026-06-30 03:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/331098857822.shtml)
-- 2026-06-30 03:37 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/05019.shtml)
-- 2026-06-30 03:44 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/76875237267.shtml)
-- 2026-06-30 03:29 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/2304917668.shtml)
-- 2026-06-30 03:27 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/3105440965.shtml)
-- 2026-06-30 03:54 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/75333115522.shtml)
-- 2026-06-30 03:35 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/05560.shtml)
-- 2026-06-30 03:43 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/77604379437.shtml)
-- 2026-06-30 03:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/010610440.shtml)
-- 2026-06-30 03:47 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/3907971638.shtml)
-- 2026-06-30 03:39 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/379839.shtml)
-- 2026-06-30 03:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/18791659151.shtml)
+- 2026-06-30 03:36 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/978706.shtml)
+- 2026-06-30 03:52 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/72037405.shtml)
+- 2026-06-30 03:53 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/872249.shtml)
+- 2026-06-30 03:43 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/26094.shtml)
+- 2026-06-30 03:37 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/0374047.shtml)
+- 2026-06-30 03:53 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/018006739460.shtml)
+- 2026-06-30 03:49 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/56114421.shtml)
+- 2026-06-30 03:54 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/04075.shtml)
+- 2026-06-30 03:55 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/6216638979.shtml)
+- 2026-06-30 03:59 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/95828756285.shtml)
+- 2026-06-30 03:39 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/045512296527.shtml)
+- 2026-06-30 03:41 - [美股](http://www.blog.kurohicncr.top/Article/details/00191.shtml)
+- 2026-06-30 03:54 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/30367.shtml)
+- 2026-06-30 03:37 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/97619134257.shtml)
+- 2026-06-30 03:49 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/7592495.shtml)

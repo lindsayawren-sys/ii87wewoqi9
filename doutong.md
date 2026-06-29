@@ -1,56 +1,47 @@
-# 遇事不决问AI？治理“AI污染”要防管结合
+# 见证梅西足球史上最长的“一舞”
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-治理“AI污染”要防管结合(创新谈) 随着AI(人工智能)深度融入千家万户，“遇事不决问AI”成了许多人的选择，但AI回答未必都是“干净”的。不久前，有媒体曝光“AI投毒”隐蔽产业链现象，引发社会广泛关注。 所谓“AI投毒”，是向人工智能大模型的训练数据中，掺入伪装成正常样本的恶意数据或虚假信息，进而影响模型判断、操纵输出结果。“投毒者”可以批量制造虚假网页、新闻，让AI在抓取
+发布时间：2026年06月23日 15:47 来源：中国新闻网 见证梅西足球史上最长的“一舞” 责任编辑：【李光伟】
 
 ## 正文
 
-治理“AI污染”要防管结合(创新谈) 随着AI(人工智能)深度融入千家万户，“遇事不决问AI”成了许多人的选择，但AI回答未必都是“干净”的。
-
-不久前，有媒体曝光“AI投毒”隐蔽产业链现象，引发社会广泛关注。
-
-所谓“AI投毒”，是向人工智能大模型的训练数据中，掺入伪装成正常样本的恶意数据或虚假信息，进而影响模型判断、操纵输出结果。
-
-“投毒者”可以批量制造虚假网页、新闻，让AI在抓取数据时一并“吞下”，在不知不觉中“学歪”，最终固化为针对特定问题的“标准答案”；也可以在模型中植入隐蔽的后门指令，一旦触发特定关键词就输出预设信息。
-
-信任是链接人与人工智能的重要前提。
-
-对个人而言，这种“看不见的污染”轻则影响体验，重则误导决策。
-
-比如AI推荐购物，它可能引导你购买被包装出来的“爆款”；向AI咨询医疗建议，它可能引用虚假病例，给出危险的治疗方案……在医疗、金融等关键领域，这种风险尤其值得警惕。
-
-对产业而言，如果“数据不可信”成为普遍担忧，企业之间的合作意愿就会下降，行业的创新效率也会受到影响。
+发布时间：2026年06月23日 15:47 来源：中国新闻网 见证梅西足球史上最长的“一舞” 责任编辑：【李光伟】
 
 ## 相关推荐
 
-- 2026-06-30 03:35 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-30 03:40 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 03:24 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 03:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 03:45 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 03:31 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 03:29 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 03:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 03:40 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 03:40 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 03:47 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 04:00 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 03:53 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 03:52 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 03:52 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 03:39 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 03:53 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 03:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 03:30 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 03:36 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 03:35 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 03:33 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 03:31 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 03:48 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 03:54 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:47 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/04192084153.shtml)
-- 2026-06-30 03:49 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/489316508.shtml)
-- 2026-06-30 03:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/8695613852.shtml)
-- 2026-06-30 03:43 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/867022209.shtml)
-- 2026-06-30 03:52 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/50814.shtml)
-- 2026-06-30 03:43 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/071531786366.shtml)
-- 2026-06-30 03:40 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/66925556.shtml)
-- 2026-06-30 03:41 - [第一炉香](https://www.share.kurohicncr.top/Article/details/682771073.shtml)
-- 2026-06-30 03:41 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/9163308.shtml)
-- 2026-06-30 03:52 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/539898242.shtml)
-- 2026-06-30 03:45 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/9318422.shtml)
-- 2026-06-30 03:33 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/3066809.shtml)
-- 2026-06-30 03:26 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/21930961.shtml)
-- 2026-06-30 03:39 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/386239.shtml)
-- 2026-06-30 03:40 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/008561851.shtml)
+- 2026-06-30 03:59 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/49406.shtml)
+- 2026-06-30 03:42 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/30965.shtml)
+- 2026-06-30 03:57 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/274669.shtml)
+- 2026-06-30 03:40 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/267129.shtml)
+- 2026-06-30 03:38 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/74905375201.shtml)
+- 2026-06-30 03:51 - [庆祝中国共产党成立105周年音乐会](https://www.blog.kurohicncr.top/Article/details/685981972984.shtml)
+- 2026-06-30 03:43 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/326882587.shtml)
+- 2026-06-30 03:33 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/56341679.shtml)
+- 2026-06-30 03:54 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/755476465.shtml)
+- 2026-06-30 03:40 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/91284.shtml)
+- 2026-06-30 03:44 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/58212338.shtml)
+- 2026-06-30 03:46 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/03060955501.shtml)
+- 2026-06-30 03:30 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/55528810.shtml)
+- 2026-06-30 03:43 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/80076696033.shtml)
+- 2026-06-30 03:41 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/99796668.shtml)

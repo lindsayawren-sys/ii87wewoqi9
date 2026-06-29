@@ -1,57 +1,61 @@
-# 中东突发！伊朗向以色列发射导弹，特朗普发声
+# 酒价内参6月23日价格发布：精品茅台下跌4元
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-6月8日亚太早盘，截至记者发稿，WTI原油期货价格涨3.35%，报93.57美元/桶。美股期指普跌，道琼斯指数期货跌0.46%，标普500指数期货跌0.50%，纳斯达克100指数期货跌0.62%。消息面上，伊朗再次向以色列发射导弹。 伊朗武装部队警告：或对以色列采取进一步行动 新华社德黑兰6月7日电 据伊朗媒体报道，伊朗武装部队哈塔姆安比亚中央司令部司令7日晚发表声明，警告以色
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月23日整体继续小幅走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9894元，较昨日下跌3元，连续两日回落创下三日以来最低。今日总价仍处于9900元关口下方，低位震荡态势仍在延续，终端交投情绪整体偏谨慎，核心单品的涨跌分化依然显著
 
 ## 正文
 
-6月8日亚太早盘，截至记者发稿，WTI原油期货价格涨3.35%，报93.57美元/桶。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月23日整体继续小幅走弱。
 
-美股期指普跌，道琼斯指数期货跌0.46%，标普500指数期货跌0.50%，纳斯达克100指数期货跌0.62%。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9894元，较昨日下跌3元，连续两日回落创下三日以来最低。
 
-消息面上，伊朗再次向以色列发射导弹。
+今日总价仍处于9900元关口下方，低位震荡态势仍在延续，终端交投情绪整体偏谨慎，核心单品的涨跌分化依然显著。
 
-伊朗武装部队警告：或对以色列采取进一步行动 新华社德黑兰6月7日电 据伊朗媒体报道，伊朗武装部队哈塔姆安比亚中央司令部司令7日晚发表声明，警告以色列立即停止对黎巴嫩南部和首都贝鲁特南郊的袭击，否则伊朗将针对以色列及其支持者采取更强烈的行动。
+今日11大白酒单品四涨六跌一平，输家占据优势。
 
-伊朗当晚向以色列发射导弹，以回应以色列在黎巴嫩扩大军事行动。
+上涨方面，习酒君品涨幅居前，上涨6元/瓶，平近一月最高价纪录；洋河梦之蓝M6+上涨3元/瓶，升至近一月最高位；国窖1573上涨2元/瓶；五粮液1618小幅上涨1元/瓶，自近一月最低位连续两日反弹，但仍处于近一月低位区间。
 
-伊朗外交部长阿拉格齐在社交媒体上发布一张伊朗和黎巴嫩国旗“肩并肩”的照片。
+下跌方面，精品茅台与古井贡古20跌幅居前，均下跌4元/瓶，其中前者连续两日回落，后者价格降至进入六月份以来次低位；飞天茅台下跌3元/瓶；水晶剑南春下跌2元/瓶，价格亦再度回落至近一月次低位；五粮液普五八代与青花汾20均小幅下跌1元/瓶，前者已六连阴，失守800元关口后继续下探，续创今年2月2日以来最低纪录，后者结束此前四连涨。
 
-伊朗革命卫队称导弹打击目标是以色列空军基地 新华社德黑兰6月7日电 伊朗伊斯兰革命卫队7日晚发表声明说，伊朗当晚对以色列实施弹道导弹打击的目标是以北部拉马特戴维空军基地。
+青花郎价格环比保持不变。
 
-伊朗打以色列后以军称将猛打黎巴嫩真主党 新华社耶路撒冷6月7日电 以色列国防军发言人埃菲·德弗林7日深夜说，伊朗当晚向以色列发射导弹是“一个严重错误”，以军将继续在黎巴嫩展开行动，并加大对黎真主党的打击力度。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-30 03:34 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 03:53 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-30 03:29 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 03:41 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-30 03:48 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 03:45 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 03:26 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-30 03:52 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 03:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 03:36 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 03:31 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 03:52 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-30 03:35 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 03:54 - [巴西绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 03:39 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 03:47 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 03:32 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 03:34 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 03:41 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 03:49 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-30 03:47 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 03:48 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 03:44 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 03:51 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 03:37 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 03:44 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:25 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/47662296.shtml)
-- 2026-06-30 03:50 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/8879361.shtml)
-- 2026-06-30 03:53 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/581929155.shtml)
-- 2026-06-30 03:27 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/582576323.shtml)
-- 2026-06-30 03:24 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/55341.shtml)
-- 2026-06-30 03:51 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/40287296294.shtml)
-- 2026-06-30 03:50 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/209713791.shtml)
-- 2026-06-30 03:35 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/99003.shtml)
-- 2026-06-30 03:31 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/2894057.shtml)
-- 2026-06-30 03:33 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/1994978.shtml)
-- 2026-06-30 03:29 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/042849927.shtml)
-- 2026-06-30 03:31 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/4127447.shtml)
-- 2026-06-30 03:30 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/1771346.shtml)
-- 2026-06-30 03:27 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/490297.shtml)
-- 2026-06-30 03:44 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/28866295089.shtml)
+- 2026-06-30 03:30 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/1459687.shtml)
+- 2026-06-30 03:43 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/94221337469.shtml)
+- 2026-06-30 03:44 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/17574.shtml)
+- 2026-06-30 03:37 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/70308451.shtml)
+- 2026-06-30 03:50 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/2179075.shtml)
+- 2026-06-30 03:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/39977.shtml)
+- 2026-06-30 03:42 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/5351300053.shtml)
+- 2026-06-30 03:35 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/069650008.shtml)
+- 2026-06-30 03:56 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/039440786751.shtml)
+- 2026-06-30 03:54 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/4623752808.shtml)
+- 2026-06-30 03:45 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/21741982798.shtml)
+- 2026-06-30 03:38 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/544351.shtml)
+- 2026-06-30 03:52 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/4796637.shtml)
+- 2026-06-30 03:33 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/09791254.shtml)
+- 2026-06-30 03:57 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/054243777143.shtml)

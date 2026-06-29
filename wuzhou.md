@@ -1,53 +1,61 @@
-# 快讯：耶路撒冷传出爆炸声
+# 国台办：和平统一后，两岸同胞共享一个伟大国家的尊严荣耀
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-中新网6月8日电 据法新社当地时间8日援引现场记者消息称，耶路撒冷传出爆炸声。 目前尚不清楚爆炸原因及具体情况。 此前据美国有线电视新闻网(CNN)报道，当地时间7日晚，美国驻耶路撒冷大使馆发布指导意见，告知在以色列的美国工作人员及其家人就地避难，“并做好在红色警报发布时转移到受保护的避难所的准备，直至另行通知”。 美国驻耶路撒冷大使馆在社交媒体上表示，如果发生“导弹、火箭弹袭
+中新社北京6月24日电 (记者 张杨彬)国务院台办发言人张晗24日在北京指出，两岸和平统一后，有强大祖国做后盾，台湾同胞将同大陆同胞一道，共享一个伟大国家的尊严和荣耀，在国际上腰杆更硬、底气更足，更加安全、更有尊严，享有前所未有的发展机遇。她还提到，台湾的对外交往渠道将全面拓宽，台湾同胞将以主人翁身份参与国际事务；台商台企将深度融入全球供应链产业链，在全球市场的发展空间更大、竞
 
 ## 正文
 
-中新网6月8日电 据法新社当地时间8日援引现场记者消息称，耶路撒冷传出爆炸声。
+中新社北京6月24日电 (记者 张杨彬)国务院台办发言人张晗24日在北京指出，两岸和平统一后，有强大祖国做后盾，台湾同胞将同大陆同胞一道，共享一个伟大国家的尊严和荣耀，在国际上腰杆更硬、底气更足，更加安全、更有尊严，享有前所未有的发展机遇。
 
-目前尚不清楚爆炸原因及具体情况。
+她还提到，台湾的对外交往渠道将全面拓宽，台湾同胞将以主人翁身份参与国际事务；台商台企将深度融入全球供应链产业链，在全球市场的发展空间更大、竞争力更强；台湾同胞在海外能更便捷、更顺畅得到祖国的支持和帮助。
 
-此前据美国有线电视新闻网(CNN)报道，当地时间7日晚，美国驻耶路撒冷大使馆发布指导意见，告知在以色列的美国工作人员及其家人就地避难，“并做好在红色警报发布时转移到受保护的避难所的准备，直至另行通知”。
+在当天举行的国台办例行新闻发布会上，张晗阐释了和平统一后台湾“七个更好”中的第七个“更好”，即“和平统一后，有强大祖国做后盾，台湾对外交往会更好”。
 
-美国驻耶路撒冷大使馆在社交媒体上表示，如果发生“导弹、火箭弹袭击或敌方飞机入侵”，或将发布红色警报。
+详述当前中国大陆“朋友圈”持续壮大，成为世界和平建设者、全球发展贡献者、国际秩序维护者、公共产品提供者的事实，张晗指出，实现两岸和平统一，不仅是中华民族和中国人民之福，也是国际社会和世界人民之福。
+
+她强调，中国的统一，不会损害任何国家的正当利益包括其在台湾的经济利益，只会为台湾同胞带来更多福祉，只会给各国带来更多发展机遇，只会给亚太地区和世界繁荣稳定注入更多正能量，只会为构建人类命运共同体、为世界和平发展和人类进步事业作出更大贡献。
+
+就维系台海和平，近期一项民调显示，岛内民众选择“对大陆释出善意”的比例远高于“与美国深化合作”。
+
+张晗应询表示，大陆方面顺应岛内主流民意，始终致力于维护台海和平稳定，推动两岸关系和平发展，持续出台促进两岸交流合作的政策措施，充分体现维护中华民族整体利益的胸怀担当和为台胞谋福祉办好事的善意诚意，得到台湾社会各界广泛肯定和普遍欢迎。
+
+她也提到，民进党当局任由外部势力驱使，把台湾带向兵凶战危的险境。
 
 ## 相关推荐
 
-- 2026-06-30 03:29 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 03:29 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 03:47 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 03:27 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 03:32 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 03:28 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 03:41 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 03:48 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 03:52 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 03:37 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 03:49 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 03:43 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 03:36 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 03:33 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 03:37 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 03:45 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 03:58 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 03:46 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 03:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 03:50 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 03:31 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 03:56 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 03:36 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 03:33 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 03:51 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 03:42 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-30 03:36 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 03:59 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 03:33 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 03:40 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:40 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/67938.shtml)
-- 2026-06-30 03:24 - [斛珠夫人](https://www.share.minike.top/Article/details/387093.shtml)
-- 2026-06-30 03:43 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/9033071102.shtml)
-- 2026-06-30 03:50 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/52682236.shtml)
-- 2026-06-30 03:46 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/883991.shtml)
-- 2026-06-30 03:45 - [金刚川](http://www.blog.kurohicncr.top/Article/details/722043.shtml)
-- 2026-06-30 03:41 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/1084350.shtml)
-- 2026-06-30 03:45 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/137280.shtml)
-- 2026-06-30 03:44 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/390853551.shtml)
-- 2026-06-30 03:31 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/682126030904.shtml)
-- 2026-06-30 03:47 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/28406457.shtml)
-- 2026-06-30 03:37 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/857331547.shtml)
-- 2026-06-30 03:40 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/453864349.shtml)
-- 2026-06-30 03:24 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/568607873.shtml)
-- 2026-06-30 03:48 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/24849434566.shtml)
+- 2026-06-30 03:57 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/161063.shtml)
+- 2026-06-30 03:56 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/30055014545.shtml)
+- 2026-06-30 03:43 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/60330.shtml)
+- 2026-06-30 03:48 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/237169.shtml)
+- 2026-06-30 03:37 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/976560.shtml)
+- 2026-06-30 03:51 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/06971.shtml)
+- 2026-06-30 03:53 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/688790061.shtml)
+- 2026-06-30 03:48 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/204495653960.shtml)
+- 2026-06-30 03:52 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/16689447673.shtml)
+- 2026-06-30 03:32 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/52689294.shtml)
+- 2026-06-30 03:58 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/132794296.shtml)
+- 2026-06-30 03:35 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/978979.shtml)
+- 2026-06-30 03:47 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/56543813206.shtml)
+- 2026-06-30 03:58 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/79822198273.shtml)
+- 2026-06-30 03:42 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/49934538.shtml)

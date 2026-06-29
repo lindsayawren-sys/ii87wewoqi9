@@ -1,61 +1,57 @@
-# ACI Sky™ Workbench获房利美和房地美认证，全面支持UAD 3.6评估规范
+# 美加息预期与日方干预风险相互制衡，美元兑日元高位震荡
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-First American Mortgage Solutions公司近日宣布，其ACI Sky™ Workbench平台已获得房利美和房地美的正式认证，确认该平台符合统一评估数据集3.6规范的技术要求。这一认证意味着评估师可立即采用该平台准备新一代评估报告，并确保满足即将于2026年11月2日生效的强制合规要求。 UAD 3.6是房利美和房地美自2018年起联合推进的评估数据
+汇通财经APP讯——周三亚洲早盘时段，美元兑日元汇率整体维持横盘震荡走势，行情波动幅度相对有限，盘面价格稳定在161.55一线。 当前该货币对陷入典型的多空博弈格局，美联储加息预期持续升温为美元提供强势支撑，利好汇率上行；但日元持续贬值引发日本官方干预预期升温，极大限制了美元兑日元的上行空间，两大核心因素相互制衡，主导短期汇市走势。 美联储释放鹰派信号，市场加息预期大幅升温 美
 
 ## 正文
 
-First American Mortgage Solutions公司近日宣布，其ACI Sky™ Workbench平台已获得房利美和房地美的正式认证，确认该平台符合统一评估数据集3.6规范的技术要求。
+汇通财经APP讯——周三亚洲早盘时段，美元兑日元汇率整体维持横盘震荡走势，行情波动幅度相对有限，盘面价格稳定在161.55一线。
 
-这一认证意味着评估师可立即采用该平台准备新一代评估报告，并确保满足即将于2026年11月2日生效的强制合规要求。
+当前该货币对陷入典型的多空博弈格局，美联储加息预期持续升温为美元提供强势支撑，利好汇率上行；但日元持续贬值引发日本官方干预预期升温，极大限制了美元兑日元的上行空间，两大核心因素相互制衡，主导短期汇市走势。
 
-UAD 3.6是房利美和房地美自2018年起联合推进的评估数据标准改革的最新成果，旨在以更加结构化、数据优先的报告框架取代传统的静态评估表格，从而提升抵押贷款生态系统中评估数据的一致性、准确性和可用性。
+美联储释放鹰派信号，市场加息预期大幅升温 美联储在6月最新货币政策会议中，宣布维持3.50%至3.75%的基准利率区间保持不变。
 
-新规要求评估数据须符合MISMO v3.6行业标准，并引入全新的统一住宅评估报告格式，适用于所有房产类型和估值方法。
+美联储主席凯文·沃什（Kevin Warsh）首次主持会后新闻发布会，他在发布会上表示，物价稳定将是美联储后续货币政策制定与调整的核心指导原则。
 
-First American贷款部门总裁表示：“UAD 3.6从根本上改变了评估数据的采集、结构和交付方式。
+本次会议整体基调偏鹰派，被市场解读为偏紧缩的政策导向，为美元汇率提供了有力支撑。
 
-ACI Sky Workbench在开发过程中采纳了数百名评估师的反馈意见，打造了一个覆盖从现场勘查到报告提交全流程的一体化云平台。
+伴随政策信号落地，市场对美联储年内加息的定价情绪快速升温。
 
-获得房利美和房地美的认证，使评估师能够放心地立即采用Workbench，并使用为新一代评估报告量身定制的平台，同时完全符合UAD 3.6规范。
+据芝加哥商品交易所美联储观察工具数据显示，当前市场预判美联储7月议息会议加息25个基点及以上的概率升至37.4%，较一周前8.5%的概率实现大幅攀升；9月加息概率更是飙升至70.2%，远超前期29.1%的水平，货币政策预期的转变成为支撑美元走强的核心动力。
 
-” 通过此次认证，ACI Sky Workbench已正式列入房利美的集成供应商名单和房地美的软件提供商名单。
+日元贬值触发干预预警，日方政策威慑压制汇价涨幅 在美元强势走强的背景下，日元持续走弱，汇率持续偏离合理区间，引发日本政府高度重视，市场汇市干预风险快速升温。
 
 ## 相关推荐
 
-- 2026-06-30 03:46 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 03:44 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-30 03:40 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-30 03:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 03:27 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 03:38 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 03:52 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 03:37 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 03:37 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 03:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 03:46 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 03:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 03:30 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 03:38 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 03:47 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 03:45 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-30 03:59 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 03:48 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 03:32 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 03:43 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 03:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 03:44 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 03:36 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-30 03:38 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 03:43 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 03:34 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:45 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/4845023317.shtml)
-- 2026-06-30 03:52 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/515748177.shtml)
-- 2026-06-30 03:35 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/93333040.shtml)
-- 2026-06-30 03:24 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/85803737.shtml)
-- 2026-06-30 03:29 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/2011305023.shtml)
-- 2026-06-30 03:27 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/19337.shtml)
-- 2026-06-30 03:51 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/219034894892.shtml)
-- 2026-06-30 03:27 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/6201216.shtml)
-- 2026-06-30 03:46 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/9707726.shtml)
-- 2026-06-30 03:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/2234101.shtml)
-- 2026-06-30 03:41 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/90197621227.shtml)
-- 2026-06-30 03:49 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/9047676.shtml)
-- 2026-06-30 03:25 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/418836632101.shtml)
-- 2026-06-30 03:53 - [周生如故](http://www.share.kurohicncr.top/Article/details/58268.shtml)
-- 2026-06-30 03:52 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/996957872043.shtml)
+- 2026-06-30 03:54 - [千与千寻](https://www.share.minike.top/Article/details/333701.shtml)
+- 2026-06-30 03:31 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/742470316.shtml)
+- 2026-06-30 03:39 - [千香](https://www.blog.minike.top/Article/details/018735500583.shtml)
+- 2026-06-30 03:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/82243863345.shtml)
+- 2026-06-30 03:53 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/3653172652.shtml)
+- 2026-06-30 03:49 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/8670753755.shtml)
+- 2026-06-30 03:59 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/036558979.shtml)
+- 2026-06-30 03:51 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/63084967.shtml)
+- 2026-06-30 03:30 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/635817.shtml)
+- 2026-06-30 03:34 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/82109.shtml)
+- 2026-06-30 03:43 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/7151630486.shtml)
+- 2026-06-30 03:34 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/07504164757.shtml)
+- 2026-06-30 03:30 - [急先锋](http://www.blog.minike.top/Article/details/969787432569.shtml)
+- 2026-06-30 03:36 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/88771773121.shtml)
+- 2026-06-30 03:54 - [沙丘](https://www.blog.minike.top/Article/details/24317176534.shtml)

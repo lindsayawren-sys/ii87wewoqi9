@@ -1,59 +1,54 @@
-# 美中企业总商会会长林明华：中美企业合作路径正经历新变
+# 威海银行：H股发行与内资股发行已于6月23日完成
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-中新网重庆6月6日电 (张旭)“中美企业现在的合作，和十年前已经大为不同。”美中企业总商会会长林明华5日在重庆对中新网介绍，如今，中美企业合作的领域、方式正经历新变化，从单一、传统的领域升级到了高科技、绿色农业与跨境文化融合等综合性领域，从过去的单向招商逐步变为双向赋能。 6月3日至5日，林明华随团参访了重庆市潼南区、永川区、沙坪坝区、渝中区等地，参访间隙，林明华接受采访时如是
+6月23日金融一线消息，威海银行发布公告，本行分别与山东高速认购方、财鑫资产及恒源控股签订的内资股认购协议及H股认购协议全部先决条件均已达成（其中包括本行本次发行H股、内资股相关事项均已取得监管部门所需核准），本次H股发行与内资股发行已于2026年6月23日完成。 根据本次发行安排，1.5亿股H股已于2026年6月23日发行予恒源控股；合计7.39130169亿股内资股于同日发
 
 ## 正文
 
-中新网重庆6月6日电 (张旭)“中美企业现在的合作，和十年前已经大为不同。
+6月23日金融一线消息，威海银行发布公告，本行分别与山东高速认购方、财鑫资产及恒源控股签订的内资股认购协议及H股认购协议全部先决条件均已达成（其中包括本行本次发行H股、内资股相关事项均已取得监管部门所需核准），本次H股发行与内资股发行已于2026年6月23日完成。
 
-”美中企业总商会会长林明华5日在重庆对中新网介绍，如今，中美企业合作的领域、方式正经历新变化，从单一、传统的领域升级到了高科技、绿色农业与跨境文化融合等综合性领域，从过去的单向招商逐步变为双向赋能。
+根据本次发行安排，1.5亿股H股已于2026年6月23日发行予恒源控股；合计7.39130169亿股内资股于同日发行给山东高速集团、山东高速及财鑫资产，其中：向山东高速集团发行3.16134362亿股内资股，向山东高速发行1.03179425亿股内资股，向财鑫资产发行3.19816382亿股内资股。
 
-6月3日至5日，林明华随团参访了重庆市潼南区、永川区、沙坪坝区、渝中区等地，参访间隙，林明华接受采访时如是说。
+据此，本次H股、内资股发行完成后，本行注册资本增至人民币68.69188513亿元，股份总额增至68.69188513亿股，其中内资股57.10327513亿股、H股11.58861亿股。
 
-潼南是“西部绿色菜都”，食品及农产品加工产业、汽车后市场产业等很发达。
+与此同时，本行与津联集团于2025年12月21日签订的H股认购协议（下称“该协议”）项下生效条件截至本公告出具之日尚未满足，且本次新股发行已于2026年6月23日落地，因此津联集团不会参与本次H股发行，该协议将于2026年6月30日自动终止。
 
-林明华介绍，在美中企业总商会里，亦有大量相关行业的企业，他将发挥桥梁作用，促成交流合作。
+截至本公告出具日，该协议项下不存在任何需要退还的款项。
 
-林明华在海外创业40多年，所从事的行业包含了餐饮、酒店地产、文化创新园区等。
+本次发行募集资金扣除相关发行费用后的净额约人民币29.03亿元（折合33.38亿港元），募集资金将全部用于补充本行核心一级资本。
 
-他认为，海外创业的成功，需要诚信包容、吃苦耐劳、敢为人先的精神以及关键时刻超前的判断、过人的胆略。
-
-林明华说，在中外经贸往来、人文交流中，侨商具有独特优势，他们既了解中国文化和市场，又熟悉当地的法律和商业环境。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 03:51 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 03:29 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 03:26 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 03:42 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 03:30 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 03:49 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 03:39 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 03:47 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 03:37 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 03:32 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 03:51 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 03:52 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-30 03:29 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 03:47 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 03:50 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 03:44 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 03:45 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 03:43 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-30 03:46 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 03:50 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 03:50 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 03:34 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 03:43 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:42 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/6264998.shtml)
-- 2026-06-30 03:44 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/092549850640.shtml)
-- 2026-06-30 03:37 - [金牌调解](http://www.blog.minike.top/Article/details/3480702779.shtml)
-- 2026-06-30 03:25 - [金牌调解](https://www.blog.minike.top/Article/details/7726902216.shtml)
-- 2026-06-30 03:31 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/1587362485.shtml)
-- 2026-06-30 03:33 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/0353881.shtml)
-- 2026-06-30 03:27 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/335627497096.shtml)
-- 2026-06-30 03:49 - [房价什么时候能涨](http://www.share.minike.top/Article/details/289659928067.shtml)
-- 2026-06-30 03:41 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/83480.shtml)
-- 2026-06-30 03:32 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/910393014379.shtml)
-- 2026-06-30 03:46 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/695743075061.shtml)
-- 2026-06-30 03:50 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/45349351086.shtml)
-- 2026-06-30 03:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/499418.shtml)
-- 2026-06-30 03:52 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/815634091.shtml)
-- 2026-06-30 03:31 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/6487895786.shtml)
+- 2026-06-30 03:44 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/95406.shtml)
+- 2026-06-30 03:32 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/580505.shtml)
+- 2026-06-30 03:52 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/60440809.shtml)
+- 2026-06-30 03:47 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/3238544.shtml)
+- 2026-06-30 03:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/193958794013.shtml)
+- 2026-06-30 03:43 - [金刚川](http://www.blog.kurohicncr.top/Article/details/0901982013.shtml)
+- 2026-06-30 03:44 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/4581097.shtml)
+- 2026-06-30 03:39 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/522871290.shtml)
+- 2026-06-30 03:37 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/715926.shtml)
+- 2026-06-30 03:54 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/083013233739.shtml)
+- 2026-06-30 03:41 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/7246594.shtml)
+- 2026-06-30 03:42 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/909589139478.shtml)
+- 2026-06-30 03:52 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/38337524073.shtml)
+- 2026-06-30 03:52 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/43753504759.shtml)
+- 2026-06-30 03:46 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/393318186349.shtml)

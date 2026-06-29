@@ -1,61 +1,54 @@
-# 网达软件索赔新进展 部分股民提交起诉
+# 美企发射“星落”返回舱 演示再入返回技术
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-近日，投资者诉上海网达软件股份有限公司（简称：网达软件、*ST网达（维权），代码：603189）证券虚假陈述案取得新进展。 曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据上海证券交易所纪律处分决定书，网达软件涉嫌证券虚假陈述，我们已代理部分股民提交起诉材料。（厉健律师专栏） 案情回溯，2026年4月16日晚，网达软件发布《2025 年年度业绩预告
+美国太空探索技术公司23日利用“猎鹰9”号火箭首次发射“星落”返回舱，旨在对这种新型无人再入返回飞行器进行演示与验证。 太空探索技术公司表示，完成受控飞行演示后，飞行器将在太平洋海域溅落。 美联邦航空局相关文件显示，“星落”返回舱为扁圆形无人舱，高约0.75米，直径约3.1米，重量约2100公斤，可携带约1000公斤载荷，太空探索技术公司计划实施两次“星落”返回舱演示任务。该项
 
 ## 正文
 
-近日，投资者诉上海网达软件股份有限公司（简称：网达软件、*ST网达（维权），代码：603189）证券虚假陈述案取得新进展。
+美国太空探索技术公司23日利用“猎鹰9”号火箭首次发射“星落”返回舱，旨在对这种新型无人再入返回飞行器进行演示与验证。
 
-曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据上海证券交易所纪律处分决定书，网达软件涉嫌证券虚假陈述，我们已代理部分股民提交起诉材料。
+太空探索技术公司表示，完成受控飞行演示后，飞行器将在太平洋海域溅落。
 
-（厉健律师专栏） 案情回溯，2026年4月16日晚，网达软件发布《2025 年年度业绩预告更正公告》。
+美联邦航空局相关文件显示，“星落”返回舱为扁圆形无人舱，高约0.75米，直径约3.1米，重量约2100公斤，可携带约1000公斤载荷，太空探索技术公司计划实施两次“星落”返回舱演示任务。
 
-公告显示，更正前的业绩预告情况：预计2025年年度实现利润总额为1，080.00万元至1，600.00 万元。
+该项目旨在实现太空和地面间关键货物快速点对点运输，并通过提供微重力和真空环境、轨道驻留以及规模化轨道返回服务，推动商业太空制造能力发展，有望成为国际空间站的后续商业替代平台之一。
 
-预计2025年年度实现归属于母公司所有者的净利润为1，050.00 万元至1，550.00 万元。
+目前，太空探索技术公司尚未公布关于本次任务的更多细节，比如载荷内容和再入返回时间。
 
-预计2025年年度实现归属于母公司所有者的扣除非经常性损益后的净利润360.00万元至600.00万元。
+据美国方面消息，此次任务有望为仍处于起步阶段的太空制造产业提供支持。
 
-预计2025年年度实现营业收入25，000.00万元至33，000.00万元；更正后的业绩预告情况：预计2025年年度实现归属于母公司所有者的利润总额为100.00万元至300.00万元。
-
-预计2025年年度实现归属于母公司所有者的净利润为350.00万元至600.00万元。
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-30 03:31 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-30 03:28 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 03:39 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 03:35 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 03:51 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 03:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 03:34 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 03:27 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 03:38 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 03:31 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 03:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 03:31 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 03:48 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 03:33 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 03:48 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 03:52 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 03:33 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 03:48 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 03:41 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 03:58 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 03:42 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 03:53 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 03:48 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 03:35 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 03:32 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:53 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/912481121.shtml)
-- 2026-06-30 03:36 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/335980004.shtml)
-- 2026-06-30 03:44 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/2080126.shtml)
-- 2026-06-30 03:30 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/947755444.shtml)
-- 2026-06-30 03:29 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/9567038522.shtml)
-- 2026-06-30 03:36 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/30340545.shtml)
-- 2026-06-30 03:27 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/9698339004.shtml)
-- 2026-06-30 03:52 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/58512914.shtml)
-- 2026-06-30 03:39 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/8411436.shtml)
-- 2026-06-30 03:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/809740588.shtml)
-- 2026-06-30 03:37 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/2310411288.shtml)
-- 2026-06-30 03:36 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/3881138531.shtml)
-- 2026-06-30 03:43 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/3458401.shtml)
-- 2026-06-30 03:26 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/7058763838.shtml)
-- 2026-06-30 03:51 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/563520408.shtml)
+- 2026-06-30 03:50 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/094379362.shtml)
+- 2026-06-30 03:33 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/60055.shtml)
+- 2026-06-30 03:52 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/792925981627.shtml)
+- 2026-06-30 03:57 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/35014789.shtml)
+- 2026-06-30 03:35 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/512997958.shtml)
+- 2026-06-30 03:58 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/6234719.shtml)
+- 2026-06-30 03:57 - [日本反击率先破门](https://www.blog.minike.top/Article/details/01293083.shtml)
+- 2026-06-30 03:48 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/72975.shtml)
+- 2026-06-30 03:59 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/643376.shtml)
+- 2026-06-30 03:58 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/53903.shtml)
+- 2026-06-30 03:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/013215938.shtml)
+- 2026-06-30 03:33 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/59527626587.shtml)
+- 2026-06-30 03:33 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/2599385693.shtml)
+- 2026-06-30 03:40 - [刘念回应](https://www.share.kurohicncr.top/Article/details/22306612.shtml)
+- 2026-06-30 03:33 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/30220.shtml)

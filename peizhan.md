@@ -1,59 +1,60 @@
-# 美国劳动力市场保持强韧 高盛不再预期美联储今年会降息
+# “甘南景区免票”是假消息（2026·06·23）
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-由于劳动力市场强于预期，高盛经济学家不再预期美联储今年会降息。 该行将美联储最后两次降息的预测时点从之前的2026年12月和2027年3月推后至2027年6月和12。不过高盛首席美国经济学家David Mericle在周五的报告中写道，鉴于通胀“不太可能自我维持”，美联储加息的可能性依然很小。 此前公布的美国5月非农数据超出预期，表明劳动力市场具有韧性，推高了市场对美联储今年将
+辟 谣丨“甘南景区免票”是假消息 详情：近期，多家网络平台涌现大量冒用官方名义发布的涉甘南景区旅游营销不实信息，称“甘南发布重要通知，甘南全部景区免门票”“30至75岁游客统一享受免票政策”等，虚构官方文旅优惠政策，诱导游客消费。甘肃省甘南藏族自治州文化广电和旅游局郑重声明，网传“全州景区免票”相关传言均为虚假内容。“6月17日至7月31日、8月31日免票”等时限及配套优惠政策
 
 ## 正文
 
-由于劳动力市场强于预期，高盛经济学家不再预期美联储今年会降息。
+辟 谣丨“甘南景区免票”是假消息 详情：近期，多家网络平台涌现大量冒用官方名义发布的涉甘南景区旅游营销不实信息，称“甘南发布重要通知，甘南全部景区免门票”“30至75岁游客统一享受免票政策”等，虚构官方文旅优惠政策，诱导游客消费。
 
-该行将美联储最后两次降息的预测时点从之前的2026年12月和2027年3月推后至2027年6月和12。
+甘肃省甘南藏族自治州文化广电和旅游局郑重声明，网传“全州景区免票”相关传言均为虚假内容。
 
-不过高盛首席美国经济学家David Mericle在周五的报告中写道，鉴于通胀“不太可能自我维持”，美联储加息的可能性依然很小。
+“6月17日至7月31日、8月31日免票”等时限及配套优惠政策，均系部分旅行社、自媒体账号凭空杜撰。
 
-此前公布的美国5月非农数据超出预期，表明劳动力市场具有韧性，推高了市场对美联储今年将加息以遏制伊朗战争所引发通胀压力的预期。
+此类捆绑虚假免票时限的营销内容以博取流量为目的，误导群众。
 
-债券投资者预计美联储将在12月底前加息25个基点，引发纳斯达克100指数周五大跌5%。
+所谓“7天6晚单人999元”“买一送一”等远低于合理成本的旅游产品，普遍暗藏强制购物、增设自费项目、食宿标准缩水等消费陷阱。
 
-高盛仍认为加息的可能性不大，但考虑到美联储官员采取了更偏鹰的立场，且经济活动依然保持韧性，把小幅加息的概率从10%调高到了20%。
+对此，甘南州文旅局已联合多部门开展核查处置。
 
-报告称，美联储的“长期点阵图在过去一年基本保持稳定，大多数参与者仍将当前政策立场描述为略具限制性，预计一旦通胀回落，政策将进一步正常化”。
+(来源：“甘肃网络举报”微信公众号) 辟 谣丨“新疆喀什要建地铁”系谣言 详情：近日，有网民发布消息称“喀什市域1号线南延段前期研究已启动”，引发关注。
 
-该行的基线预测仍是明年有两次25个基点的降息，但预计概率仅有30%，低于之前的40%。
+经属地发改部门核实，新疆喀什目前暂未编制、批复市域轨道交通相关建设规划，不存在线路方案取舍、规划删减等情况，喀什市发改委从未开展过该类轨道项目前期论证工作。
 
 ## 相关推荐
 
-- 2026-06-30 03:38 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 03:25 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-30 03:31 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-30 03:37 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 03:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 03:30 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 03:37 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 03:44 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 03:31 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 03:46 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 03:37 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 03:30 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 03:53 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 03:48 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-30 03:39 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 03:51 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 03:49 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 03:32 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 03:58 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 03:59 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 03:30 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 03:54 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 03:58 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 03:51 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 03:56 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 03:50 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 03:58 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:40 - [起风了](https://www.share.minike.top/Article/details/63869147.shtml)
-- 2026-06-30 03:36 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/324962.shtml)
-- 2026-06-30 03:46 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/45266642540.shtml)
-- 2026-06-30 03:47 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/1845563.shtml)
-- 2026-06-30 03:27 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/61116.shtml)
-- 2026-06-30 03:44 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/639557497565.shtml)
-- 2026-06-30 03:44 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/767215435.shtml)
-- 2026-06-30 03:47 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/52502040.shtml)
-- 2026-06-30 03:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/217382693840.shtml)
-- 2026-06-30 03:53 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/991766871.shtml)
-- 2026-06-30 03:29 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/928595619.shtml)
-- 2026-06-30 03:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/51124035.shtml)
-- 2026-06-30 03:27 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/16165.shtml)
-- 2026-06-30 03:48 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/142410474339.shtml)
-- 2026-06-30 03:31 - [刘念回应](https://www.share.minike.top/Article/details/94934763.shtml)
+- 2026-06-30 03:32 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/45652412.shtml)
+- 2026-06-30 03:33 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/530550.shtml)
+- 2026-06-30 03:59 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/089489.shtml)
+- 2026-06-30 03:32 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/216137.shtml)
+- 2026-06-30 03:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/18760143.shtml)
+- 2026-06-30 03:56 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/046546.shtml)
+- 2026-06-30 03:34 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/840551463620.shtml)
+- 2026-06-30 03:31 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/3307692.shtml)
+- 2026-06-30 03:51 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/558927.shtml)
+- 2026-06-30 03:54 - [金刚川](http://www.blog.minike.top/Article/details/13257638.shtml)
+- 2026-06-30 03:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/34089420366.shtml)
+- 2026-06-30 03:54 - [巴西绝杀](https://www.blog.minike.top/Article/details/9330143.shtml)
+- 2026-06-30 03:35 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/41202416420.shtml)
+- 2026-06-30 03:52 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/147045350499.shtml)
+- 2026-06-30 03:46 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/2364054.shtml)

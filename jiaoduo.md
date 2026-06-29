@@ -1,57 +1,59 @@
-# 智能小家电企业SharkNinja推出CarpetForce系列地毯清洁设备
+# 中方：维和人员安全不容侵犯 肇事者应被严惩
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-智能小家电企业SharkNinja周一推出全新Shark CarpetForce系列地毯深层清洁系统，旨在以轻量化、紧凑型设计彻底改变消费者的地毯清洁方式。该系列包括CarpetForce立式地毯清洁机和CarpetForce HairPro立式地毯清洁机两款产品，解决了传统地毯清洗机笨重、操作不便的痛点。 SharkNinja营销副总裁表示，消费者希望获得全尺寸地毯清洗机的深
+新华社联合国6月23日电 中国常驻联合国副代表孙磊23日在安理会表决通过加强对袭击维和人员行为追责决议后作解释性发言，对决议通过表示欢迎。 孙磊说，联合国维和行动是维护国际和平与安全的重要手段。作为维和行动的坚定支持者、主要出兵国和“联合国维和人员安全之友小组”共同主席，中方高度关注维和人员安全问题，欢迎安理会一致通过第2823号决议。 他表示，当前国际安全环境错综复杂，维和人
 
 ## 正文
 
-智能小家电企业SharkNinja周一推出全新Shark CarpetForce系列地毯深层清洁系统，旨在以轻量化、紧凑型设计彻底改变消费者的地毯清洁方式。
+新华社联合国6月23日电 中国常驻联合国副代表孙磊23日在安理会表决通过加强对袭击维和人员行为追责决议后作解释性发言，对决议通过表示欢迎。
 
-该系列包括CarpetForce立式地毯清洁机和CarpetForce HairPro立式地毯清洁机两款产品，解决了传统地毯清洗机笨重、操作不便的痛点。
+孙磊说，联合国维和行动是维护国际和平与安全的重要手段。
 
-SharkNinja营销副总裁表示，消费者希望获得全尺寸地毯清洗机的深层清洁效果，而不想承受传统机型带来的重量、体积和不便。
+作为维和行动的坚定支持者、主要出兵国和“联合国维和人员安全之友小组”共同主席，中方高度关注维和人员安全问题，欢迎安理会一致通过第2823号决议。
 
-CarpetForce让深层地毯清洁变得更轻松、更实用，而HairPro版本则为宠物主人提供了专门针对嵌入宠物毛发设计的升级体验。
+他表示，当前国际安全环境错综复杂，维和人员面临的传统与非传统安全威胁十分严峻。
 
-该产品在性能方面表现出色。
+任何蓄意袭击维和人员的行为，都严重违反国际人道法和安理会相关决议。
 
-CarpetForce比同类全尺寸地毯清洗机轻42%，同时提供比传统吸尘器深达6倍的清洁效果，能有效清除普通吸尘器遗留的深层污垢、油污和宠物毛发。
+中方支持安理会通过这项决议，希望决议得到有效落实，向国际社会发出维和人员安全不容侵犯、肇事者应被严惩的明确信号。
 
-产品采用Shark专有的PowerFins刷辊技术，持续接触地毯纤维，深入抓取并提取顽固污垢。
+孙磊说，中国积极参与联合国维和行动，是联合国维和行动第二大出资国、安理会常任理事国第一大出兵国，组建8000人规模的维和待命部队，率先组建全球首支成建制常备维和警队。
 
-CarpetForce配备两种清洁模式：Deep Clean Mode利用超强吸力使地毯焕然一新；Express Clean Mode的干燥时间缩短50%，让消费者能更快地重新使用地毯。
+20多名中国维和人员在维和行动中献出了宝贵生命，其中包括一名女性维和警察。
 
 ## 相关推荐
 
-- 2026-06-30 03:51 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 03:46 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 03:42 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 03:45 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 03:36 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 03:43 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 03:29 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-30 03:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 03:31 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 03:31 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 03:46 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 03:45 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 03:58 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 03:54 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 03:32 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 03:43 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 03:51 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 03:54 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 03:41 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 03:59 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 03:47 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 03:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 03:43 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 03:59 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:52 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/073827068.shtml)
-- 2026-06-30 03:45 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/66060632.shtml)
-- 2026-06-30 03:29 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/7435764.shtml)
-- 2026-06-30 03:26 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/35317.shtml)
-- 2026-06-30 03:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/566601.shtml)
-- 2026-06-30 03:31 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/20518472909.shtml)
-- 2026-06-30 03:53 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/6333412468.shtml)
-- 2026-06-30 03:31 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/28649969181.shtml)
-- 2026-06-30 03:30 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/47792.shtml)
-- 2026-06-30 03:39 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/697835734.shtml)
-- 2026-06-30 03:37 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/282167.shtml)
-- 2026-06-30 03:36 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/2993291.shtml)
-- 2026-06-30 03:37 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/46299123948.shtml)
-- 2026-06-30 03:46 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/001993370.shtml)
-- 2026-06-30 03:53 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/198116425.shtml)
+- 2026-06-30 03:38 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/58017.shtml)
+- 2026-06-30 03:52 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/97879.shtml)
+- 2026-06-30 03:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/56775761.shtml)
+- 2026-06-30 03:38 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/2622321146.shtml)
+- 2026-06-30 03:41 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/39538.shtml)
+- 2026-06-30 03:32 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/9536051140.shtml)
+- 2026-06-30 03:54 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/583762.shtml)
+- 2026-06-30 03:42 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/897010.shtml)
+- 2026-06-30 03:35 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/171884240592.shtml)
+- 2026-06-30 03:34 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/4978981.shtml)
+- 2026-06-30 03:36 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/952050534938.shtml)
+- 2026-06-30 03:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/001467.shtml)
+- 2026-06-30 03:31 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/534444.shtml)
+- 2026-06-30 03:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/5412793.shtml)
+- 2026-06-30 03:37 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/5400425658.shtml)

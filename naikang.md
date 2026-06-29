@@ -1,58 +1,46 @@
-# 冲刺IPO！本源量子完成30亿元融资
+# 伊朗外交部：伊美瑞士谈判未涉及核问题
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据多家创投机构消息，近日，知名量子计算公司本源量子历时30天，完成近30亿元Pre-IPO轮融资，投前估值达210亿元，成为国内估值最高的量子计算公司。 本轮融资由中国兵器集团领投，增资5亿元；中科育成投资作为老股东跟投，再次增资3亿多元，累计持股超过5%，位列公司实控人之后，为第六大股东；新增华民投为股东
+当地时间22日，伊朗外交部发言人巴加埃说，伊美在瑞士进行的谈判没有涉及核问题，也未接受任何新承诺。(央视新闻客户端)
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+当地时间22日，伊朗外交部发言人巴加埃说，伊美在瑞士进行的谈判没有涉及核问题，也未接受任何新承诺。
 
-据多家创投机构消息，近日，知名量子计算公司本源量子历时30天，完成近30亿元Pre-IPO轮融资，投前估值达210亿元，成为国内估值最高的量子计算公司。
-
-本轮融资由中国兵器集团领投，增资5亿元；中科育成投资作为老股东跟投，再次增资3亿多元，累计持股超过5%，位列公司实控人之后，为第六大股东；新增华民投为股东单位，出资2亿元。
-
-此外，山东省、江西省、河南省等省级政府的投资平台，青岛市市级政府投资平台，以及上市公司等多元机构作为LP，加码了此次Pre-IPO轮融资。
-
-2025年9月，本源量子在安徽证监局完成IPO辅导备案，成为继国盾量子、国仪量子后，国内第三家开启IPO进程的量子科技企业，冲刺国内“量子计算第一股”。
-
-本轮完全市场化募集的资金，将主要用于对标IBM，建设千比特、万比特、12寸量子芯片中试线，以及新一代超导量子计算机整机的软硬件研发与产业化生产，加速中国自主量子计算技术的规模化落地。
-
-本源量子成立于2017年，是中国第一家量子计算企业，由中国科学院量子信息重点实验室副主任郭国平创办，中国量子光学和量子信息科学开拓者、中国科学院院士郭光灿为联合创始人，并担任公司首席科技顾问。
-
-本源量子团队技术起源于中国科学院量子信息重点实验室。
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-30 03:30 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 03:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 03:49 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 03:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 03:34 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 03:30 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 03:39 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 03:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 03:32 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 03:43 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 03:45 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 03:53 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 03:46 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 03:52 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 03:41 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 03:56 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 03:32 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 03:44 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 03:57 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 03:48 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 03:43 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 03:49 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 03:57 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-30 03:36 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:24 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/3161305442.shtml)
-- 2026-06-30 03:47 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/99742.shtml)
-- 2026-06-30 03:53 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/1938391458.shtml)
-- 2026-06-30 03:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/55431.shtml)
-- 2026-06-30 03:28 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/59192842625.shtml)
-- 2026-06-30 03:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/382718.shtml)
-- 2026-06-30 03:42 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/944748141857.shtml)
-- 2026-06-30 03:35 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/58026.shtml)
-- 2026-06-30 03:49 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/858701373.shtml)
-- 2026-06-30 03:37 - [苗族银饰](https://www.blog.minike.top/Article/details/34681.shtml)
-- 2026-06-30 03:45 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/83035264.shtml)
-- 2026-06-30 03:47 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/55951421628.shtml)
-- 2026-06-30 03:27 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/440731724.shtml)
-- 2026-06-30 03:27 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/60805869.shtml)
-- 2026-06-30 03:48 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/34372.shtml)
+- 2026-06-30 03:51 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/9851882.shtml)
+- 2026-06-30 03:49 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/587492733990.shtml)
+- 2026-06-30 03:40 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/581841338070.shtml)
+- 2026-06-30 03:38 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/92476571.shtml)
+- 2026-06-30 03:47 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/3687590940.shtml)
+- 2026-06-30 03:32 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/485967.shtml)
+- 2026-06-30 03:52 - [毒液2](http://www.share.minike.top/Article/details/6952894961.shtml)
+- 2026-06-30 03:31 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/584298359.shtml)
+- 2026-06-30 03:38 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/795602.shtml)
+- 2026-06-30 03:33 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/8000272.shtml)
+- 2026-06-30 03:41 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/826606784.shtml)
+- 2026-06-30 03:49 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/2229549036.shtml)
+- 2026-06-30 03:44 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/49036713608.shtml)
+- 2026-06-30 03:49 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/9006274.shtml)
+- 2026-06-30 03:55 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/65661.shtml)

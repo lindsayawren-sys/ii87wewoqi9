@@ -1,58 +1,60 @@
-# 马王堆汉墓里藏着怎样的“舌尖秘密”？这场读者开放日给出答案
+# 南非加强安全部署应对反非法移民示威
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-中新网长沙6月6日电 (记者 邓霞)“马王堆汉墓和海昏侯墓都出土了甜瓜籽，是巧合吗”“马王堆汉墓中香料主要用途是什么”……6月6日，在长沙举行的岳麓书社第四届读者开放日上，一场围绕马王堆汉墓饮食“密码”的文博分享，带领读者穿越千年，解锁西汉长沙国贵族的饮食文明。 活动现场，岳麓书社编辑邱建明以马王堆汉墓出土饮食类文物、食物遗存、简牍文献为核心依据，结合考古研究成果，介绍了汉代长
+中新网约翰内斯堡6月23日电 (记者 孙翔)南非警方22日表示，已提高全国各省警务行动准备级别，并制定安全部署计划，以应对反非法移民示威活动。 南非代理警察部长菲罗兹·卡查利亚(Firoz Cachalia)当天在新闻发布会上表示，政府尊重民众和平抗议的权利，但不会容忍犯罪、恐吓以及任何威胁公共秩序的行为。 南非反非法移民组织呼吁于6月30日举行全国示威活动。此前，南非部分地区
 
 ## 正文
 
-中新网长沙6月6日电 (记者 邓霞)“马王堆汉墓和海昏侯墓都出土了甜瓜籽，是巧合吗”“马王堆汉墓中香料主要用途是什么”……6月6日，在长沙举行的岳麓书社第四届读者开放日上，一场围绕马王堆汉墓饮食“密码”的文博分享，带领读者穿越千年，解锁西汉长沙国贵族的饮食文明。
+中新网约翰内斯堡6月23日电 (记者 孙翔)南非警方22日表示，已提高全国各省警务行动准备级别，并制定安全部署计划，以应对反非法移民示威活动。
 
-活动现场，岳麓书社编辑邱建明以马王堆汉墓出土饮食类文物、食物遗存、简牍文献为核心依据，结合考古研究成果，介绍了汉代长沙国贵族的饮食体系、食俗礼仪与养生智慧。
+南非代理警察部长菲罗兹·卡查利亚(Firoz Cachalia)当天在新闻发布会上表示，政府尊重民众和平抗议的权利，但不会容忍犯罪、恐吓以及任何威胁公共秩序的行为。
 
-“马王堆汉墓食物遗存种类齐全、包罗万象，体现了西汉‘事死如事生’的厚葬观念。
+南非反非法移民组织呼吁于6月30日举行全国示威活动。
 
-”邱建明指着图片说，光是谷物类，就有稻、麦、黍、粟、菽、麻籽等。
+此前，南非部分地区出现针对外籍人员的暴力事件。
 
-其中稻谷品种又分籼、粳、黏、糯，做法也多种多样。
+马拉维、加纳、莫桑比克、尼日利亚和津巴布韦等国已协助数千名本国公民返回。
 
-除了直接蒸煮的“稻食”，还有加红枣、桂圆等配料的“稻粥”，把大米磨成粉、制成饼的“稻饼”，和肉类、蔬菜一起蒸煮的“稻饭”等。
+卡查利亚表示，南非警察局已制定全面行动方案，将加强对社区、关键基础设施和重要公共场所的保护。
 
-“今天我们吃的‘米饭套餐’‘粥品’‘米糕’，在汉代已经有了雏形。
+警方将每日评估安全形势，并根据局势变化调整部署。
 
-” 邱建明提问：“大家知道，马王堆汉墓中哪种鱼最多吗？
+卡查利亚透露，南非警方已调配6亿兰特(约合3700万美元)资金用于此次特别行动，以保障警力和相关资源投入。
 
 ## 相关推荐
 
-- 2026-06-30 03:31 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 03:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 03:36 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 03:49 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-30 03:26 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 03:50 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 03:36 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 03:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-30 03:35 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 03:44 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 03:50 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 03:48 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 04:00 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 03:55 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 03:33 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 03:35 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 03:55 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 03:34 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 03:56 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 03:32 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 03:59 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 03:52 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 03:54 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 03:41 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 03:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 03:49 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:25 - [扫黑风暴](https://www.share.minike.top/Article/details/16792861664.shtml)
-- 2026-06-30 03:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/69161976.shtml)
-- 2026-06-30 03:26 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/05255.shtml)
-- 2026-06-30 03:50 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/10109091.shtml)
-- 2026-06-30 03:43 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/11219.shtml)
-- 2026-06-30 03:48 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/610373930.shtml)
-- 2026-06-30 03:33 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/4259195337.shtml)
-- 2026-06-30 03:43 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/7790258.shtml)
-- 2026-06-30 03:31 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/77562784.shtml)
-- 2026-06-30 03:41 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/4082426.shtml)
-- 2026-06-30 03:33 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/67969963106.shtml)
-- 2026-06-30 03:47 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/3839137374.shtml)
-- 2026-06-30 03:31 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/256991049211.shtml)
-- 2026-06-30 03:25 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/49058444.shtml)
-- 2026-06-30 03:47 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/946360628.shtml)
+- 2026-06-30 03:44 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/0023181743.shtml)
+- 2026-06-30 03:58 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/36285491717.shtml)
+- 2026-06-30 03:34 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/503282404026.shtml)
+- 2026-06-30 03:39 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/750264723.shtml)
+- 2026-06-30 03:51 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/6641052917.shtml)
+- 2026-06-30 03:53 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/23487096.shtml)
+- 2026-06-30 03:51 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/686874788.shtml)
+- 2026-06-30 03:59 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/540503595.shtml)
+- 2026-06-30 03:43 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/03527.shtml)
+- 2026-06-30 03:34 - [《共患难》](http://www.share.kurohicncr.top/Article/details/1900352.shtml)
+- 2026-06-30 03:57 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/1328579.shtml)
+- 2026-06-30 03:56 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/58055.shtml)
+- 2026-06-30 03:56 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/5589333.shtml)
+- 2026-06-30 03:36 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/9025596.shtml)
+- 2026-06-30 03:45 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/854776.shtml)

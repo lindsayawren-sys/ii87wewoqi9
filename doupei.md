@@ -1,56 +1,61 @@
-# 吴清直面程序化交易问题：加强针对性监管 坚决打击操纵市场、扰乱市场秩序等违法违规行为
+# （寻味中华 | 艺林）华阴老腔“开门授徒” 关中古调融通中外
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月6日，证监会主席吴清在中国证券投资基金业协会第四届会员代表大会上致辞。吴清表示，近年来，程序化交易已成为包括我国在内的全球各主要资本市场的重要交易方式。除了大家熟知的量化私募外，外资、公募及其他专业机构投资者，甚至一些个人投资者，都不同程度采用程序化交易的方式。充分考虑个人投资者占大多数的国情市情，先后
+中新社陕西渭南6月24日电 题：华阴老腔“开门授徒” 关中古调融通中外 作者 杨英琦 炎炎夏日，西安城墙脚下的永兴坊人头攒动。坊中戏楼陡然传出一声嘶吼，伴随砸击木凳的脆响，板胡、月琴声渐起。游客们闻声上楼，五名华阴老腔艺人正在戏台上纵情高歌。 华阴老腔发祥于黄河、渭河、洛河三河交汇处的陕西华阴，已有两千多年历史，有“黄土地上的摇滚”之称，原本只是皮影戏的配乐。其声腔刚直高亢、磅
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社陕西渭南6月24日电 题：华阴老腔“开门授徒” 关中古调融通中外 作者 杨英琦 炎炎夏日，西安城墙脚下的永兴坊人头攒动。
 
-6月6日，证监会主席吴清在中国证券投资基金业协会第四届会员代表大会上致辞。
+坊中戏楼陡然传出一声嘶吼，伴随砸击木凳的脆响，板胡、月琴声渐起。
 
-吴清表示，近年来，程序化交易已成为包括我国在内的全球各主要资本市场的重要交易方式。
+游客们闻声上楼，五名华阴老腔艺人正在戏台上纵情高歌。
 
-除了大家熟知的量化私募外，外资、公募及其他专业机构投资者，甚至一些个人投资者，都不同程度采用程序化交易的方式。
+华阴老腔发祥于黄河、渭河、洛河三河交汇处的陕西华阴，已有两千多年历史，有“黄土地上的摇滚”之称，原本只是皮影戏的配乐。
 
-充分考虑个人投资者占大多数的国情市情，先后出台了一系列程序化交易监管规则制度，建立交易报告机制，强化针对性监测监控，从严监管异常交易行为，引导降频降速，强化交易业务单元管理等。
+其声腔刚直高亢、磅礴豪迈，尽显陕西农民的生命力与激情。
 
-吴清指出，在此基础上，我们还将深入调研，持续完善程序化交易监管的机制安排，更突出公平和规范，加强针对性监管，切实防范滥用技术优势，坚决打击操纵市场、扰乱市场秩序等违法违规行为。
+2006年，华阴老腔被列入第一批国家级非物质文化遗产名录。
 
-责任编辑：石秀珍 SF183
+“这是发自雄浑的关中大地深处的声响，抑或是渭水波浪的涛声……”在陕西作家陈忠实笔下，华阴老腔饱含着关中大地深厚的神韵。
+
+经陈忠实推荐，华阴老腔登上话剧《白鹿原》舞台，反响热烈。
 
 ## 相关推荐
 
-- 2026-06-30 03:45 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 03:40 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 03:28 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 03:51 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 03:28 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 03:27 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 03:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 03:46 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 03:30 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 03:39 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 03:37 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 03:43 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 03:35 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 03:32 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 03:37 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 03:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 03:40 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 03:42 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 03:41 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 03:42 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 03:54 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 03:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 03:56 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 03:33 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 03:43 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 03:43 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 03:31 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:34 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/90605008.shtml)
-- 2026-06-30 03:24 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/645028.shtml)
-- 2026-06-30 03:29 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/59779645309.shtml)
-- 2026-06-30 03:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/91450.shtml)
-- 2026-06-30 03:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/1906698028.shtml)
-- 2026-06-30 03:45 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/874876580582.shtml)
-- 2026-06-30 03:41 - [美股](https://www.blog.kurohicncr.top/Article/details/946229764602.shtml)
-- 2026-06-30 03:51 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/49472703471.shtml)
-- 2026-06-30 03:26 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/68627594.shtml)
-- 2026-06-30 03:47 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/290437774976.shtml)
-- 2026-06-30 03:40 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/08647.shtml)
-- 2026-06-30 03:27 - [小娘惹](https://www.share.kurohicncr.top/Article/details/817782983.shtml)
-- 2026-06-30 03:35 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/780305214.shtml)
-- 2026-06-30 03:29 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/2829985.shtml)
-- 2026-06-30 03:33 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/342970676.shtml)
+- 2026-06-30 03:51 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/61909.shtml)
+- 2026-06-30 03:54 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/489533621033.shtml)
+- 2026-06-30 03:58 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/02299.shtml)
+- 2026-06-30 03:33 - [极限挑战第一季](https://www.blog.minike.top/Article/details/954331.shtml)
+- 2026-06-30 03:37 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/03928613424.shtml)
+- 2026-06-30 03:59 - [苗族银饰](http://www.share.minike.top/Article/details/82079706364.shtml)
+- 2026-06-30 03:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/22462.shtml)
+- 2026-06-30 03:31 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/92417651822.shtml)
+- 2026-06-30 03:35 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/8752424048.shtml)
+- 2026-06-30 03:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/5740517496.shtml)
+- 2026-06-30 03:42 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/925876220.shtml)
+- 2026-06-30 03:34 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/144563296.shtml)
+- 2026-06-30 03:44 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/03611.shtml)
+- 2026-06-30 03:59 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/1111283926.shtml)
+- 2026-06-30 03:54 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/832016779881.shtml)

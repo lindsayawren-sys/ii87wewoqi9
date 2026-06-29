@@ -1,59 +1,49 @@
-# 48支球队1248名球员 一组数字看懂美加墨世界杯
+# 中国创意控股遭梁龙飞减持800万股 每股作价0.249港元
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-总计48支队伍、创纪录的1248名球员入围了2026年美加墨世界杯正赛。球员来自71个国家和地区的449家不同俱乐部。各支队伍组队模式分化鲜明：卡塔尔、沙特两队本土联赛球员占比极高，各有25名球员效力本国联赛；而佛得角、刚果(金)、科特迪瓦、库拉索、塞内加尔、乌拉圭全队球员均在海外联赛效力。参赛阵容既有足坛传奇巨星，也有首次踏上世界杯的新秀。357名球员曾入选过往任意一届世界杯
+香港联交所最新资料显示，6月18日，梁龙飞减持中国创意控股（08368）800万股，每股作价0.249港元，总金额为199.2万港元。减持后最新持股数目为2800万股，最新持股比例为4.85%。责任编辑：卢昱君
 
 ## 正文
 
-总计48支队伍、创纪录的1248名球员入围了2026年美加墨世界杯正赛。
+香港联交所最新资料显示，6月18日，梁龙飞减持中国创意控股（08368）800万股，每股作价0.249港元，总金额为199.2万港元。
 
-球员来自71个国家和地区的449家不同俱乐部。
+减持后最新持股数目为2800万股，最新持股比例为4.85%。
 
-各支队伍组队模式分化鲜明：卡塔尔、沙特两队本土联赛球员占比极高，各有25名球员效力本国联赛；而佛得角、刚果(金)、科特迪瓦、库拉索、塞内加尔、乌拉圭全队球员均在海外联赛效力。
-
-参赛阵容既有足坛传奇巨星，也有首次踏上世界杯的新秀。
-
-357名球员曾入选过往任意一届世界杯大名单，此次再度回归赛场。
-
-约891名球员将迎来个人世界杯首秀。
-
-阵容整体尽显世界足坛新老交替、传承与革新并存的格局，其多元性与全球覆盖面也创下全新高度。
-
-参赛球员年龄跨度同样令人惊叹！
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:28 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 03:51 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 03:37 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 03:34 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 03:45 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 03:29 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 03:41 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 03:41 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 03:42 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 03:46 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 03:30 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 03:33 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 03:42 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 03:48 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 03:55 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 03:35 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 03:48 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 03:47 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 03:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 03:41 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 03:42 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 03:34 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 03:35 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 03:35 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 03:40 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 03:43 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:35 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/177981.shtml)
-- 2026-06-30 03:25 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/08177.shtml)
-- 2026-06-30 03:30 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/11903.shtml)
-- 2026-06-30 03:52 - [急先锋](http://www.blog.minike.top/Article/details/84485388752.shtml)
-- 2026-06-30 03:53 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/555199.shtml)
-- 2026-06-30 03:49 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/57074.shtml)
-- 2026-06-30 03:30 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/242202378.shtml)
-- 2026-06-30 03:53 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/03970361.shtml)
-- 2026-06-30 03:48 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/6908897858.shtml)
-- 2026-06-30 03:50 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/7204547524.shtml)
-- 2026-06-30 03:24 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/245316826.shtml)
-- 2026-06-30 03:31 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/34448808.shtml)
-- 2026-06-30 03:24 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/849194.shtml)
-- 2026-06-30 03:51 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/67838825.shtml)
-- 2026-06-30 03:40 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/95876003437.shtml)
+- 2026-06-30 03:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/3114626.shtml)
+- 2026-06-30 03:45 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/558033178.shtml)
+- 2026-06-30 03:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/5712989761.shtml)
+- 2026-06-30 03:34 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/4405032.shtml)
+- 2026-06-30 03:50 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/695603894.shtml)
+- 2026-06-30 03:36 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/341503691085.shtml)
+- 2026-06-30 03:55 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/26777604432.shtml)
+- 2026-06-30 03:50 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/445743419.shtml)
+- 2026-06-30 03:40 - [天道](https://www.blog.kurohicncr.top/Article/details/097741.shtml)
+- 2026-06-30 03:57 - [月亮](https://www.share.kurohicncr.top/Article/details/603337134799.shtml)
+- 2026-06-30 03:46 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/48242378.shtml)
+- 2026-06-30 03:55 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/475375817056.shtml)
+- 2026-06-30 03:51 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/882286.shtml)
+- 2026-06-30 03:45 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/45329779.shtml)
+- 2026-06-30 03:33 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/661202.shtml)

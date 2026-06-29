@@ -1,58 +1,61 @@
-# 各国“高考”怎么考？“世界最难的考试”来自这个国家
+# 民革山东济南市委会举办“雨滴沙龙·博爱讲堂”2026年度中高考志愿填报及升学规划公益讲座
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-中新网6月7日电(魏晨曦)2026年全国高考于6月7日正式拉开帷幕，全国1290万名考生走进考场，为人生的重要一战奋力拼搏。 高考是中国最重要的升学考试之一，事实上，不光在中国，在世界许多国家和地区，同样存在决定学生升学命运的重要考试。尽管名称不同、形式各异，但背后承载的竞争压力、家庭期待和社会关注却颇为相似。 为了这场考试，在有的国家，考前前往古庙祈福已成风景；还有的国家，考
+6月20日上午，由民革济南市委会主办，民革历下区总支部、天桥致远支部，历下区新联会承办的“雨滴沙龙·博爱讲堂”2026年度中高考志愿填报及升学规划公益讲座在历下区党外代表人士服务中心举办。 讲座邀请有关专家围绕中高考志愿填报及升学规划进行了专题辅导。高考升学规划指导专家围绕2026年山东省高考政策变化，从录取批次调整、志愿模式变化等方面入手，详细解读了普通类96个平行志愿填报策
 
 ## 正文
 
-中新网6月7日电(魏晨曦)2026年全国高考于6月7日正式拉开帷幕，全国1290万名考生走进考场，为人生的重要一战奋力拼搏。
+6月20日上午，由民革济南市委会主办，民革历下区总支部、天桥致远支部，历下区新联会承办的“雨滴沙龙·博爱讲堂”2026年度中高考志愿填报及升学规划公益讲座在历下区党外代表人士服务中心举办。
 
-高考是中国最重要的升学考试之一，事实上，不光在中国，在世界许多国家和地区，同样存在决定学生升学命运的重要考试。
+讲座邀请有关专家围绕中高考志愿填报及升学规划进行了专题辅导。
 
-尽管名称不同、形式各异，但背后承载的竞争压力、家庭期待和社会关注却颇为相似。
+高考升学规划指导专家围绕2026年山东省高考政策变化，从录取批次调整、志愿模式变化等方面入手，详细解读了普通类96个平行志愿填报策略，帮助考生和家长科学用好每一分。
 
-为了这场考试，在有的国家，考前前往古庙祈福已成风景；还有的国家，考生要面对被称为“世界最难考试之一”的激烈竞争。
+中考升学咨询专家则聚焦2026年济南市中考政策，深入解析了“分数+等级”录取新模式以及指标生与统招生志愿填报技巧，为考生精准定位目标学校提供了专业指导。
 
-那么，各国的“高考”究竟怎么考？
+在答疑环节，家长们围绕志愿填报顺序、学校选择、专业方向等个性化问题与专家进行了深入交流。
 
-日本：信息科正式进入“高考时代” 日本的“大学入学考试”全国统一命题，相当于日本版高考。
+本次活动吸引了民革党员、入党积极分子，历下区新联会会员及所联系人士等50余人参加。
 
-2026年是日本将信息学科正式纳入大学入学统一考试后的第二年。
+大家纷纷表示，讲座内容“干货满满”、务实管用，正值中高考志愿填报的关键节点，专家的讲解如同一场“及时雨”，帮助大家厘清了政策要点、掌握了填报技巧，缓解了升学焦虑。
 
-这一变化被视为日本教育改革的重要标志。
+下一步，民革济南市委会将继续发挥界别和资源优势，持续擦亮“雨滴沙龙·博爱讲堂”社会服务品牌，聚焦群众急难愁盼问题，开展更多惠民公益活动，为服务经济社会发展贡献民革力量。
 
 ## 相关推荐
 
-- 2026-06-30 03:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 03:38 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 03:27 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 03:30 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 03:48 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-30 03:34 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 03:53 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 03:51 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 03:47 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 03:47 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 03:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 03:34 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 03:48 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 03:52 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 03:35 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 03:45 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 03:47 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 03:45 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 03:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 03:48 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 03:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 03:48 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 03:47 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 03:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 03:46 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 03:33 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 03:31 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:41 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/298226613.shtml)
-- 2026-06-30 03:45 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/668805152.shtml)
-- 2026-06-30 03:40 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/09093644.shtml)
-- 2026-06-30 03:39 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/7114020.shtml)
-- 2026-06-30 03:36 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/73469.shtml)
-- 2026-06-30 03:53 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/29203704.shtml)
-- 2026-06-30 03:53 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/72634154692.shtml)
-- 2026-06-30 03:25 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/7848498.shtml)
-- 2026-06-30 03:46 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/7151716711.shtml)
-- 2026-06-30 03:34 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/67912248999.shtml)
-- 2026-06-30 03:47 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/9963121.shtml)
-- 2026-06-30 03:47 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/53341453702.shtml)
-- 2026-06-30 03:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/7320441.shtml)
-- 2026-06-30 03:51 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/27896.shtml)
-- 2026-06-30 03:25 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/631894552.shtml)
+- 2026-06-30 03:55 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/19770358055.shtml)
+- 2026-06-30 03:56 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/652414.shtml)
+- 2026-06-30 03:41 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/2760046092.shtml)
+- 2026-06-30 04:00 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/80734684.shtml)
+- 2026-06-30 03:37 - [这一刀 会很帅](https://www.share.minike.top/Article/details/507607060297.shtml)
+- 2026-06-30 03:49 - [日本领先巴西](http://www.share.minike.top/Article/details/374385.shtml)
+- 2026-06-30 03:52 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/235146.shtml)
+- 2026-06-30 03:37 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/409260.shtml)
+- 2026-06-30 03:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/632445.shtml)
+- 2026-06-30 03:45 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/85332395443.shtml)
+- 2026-06-30 03:47 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/41412536156.shtml)
+- 2026-06-30 03:51 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/1890444051.shtml)
+- 2026-06-30 03:49 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/258610.shtml)
+- 2026-06-30 03:31 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/332184201142.shtml)
+- 2026-06-30 03:42 - [我们的少年时代2](https://www.share.minike.top/Article/details/57285545635.shtml)

@@ -1,54 +1,57 @@
-# 美国总统特朗普：伊朗军力已遭严重削弱
+# 豆包视频模型上新在即！Seedance 2.5定档7月！软件开发ETF华宝（159036）获资金实时净申购400万份！
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普表示，他不打算撤出美军，并称：“我认为我们会把军队留在那里，直至任务完成。” 他在接受美国媒体采访时谈及美军在该地区的驻军，表示：“维持驻军的成本极低。” 特朗普还称，伊朗军力已遭严重削弱，战前的导弹储备如今仅剩下“21%、22%”。 “你看，我们已经彻底摧毁了他们的军事力量，”他说，“他们还剩一些导弹，一些无人机。” 对于是否知晓伊朗最高领袖的下落，他拒
+今日（6月24日）市场继续盘整，A股三大指数悉数飘绿，直击AI应用前沿的——软件开发ETF华宝（159036）场内价格现跌3.2%，资金或逢跌抢筹，截至发稿，该ETF获资金实时净申购400万份！ 成份股方面，索辰科技涨近13%，鼎捷数智涨逾4%，佳发教育涨逾1%，中科星图、中望软件等个股逆市飘红，另一方面，高伟达跌超8%，品茗科技跌逾7%，跌幅居前，拖累指数表现。 消息面上，豆
 
 ## 正文
 
-美国总统唐纳德·特朗普表示，他不打算撤出美军，并称：“我认为我们会把军队留在那里，直至任务完成。
+今日（6月24日）市场继续盘整，A股三大指数悉数飘绿，直击AI应用前沿的——软件开发ETF华宝（159036）场内价格现跌3.2%，资金或逢跌抢筹，截至发稿，该ETF获资金实时净申购400万份！
 
-” 他在接受美国媒体采访时谈及美军在该地区的驻军，表示：“维持驻军的成本极低。
+成份股方面，索辰科技涨近13%，鼎捷数智涨逾4%，佳发教育涨逾1%，中科星图、中望软件等个股逆市飘红，另一方面，高伟达跌超8%，品茗科技跌逾7%，跌幅居前，拖累指数表现。
 
-” 特朗普还称，伊朗军力已遭严重削弱，战前的导弹储备如今仅剩下“21%、22%”。
+消息面上，豆包视频生成模型Seedance2.5预计将于7月正式上线。
 
-“你看，我们已经彻底摧毁了他们的军事力量，”他说，“他们还剩一些导弹，一些无人机。
+即将发布的Seedance 2.5实现30秒单段原生视频直出、最多支持50个全模态素材联合生成、保持画面一致性的局部编辑三项能力提升。
 
-” 对于是否知晓伊朗最高领袖的下落，他拒绝正面回应，但补充说自己“很有可能”知情。
+影视和短剧是Seedance目前的应用场景之一，但从长期来看可能只是一个较小的场景。
 
-“我不便透露是否知道他的位置，”特朗普说，“但我很有可能知道。
+制造业、零售业的客户已经在使用Seedance制作多语言产品说明视频，面向不同国家和人群进行消费者沟通。
 
-”责任编辑：何云
+在高端制造领域，具身智能企业已在使用Seedance进行数据合成，以解决真实世界数据获取的瓶颈。
+
+自动驾驶行业也在利用Seedance合成极端天气、边缘路况等Cornercase（边缘场景），提升算法的稳健性。
 
 ## 相关推荐
 
-- 2026-06-30 03:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 03:50 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 03:24 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 03:24 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 03:49 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-30 03:35 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 03:47 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 03:25 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 03:40 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 03:35 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-30 03:56 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 03:31 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 03:58 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 03:48 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 03:40 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 03:41 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 03:44 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 03:57 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 03:56 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 03:55 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-30 03:53 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:39 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/63355834194.shtml)
-- 2026-06-30 03:33 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/70949560466.shtml)
-- 2026-06-30 03:51 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/3309503.shtml)
-- 2026-06-30 03:28 - [急先锋](http://www.blog.kurohicncr.top/Article/details/287138449331.shtml)
-- 2026-06-30 03:48 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/38616129925.shtml)
-- 2026-06-30 03:28 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/969872626924.shtml)
-- 2026-06-30 03:24 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/027357.shtml)
-- 2026-06-30 03:42 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/21822276714.shtml)
-- 2026-06-30 03:30 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/31914398.shtml)
-- 2026-06-30 03:45 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/5885266.shtml)
-- 2026-06-30 03:29 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/1615596973.shtml)
-- 2026-06-30 03:26 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/0120583.shtml)
-- 2026-06-30 03:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/19253648940.shtml)
-- 2026-06-30 03:33 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/3840580112.shtml)
-- 2026-06-30 03:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/442881242.shtml)
+- 2026-06-30 03:30 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/513474400.shtml)
+- 2026-06-30 03:33 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/07191.shtml)
+- 2026-06-30 03:38 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/187875400.shtml)
+- 2026-06-30 03:51 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/76035091.shtml)
+- 2026-06-30 03:42 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/39487.shtml)
+- 2026-06-30 03:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/27254.shtml)
+- 2026-06-30 03:58 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/7266872888.shtml)
+- 2026-06-30 03:48 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/57912342.shtml)
+- 2026-06-30 03:59 - [千与千寻](https://www.share.kurohicncr.top/Article/details/72674.shtml)
+- 2026-06-30 03:52 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/47443.shtml)
+- 2026-06-30 03:54 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/395467959611.shtml)
+- 2026-06-30 03:36 - [《贺子珍》](https://www.blog.minike.top/Article/details/47603292966.shtml)
+- 2026-06-30 03:33 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/94865442837.shtml)
+- 2026-06-30 03:51 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/7942060774.shtml)
+- 2026-06-30 03:51 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/18216982.shtml)

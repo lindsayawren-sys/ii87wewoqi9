@@ -1,56 +1,61 @@
-# （乡村行·看振兴）福建清流拔里村唤醒森工记忆 闲置地变身“聚宝盆”
+# 华安基金：风偏提振通信电子领涨，创业板50指数上周涨10.96%
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-中新网福建清流6月8日电 (巫建辉 杨锦波)入夏以来，福建省清流县龙津镇拔里村旅游逐渐升温，许多游客慕名前来乘坐造型复古的观光小火车，一边欣赏林间美景，一边举起手机，记录下被青山环抱的“慢时光”。 拔里村距离清流县城约14公里，森林覆盖率超95%。曾经，由于运木火车道被拆除、伐木场搬离等原因，村庄逐渐凋敝，留下大量闲置办公楼、废弃铁轨，传统发展模式难以为继。 依托丰富的森林资源
+行情回顾及主要观点： 上周A股市场整体大幅回暖：沪深300涨3.44%，中证500涨6.99%，中证1000涨6.93%，创业板50涨10.96%，科创50涨14.93%。交易面，A股市场日均成交额在2.7万亿左右，市场投资热情维持高位。受美伊阶段性缓和影响，市场风险偏好回升，电子、通信板块成为当前市场中锐度较高的行业。建议关注行业景气度保持高位、同时龙头公司基本面业绩具备韧性
 
 ## 正文
 
-中新网福建清流6月8日电 (巫建辉 杨锦波)入夏以来，福建省清流县龙津镇拔里村旅游逐渐升温，许多游客慕名前来乘坐造型复古的观光小火车，一边欣赏林间美景，一边举起手机，记录下被青山环抱的“慢时光”。
+行情回顾及主要观点： 上周A股市场整体大幅回暖：沪深300涨3.44%，中证500涨6.99%，中证1000涨6.93%，创业板50涨10.96%，科创50涨14.93%。
 
-拔里村距离清流县城约14公里，森林覆盖率超95%。
+交易面，A股市场日均成交额在2.7万亿左右，市场投资热情维持高位。
 
-曾经，由于运木火车道被拆除、伐木场搬离等原因，村庄逐渐凋敝，留下大量闲置办公楼、废弃铁轨，传统发展模式难以为继。
+受美伊阶段性缓和影响，市场风险偏好回升，电子、通信板块成为当前市场中锐度较高的行业。
 
-依托丰富的森林资源、“森工文化”以及政策东风，拔里村积极推进农文旅融合发展。
+建议关注行业景气度保持高位、同时龙头公司基本面业绩具备韧性的创业板50指数。
 
-“在修旧如旧的原则下，我们不仅保留了上世纪50年代伐木场风貌，还依托铁路遗址复建观光铁轨，盘活闲置资源，成功打造观光火车、稻田公园等一批特色文旅项目。
+创业板为主要“三创（创新、创造、创意）四新（新技术、新产业、新业态、新模式）”的成长型创新创业企业提供直接融资平台。
 
-”拔里村党支部书记张前国介绍。
+权重行业方面，创业板50指数聚焦信息技术+新能源+金融科技+医药四大新质生产力赛道，科技成长属性纯粹。
 
-拔里村耕地面积1680余亩，但受传统农业模式制约，存在40亩长期闲置农田和180余亩冬闲田，土地利用率较低。
+图：创业板50指数四大赛道 数据来源：Wind，华安基金，截至2026-6-18 创业板50指数：追“光”识“新”更掘“金”。
 
-为此，拔里村整合零散地块，划定稻田公园核心区，构建春季油菜花海、夏季“森工火车”主题彩色水稻、秋季金色稻浪、冬季“花开紫云”的全季景观体系。
+横向对比来看，创业板50指数的光模块含量、新能源光伏含量以及金融科技含量优于创业板指以及主流宽基指数。
 
 ## 相关推荐
 
-- 2026-06-30 03:53 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 03:45 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 03:43 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 03:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 03:41 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 03:49 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 03:40 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 03:50 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 03:35 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 03:26 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 03:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 03:34 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 03:38 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 03:34 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 03:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 03:43 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 03:51 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 03:36 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 03:43 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 03:50 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 03:35 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 03:31 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 03:55 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 03:42 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 03:51 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:28 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/3553531433.shtml)
-- 2026-06-30 03:53 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/154047.shtml)
-- 2026-06-30 03:40 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/694866728.shtml)
-- 2026-06-30 03:30 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/375851830.shtml)
-- 2026-06-30 03:34 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/74935165399.shtml)
-- 2026-06-30 03:31 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/1419015.shtml)
-- 2026-06-30 03:27 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/155556079.shtml)
-- 2026-06-30 03:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/430369127246.shtml)
-- 2026-06-30 03:45 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/10217055065.shtml)
-- 2026-06-30 03:49 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/907467824.shtml)
-- 2026-06-30 03:29 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/665739.shtml)
-- 2026-06-30 03:27 - [恋与深空 日服](http://www.blog.minike.top/Article/details/0100350.shtml)
-- 2026-06-30 03:41 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/85004472816.shtml)
-- 2026-06-30 03:28 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/29816.shtml)
-- 2026-06-30 03:39 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/55353874236.shtml)
+- 2026-06-30 03:35 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/723305202668.shtml)
+- 2026-06-30 03:43 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/0505347.shtml)
+- 2026-06-30 03:48 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/247463966.shtml)
+- 2026-06-30 03:33 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/487899255110.shtml)
+- 2026-06-30 03:53 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/647647796526.shtml)
+- 2026-06-30 03:53 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/44978538.shtml)
+- 2026-06-30 03:47 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/658068088.shtml)
+- 2026-06-30 03:53 - [斗破苍穹](http://www.blog.minike.top/Article/details/229186453.shtml)
+- 2026-06-30 03:37 - [周生如故](https://www.blog.minike.top/Article/details/532871.shtml)
+- 2026-06-30 03:38 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/017917.shtml)
+- 2026-06-30 03:33 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/378149921.shtml)
+- 2026-06-30 03:48 - [绘画区你赢了](https://www.blog.minike.top/Article/details/654673677062.shtml)
+- 2026-06-30 03:36 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/55078983364.shtml)
+- 2026-06-30 03:54 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/631688421121.shtml)
+- 2026-06-30 03:55 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/57850702.shtml)

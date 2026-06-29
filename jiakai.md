@@ -1,59 +1,60 @@
-# 精选酒店国际集团晋升Tony Pallas为首席技术官，加速AI战略布局
+# 湖北省去年破获毒品犯罪案件2130起
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-精选酒店国际集团（Choice Hotels）周一宣布，将Tony Pallas晋升为首席技术官，立即生效。此次晋升正值该公司全面推进人工智能技术应用、重塑酒店运营模式的关键时期。 根据公司公告，Pallas将负责领导企业技术、工程部门以及SkyTouch Technology——精选酒店旗下的酒店运营与物业管理系统平台。他将向首席数据、人工智能与技术官Anna Scozzaf
+中新网武汉6月23日电 (记者 武一力)记者从湖北省政府新闻办23日召开的新闻发布会获悉，2025年，湖北省破获毒品犯罪案件2130起、抓获重大逃犯28人；共缴获毒品239.4千克，其中来源境外占比达88%。 据介绍，湖北省构建起科学化、人性化吸毒人员管控帮扶体系，有效降低复吸率，化解涉毒风险。湖北省禁毒办会同相关部门更新完善在册吸毒人员“一人一档”，推动纳入各级公安基础管控中
 
 ## 正文
 
-精选酒店国际集团（Choice Hotels）周一宣布，将Tony Pallas晋升为首席技术官，立即生效。
+中新网武汉6月23日电 (记者 武一力)记者从湖北省政府新闻办23日召开的新闻发布会获悉，2025年，湖北省破获毒品犯罪案件2130起、抓获重大逃犯28人；共缴获毒品239.4千克，其中来源境外占比达88%。
 
-此次晋升正值该公司全面推进人工智能技术应用、重塑酒店运营模式的关键时期。
+据介绍，湖北省构建起科学化、人性化吸毒人员管控帮扶体系，有效降低复吸率，化解涉毒风险。
 
-根据公司公告，Pallas将负责领导企业技术、工程部门以及SkyTouch Technology——精选酒店旗下的酒店运营与物业管理系统平台。
+湖北省禁毒办会同相关部门更新完善在册吸毒人员“一人一档”，推动纳入各级公安基础管控中心分类动态管控，全面摸清戒毒康复人员救治需求，落实临时救助、低保、医保政策；依托社区戒毒康复工作指导站，组织全省戒毒康复人员职业技能培训，解决吸毒人员实际困难，2025年以来累计帮扶救助1.7万人次。
 
-他将向首席数据、人工智能与技术官Anna Scozzafava汇报工作。
+在溯源监管方面，湖北省市场监管局、省公安厅、省应急厅、省药监局等部门对全省6000余家易制毒化学品企业和1500余家麻精药品医疗机构实施“一企一档一专班”管理服务，加强互联网化工网站巡查、重点企业管控教育，严防重点物品流入非法渠道。
 
-Pallas在精选酒店工作逾十年，主导了平台现代化升级及云计算能力建设。
+为防范青少年药物滥用，湖北多部门联合开展未成年人涉毒问题专项治理，成功打造“一堂禁毒课”“禁毒宣传教育进校园”等特色宣传品牌，有效提升青少年识毒、防毒、拒毒意识和能力。
 
-在担任公司酒店物业管理系统业务首席商务与技术官期间，他将年收入提升了68%，EBITDA增长近100%，在其任内将该业务规模近乎翻倍。
+2025年，湖北省新发现35岁以下人群吸毒人数同比下降38%。
 
-Pallas近期担任CHARLIE项目的执行发起人及首席架构师。
+下一步，湖北将持续推进清剿毒品集中攻坚行动，严打中转集散、外流贩毒等突出毒品问题，同时健全完善毒品治理体系，巩固提升毒品治理成效。
 
-CHARLIE是精选酒店在上个月年度大会上亮相的一款AI驱动的虚拟“队友”，旨在为酒店团队提供24/7全天候支持，帮助员工快速获取信息、发现关键洞察并强化品牌标准。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:33 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 03:47 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 03:36 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 03:26 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 03:41 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 03:49 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 03:30 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 03:47 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-30 03:46 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 03:24 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 03:43 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 03:44 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 03:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 03:43 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 03:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 03:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 03:58 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 03:40 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 03:31 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 03:49 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 03:53 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 03:47 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 03:33 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 03:58 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 03:43 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 03:38 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 03:56 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:32 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/27063208028.shtml)
-- 2026-06-30 03:53 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/170165.shtml)
-- 2026-06-30 03:35 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/69335333.shtml)
-- 2026-06-30 03:32 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/11804939.shtml)
-- 2026-06-30 03:33 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/3610783315.shtml)
-- 2026-06-30 03:53 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/406225857.shtml)
-- 2026-06-30 03:49 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/339627707901.shtml)
-- 2026-06-30 03:32 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/65436257033.shtml)
-- 2026-06-30 03:48 - [绘画区你赢了](https://www.share.minike.top/Article/details/2656674202.shtml)
-- 2026-06-30 03:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/418669.shtml)
-- 2026-06-30 03:45 - [一生一世](https://www.blog.kurohicncr.top/Article/details/065718588.shtml)
-- 2026-06-30 03:31 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/5564809.shtml)
-- 2026-06-30 03:38 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/04257.shtml)
-- 2026-06-30 03:51 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/873722083.shtml)
-- 2026-06-30 03:38 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/407144065.shtml)
+- 2026-06-30 03:44 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/95104229.shtml)
+- 2026-06-30 03:35 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/689474488397.shtml)
+- 2026-06-30 03:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/117018680.shtml)
+- 2026-06-30 03:38 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/471112240419.shtml)
+- 2026-06-30 03:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/45874948.shtml)
+- 2026-06-30 03:36 - [世界杯](https://www.share.minike.top/Article/details/16340783679.shtml)
+- 2026-06-30 03:32 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/48104061175.shtml)
+- 2026-06-30 03:34 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/157423.shtml)
+- 2026-06-30 03:37 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/1526365.shtml)
+- 2026-06-30 03:35 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/15807727251.shtml)
+- 2026-06-30 03:50 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/6936070977.shtml)
+- 2026-06-30 03:45 - [天道](http://www.share.minike.top/Article/details/04727266106.shtml)
+- 2026-06-30 03:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/713797833.shtml)
+- 2026-06-30 03:53 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/896285.shtml)
+- 2026-06-30 03:41 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/86087413597.shtml)

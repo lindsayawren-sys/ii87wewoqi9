@@ -1,57 +1,44 @@
-# 【中国银河策略】市场轮动需关注三个点
+# 6月24日央行开展6625亿元7天期逆回购操作
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源 中国银河策略 核心观点 本周A股行情：本周（6月1日-6月5日），A股市场震荡调整，主要宽基指数多数回调。全A指数下跌1.17%。主要宽基指数中，仅北证50上涨4.42%，科创50跌幅达4.74%。（2）从风格来看，本周小盘风格相对占优，中证1000（-0.81%）表现优于沪深300（-1.54%）；
+中新网6月24日电 据央行网站消息，2026年6月24日中国人民银行以固定利率、数量招标方式开展了6625亿元7天期逆回购操作，全额满足了一级交易商需求。具体情况如下：
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网6月24日电 据央行网站消息，2026年6月24日中国人民银行以固定利率、数量招标方式开展了6625亿元7天期逆回购操作，全额满足了一级交易商需求。
 
-来源 中国银河策略 核心观点 本周A股行情：本周（6月1日-6月5日），A股市场震荡调整，主要宽基指数多数回调。
-
-全A指数下跌1.17%。
-
-主要宽基指数中，仅北证50上涨4.42%，科创50跌幅达4.74%。
-
-（2）从风格来看，本周小盘风格相对占优，中证1000（-0.81%）表现优于沪深300（-1.54%）；五大风格指数全部下跌，消费风格、稳定风格分别跌3.10%、2.57%。
-
-（3）从行业来看，本周一级行业涨少跌多。
-
-煤炭、通信、机械设备涨幅靠前，电力设备、建筑材料、综合跌幅靠前。
-
-本周资金流向：（1）市场交投活跃度小幅回落。
+具体情况如下：
 
 ## 相关推荐
 
-- 2026-06-30 03:52 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 03:42 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 03:33 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 03:39 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 03:45 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 03:37 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 03:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 03:39 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 03:30 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 03:52 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 03:43 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 03:53 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 03:59 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 03:34 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 03:57 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 03:38 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 03:55 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 03:45 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 03:48 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 03:31 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 03:51 - [巴西绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:47 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/760548.shtml)
-- 2026-06-30 03:49 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/983732.shtml)
-- 2026-06-30 03:39 - [日本淘汰](https://www.share.minike.top/Article/details/20366.shtml)
-- 2026-06-30 03:45 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/1832739511.shtml)
-- 2026-06-30 03:29 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/70484874893.shtml)
-- 2026-06-30 03:36 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/6195574.shtml)
-- 2026-06-30 03:52 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/34333.shtml)
-- 2026-06-30 03:45 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/3454161188.shtml)
-- 2026-06-30 03:34 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/7319883452.shtml)
-- 2026-06-30 03:27 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/026970098553.shtml)
-- 2026-06-30 03:30 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/7821694352.shtml)
-- 2026-06-30 03:53 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/422802535562.shtml)
-- 2026-06-30 03:34 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/285357783047.shtml)
-- 2026-06-30 03:48 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/2735161640.shtml)
-- 2026-06-30 03:24 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/22044904.shtml)
+- 2026-06-30 03:35 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/483109069971.shtml)
+- 2026-06-30 03:31 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/953337820405.shtml)
+- 2026-06-30 03:54 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/217819.shtml)
+- 2026-06-30 03:34 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/24901734.shtml)
+- 2026-06-30 03:52 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/034712039.shtml)
+- 2026-06-30 03:53 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/489808.shtml)
+- 2026-06-30 03:48 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/46712240047.shtml)
+- 2026-06-30 03:43 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/76438156535.shtml)
+- 2026-06-30 03:45 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/84396229228.shtml)
+- 2026-06-30 03:40 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/2882718.shtml)
+- 2026-06-30 03:45 - [恋与深空回应争议](http://www.share.minike.top/Article/details/52061578232.shtml)
+- 2026-06-30 03:32 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/1837308.shtml)
+- 2026-06-30 03:57 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/832375.shtml)
+- 2026-06-30 03:48 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/99036604130.shtml)
+- 2026-06-30 03:34 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/998499.shtml)

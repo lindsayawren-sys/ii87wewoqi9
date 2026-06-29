@@ -1,55 +1,57 @@
-# 兴业银行：2025年度A股每股派发现金红利0.501元
+# 水网“牵手”地下管网 超大城市重庆如何算好“水账”？
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-6月8日金融一线消息，兴业银行日前发布公告称，2025年度利润分配方案已获2026年5月26日股东会通过。本次以总股本211.63亿股为基数，每股派发现金红利0.501元，共计派发现金红利10.60亿元。股权登记日为2026年6月11日，除权日和现金红利发放日为6月12日。除恒生银行自行发放外，其他A股股东委托中国结算上海分公司发放。不同股东类型扣税方式不同。责任编辑：曹睿潼
+中新网重庆6月23日电 题：水网“牵手”地下管网 超大城市重庆如何算好“水账”？ 作者 张霁雯 作为典型山地超大城市，重庆两江交汇，地形高差大。黄桷渡水厂取水地至南山最高用水点落差约400米，送水最高需6级加压，管网平均压力高达0.8兆帕，约为平原城市的两倍。水在这里，不光要“引来”，还得“抬上去”“管得住”“排得掉”。 近期，中央政治局会议、国务院常务会议接连提出加强水网、新
 
 ## 正文
 
-6月8日金融一线消息，兴业银行日前发布公告称，2025年度利润分配方案已获2026年5月26日股东会通过。
+中新网重庆6月23日电 题：水网“牵手”地下管网 超大城市重庆如何算好“水账”？
 
-本次以总股本211.63亿股为基数，每股派发现金红利0.501元，共计派发现金红利10.60亿元。
+作者 张霁雯 作为典型山地超大城市，重庆两江交汇，地形高差大。
 
-股权登记日为2026年6月11日，除权日和现金红利发放日为6月12日。
+黄桷渡水厂取水地至南山最高用水点落差约400米，送水最高需6级加压，管网平均压力高达0.8兆帕，约为平原城市的两倍。
 
-除恒生银行自行发放外，其他A股股东委托中国结算上海分公司发放。
+水在这里，不光要“引来”，还得“抬上去”“管得住”“排得掉”。
 
-不同股东类型扣税方式不同。
+近期，中央政治局会议、国务院常务会议接连提出加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等规划建设。
 
-责任编辑：曹睿潼
+今年全国两会期间，国家发改委主任郑栅洁透露，2026年我国在“六张网”和相关重点领域建设上投入超过7万亿元。
+
+在这张宏大的蓝图中，水网如同“大动脉”，解决水从哪来；地下管网如同“毛细血管”，解决到哪去，而智慧调度平台则是连接两者的“中枢神经”。
+
+在重庆，一场打通“大动脉”、疏通“毛细血管”、激活“中枢神经”的治水实验，正在为超大城市如何算好“水账”探路。
 
 ## 相关推荐
 
-- 2026-06-30 03:37 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 03:51 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 03:40 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 03:34 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 03:52 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 03:39 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 03:38 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 03:44 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 03:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 03:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 03:35 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 03:41 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 03:32 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 03:32 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 03:57 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 03:44 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 03:58 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 03:58 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 03:35 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 03:51 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 03:35 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 03:43 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 03:37 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 03:33 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:26 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/492968964.shtml)
-- 2026-06-30 03:45 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/174741.shtml)
-- 2026-06-30 03:33 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/57044544.shtml)
-- 2026-06-30 03:28 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/442236387744.shtml)
-- 2026-06-30 03:34 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/33409317.shtml)
-- 2026-06-30 03:43 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/406389952.shtml)
-- 2026-06-30 03:45 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/637072.shtml)
-- 2026-06-30 03:27 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/960115941604.shtml)
-- 2026-06-30 03:53 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/723805797.shtml)
-- 2026-06-30 03:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/58869820150.shtml)
-- 2026-06-30 03:25 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/976293401.shtml)
-- 2026-06-30 03:27 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/63896686488.shtml)
-- 2026-06-30 03:39 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/301924717.shtml)
-- 2026-06-30 03:39 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/57358902086.shtml)
-- 2026-06-30 03:36 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/6045955.shtml)
+- 2026-06-30 03:46 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/8080978.shtml)
+- 2026-06-30 03:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/8158090345.shtml)
+- 2026-06-30 03:56 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/8586866526.shtml)
+- 2026-06-30 03:33 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/979470456880.shtml)
+- 2026-06-30 03:32 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/447103056.shtml)
+- 2026-06-30 03:45 - [这一刀 会很帅](https://www.share.minike.top/Article/details/244000496524.shtml)
+- 2026-06-30 03:44 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/03868592090.shtml)
+- 2026-06-30 03:44 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/41516891.shtml)
+- 2026-06-30 03:30 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/035404768.shtml)
+- 2026-06-30 03:31 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/803215274.shtml)
+- 2026-06-30 03:58 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/6842079641.shtml)
+- 2026-06-30 03:39 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/72595.shtml)
+- 2026-06-30 03:37 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/951399738.shtml)
+- 2026-06-30 03:55 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/570900167214.shtml)
+- 2026-06-30 03:47 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/28895412.shtml)

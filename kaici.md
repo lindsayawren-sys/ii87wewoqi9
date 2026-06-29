@@ -1,61 +1,56 @@
-# 万亿级赛道再拓版图！迅策科技打造基于Token的物理AI与世界模型，构建产业新生态
+# 深耕价值创新 富德生命人寿两款产品入选“2026年度保险产品”
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-2026年6月8日，深圳迅策科技股份有限公司（迅策科技，股票代码：3317.HK）宣布，与博泰车联网科技（上海）股份有限公司（博泰车联）、北京赛目科技股份有限公司（赛目科技）正式签署三方战略合作框架协议，共同推动Token经济在智能网联汽车领域的融合应用与规模化落地。 本次战略合作标志着迅策科技将数据Token化能力从金融、电信、电力、能源、机器人训练平台等高价值领域进一步拓展
+近日，由中国金融传媒联合复旦大学中国保险与社会安全研究中心、复保科技共同推出的“2026年度保险产品”评选结果正式揭晓。 凭借稳健的经营实力、持续的产品创新能力与贴合民生需求的产品布局，富德生命人寿两款产品成功入选。其中，富德生命畅盈人生年金保险（分红型）入选年度商业保险年金产品，富德生命传世鑫禧A款终身寿险（分红型）入选年度分红型人身保险产品。 二十载深耕笃行 筑牢保险民生保
 
 ## 正文
 
-2026年6月8日，深圳迅策科技股份有限公司（迅策科技，股票代码：3317.HK）宣布，与博泰车联网科技（上海）股份有限公司（博泰车联）、北京赛目科技股份有限公司（赛目科技）正式签署三方战略合作框架协议，共同推动Token经济在智能网联汽车领域的融合应用与规模化落地。
+近日，由中国金融传媒联合复旦大学中国保险与社会安全研究中心、复保科技共同推出的“2026年度保险产品”评选结果正式揭晓。
 
-本次战略合作标志着迅策科技将数据Token化能力从金融、电信、电力、能源、机器人训练平台等高价值领域进一步拓展至智能网联汽车这一万亿级赛道。
+凭借稳健的经营实力、持续的产品创新能力与贴合民生需求的产品布局，富德生命人寿两款产品成功入选。
 
-三方将充分发挥各自核心优势，联合研发基于Token的物理AI与世界模型，拓展Token世界模型产业生态，打造“端侧硬件 + 仿真测试 + 数据基础设施 + Token结算 + 商业化运营”的全闭环产业体系，共同推动Token经济在车载场景下的融合应用与商业化落地。
+其中，富德生命畅盈人生年金保险（分红型）入选年度商业保险年金产品，富德生命传世鑫禧A款终身寿险（分红型）入选年度分红型人身保险产品。
 
-场景数据Token是物理AI与世界模型的基石。
+二十载深耕笃行 筑牢保险民生保障底色 保险的核心本源是保障，长期保单承载着大众对未来生活的确定性期许，是抵御风险的重要基石。
 
-随着AI从数字世界加速向物理世界延伸，其角色正从“语义理解的计量单位”升级为“物理世界交互的价值载体”。
+深耕保险行业二十余年，富德生命人寿始终明确“以客户为中心”的重要指导原则，推出覆盖健康保障、养老保障、财富规划、意外保障等各类产品，以更好地满足客户日益增长的保险保障和财富管理需求，发挥保险社会稳定器的作用，促进社会和谐。
 
-迅策科技基于十年深耕的场景数据Token化能力与数据Token的积累，正加速推动在物理AI、世界模型等前沿领域的产业落地，为智能网联汽车、具身智能、机器人等物理AI场景构建统一的Token价值底座，成为连接物理世界与AI世界模型的核心桥梁与原料。
+此次入选的富德生命畅盈人生年金保险（分红型），具备投保年龄范围广、首期时间自主选、生存保险金确定领、共享经营成果四大核心竞争优势。
 
-联合研发物理AI与世界模型，建立Token化价值底座 三方将围绕智能网联汽车场景下的环境感知、用户行为理解、出行意图预测、服务推荐及多模态交互等核心能力，联合训练面向智能座舱和物理AI的垂直场景模型，推动Token计量体系从语义理解延伸至物理世界交互，为车载AI服务建立Token化价值计量底座。
+无论是中老年客户构建养老护城河，还是父母为自己、为子女布局伴随一生的财富规划，都能提供契合客户差异化需求的配置方案。
 
-迅策科技将凭借覆盖全链路的AI数据基础设施能力，依托TokenOS操作系统，提供集Token价值计量、动态结算与标准化计费于一体的核心服务。
+另一款入选产品富德生命传世鑫禧A款终身寿险（分红型），集稳健增值、红利共享、灵活支配与基础保障四大价值于一体，保险金额自第二年起以复利的方式稳定增长，同时通过红利分配共享公司经营成果，实现“保证+浮动”的收益结构，兼顾了保险产品的安全性与收益性，高度贴合当下消费者对长期、安全、灵活型保险产品的综合需求。
 
 ## 相关推荐
 
-- 2026-06-30 03:41 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 03:24 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 03:52 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 03:25 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-30 03:50 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 03:36 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 03:48 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 03:45 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 03:46 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 03:53 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 03:31 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 03:28 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 03:30 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 03:50 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 03:33 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 03:54 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 03:49 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-30 03:39 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 03:45 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 03:55 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 03:52 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 03:57 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 03:56 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 03:52 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 03:31 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:35 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/161703250.shtml)
-- 2026-06-30 03:47 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/75383.shtml)
-- 2026-06-30 03:47 - [日本进球](https://www.blog.kurohicncr.top/Article/details/20938232026.shtml)
-- 2026-06-30 03:36 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/708337.shtml)
-- 2026-06-30 03:36 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/072791560.shtml)
-- 2026-06-30 03:39 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/22088.shtml)
-- 2026-06-30 03:49 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/8546754.shtml)
-- 2026-06-30 03:44 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/746006432.shtml)
-- 2026-06-30 03:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/926935.shtml)
-- 2026-06-30 03:32 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/733039.shtml)
-- 2026-06-30 03:53 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/564719225.shtml)
-- 2026-06-30 03:52 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/29893.shtml)
-- 2026-06-30 03:33 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/806759491400.shtml)
-- 2026-06-30 03:31 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/476278361575.shtml)
-- 2026-06-30 03:35 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/257826.shtml)
+- 2026-06-30 03:56 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/58973136792.shtml)
+- 2026-06-30 03:44 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/2145381.shtml)
+- 2026-06-30 03:59 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/52940260.shtml)
+- 2026-06-30 03:53 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/3057385.shtml)
+- 2026-06-30 03:54 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/0647853782.shtml)
+- 2026-06-30 03:40 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/2329088461.shtml)
+- 2026-06-30 03:48 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/9246263823.shtml)
+- 2026-06-30 03:48 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/204883.shtml)
+- 2026-06-30 03:53 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/98193.shtml)
+- 2026-06-30 03:43 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/81699.shtml)
+- 2026-06-30 03:49 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/57561106815.shtml)
+- 2026-06-30 03:48 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/57492953435.shtml)
+- 2026-06-30 03:52 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/517128.shtml)
+- 2026-06-30 03:42 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/05113.shtml)
+- 2026-06-30 03:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/548859.shtml)

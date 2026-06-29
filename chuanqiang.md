@@ -1,61 +1,59 @@
-# 苹果经典的小访达图标形象，现已正式成为2026全球开发者大会周边纪念品标识
+# 外媒热议链博会：“脱钩”杂音中，全球巨头为何用脚投票看好中国
 
-> 更新时间：2026-06-30 03:54:02 UTC+8
+> 更新时间：2026-06-30 04:00:03 UTC+8
 
 ## 摘要
 
-有用户在社交平台X上晒出了本届苹果全球开发者大会（WWDC）的参会礼包照片，其中一枚珐琅徽章采用了经典Mac系统里访达的迷你卡通形象。整套周边还包含手提包、水杯、贴纸以及其他款式的徽章。 这件事虽不起眼，却极具苹果风格。这个迷你访达卡通形象最初只是苹果用于Mac宣传的趣味角色，如今也从广告吉祥物，摇身变成了苹果园区WWDC参会者的收藏款徽章。 这枚徽章并非随意设计，因为苹果绝不
+中新网6月23日电 一年一度的“链博时间”如约开启。6月22日，第四届中国国际供应链促进博览会(链博会)在京启幕，主题为“链接世界，共创未来”。 当前全球地缘冲突持续发酵，贸易保护主义不断升温，在此背景下，这一全球首个以供应链为主题的国家级展会，迎来规模空前的国际参展阵容，引发外媒高度关注。在“脱钩断链”的杂音中，为什么全球产业链上下游的巨头们，依然选择在这里汇聚一堂，畅谈“中
 
 ## 正文
 
-有用户在社交平台X上晒出了本届苹果全球开发者大会（WWDC）的参会礼包照片，其中一枚珐琅徽章采用了经典Mac系统里访达的迷你卡通形象。
+中新网6月23日电 一年一度的“链博时间”如约开启。
 
-整套周边还包含手提包、水杯、贴纸以及其他款式的徽章。
+6月22日，第四届中国国际供应链促进博览会(链博会)在京启幕，主题为“链接世界，共创未来”。
 
-这件事虽不起眼，却极具苹果风格。
+当前全球地缘冲突持续发酵，贸易保护主义不断升温，在此背景下，这一全球首个以供应链为主题的国家级展会，迎来规模空前的国际参展阵容，引发外媒高度关注。
 
-这个迷你访达卡通形象最初只是苹果用于Mac宣传的趣味角色，如今也从广告吉祥物，摇身变成了苹果园区WWDC参会者的收藏款徽章。
+在“脱钩断链”的杂音中，为什么全球产业链上下游的巨头们，依然选择在这里汇聚一堂，畅谈“中国机遇”？
 
-这枚徽章并非随意设计，因为苹果绝不会在WWDC周边上使用毫无意义的形象。
+“朋友圈”持续扩容： 节节攀升的“国际含量” 外媒普遍关注到，链博会的“朋友圈”，正在以实打实的数据扩大。
 
-这类参会礼包往往如同一个小小缩影，折射出当下苹果希望开发者如何看待其旗下各大平台。
+新加坡《联合早报》观察到，本届链博会吸引676家中外企业参展，涉85个国家或地区和国际组织，其境外参展商占比上升至36.5%，包括美国半导体巨头英伟达和英特尔等，成为国际社会观察中国经济和全球产业链走势的重要窗口。
 
-今年，苹果还在苹果开发者应用中推出了多款以Mac经典元素为灵感的虚拟贴纸。
+《联合早报》援引日本贸易振兴机构(JETRO)北京代表处首席代表小野寺修的话称，2026年日本展厅面积约为106平方米，为历来最大，有25家中小企业参展。
 
-不过，这款迷你访达卡通形象仅做成了限量实体徽章套装。
+小野寺修进一步指出，不少日企依然认为中国市场潜力巨大，希望借助链博会进一步拓展合作机遇。
 
 ## 相关推荐
 
-- 2026-06-30 03:54 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 03:41 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 03:34 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 03:29 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 03:34 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 03:27 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 03:51 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 03:43 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 03:35 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 03:48 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-30 03:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 03:29 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-30 03:40 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 03:27 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 03:51 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 03:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 03:46 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 03:58 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 03:51 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 03:58 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 03:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 03:40 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 03:50 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 03:50 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 03:50 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 03:41 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 03:49 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-30 03:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:52 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/88966648.shtml)
-- 2026-06-30 03:50 - [月亮](http://www.share.minike.top/Article/details/692724281.shtml)
-- 2026-06-30 03:30 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/6815859035.shtml)
-- 2026-06-30 03:44 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/86840305.shtml)
-- 2026-06-30 03:24 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/16613397404.shtml)
-- 2026-06-30 03:27 - [田曦薇没招了](http://www.share.minike.top/Article/details/09214525012.shtml)
-- 2026-06-30 03:47 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/3612607.shtml)
-- 2026-06-30 03:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/5318528342.shtml)
-- 2026-06-30 03:35 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/019201076122.shtml)
-- 2026-06-30 03:33 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/050740907177.shtml)
-- 2026-06-30 03:39 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/7580612.shtml)
-- 2026-06-30 03:37 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/11705845322.shtml)
-- 2026-06-30 03:30 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/1815745.shtml)
-- 2026-06-30 03:32 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/2645169118.shtml)
-- 2026-06-30 03:25 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/753120045.shtml)
+- 2026-06-30 03:34 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/111585.shtml)
+- 2026-06-30 03:33 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/135731757.shtml)
+- 2026-06-30 03:40 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/855050.shtml)
+- 2026-06-30 03:31 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/835446965.shtml)
+- 2026-06-30 03:57 - [请回答王牌2019](https://www.blog.minike.top/Article/details/7432296.shtml)
+- 2026-06-30 03:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/672292007.shtml)
+- 2026-06-30 03:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/056016.shtml)
+- 2026-06-30 03:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/4077433714.shtml)
+- 2026-06-30 03:33 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/65337.shtml)
+- 2026-06-30 03:49 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/293269.shtml)
+- 2026-06-30 03:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/11401.shtml)
+- 2026-06-30 03:51 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/376377403.shtml)
+- 2026-06-30 03:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/446127510.shtml)
+- 2026-06-30 03:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/346607578.shtml)
+- 2026-06-30 03:58 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/9346481.shtml)
