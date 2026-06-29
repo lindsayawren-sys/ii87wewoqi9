@@ -1,60 +1,60 @@
-# 业内人士：债券市场已成为央行宏观调控和政策传导的重要阵地
+# 老顾客一天没来 面馆老板报警救回一命
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-来源：金融时报 记者：马梅若 “2025年末，银行持有的债券超过100万亿元，占其总资产的25%，较2015年上升7个百分点；债券与贷款比例为35%，较2015年上升6个百分点。银行债券投融资行为已经成为影响货币供应和信用创造的重要渠道。”日前，中国人民银行在《2026年第一季度货币政策执行报告》（以下简称《报告》）中披露了上述数据。 “这显示，随着融资结构变化和银行经营转型，
+日前，在浙江嘉兴，一家面馆老板顾先生，发现老顾客芦师傅没有像平时一样来店里吃面。芦师傅年过六旬且独居，顾先生多次致电无人接听，便赶往其家中。 面馆老板 顾伟光：前一天吃面他说吃不下，我就怀疑了。早上九点多他没来，我就打电话给他。电话打过去没动静，我再赶去他家，敲门也没动静。 敲门无人应答后，顾伟光随即报警。辖区派出所民警迅速赶到现场。 嘉兴市公安局南湖区分局新嘉派出所民警 万晓
 
 ## 正文
 
-来源：金融时报 记者：马梅若 “2025年末，银行持有的债券超过100万亿元，占其总资产的25%，较2015年上升7个百分点；债券与贷款比例为35%，较2015年上升6个百分点。
+日前，在浙江嘉兴，一家面馆老板顾先生，发现老顾客芦师傅没有像平时一样来店里吃面。
 
-银行债券投融资行为已经成为影响货币供应和信用创造的重要渠道。
+芦师傅年过六旬且独居，顾先生多次致电无人接听，便赶往其家中。
 
-”日前，中国人民银行在《2026年第一季度货币政策执行报告》（以下简称《报告》）中披露了上述数据。
+面馆老板 顾伟光：前一天吃面他说吃不下，我就怀疑了。
 
-“这显示，随着融资结构变化和银行经营转型，商业银行债券投融资行为已成为影响货币供应和信用创造的重要渠道。
+早上九点多他没来，我就打电话给他。
 
-”平安银行有关业务负责人如是表示。
+电话打过去没动静，我再赶去他家，敲门也没动静。
 
-“央行遴选的一级交易商和做市商，正在扮演三重关键角色——流动性枢纽、定价锚点、市场稳定器。
+敲门无人应答后，顾伟光随即报警。
 
-”受访专家在接受采访时指出，通俗来说，银行既是政策落地的“传导器”，也是市场运行的“压舱石”。
+辖区派出所民警迅速赶到现场。
 
-与此同时，管好债市的意义也尤为凸显。
+嘉兴市公安局南湖区分局新嘉派出所民警 万晓煜：敲门里面是没有声音的，我们也通过隔壁的窗户去看里面是否有人，看到一个老人在床上，喊不应，当时我们也不确定具体是什么情况。
 
 ## 相关推荐
 
-- 2026-06-30 04:16 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 04:00 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 03:56 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 04:09 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 03:59 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 03:52 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 03:58 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 03:50 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 04:01 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 04:17 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 04:09 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 04:15 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 04:10 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 04:15 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 04:20 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 03:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 04:03 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 04:00 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 04:00 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 04:12 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 04:23 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 04:01 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 04:22 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 04:05 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 04:07 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 04:05 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 04:05 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 04:10 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:11 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/854666295801.shtml)
-- 2026-06-30 04:15 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/05712186241.shtml)
-- 2026-06-30 03:57 - [女心理师](https://www.blog.kurohicncr.top/Article/details/899253624018.shtml)
-- 2026-06-30 03:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/5437697589.shtml)
-- 2026-06-30 04:03 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/741836357.shtml)
-- 2026-06-30 04:13 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/388117.shtml)
-- 2026-06-30 03:59 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/44010.shtml)
-- 2026-06-30 04:03 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/18868.shtml)
-- 2026-06-30 04:17 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/4541554444.shtml)
-- 2026-06-30 04:10 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/68826621155.shtml)
-- 2026-06-30 03:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/15031147610.shtml)
-- 2026-06-30 03:54 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/53413446562.shtml)
-- 2026-06-30 04:17 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/94477574.shtml)
-- 2026-06-30 04:04 - [世界杯](https://www.share.kurohicncr.top/Article/details/101520.shtml)
-- 2026-06-30 03:58 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/33836272.shtml)
+- 2026-06-30 04:11 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/28041902432.shtml)
+- 2026-06-30 04:13 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/671863605.shtml)
+- 2026-06-30 04:09 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/7551889.shtml)
+- 2026-06-30 04:14 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/47762.shtml)
+- 2026-06-30 04:20 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/604188.shtml)
+- 2026-06-30 04:02 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/461348965.shtml)
+- 2026-06-30 04:21 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/86519445998.shtml)
+- 2026-06-30 04:07 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/895185125102.shtml)
+- 2026-06-30 04:00 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/3060202252.shtml)
+- 2026-06-30 04:00 - [急先锋](https://www.share.minike.top/Article/details/961560994.shtml)
+- 2026-06-30 04:17 - [女心理师](https://www.blog.kurohicncr.top/Article/details/31365688870.shtml)
+- 2026-06-30 04:07 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/978510811767.shtml)
+- 2026-06-30 04:05 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/033536.shtml)
+- 2026-06-30 04:20 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/560802.shtml)
+- 2026-06-30 04:12 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/0032384.shtml)

@@ -1,54 +1,57 @@
-# 雅加达发现3例汉坦病毒病例 另有6例疑似病例
+# 2026年全国东西南北中羽毛球大赛青少年赛北京分站赛收官
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新社雅加达5月18日电 (记者 李志全)印度尼西亚雅加达卫生局18日通报，截至目前，雅加达已发现3例汉坦病毒确诊病例，另有6例疑似病例正在接受监测。 雅加达卫生局长阿妮·鲁斯皮塔瓦蒂当天表示，该局已根据印尼卫生部发布的防范通知，提高对汉坦病毒传播的防范等级，并向全市医疗机构下发相关警戒通知。 据介绍，雅加达已指定多家地方公立医院作为“哨点医院”，加强对疑似病例的监测与筛查。同
+中新网北京6月22日电 (周昕)2026年全国东西南北中羽毛球大赛青少年赛北京分站赛21日在北京国家奥林匹克体育中心体育馆收官。 本次比赛共划分出四个组别，包括A组(14-15岁年龄组)、B组(12-13岁年龄组)、C组(10-11岁年龄组)及D组(9岁以下组)，共15个比赛项目。据悉，比赛共有来自北京、河北、山东等全国20余个省市地区近800名选手参赛，其中京外选手占比近50
 
 ## 正文
 
-中新社雅加达5月18日电 (记者 李志全)印度尼西亚雅加达卫生局18日通报，截至目前，雅加达已发现3例汉坦病毒确诊病例，另有6例疑似病例正在接受监测。
+中新网北京6月22日电 (周昕)2026年全国东西南北中羽毛球大赛青少年赛北京分站赛21日在北京国家奥林匹克体育中心体育馆收官。
 
-雅加达卫生局长阿妮·鲁斯皮塔瓦蒂当天表示，该局已根据印尼卫生部发布的防范通知，提高对汉坦病毒传播的防范等级，并向全市医疗机构下发相关警戒通知。
+本次比赛共划分出四个组别，包括A组(14-15岁年龄组)、B组(12-13岁年龄组)、C组(10-11岁年龄组)及D组(9岁以下组)，共15个比赛项目。
 
-据介绍，雅加达已指定多家地方公立医院作为“哨点医院”，加强对疑似病例的监测与筛查。
+据悉，比赛共有来自北京、河北、山东等全国20余个省市地区近800名选手参赛，其中京外选手占比近50%。
 
-同时，卫生部门还部署快速反应小组，一旦病例明显增加，将启动早期预警机制。
+比赛期间，前来参赛的小选手们对记者表示，格外珍视本次机遇，在场上不惧对抗，全力施展平日训练所学。
 
-此外，印尼卫生部门还加强雅加达苏加诺—哈达国际机场的汉坦病毒筛查，通过健康申报、体温检测及入境旅客观察等方式，防范输入风险。
+本次比赛为参赛选手设置了奖励机制，各项目前三名颁发奖牌、奖品和证书；第四至第八名(第五至八名为并列第五名)同样也会收到荣誉证书。
 
-阿妮表示，目前汉坦病毒传入印尼的风险总体较低，但仍呼吁民众保持警惕，注意个人卫生防护。
+此外，还设置了最佳人气奖、最小年龄奖、最佳拼搏奖和最佳搭档奖等四个特色奖项，以充分挖掘小选手们的闪光点。
 
-(完)
+作为端午假期北京“赛事超级假日”其中一项活动，赛事充分依托双奥之城的优质硬件资源，为选手们提供专业的竞赛环境。
+
+本次比赛恰逢端午假期，办赛团队还安排了丰富的休闲活动区域，让前来参赛的孩子与家长们在紧张的比赛之余也能享受到节日的轻松快乐。
 
 ## 相关推荐
 
-- 2026-06-30 04:04 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 04:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 04:04 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 04:01 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 03:52 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 04:05 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 04:07 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 04:16 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 03:49 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 04:07 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 04:06 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 04:19 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 04:13 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 04:09 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 04:20 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 03:58 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 04:19 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 04:15 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 04:19 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 04:14 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 04:13 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [TOP Prada](https://www.blog.minike.top/Article/details/47703.shtml)
-- 2026-06-30 04:00 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/2458732682.shtml)
-- 2026-06-30 04:05 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/5227338.shtml)
-- 2026-06-30 04:13 - [日本领先巴西](http://www.share.minike.top/Article/details/80724499.shtml)
-- 2026-06-30 03:58 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/450658696343.shtml)
-- 2026-06-30 04:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/06466.shtml)
-- 2026-06-30 03:54 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/9521247793.shtml)
-- 2026-06-30 03:49 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/89505442.shtml)
-- 2026-06-30 04:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/05263.shtml)
-- 2026-06-30 04:04 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/74618115154.shtml)
-- 2026-06-30 04:04 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/01115321.shtml)
-- 2026-06-30 04:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/7826830.shtml)
-- 2026-06-30 03:56 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/180031478.shtml)
-- 2026-06-30 03:55 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/53421134142.shtml)
-- 2026-06-30 03:55 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/92498255515.shtml)
+- 2026-06-30 04:03 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/52347779.shtml)
+- 2026-06-30 04:09 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/411128.shtml)
+- 2026-06-30 03:57 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/0318504.shtml)
+- 2026-06-30 04:01 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/9607334.shtml)
+- 2026-06-30 04:18 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/521214571693.shtml)
+- 2026-06-30 04:07 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/677712548.shtml)
+- 2026-06-30 04:22 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/852651081.shtml)
+- 2026-06-30 04:13 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/266831316813.shtml)
+- 2026-06-30 04:01 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/6360240612.shtml)
+- 2026-06-30 04:06 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/5996865.shtml)
+- 2026-06-30 04:11 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/717090088457.shtml)
+- 2026-06-30 04:04 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/63684.shtml)
+- 2026-06-30 04:21 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/30292990.shtml)
+- 2026-06-30 04:09 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/479360.shtml)
+- 2026-06-30 04:02 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/065175048.shtml)

@@ -1,57 +1,60 @@
-# 如何把握科技股结构性行情？创金合信基金王先伟：看好AI 算力产业链的投资机会
+# 华安陆家嘴商业REIT正式获批 上海优质商业资产书写新章
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-近期科创 50 指数与创业板指双双创下历史新高，AI 算力基建、半导体国产替代、光通信等硬核科技赛道成为本轮行情核心驱动力。站在当前节点，科技股行情能否持续？估值是否存在泡沫？哪些细分方向更具配置价值？这些成为市场关注焦点。 创金合信专精特新基金经理王先伟认为，本轮行情是AI产业革命趋势主导、业绩兑现强力支撑的结构性牛市，并非全面指数牛市，最看好AI 算力产业链的投资机会。他表
+2026年6月22日，由华安基金作为基金管理人、国泰海通证券作为财务顾问的华安陆家嘴封闭式商业不动产证券投资基金（简称“华安陆家嘴商业REIT”）正式获得中国证监会准予注册的批复，不仅为上海国资盘活存量资产再添实践案例，也为国内商业不动产 REITs 市场扩容提质注入全新动能。 商业不动产REITs起航：推动资本市场服务实体经济效能 商业综合体、商业零售、商业办公楼、酒店等商业
 
 ## 正文
 
-近期科创 50 指数与创业板指双双创下历史新高，AI 算力基建、半导体国产替代、光通信等硬核科技赛道成为本轮行情核心驱动力。
+2026年6月22日，由华安基金作为基金管理人、国泰海通证券作为财务顾问的华安陆家嘴封闭式商业不动产证券投资基金（简称“华安陆家嘴商业REIT”）正式获得中国证监会准予注册的批复，不仅为上海国资盘活存量资产再添实践案例，也为国内商业不动产 REITs 市场扩容提质注入全新动能。
 
-站在当前节点，科技股行情能否持续？
+商业不动产REITs起航：推动资本市场服务实体经济效能 商业综合体、商业零售、商业办公楼、酒店等商业不动产是 REITs 重要的底层资产。
 
-估值是否存在泡沫？
+我国商业不动产存量规模庞大，具有通过 REITs 进行盘活并拓宽权益融资渠道的内在需求。
 
-哪些细分方向更具配置价值？
+2025年12月，证监会发布《中国证监会关于推出商业不动产投资信托基金试点的公告》，适时推出商业不动产 REITs，可以更好发挥REITs 功能作用，支持构建房地产发展新模式，进一步提升多层次资本市场服务实体经济的质效。
 
-这些成为市场关注焦点。
+基金底层资产：前滩国际商务板块核心区域项目 此次获批的华安陆家嘴商业REIT底层资产是陆家嘴集团旗下的优质资产晶耀前滩项目。
 
-创金合信专精特新基金经理王先伟认为，本轮行情是AI产业革命趋势主导、业绩兑现强力支撑的结构性牛市，并非全面指数牛市，最看好AI 算力产业链的投资机会。
+项目位于上海浦东新区前滩国际商务区核心板块，为地铁6、8、11以及19号线（在建）东方体育中心站上盖物业，依托综合交通体系，可高效通达陆家嘴、徐家汇等城市核心商圈。
 
-他表示，本轮科技行情有坚实的产业趋势和业绩支撑，尽管当前科技股表观估值高，但动态估值合理。
+项目周边集聚近300家企业及多个成熟商业载体，形成办公与商业联动发展的成熟生态圈。
 
-他认为2026年下半年科技股投资会比较困难，考虑到未来市场波动与分化将加大，他会在产业深度研究的基础上，加大配置竞争格局开始清晰、景气度还能加速的细分环节。
+项目自2019年投入运营以来，已顺利跨越市场培育期，进入成熟稳定运营阶段。
 
 ## 相关推荐
 
-- 2026-06-30 04:00 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-30 04:05 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 04:01 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 03:59 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 04:17 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 04:17 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 04:04 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 04:11 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-30 04:03 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 03:50 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 03:57 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-30 04:22 - [刘念回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 04:23 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 04:07 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-30 04:02 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 03:55 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 04:20 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 03:59 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 04:22 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 04:16 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 04:04 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 04:05 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-30 04:14 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 03:56 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 04:09 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:00 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/65121.shtml)
-- 2026-06-30 03:50 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/616873533.shtml)
-- 2026-06-30 03:50 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/810652540.shtml)
-- 2026-06-30 03:59 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/7790758268.shtml)
-- 2026-06-30 04:12 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/301342451.shtml)
-- 2026-06-30 03:59 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/937788834.shtml)
-- 2026-06-30 03:50 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/7486284.shtml)
-- 2026-06-30 03:58 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/367101447.shtml)
-- 2026-06-30 04:08 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/155400.shtml)
-- 2026-06-30 03:54 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/6178495.shtml)
-- 2026-06-30 04:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/09591621.shtml)
-- 2026-06-30 03:54 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/70100875.shtml)
-- 2026-06-30 03:58 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/098564321.shtml)
-- 2026-06-30 04:15 - [张凌赫 客串](https://www.blog.minike.top/Article/details/4778430.shtml)
-- 2026-06-30 03:50 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/64125477388.shtml)
+- 2026-06-30 03:55 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/97919929372.shtml)
+- 2026-06-30 04:17 - [爱很美味](http://www.share.minike.top/Article/details/5614303517.shtml)
+- 2026-06-30 04:00 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/596719877684.shtml)
+- 2026-06-30 03:55 - [恋与深空 巧合](http://www.share.minike.top/Article/details/1175178.shtml)
+- 2026-06-30 04:10 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/92901900.shtml)
+- 2026-06-30 04:00 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/96692.shtml)
+- 2026-06-30 04:12 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/9268786761.shtml)
+- 2026-06-30 04:18 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/72458.shtml)
+- 2026-06-30 04:06 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/5425821719.shtml)
+- 2026-06-30 03:54 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/82259370629.shtml)
+- 2026-06-30 04:13 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/695891747731.shtml)
+- 2026-06-30 03:57 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/354004.shtml)
+- 2026-06-30 04:13 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/9036262.shtml)
+- 2026-06-30 03:54 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/044802495.shtml)
+- 2026-06-30 04:18 - [点菜也要教吗](http://www.blog.minike.top/Article/details/071671.shtml)

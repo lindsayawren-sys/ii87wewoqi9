@@ -1,56 +1,56 @@
-# 300658，重大资产重组终止
+# 油价走低叠加美联储鹰派预期支撑美元，美元兑加元刷新一年高位
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-来源：中国基金报 【导读】延江股份宣布终止重大资产重组事项，未能在关键核心条款达成一致 中国基金报记者 忆山 5月18日，延江股份发布公告称，公司董事会于当日审议通过《关于终止发行股份及支付现金购买资产并募集配套资金暨关联交易的议案》，同意公司终止本次重大资产重组事项。 今年1月，延江股份宣布，公司拟以发行股份及支付现金的方式购买宁波甬强科技有限公司（以下简称甬强科技）98.5
+汇通财经APP讯——周二亚洲交易时段，美元兑加元（USD/CAD）在经历前一交易日小幅回调后重新获得买盘支撑，汇价运行于1.4170区域附近，接近自2025年4月以来最高水平。市场对于加拿大经济前景和国际油价走势的担忧，继续推动资金流向美元资产。 近期影响加元走势的核心因素仍然来自能源市场。随着美国与伊朗和平谈判取得积极进展，市场对于中东地区原油供应中断的担忧明显缓解。与此同时
 
 ## 正文
 
-来源：中国基金报 【导读】延江股份宣布终止重大资产重组事项，未能在关键核心条款达成一致 中国基金报记者 忆山 5月18日，延江股份发布公告称，公司董事会于当日审议通过《关于终止发行股份及支付现金购买资产并募集配套资金暨关联交易的议案》，同意公司终止本次重大资产重组事项。
+汇通财经APP讯——周二亚洲交易时段，美元兑加元（USD/CAD）在经历前一交易日小幅回调后重新获得买盘支撑，汇价运行于1.4170区域附近，接近自2025年4月以来最高水平。
 
-今年1月，延江股份宣布，公司拟以发行股份及支付现金的方式购买宁波甬强科技有限公司（以下简称甬强科技）98.54%股权，并募集配套资金。
+市场对于加拿大经济前景和国际油价走势的担忧，继续推动资金流向美元资产。
 
-本次交易构成关联交易，预计构成重大资产重组，不构成重组上市。
+近期影响加元走势的核心因素仍然来自能源市场。
 
-官网资料显示，甬强科技成立于2019年12月，公司主要研发生产IC载板、高端显示基板、高速高频载板等，高端产品已通过Intel、华为、浪潮、曙光、新华三、旭创等国内外头部企业性能认证。
+随着美国与伊朗和平谈判取得积极进展，市场对于中东地区原油供应中断的担忧明显缓解。
 
-自成立以来，公司已获得多家产业资本及知名基金参与的三轮总额达2.1亿元的市场化投资，估值超10亿元。
+与此同时，美国财政部宣布暂时放宽部分伊朗原油出口限制，进一步强化了未来全球原油供应增加的预期。
 
-在最新公告中，延江股份表示，在本次交易筹划期间，公司严格按照相关法律法规及规范性文件要求，积极组织标的公司、交易对方、中介服务机构等相关方一起积极、有序地推进本次交易有关各项工作。
+受此影响，WTI原油价格持续承压，目前仍徘徊在74美元/桶附近，接近上周创下的3个月低点。
 
-延江股份称，经与交易对方就本次重大资产重组交易方案进行多轮商洽，各方未能就业绩对赌、并购估值定价等关键核心条款达成一致，本次并购交易进度在执行上具有较大的不确定性。
+由于加拿大是全球主要能源出口国之一，国际油价走弱往往会削弱加元吸引力，并对加拿大出口收入形成压力。
 
-考虑到在有效时间窗口内难以形成满足各方诉求的可行方案，为切实维护公司及全体股东利益，经审慎研究并与交易相关方协商，公司拟终止本次重大资产重组交易。
+尽管如此，加拿大最新公布的通胀数据表现强劲。
 
 ## 相关推荐
 
-- 2026-06-30 03:57 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 04:02 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 04:05 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 04:04 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 04:03 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 03:59 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 04:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 04:12 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 03:52 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 04:08 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 04:17 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 04:00 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 04:21 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-30 04:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 04:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 04:12 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 04:04 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 04:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 03:59 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 04:23 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:59 - [扬名立万](https://www.blog.minike.top/Article/details/81573866805.shtml)
-- 2026-06-30 03:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/214359949929.shtml)
-- 2026-06-30 03:53 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/9238725.shtml)
-- 2026-06-30 04:02 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/570663765.shtml)
-- 2026-06-30 04:00 - [女心理师](https://www.blog.kurohicncr.top/Article/details/43776035479.shtml)
-- 2026-06-30 04:05 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/097258290453.shtml)
-- 2026-06-30 04:01 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/87869.shtml)
-- 2026-06-30 04:03 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/296826974.shtml)
-- 2026-06-30 03:57 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/6025470907.shtml)
-- 2026-06-30 04:12 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/2404159.shtml)
-- 2026-06-30 04:13 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/71675391.shtml)
-- 2026-06-30 04:00 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/81764.shtml)
-- 2026-06-30 03:55 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/159739.shtml)
-- 2026-06-30 03:57 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/011254604.shtml)
-- 2026-06-30 04:11 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/3646406.shtml)
+- 2026-06-30 04:10 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/2979725.shtml)
+- 2026-06-30 04:00 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/18281986472.shtml)
+- 2026-06-30 04:07 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/7091457049.shtml)
+- 2026-06-30 03:56 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/23221.shtml)
+- 2026-06-30 03:58 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/52412.shtml)
+- 2026-06-30 03:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/9626371.shtml)
+- 2026-06-30 04:19 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/39384.shtml)
+- 2026-06-30 04:20 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/6180504.shtml)
+- 2026-06-30 04:15 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/7672110.shtml)
+- 2026-06-30 03:58 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/821482027514.shtml)
+- 2026-06-30 04:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/113885669.shtml)
+- 2026-06-30 03:58 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/066304685369.shtml)
+- 2026-06-30 04:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/54439.shtml)
+- 2026-06-30 04:13 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/96549.shtml)
+- 2026-06-30 04:12 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/14327564240.shtml)

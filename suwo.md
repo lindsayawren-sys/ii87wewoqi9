@@ -1,60 +1,56 @@
-# 携手共话绿色发展 中越绿色产业国际合作对接交流活动在京举办
+# 新增AI、机器人等专业 多所高校扩招重点方向来了
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网北京5月18日电 (记者 苏婧欣)“越中两国都是快速工业化和城市化的发展中国家，面临诸多环境挑战，因此在绿色产业领域拥有广阔的合作空间。”越南驻华大使范清平18日在“中越绿色产业国际合作对接交流活动”上说。当天，来自两国政府、机构及企业的代表齐聚一堂，共商绿色转型之路。 越南驻华大使范清平在活动上高度评价中国在环境保护与绿色发展领域取得的巨大成就，指出越中两国在绿色发展上
+原标题：视频丨新增AI、机器人等专业 多所高校扩招重点方向来了 “十五五”时期，“双一流”高校本科将扩招10万人以上。今年，众多优质本科高校都宣布扩大招生规模。很多考生和家长关心：都有哪些高校参与扩招？将扩充多大规模？重点投向哪些领域？ 有哪些高校参与扩招？将扩充多大规模？ 今年，“双一流”高校中，东南大学扩招人数将达600人，西安电子科技大学将扩招400人，西安交通大学比去年
 
 ## 正文
 
-中新网北京5月18日电 (记者 苏婧欣)“越中两国都是快速工业化和城市化的发展中国家，面临诸多环境挑战，因此在绿色产业领域拥有广阔的合作空间。
+原标题：视频丨新增AI、机器人等专业 多所高校扩招重点方向来了 “十五五”时期，“双一流”高校本科将扩招10万人以上。
 
-”越南驻华大使范清平18日在“中越绿色产业国际合作对接交流活动”上说。
+今年，众多优质本科高校都宣布扩大招生规模。
 
-当天，来自两国政府、机构及企业的代表齐聚一堂，共商绿色转型之路。
+很多考生和家长关心：都有哪些高校参与扩招？
 
-越南驻华大使范清平在活动上高度评价中国在环境保护与绿色发展领域取得的巨大成就，指出越中两国在绿色发展上存在广阔合作空间。
+将扩充多大规模？
 
-范清平说，中国在可再生能源发展、生态系统恢复、环境污染控制以及新能源汽车的制造与推广等方面进展显著。
+重点投向哪些领域？
 
-越南相信，在“十五五”期间，中国将在生态文明、美丽中国建设及高质量发展方面取得更多突破，为世界贡献“中国绿色发展方案”。
+有哪些高校参与扩招？
 
-范清平同时介绍了越南的相关战略。
+将扩充多大规模？
 
-他表示，越南已将绿色、可持续发展确立为国家建设与发展的贯穿性战略方向。
+今年，“双一流”高校中，东南大学扩招人数将达600人，西安电子科技大学将扩招400人，西安交通大学比去年增加360人；复旦大学、南京大学、兰州大学将各扩招300人；北京邮电大学2026年本科招生规模增量为180人；华南理工大学全国招生总规模比2025年增加150人；同济大学、南开大学、山东大学、中央财经大学、中国矿业大学(北京)等高校，2026年均新增100个招生名额。
 
 ## 相关推荐
 
-- 2026-06-30 03:58 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 03:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 03:52 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 04:13 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 04:00 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 04:08 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 04:16 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 04:10 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 04:17 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 03:53 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 03:57 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 03:49 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 04:16 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 04:06 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 04:09 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-30 04:19 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 04:17 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 04:03 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-30 04:23 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 04:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 04:00 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 04:14 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 03:57 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 04:12 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:54 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/265000.shtml)
-- 2026-06-30 04:01 - [日本领先巴西](https://www.blog.minike.top/Article/details/40671178510.shtml)
-- 2026-06-30 04:03 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/921913510.shtml)
-- 2026-06-30 04:15 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/286666.shtml)
-- 2026-06-30 04:08 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/05311.shtml)
-- 2026-06-30 03:57 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/76354.shtml)
-- 2026-06-30 04:13 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/814311767777.shtml)
-- 2026-06-30 04:17 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/28062678574.shtml)
-- 2026-06-30 03:48 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/74665619666.shtml)
-- 2026-06-30 04:03 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/885748932.shtml)
-- 2026-06-30 04:05 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/05565755.shtml)
-- 2026-06-30 04:09 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/902619.shtml)
-- 2026-06-30 04:15 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/98361.shtml)
-- 2026-06-30 03:52 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/79632213.shtml)
-- 2026-06-30 04:01 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/293035.shtml)
+- 2026-06-30 04:04 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/8965132924.shtml)
+- 2026-06-30 04:15 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/79330096.shtml)
+- 2026-06-30 04:09 - [金牌调解](https://www.blog.minike.top/Article/details/953568.shtml)
+- 2026-06-30 04:17 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/151126.shtml)
+- 2026-06-30 04:08 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/60568.shtml)
+- 2026-06-30 04:05 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/7305325.shtml)
+- 2026-06-30 04:18 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/527757305.shtml)
+- 2026-06-30 03:54 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/159630897.shtml)
+- 2026-06-30 04:16 - [流金岁月](https://www.share.kurohicncr.top/Article/details/80447699836.shtml)
+- 2026-06-30 04:23 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/602702.shtml)
+- 2026-06-30 04:07 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/897706.shtml)
+- 2026-06-30 04:08 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/650962.shtml)
+- 2026-06-30 03:56 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/862902123.shtml)
+- 2026-06-30 03:54 - [恋与深空 日服](http://www.share.minike.top/Article/details/549673181356.shtml)
+- 2026-06-30 03:59 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/38859.shtml)

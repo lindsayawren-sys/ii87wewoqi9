@@ -1,57 +1,57 @@
-# 中金公司“三合一”吸并草案出炉，合并后将跻身“百亿净利俱乐部”
+# 2026年中美青少年未来气候领袖粤港澳大湾区研修交流活动启幕
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-年报季刚过，中金公司在交出一份业绩增收答卷之后，又披露了其“三合一”重磅并购案的最新进展。5月18日，中金公司发布换股吸收合并东兴证券、信达证券的交易草案，其中显示，中金公司A股换股价格为36.68元/股，东兴证券、信达证券的换股价格分别为16.05元/股、19.11元/股；换股比例上，东兴证券与中金公司为1:0.4376，信达证券与中金公司为1:0.5210。另据草案，此次中
+中新网广州6月23日电 (记者 王坚)中美青少年未来气候领袖粤港澳大湾区研修交流活动开营仪式23日在位于广州的广东工业大学举行。来自中美两国的36名青少年学生齐聚广东，围绕气候治理、绿色低碳发展等主题开启为期7天的研修交流活动。 据介绍，该活动是落实《广东省与加利福尼亚州深化绿色发展合作谅解备忘录》的一项具体内容，旨在搭建中美青少年交流互动桥梁，促进提升两国青少年气候意识和解决
 
 ## 正文
 
-年报季刚过，中金公司在交出一份业绩增收答卷之后，又披露了其“三合一”重磅并购案的最新进展。
+中新网广州6月23日电 (记者 王坚)中美青少年未来气候领袖粤港澳大湾区研修交流活动开营仪式23日在位于广州的广东工业大学举行。
 
-5月18日，中金公司发布换股吸收合并东兴证券、信达证券的交易草案，其中显示，中金公司A股换股价格为36.68元/股，东兴证券、信达证券的换股价格分别为16.05元/股、19.11元/股；换股比例上，东兴证券与中金公司为1:0.4376，信达证券与中金公司为1:0.5210。
+来自中美两国的36名青少年学生齐聚广东，围绕气候治理、绿色低碳发展等主题开启为期7天的研修交流活动。
 
-另据草案，此次中金公司拟发行A股股份数量31.04亿股。
+据介绍，该活动是落实《广东省与加利福尼亚州深化绿色发展合作谅解备忘录》的一项具体内容，旨在搭建中美青少年交流互动桥梁，促进提升两国青少年气候意识和解决气候问题能力，为应对全球气候危机贡献青春力量。
 
-换股后，中央汇金仍为中金公司的控股股东及实际控制人。
+该活动由广东省生态环境厅、广东省教育厅、广东工业大学联合主办，中国南方航空股份有限公司协办。
 
-2026年以来，券商并购重组继续升温，“东吴证券+东海证券”“东方证券+上海证券”相继官宣，“新中金”也在加速成型。
+来自美国加州大学河滨分校、广东工业大学的营员代表在现场分别作了交流发言。
 
-根据最新年报数据，合并后的中金公司年度营收将超过370亿元，母公司净资本将突破千亿元，各指标行业排名大幅跃升。
+广东省委外办、省教育厅、省生态环境厅、广东工业大学、中国南方航空股份有限公司等单位相关负责人为营员代表授旗。
 
-在2025年年报中，中金公司表示将积极把握外延式发展机遇，在保持内生高质量增长的同时，积极推进吸收合并东兴证券、信达证券，着力把财务资本、网络布局、业务能力和客户资源等互补优势充分释放出来，努力实现“1+2>3”的效果。
+活动期间，中美两国青少年将通过专题研学、实地调研、项目研讨、成果展示等多种形式进行学习互动，真诚开展沟通交流，传播绿色发展理念，汇聚思想行动共识。
 
-并购重组快速推进作为行业龙头，中金公司的并购动作受到市场高度关注。
+通过系统研习气候治理专业知识与技能，提升科学认知水平和专业素养。
 
 ## 相关推荐
 
-- 2026-06-30 04:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-30 04:05 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 03:52 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 04:03 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 03:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 04:03 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 04:05 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 04:12 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 03:50 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 04:00 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-30 04:07 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 03:55 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 04:15 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 04:11 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 04:01 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 04:09 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-30 04:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 04:22 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 03:56 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 04:04 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 04:16 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 04:06 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:02 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/501161003.shtml)
-- 2026-06-30 04:14 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/5747692077.shtml)
-- 2026-06-30 04:17 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/2278964957.shtml)
-- 2026-06-30 03:52 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/662700338270.shtml)
-- 2026-06-30 04:09 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/90495.shtml)
-- 2026-06-30 03:54 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/69858.shtml)
-- 2026-06-30 04:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/9569439767.shtml)
-- 2026-06-30 04:00 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/061055076.shtml)
-- 2026-06-30 03:52 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/0103570565.shtml)
-- 2026-06-30 03:55 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/92351379498.shtml)
-- 2026-06-30 04:12 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/8167287.shtml)
-- 2026-06-30 03:51 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/706303270.shtml)
-- 2026-06-30 03:57 - [金刚川](https://www.share.minike.top/Article/details/3922240752.shtml)
-- 2026-06-30 04:00 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/530640434549.shtml)
-- 2026-06-30 03:54 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/6128934.shtml)
+- 2026-06-30 04:03 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/081780.shtml)
+- 2026-06-30 04:13 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/45458189.shtml)
+- 2026-06-30 04:21 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/393798029695.shtml)
+- 2026-06-30 04:06 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/6287385.shtml)
+- 2026-06-30 04:12 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/95026866330.shtml)
+- 2026-06-30 04:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/4826876.shtml)
+- 2026-06-30 04:18 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/633785023.shtml)
+- 2026-06-30 04:03 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/97600857.shtml)
+- 2026-06-30 04:11 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/61007976430.shtml)
+- 2026-06-30 04:24 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/00294578.shtml)
+- 2026-06-30 04:04 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/478385254.shtml)
+- 2026-06-30 04:17 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/9353372019.shtml)
+- 2026-06-30 04:13 - [毒液2](http://www.blog.minike.top/Article/details/440207.shtml)
+- 2026-06-30 04:10 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/19101588173.shtml)
+- 2026-06-30 04:17 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/909233.shtml)

@@ -1,47 +1,53 @@
-# 05月18日铜104278.33元/吨 60天上涨9.04%
+# 交易员：对冲基金周二增持美元看涨期权
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-据生意社监测，铜05月18日最新价格104278.33元/吨，最近60天上涨9.04%。相关生产商有：中金岭南(000060)兴业银锡(000426)铜陵有色(000630)金岭矿业(000655)国城矿业（维权）(000688)北方铜业(000737)中色股份(000758)云南铜业(000878)锡业股份(000960)恒邦股份(002237)寒锐钴业(300618)江西铜
+专题：政策锚定新质生产力 紧抓AI上游通胀等四大方向 交易员表示，对冲基金周二买入更多美元看涨期权，延续上周押注美元将在未来几周兑主要货币进一步走强的策略。 交易员称，美元兑欧元和澳元的看涨期权颇受欢迎。 期限主要集中在三个月及以内。 美元即期指数周二连续第二个交易日上涨，上涨0.4%，触及11月以来最高水平。 部分信息来自熟悉交易情况的外汇交易员，因无公开发言授权要求匿名。责
 
 ## 正文
 
-据生意社监测，铜05月18日最新价格104278.33元/吨，最近60天上涨9.04%。
+专题：政策锚定新质生产力 紧抓AI上游通胀等四大方向 交易员表示，对冲基金周二买入更多美元看涨期权，延续上周押注美元将在未来几周兑主要货币进一步走强的策略。
 
-相关生产商有：中金岭南(000060)兴业银锡(000426)铜陵有色(000630)金岭矿业(000655)国城矿业（维权）(000688)北方铜业(000737)中色股份(000758)云南铜业(000878)锡业股份(000960)恒邦股份(002237)寒锐钴业(300618)江西铜业(600362)鹏欣资源(600490)豫光金铅(600531)山东黄金(600547)盛屯矿业（维权）(600711)赤峰黄金(600988)西部矿业(601168)白银有色（维权）(601212)金田股份(601609)紫金矿业(601899)华友钴业(603799)洛阳钼业(603993)等。
+交易员称，美元兑欧元和澳元的看涨期权颇受欢迎。
+
+期限主要集中在三个月及以内。
+
+美元即期指数周二连续第二个交易日上涨，上涨0.4%，触及11月以来最高水平。
+
+部分信息来自熟悉交易情况的外汇交易员，因无公开发言授权要求匿名。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 03:57 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 04:07 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 03:53 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 04:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 04:15 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 04:14 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 03:55 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 04:16 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 03:51 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 03:52 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 03:53 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 04:04 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 04:08 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 04:01 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 04:20 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 03:54 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 03:58 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-30 04:11 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 04:03 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 04:19 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 03:59 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 04:20 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 03:54 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 03:57 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:58 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/4987358561.shtml)
-- 2026-06-30 04:01 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/21464.shtml)
-- 2026-06-30 04:17 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/8837487808.shtml)
-- 2026-06-30 04:09 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/657018.shtml)
-- 2026-06-30 04:16 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/9575977.shtml)
-- 2026-06-30 04:04 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/175115.shtml)
-- 2026-06-30 04:09 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/9128852.shtml)
-- 2026-06-30 04:14 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/1167065.shtml)
-- 2026-06-30 04:00 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/389133232523.shtml)
-- 2026-06-30 03:59 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/25148422007.shtml)
-- 2026-06-30 04:12 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/93216.shtml)
-- 2026-06-30 03:58 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/647411.shtml)
-- 2026-06-30 04:16 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/1689091610.shtml)
-- 2026-06-30 03:50 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/41966917.shtml)
-- 2026-06-30 04:02 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/75391102.shtml)
+- 2026-06-30 04:09 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/36998.shtml)
+- 2026-06-30 04:00 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/14572974.shtml)
+- 2026-06-30 03:55 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/3579764112.shtml)
+- 2026-06-30 04:17 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/951223187.shtml)
+- 2026-06-30 04:09 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/7392256.shtml)
+- 2026-06-30 04:09 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/5674443.shtml)
+- 2026-06-30 03:56 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/32258570790.shtml)
+- 2026-06-30 04:00 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/93852107217.shtml)
+- 2026-06-30 04:09 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/940298239.shtml)
+- 2026-06-30 04:07 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/27522342271.shtml)
+- 2026-06-30 03:58 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/7228950149.shtml)
+- 2026-06-30 04:05 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/8258371356.shtml)
+- 2026-06-30 04:05 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/219983073.shtml)
+- 2026-06-30 04:09 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/381532821.shtml)
+- 2026-06-30 04:02 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/47371.shtml)

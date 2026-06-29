@@ -1,54 +1,57 @@
-# 精神航空停运后机票价格上涨
+# 海尔消金转让超4万笔不良贷款，李占国有紧迫感
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-随着回收航班将精神航空的机队送往储存设施，廉价航班选择收紧，捷蓝航空及其他航空公司随即提高了此前由精神航空运营的航线票价。精神航空的停运在航空市场留下了显著的运力缺口，尤其是在价格敏感型旅客集中的休闲航线上。竞争对手迅速调整定价策略，部分航线的单程票价涨幅超过50%。消费者权益组织呼吁交通部门加强监管，防止航空公司利用竞争对手停运的机会牟取暴利。精神航空表示正在与债权人谈判，争
+来源：银瑞社 作者：许淑敏 作为海尔消金的掌舵者，李占国对外露面极少。 他是60后，从2003年出任海尔集团财务部长，也曾担任海尔集团财务公司总经理，熟悉财务线条的工作。 2014年，海尔消金成立伊始，李占国便是管理层核心，一开始担任副董事长职务，到2020年正式成为董事长，至今已有6年时间。 他曾经一肩统筹公司经营、风控、渠道、资本全条线业务。 2024 年6月，海尔消金原总
 
 ## 正文
 
-随着回收航班将精神航空的机队送往储存设施，廉价航班选择收紧，捷蓝航空及其他航空公司随即提高了此前由精神航空运营的航线票价。
+来源：银瑞社 作者：许淑敏 作为海尔消金的掌舵者，李占国对外露面极少。
 
-精神航空的停运在航空市场留下了显著的运力缺口，尤其是在价格敏感型旅客集中的休闲航线上。
+他是60后，从2003年出任海尔集团财务部长，也曾担任海尔集团财务公司总经理，熟悉财务线条的工作。
 
-竞争对手迅速调整定价策略，部分航线的单程票价涨幅超过50%。
+2014年，海尔消金成立伊始，李占国便是管理层核心，一开始担任副董事长职务，到2020年正式成为董事长，至今已有6年时间。
 
-消费者权益组织呼吁交通部门加强监管，防止航空公司利用竞争对手停运的机会牟取暴利。
+他曾经一肩统筹公司经营、风控、渠道、资本全条线业务。
 
-精神航空表示正在与债权人谈判，争取恢复部分运营。
+2024 年6月，海尔消金原总经理离职后，李占国代为履行总经理职责近一年半时间，直至2025 年10 月，新任总经理周文龙才获批上岗。
 
-责任编辑：张俊 SF065
+周文龙出身银行系，曾是中原消金筹备组成员，实力亦不容小觑。
+
+李占国与周文龙搭档，能否实现1+1＞2的效果，市场仍在拭目以待。
+
+尤其是今年3月，海尔消金完成增资，注册资本金由20.9亿元增至约31.18亿元，资本实力大幅增强。
 
 ## 相关推荐
 
-- 2026-06-30 04:01 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 04:03 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 03:54 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 04:15 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 03:52 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 03:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-30 04:07 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 03:56 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 04:01 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 03:52 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 04:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 04:05 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 04:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 04:11 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 03:57 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 04:09 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 03:57 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 04:22 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 04:10 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 04:23 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 04:22 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 04:23 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 03:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:13 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/20764430669.shtml)
-- 2026-06-30 04:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/7182571.shtml)
-- 2026-06-30 04:09 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/305661504.shtml)
-- 2026-06-30 03:58 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/191766697111.shtml)
-- 2026-06-30 04:13 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/13176117.shtml)
-- 2026-06-30 03:55 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/9912225285.shtml)
-- 2026-06-30 03:50 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/7617877.shtml)
-- 2026-06-30 03:51 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/31566.shtml)
-- 2026-06-30 04:02 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/823478467851.shtml)
-- 2026-06-30 04:16 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/62733142.shtml)
-- 2026-06-30 03:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/936018442.shtml)
-- 2026-06-30 04:09 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/60044943.shtml)
-- 2026-06-30 03:55 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/452735.shtml)
-- 2026-06-30 04:15 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/3873816641.shtml)
-- 2026-06-30 04:08 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/7066519504.shtml)
+- 2026-06-30 03:54 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/36087920924.shtml)
+- 2026-06-30 04:01 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/45406167622.shtml)
+- 2026-06-30 04:12 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/013484562.shtml)
+- 2026-06-30 04:06 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/75309290093.shtml)
+- 2026-06-30 04:00 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/9457583171.shtml)
+- 2026-06-30 04:00 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/231465.shtml)
+- 2026-06-30 04:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/263643359094.shtml)
+- 2026-06-30 04:20 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/73740893933.shtml)
+- 2026-06-30 04:05 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/647283382.shtml)
+- 2026-06-30 04:21 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/0494269.shtml)
+- 2026-06-30 04:22 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/9096593.shtml)
+- 2026-06-30 04:22 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/0840648864.shtml)
+- 2026-06-30 04:17 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/2100968.shtml)
+- 2026-06-30 03:59 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/49083070.shtml)
+- 2026-06-30 04:12 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/0008551914.shtml)

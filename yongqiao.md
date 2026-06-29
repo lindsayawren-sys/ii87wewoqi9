@@ -1,56 +1,60 @@
-# “雪龙2”号极地科考船靠泊中国极地科考基地码头
+# 伊朗与阿曼将研究霍尔木兹海峡航行服务费用问题
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网上海5月18日电 (陈静 宫兴)18日，中国第42次南极考察队“雪龙2”号极地科考船缓缓靠泊在位于上海外高桥的中国极地科考基地码头。 上海边检总站外高桥边检站(下称：外高桥边检站)开启全流程通关保障，护航“雪龙2”号及人员高效通关、顺利抵沪。 据悉，中国第42次南极考察队“雪龙”号和“雪龙2”号于2025年11月1日从上海出发，“雪龙”号于2026年4月9日返回，“雪龙2
+伊朗和阿曼表示，双方将开始着手就霍尔木兹海峡的未来管理达成协议，其中包括管理通行的成本。目前，交易员和船东正担心未来可能引入收费机制。 根据两国发表的联合声明，作为波斯湾狭窄出口两侧的沿岸国家，伊朗和阿曼将就航运相关服务展开讨论，包括“与之相关的符合国际标准的费用”。双方还表示致力于确保霍尔木兹海峡安全，并保持国际航运畅通。 自本月早些时候与美国达成临时和平协议以来，伊朗一直寻
 
 ## 正文
 
-中新网上海5月18日电 (陈静 宫兴)18日，中国第42次南极考察队“雪龙2”号极地科考船缓缓靠泊在位于上海外高桥的中国极地科考基地码头。
+伊朗和阿曼表示，双方将开始着手就霍尔木兹海峡的未来管理达成协议，其中包括管理通行的成本。
 
-上海边检总站外高桥边检站(下称：外高桥边检站)开启全流程通关保障，护航“雪龙2”号及人员高效通关、顺利抵沪。
+目前，交易员和船东正担心未来可能引入收费机制。
 
-据悉，中国第42次南极考察队“雪龙”号和“雪龙2”号于2025年11月1日从上海出发，“雪龙”号于2026年4月9日返回，“雪龙2”号在南极普里兹湾执行“秋季南大洋生态系统”联合航次任务后返回上海。
+根据两国发表的联合声明，作为波斯湾狭窄出口两侧的沿岸国家，伊朗和阿曼将就航运相关服务展开讨论，包括“与之相关的符合国际标准的费用”。
 
-当天，外高桥边检站专项勤务组提前抵达码头，完成信息核对、通道规划、在港监护等准备工作。
+双方还表示致力于确保霍尔木兹海峡安全，并保持国际航运畅通。
 
-待“雪龙2”号靠泊后，民警第一时间登轮，在船上设立临时查验点，为40余名科考队员和船员“一站式”办结入境边检手续。
+自本月早些时候与美国达成临时和平协议以来，伊朗一直寻求确立对霍尔木兹海峡的控制。
 
-“以前要在窗口和码头之间来回跑，现在边检机关直接把查验窗口设在船舱，科考队员不用下船就轻松办理入境通关手续，省时又省力。
+伊朗上周表示，船只通过该水道需要获得伊方许可，并且需要强制性保险单。
 
-”船舶代理人缪志浩说。
+目前保单免费，但未来可能为征收相关费用铺平道路。
 
-外高桥边检站民警宋巍说，外高桥边检站多次保障极地科考船高效通关，总结提炼了“前置信息梳理、合理规划通道、暖心服务引导、靠前办理手续”全流程通关保障模式。
+一位高级官员当时表示，以英国为首的美国盟友正极力敦促特朗普政府不要接受或默认伊朗试图对通过霍尔木兹海峡船只收费的做法。
 
 ## 相关推荐
 
-- 2026-06-30 04:15 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 04:04 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 04:16 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 04:06 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 04:03 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 04:12 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 04:17 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 04:03 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 03:56 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 04:14 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 04:23 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 04:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 03:57 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 04:11 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 04:21 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 04:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 04:02 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 04:18 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 04:10 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 04:04 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 04:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 03:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 04:09 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 04:19 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:48 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/139368554.shtml)
-- 2026-06-30 03:54 - [恋与深空 日服](https://www.blog.minike.top/Article/details/080841.shtml)
-- 2026-06-30 04:06 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/987419828.shtml)
-- 2026-06-30 04:06 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/261444.shtml)
-- 2026-06-30 03:54 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/107467.shtml)
-- 2026-06-30 04:00 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/17774971325.shtml)
-- 2026-06-30 03:50 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/345261629.shtml)
-- 2026-06-30 04:05 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/496403.shtml)
-- 2026-06-30 04:08 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/682204825931.shtml)
-- 2026-06-30 04:09 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/85023469.shtml)
-- 2026-06-30 03:57 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/358023222.shtml)
-- 2026-06-30 04:12 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/706267806.shtml)
-- 2026-06-30 04:17 - [金刚川](https://www.share.kurohicncr.top/Article/details/40432.shtml)
-- 2026-06-30 03:55 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/717422942945.shtml)
-- 2026-06-30 04:05 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/27816422917.shtml)
+- 2026-06-30 04:01 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/73218.shtml)
+- 2026-06-30 04:13 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/72641651055.shtml)
+- 2026-06-30 04:19 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/183748099.shtml)
+- 2026-06-30 04:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/89588501.shtml)
+- 2026-06-30 04:08 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/0610462575.shtml)
+- 2026-06-30 03:57 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/27029.shtml)
+- 2026-06-30 04:12 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/302196616493.shtml)
+- 2026-06-30 04:02 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/502469.shtml)
+- 2026-06-30 03:58 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/9970270.shtml)
+- 2026-06-30 04:21 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/75413789061.shtml)
+- 2026-06-30 04:21 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/8149636648.shtml)
+- 2026-06-30 04:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/036249534.shtml)
+- 2026-06-30 04:03 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/27944964.shtml)
+- 2026-06-30 03:57 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/0648982983.shtml)
+- 2026-06-30 04:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/71092208474.shtml)

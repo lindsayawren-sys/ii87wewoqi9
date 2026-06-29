@@ -1,56 +1,58 @@
-# 古巴称美国捏造虚假文件 为制裁侵略寻找借口
+# 紫晶存储追偿案开庭 光大银行等5家银行涉嫌配合造假遭起诉
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网北京5月18日电 哈瓦那消息：当地时间5月17日，古巴外交部长罗德里格斯通过社交媒体发文，指责美国政府捏造虚假文件，为收紧对古制裁以及酝酿军事侵略寻找借口。 罗德里格斯表示，美国政府连日炮制虚假材料，妄图以此为其对古巴民众发起无情经济打压、乃至实施军事侵略的行径正名。他批评部分美国媒体跟风造势，大肆传播相关不实言论，同时强调古巴从不以战争威胁任何国家，也始终秉持避战立场。
+“紫晶存储财务造假追偿案近日开庭，光大银行、广州银行等5家银行涉嫌故意隐瞒资金受限的事实，配合上市公司提供虚假的银行函证回函被要求承担相应的赔偿责任。” 6月22日，备受关注的紫晶存储财务造假追偿案在上海金融法院开庭。 紫晶存储曾是“光存储第一股”，2020年2月登陆科创板，募资净额8.84亿元，市值一度超过160亿元。然而由于系统性财务造假，紫晶存储被强制退市，1.7万名投资
 
 ## 正文
 
-中新网北京5月18日电 哈瓦那消息：当地时间5月17日，古巴外交部长罗德里格斯通过社交媒体发文，指责美国政府捏造虚假文件，为收紧对古制裁以及酝酿军事侵略寻找借口。
+“紫晶存储财务造假追偿案近日开庭，光大银行、广州银行等5家银行涉嫌故意隐瞒资金受限的事实，配合上市公司提供虚假的银行函证回函被要求承担相应的赔偿责任。
 
-罗德里格斯表示，美国政府连日炮制虚假材料，妄图以此为其对古巴民众发起无情经济打压、乃至实施军事侵略的行径正名。
+” 6月22日，备受关注的紫晶存储财务造假追偿案在上海金融法院开庭。
 
-他批评部分美国媒体跟风造势，大肆传播相关不实言论，同时强调古巴从不以战争威胁任何国家，也始终秉持避战立场。
+紫晶存储曾是“光存储第一股”，2020年2月登陆科创板，募资净额8.84亿元，市值一度超过160亿元。
 
-古巴坚定维护和平，依照《联合国宪章》所承认的合法自卫权，已做好应对外部侵略的万全准备。
+然而由于系统性财务造假，紫晶存储被强制退市，1.7万名投资者损失将近11亿。
 
-美国阿克西奥斯新闻网站日前援引美方机密情报文件报道称，古巴军方在外方协助下购入三百余架军用无人机，近期还商议动用这批装备袭击关塔那摩美军基地、美军舰船以及美国佛罗里达州基韦斯特等地目标。
+中信建投证券等四家中介机构对投资者随时进行了先行赔付，随后在2024年6月，四家中介机构正式将48名责任主体诉至上海金融法院。
 
-另据美联社消息，一名美国高级官员透露，美方已将古巴视作安全威胁，这份所谓情报或将成为美国对古巴采取军事行动的借口。
+除紫晶存储自身及相关责任人外，上述4家机构认为，河南卢氏农村商业银行、光大银行珠海拱北支行、广州银行惠州仲恺支行、五华惠民村镇银行、广东五华农村商业银行五家银行明知紫晶存储或其子公司存在违规对外担保，但仍故意隐瞒资金受限的事实，配合上市公司提供虚假的银行函证回函或故意不配合回函，存在明显故意，应承担相应的赔偿责任。
 
-近期美方持续加码对古巴制裁，还多次放出对古动武言论，甚至扬言待美军结束中东相关战事回撤后，便着手对古巴采取强势行动。
+本案是国内证券虚假陈述责任纠纷领域，首次将多家涉嫌配合上市公司造假的商业银行列为共同被告，备受业内关注。
 
-(完)
+2022年3月，紫晶存储曾发布一则自查公告揭开巨额违规担保乱象。
 
 ## 相关推荐
 
-- 2026-06-30 04:17 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 04:00 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 04:12 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 03:54 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 03:58 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 04:08 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 04:16 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 04:09 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 04:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 04:01 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 04:04 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 03:57 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 04:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 04:22 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 04:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 04:17 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 04:21 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 04:11 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 04:16 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 04:12 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 04:15 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 04:11 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:03 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/559055.shtml)
-- 2026-06-30 04:12 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/412895405751.shtml)
-- 2026-06-30 04:13 - [恋与深空 巧合](https://www.share.minike.top/Article/details/09021.shtml)
-- 2026-06-30 03:54 - [毒液2](https://www.share.minike.top/Article/details/50241598.shtml)
-- 2026-06-30 04:11 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/3035208.shtml)
-- 2026-06-30 04:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/406004.shtml)
-- 2026-06-30 04:15 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/820977498.shtml)
-- 2026-06-30 04:03 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/160860203883.shtml)
-- 2026-06-30 03:55 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/16771.shtml)
-- 2026-06-30 03:50 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/3876944818.shtml)
-- 2026-06-30 03:49 - [巴西扳平比分](http://www.share.minike.top/Article/details/13451800731.shtml)
-- 2026-06-30 04:04 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/6031553273.shtml)
-- 2026-06-30 03:58 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/106444.shtml)
-- 2026-06-30 03:59 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/4662166822.shtml)
-- 2026-06-30 04:10 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/52505438.shtml)
+- 2026-06-30 04:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/0912994309.shtml)
+- 2026-06-30 04:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/27601.shtml)
+- 2026-06-30 03:58 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/93940871764.shtml)
+- 2026-06-30 04:03 - [天道](http://www.blog.minike.top/Article/details/08958.shtml)
+- 2026-06-30 04:23 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/35448.shtml)
+- 2026-06-30 04:08 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/908272.shtml)
+- 2026-06-30 04:13 - [斗破苍穹](https://www.blog.minike.top/Article/details/0367015.shtml)
+- 2026-06-30 04:13 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/99326.shtml)
+- 2026-06-30 04:21 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/3404402315.shtml)
+- 2026-06-30 03:59 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/480060.shtml)
+- 2026-06-30 04:23 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/391605503.shtml)
+- 2026-06-30 04:03 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/32614.shtml)
+- 2026-06-30 04:04 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/5139939.shtml)
+- 2026-06-30 04:09 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/45160832.shtml)
+- 2026-06-30 04:05 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/13085055642.shtml)

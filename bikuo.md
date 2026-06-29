@@ -1,49 +1,57 @@
-# 第三届“科研管理与创新发展”学术研讨会在杭州召开
+# “靠谱老王”已无人办公？实地探访：门紧闭，灯亮着，不见人，只留一地Babycare
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月17日 14:34 来源：中国新闻网 5月16日，第三届“科研管理与创新发展”学术研讨会在浙江杭州开幕。本次会议以“‘人工智能+’创新发展与治理”为主题，汇聚来自全国高校、科研院所的近三百位专家学者，共同探讨人工智能时代科研管理与创新发展的前沿议题。(孙琳茹 刘慧敏) 责任编辑：【刘湃】
+文 | 《BUG》栏目 徐苑蕾 纸尿裤“甲酰胺”争议经过多次反转，正陷入“罗生门”的境地。6月22日，市场监管总局发文，牵头成立联合调查组，核查“婴幼儿纸尿裤甲酰胺问题”。 这场风波的起点，是《经济参考报》刊发的一则报道称，一些婴幼儿在使用了部分品牌的纸尿裤后，反复出现红臀乃至皮肤破溃等现象，停用后症状明显缓解。该报道称，抽样检测结果显示，多个品牌产品检出毒性物质甲酰胺。 报道
 
 ## 正文
 
-发布时间：2026年05月17日 14:34 来源：中国新闻网 5月16日，第三届“科研管理与创新发展”学术研讨会在浙江杭州开幕。
+文 | 《BUG》栏目 徐苑蕾 纸尿裤“甲酰胺”争议经过多次反转，正陷入“罗生门”的境地。
 
-本次会议以“‘人工智能+’创新发展与治理”为主题，汇聚来自全国高校、科研院所的近三百位专家学者，共同探讨人工智能时代科研管理与创新发展的前沿议题。
+6月22日，市场监管总局发文，牵头成立联合调查组，核查“婴幼儿纸尿裤甲酰胺问题”。
 
-(孙琳茹 刘慧敏) 责任编辑：【刘湃】
+这场风波的起点，是《经济参考报》刊发的一则报道称，一些婴幼儿在使用了部分品牌的纸尿裤后，反复出现红臀乃至皮肤破溃等现象，停用后症状明显缓解。
+
+该报道称，抽样检测结果显示，多个品牌产品检出毒性物质甲酰胺。
+
+报道发出后，一名叫“靠谱老王”（本名王东鉴）的博主被指牵涉其中。
+
+有传言称，报道中涉及的检测过程与“靠谱老王”所售卖的设备相关，其检测方法和动机遭到广泛质疑。
+
+“靠谱老王”到底是谁？
+
+舆论之下，它的公司还在正常运作吗？
 
 ## 相关推荐
 
-- 2026-06-30 04:00 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 03:51 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 04:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 04:05 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 03:54 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 03:51 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 04:11 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 04:14 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 03:54 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 04:16 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 04:07 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 04:07 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-30 04:05 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 04:15 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 04:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 04:09 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 03:55 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 04:15 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 04:22 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 04:03 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 04:02 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 04:10 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 04:20 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 03:57 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:58 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/7024221.shtml)
-- 2026-06-30 03:51 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/536579304631.shtml)
-- 2026-06-30 03:54 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/747733.shtml)
-- 2026-06-30 04:04 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/07855913365.shtml)
-- 2026-06-30 03:49 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/03686281.shtml)
-- 2026-06-30 04:08 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/707200598.shtml)
-- 2026-06-30 04:11 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/23028588.shtml)
-- 2026-06-30 04:14 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/1193010142.shtml)
-- 2026-06-30 03:51 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/416422136.shtml)
-- 2026-06-30 04:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/297458294910.shtml)
-- 2026-06-30 03:53 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/3833870225.shtml)
-- 2026-06-30 04:10 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/9790977.shtml)
-- 2026-06-30 03:56 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/045011996.shtml)
-- 2026-06-30 03:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/633594204149.shtml)
-- 2026-06-30 03:52 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/61894.shtml)
+- 2026-06-30 04:21 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/0504835.shtml)
+- 2026-06-30 04:07 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/022368018224.shtml)
+- 2026-06-30 04:22 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/15575716.shtml)
+- 2026-06-30 04:01 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/977349617.shtml)
+- 2026-06-30 04:11 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/847760.shtml)
+- 2026-06-30 04:20 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/570520227705.shtml)
+- 2026-06-30 04:21 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/795385023516.shtml)
+- 2026-06-30 04:10 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/839216559.shtml)
+- 2026-06-30 04:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/91830848117.shtml)
+- 2026-06-30 04:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/524133181.shtml)
+- 2026-06-30 04:21 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/316527.shtml)
+- 2026-06-30 04:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/413499689.shtml)
+- 2026-06-30 04:12 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/727897925.shtml)
+- 2026-06-30 03:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/753173.shtml)
+- 2026-06-30 04:22 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/49544055895.shtml)

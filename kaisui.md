@@ -1,59 +1,59 @@
-# 印度限金令催生恐慌性抢购潮，高盛：年底金价仍看至5400美元
+# 600421，终止上市！
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-来源：华尔街见闻 越限制，越抢购。 据印度《经济时报》最新报道，印度政府近期出台一系列黄金进口限制措施，不仅未能压制需求，反而在全国各地引发婚嫁珠宝的恐慌性抢购。与此同时，高盛贵金属分析师Lina Thomas重申，黄金年底目标价维持5400美元/盎司不变。 事情的起因是印度卢比的急剧贬值。由于中东地区能源供应受到冲击，印度作为全球第三大石油进口国首当其冲，外汇大量流出，卢比跌
+登录新浪财经APP 搜索【信披】查看更多考评等级 又一家公司退市。 6月22日，退市华嵘（600421.SH）公告称，公司股票因2025年度净利润为负且营收低于3亿元，触及终止上市条件，上海证券交易所决定终止公司股票上市。退市整理期已于2026年6月22日结束，摘牌日为2026年6月26日。公司股票将转入全国中小企业股份转让系统挂牌转让，主办券商为华源证券股份有限公司。 今年4
 
 ## 正文
 
-来源：华尔街见闻 越限制，越抢购。
+登录新浪财经APP 搜索【信披】查看更多考评等级 又一家公司退市。
 
-据印度《经济时报》最新报道，印度政府近期出台一系列黄金进口限制措施，不仅未能压制需求，反而在全国各地引发婚嫁珠宝的恐慌性抢购。
+6月22日，退市华嵘（600421.SH）公告称，公司股票因2025年度净利润为负且营收低于3亿元，触及终止上市条件，上海证券交易所决定终止公司股票上市。
 
-与此同时，高盛贵金属分析师Lina Thomas重申，黄金年底目标价维持5400美元/盎司不变。
+退市整理期已于2026年6月22日结束，摘牌日为2026年6月26日。
 
-事情的起因是印度卢比的急剧贬值。
+公司股票将转入全国中小企业股份转让系统挂牌转让，主办券商为华源证券股份有限公司。
 
-由于中东地区能源供应受到冲击，印度作为全球第三大石油进口国首当其冲，外汇大量流出，卢比跌至历史低位，印度储备银行被迫入市抛售美元护盘。
+今年4月22日，退市华嵘披露业绩预告修正公告，决定调减报告期内工程及信息化业务收入。
 
-为进一步稳定汇率，莫迪政府先是呼吁民众减少购金和出境旅游，随后大幅上调黄金进口关税，几天后又直接限制黄金进口量，并警告正在研究更多紧急措施以保护外汇储备。
+修正后，预计2025年度净利润为-120万元至-180万元，扣非净利润-150万元至-220万元，预计2025年年度营业收入1.50亿元到1.65亿元，扣除后营业收入1.40亿元到1.50亿元。
 
-结果适得其反。
+此前的1月29日，退市华嵘曾披露《2025年年度业绩预盈公告》，预计2025年度实现归属于上市公司股东的净利润650万元至800万元，扣非净利润600万元至750万元，营业收入1.85亿元至1.95亿元。
 
-“两天涨了15%到20%”：抢购潮席卷印度全国 据印度《经济时报》报道，恐慌性购金浪潮已在印度全国蔓延。
+4月29日，公司披露的2025年年报确认了公司触发退市条件的事实。
 
 ## 相关推荐
 
-- 2026-06-30 03:58 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 04:04 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 03:57 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 03:59 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 03:56 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 03:52 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 03:53 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 03:54 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 03:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 04:08 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 04:12 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 04:16 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 03:56 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 04:21 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 03:54 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 04:05 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 04:09 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 04:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 04:06 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 04:15 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 04:00 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 03:57 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 04:11 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 04:23 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 04:07 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 04:06 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/630446328.shtml)
-- 2026-06-30 03:59 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/7176721906.shtml)
-- 2026-06-30 04:13 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/28761040.shtml)
-- 2026-06-30 03:57 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/722709661623.shtml)
-- 2026-06-30 04:12 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/237991.shtml)
-- 2026-06-30 03:58 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/094017688718.shtml)
-- 2026-06-30 04:04 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/695052099114.shtml)
-- 2026-06-30 04:14 - [爱很美味](http://www.blog.minike.top/Article/details/48784364711.shtml)
-- 2026-06-30 03:55 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/441801121182.shtml)
-- 2026-06-30 03:53 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/0969818661.shtml)
-- 2026-06-30 03:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/421549.shtml)
-- 2026-06-30 04:12 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/97855216.shtml)
-- 2026-06-30 03:49 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/01330366.shtml)
-- 2026-06-30 04:05 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/07603.shtml)
-- 2026-06-30 03:54 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/881749832.shtml)
+- 2026-06-30 03:54 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/18196.shtml)
+- 2026-06-30 03:56 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/699148200.shtml)
+- 2026-06-30 04:16 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/92680116.shtml)
+- 2026-06-30 04:18 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/822982080.shtml)
+- 2026-06-30 04:01 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/77267104.shtml)
+- 2026-06-30 04:06 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/84077967129.shtml)
+- 2026-06-30 04:23 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/95348461323.shtml)
+- 2026-06-30 04:06 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/52954.shtml)
+- 2026-06-30 04:23 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/15379586.shtml)
+- 2026-06-30 04:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/97167833527.shtml)
+- 2026-06-30 04:21 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/06056271362.shtml)
+- 2026-06-30 04:19 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/2449253805.shtml)
+- 2026-06-30 04:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/782983864.shtml)
+- 2026-06-30 04:22 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/0674804.shtml)
+- 2026-06-30 04:01 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/63603686.shtml)

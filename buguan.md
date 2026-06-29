@@ -1,56 +1,60 @@
-# 我国“逐日工程”研究取得重大进展 为太空筑起“无线充电站”奠定基础
+# 今年1-5月中国财政收入同比增长4%
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-新华社西安5月18日电(记者许祖华)记者18日从西安电子科技大学获悉，中国工程院院士段宝岩带领的“逐日工程”研究团队取得重大进展，突破了空间太阳能电站与微波无线传能的多项关键核心技术，自主研制了一对多动目标微波无线传能的空间太阳能电站地面验证系统，在百米级距离实现千瓦功率输出，推动了我国空间太阳能电站及微波无线传能技术迈向工程化应用。段宝岩说，建设空间太阳能电站好比是部署在太空
+中新社北京6月22日电 (记者 赵建华)中国财政部22日公布的数据显示，1-5月，全国一般公共预算收入100465亿元(人民币，下同)，同比增长4%。其中，全国税收收入82617亿元，同比增长4.4%；非税收入17848亿元，同比增长2.2%。财政部介绍，全国一般公共预算收入向好态势继续巩固，累计增幅持续提高。1-5月，全国一般公共预算收入同比增幅比1-4月提高0.5个百分点。
 
 ## 正文
 
-新华社西安5月18日电(记者许祖华)记者18日从西安电子科技大学获悉，中国工程院院士段宝岩带领的“逐日工程”研究团队取得重大进展，突破了空间太阳能电站与微波无线传能的多项关键核心技术，自主研制了一对多动目标微波无线传能的空间太阳能电站地面验证系统，在百米级距离实现千瓦功率输出，推动了我国空间太阳能电站及微波无线传能技术迈向工程化应用。
+中新社北京6月22日电 (记者 赵建华)中国财政部22日公布的数据显示，1-5月，全国一般公共预算收入100465亿元(人民币，下同)，同比增长4%。
 
-段宝岩说，建设空间太阳能电站好比是部署在太空预定轨道的空间微波充电桩，可打破传统卫星对自身太阳能帆板的单一依赖，利用先进的微波无线传能技术，在浩瀚太空中为卫星筑起“无线充电站”。
+其中，全国税收收入82617亿元，同比增长4.4%；非税收入17848亿元，同比增长2.2%。
 
-近年来，空间太阳能电站处于从理论探索迈向工程应用的关键阶段。
+财政部介绍，全国一般公共预算收入向好态势继续巩固，累计增幅持续提高。
 
-2014年，段宝岩院士团队提出了欧米伽创新设计方案并开展科研攻关。
+1-5月，全国一般公共预算收入同比增幅比1-4月提高0.5个百分点。
 
-2022年6月，牵头建成了世界首个全链路全系统空间太阳能电站地面验证系统。
+其中，全国税收收入8.26万亿元，增长4.4%，增幅比1-4月提高0.5个百分点。
 
-近期，这项研究又取得一系列新突破：团队从多学科交叉、多系统耦合与系统可靠性角度出发，提出了分布式欧米伽空间太阳能电站创新设计方案。
+分税种看，国内增值税增长6.2%，增幅连续4个月提高，主要受工业服务业持续增长、工业生产者出厂价格上行等带动；进口货物增值税、消费税增长10.4%，主要是外贸进口较快增长；企业所得税增长0.2%，累计增幅由负转正；出口货物退增值税、消费税1.13万亿元，增长4.3%，支持外贸出口增长；证券交易印花税增长88.8%，主要是股市成交金额增长。
 
-攻克了远距离、高功率、高效率一对多动目标微波无线传能技术，实现一套发射系统为多个移动目标供电，解决了多目标供电的精准控制问题，未来有望为多个太空飞行器或地面移动设备同时供电。
+全国一般公共预算支出继续保持增长，重点领域支出得到较好保障。
 
-测试数据显示，在百米级距离，直流-直流传输效率达20.8%、输出功率1180瓦、波束收集效率88.0%。
+1-5月，全国一般公共预算支出113877亿元，同比增长0.8%，支出规模为年初预算的37.9%，进度与前几年同期基本相当。
 
 ## 相关推荐
 
-- 2026-06-30 03:53 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 04:06 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 04:11 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 04:00 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 03:59 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 04:14 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 03:57 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 03:50 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 03:56 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 04:01 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 04:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 03:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 04:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 03:59 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 04:18 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 04:10 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 04:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 04:20 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 04:00 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 04:06 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 04:12 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 04:00 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 04:10 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 03:58 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:03 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/693583499.shtml)
-- 2026-06-30 04:11 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/981641691.shtml)
-- 2026-06-30 04:15 - [极限挑战第一季](https://www.blog.minike.top/Article/details/7156552074.shtml)
-- 2026-06-30 04:14 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/4484862529.shtml)
-- 2026-06-30 03:52 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/79381.shtml)
-- 2026-06-30 04:09 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/84444534.shtml)
-- 2026-06-30 03:59 - [周生如故](http://www.share.kurohicncr.top/Article/details/274960.shtml)
-- 2026-06-30 03:51 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/739836477749.shtml)
-- 2026-06-30 03:58 - [刘念回应](https://www.share.minike.top/Article/details/119770.shtml)
-- 2026-06-30 03:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/33267474654.shtml)
-- 2026-06-30 04:13 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/6419572.shtml)
-- 2026-06-30 03:52 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/07445427021.shtml)
-- 2026-06-30 03:50 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/34550807.shtml)
-- 2026-06-30 04:03 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/442972248070.shtml)
-- 2026-06-30 03:58 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/24917420.shtml)
+- 2026-06-30 04:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/10533924.shtml)
+- 2026-06-30 04:16 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/0000056822.shtml)
+- 2026-06-30 04:05 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/95009.shtml)
+- 2026-06-30 04:12 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/0507033.shtml)
+- 2026-06-30 03:55 - [沉睡花园](https://www.share.minike.top/Article/details/8756789254.shtml)
+- 2026-06-30 04:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/068338295.shtml)
+- 2026-06-30 04:15 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/464502.shtml)
+- 2026-06-30 04:12 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/2710848.shtml)
+- 2026-06-30 04:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/15594.shtml)
+- 2026-06-30 04:23 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/60141158341.shtml)
+- 2026-06-30 04:07 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/3865001194.shtml)
+- 2026-06-30 04:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/731475030.shtml)
+- 2026-06-30 04:19 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/216803633804.shtml)
+- 2026-06-30 04:16 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/82860.shtml)
+- 2026-06-30 04:09 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/448682.shtml)

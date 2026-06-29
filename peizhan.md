@@ -1,61 +1,56 @@
-# 瑞士一季度经济增速加快
+# 日本散户投资者押注政府能够支撑日元 平均持仓已转为净多头
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-瑞士政府周一公布数据称，2026年第一季度瑞士经济环比增长0.5%，增速较去年年底有所加快，同时政府提示，中东局势冲突推高能源价格带来的影响，或将在后续季度进一步显现。 瑞士联邦经济事务总局表示，这份国内生产总值初值显示，该国工业与服务业板块均实现经济扩张。 该季度增速不仅高于上一季度0.2%的环比增幅，也超出瑞士0.4%的季度环比平均增速。本次数据已完成季节性调整，同时剔除了
+日本庞大的散户外汇交易员听从政府的警告，停止押注日元贬值，这与押注日元进一步走弱的专业投资者形成分歧。据彭博新闻社对日本金融期货协会和东京金融交易所数据的分析，个人投资者对日元的平均持仓估计已转为净多头头寸约5000亿日元（31亿美元）。相比之下，4月底时日元的空头头寸为2.33万亿日元，为2020年底以来的最高水平。6月22日，日元兑美元汇率一度跌至161.93，低于4月下旬
 
 ## 正文
 
-瑞士政府周一公布数据称，2026年第一季度瑞士经济环比增长0.5%，增速较去年年底有所加快，同时政府提示，中东局势冲突推高能源价格带来的影响，或将在后续季度进一步显现。
+日本庞大的散户外汇交易员听从政府的警告，停止押注日元贬值，这与押注日元进一步走弱的专业投资者形成分歧。
 
-瑞士联邦经济事务总局表示，这份国内生产总值初值显示，该国工业与服务业板块均实现经济扩张。
+据彭博新闻社对日本金融期货协会和东京金融交易所数据的分析，个人投资者对日元的平均持仓估计已转为净多头头寸约5000亿日元（31亿美元）。
 
-该季度增速不仅高于上一季度0.2%的环比增幅，也超出瑞士0.4%的季度环比平均增速。
+相比之下，4月底时日元的空头头寸为2.33万亿日元，为2020年底以来的最高水平。
 
-本次数据已完成季节性调整，同时剔除了体育赛事带来的波动影响。
+6月22日，日元兑美元汇率一度跌至161.93，低于4月下旬日本财务省入市干预支持日元时的水平，增加了再次干预的风险。
 
-瑞士联邦经济事务总局将于6月1日发布一季度更为详尽的GDP数据。
+尽管日本央行加息，日元仍面临持续压力，投资者认为央行行动过于迟缓，未能有效缩小该国与其他主要经济体之间的利率差距。
 
-该局表示，年初美国下调关税利好出口增长，成为拉动瑞士一季度经济上行的主要动力。
+IG Securities Ltd.的高级市场分析师Junichi Ishikawa观察到了散户仓位的变化。
 
-经济学家菲利普・韦格米勒称，此次经济增速符合市场预期。
+他表示，“我们的数据显示，买卖双方的持仓大致平衡。
 
-他还提到，官方预测瑞士2026年全年经济增速为1.0%，低于该国1.8%的长期年均增长水平。
+”相比之下，据美国商品期货交易委员会截至6月16日当周的最新数据，杠杆基金和资产管理公司合计持有的日元净空头头寸创2024年7月9日以来最大规模。
 
 ## 相关推荐
 
-- 2026-06-30 03:53 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 04:10 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 04:01 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 03:50 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 03:48 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 03:48 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 04:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 04:01 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 04:03 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 04:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 03:57 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 03:50 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 04:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 04:10 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 03:49 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 04:00 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 04:22 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 04:06 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 04:13 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 04:10 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 04:00 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 04:23 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 03:57 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-30 04:21 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 03:56 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:50 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/65859.shtml)
-- 2026-06-30 03:53 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/50478.shtml)
-- 2026-06-30 04:09 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/96914.shtml)
-- 2026-06-30 04:06 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/891532.shtml)
-- 2026-06-30 04:07 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/5592803086.shtml)
-- 2026-06-30 04:14 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/2767346628.shtml)
-- 2026-06-30 03:57 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/840635065441.shtml)
-- 2026-06-30 04:04 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/5349672.shtml)
-- 2026-06-30 04:09 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/728754.shtml)
-- 2026-06-30 04:03 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/783862.shtml)
-- 2026-06-30 03:59 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/974271.shtml)
-- 2026-06-30 04:03 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/68954157.shtml)
-- 2026-06-30 03:58 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/37335.shtml)
-- 2026-06-30 04:02 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/098035985958.shtml)
-- 2026-06-30 04:01 - [天道](http://www.share.minike.top/Article/details/054349873491.shtml)
+- 2026-06-30 04:17 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/59625008.shtml)
+- 2026-06-30 03:57 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/4170723.shtml)
+- 2026-06-30 03:54 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/45300.shtml)
+- 2026-06-30 04:14 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/7595481534.shtml)
+- 2026-06-30 04:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/5792335.shtml)
+- 2026-06-30 04:22 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/2067243826.shtml)
+- 2026-06-30 04:16 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/37992.shtml)
+- 2026-06-30 04:09 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/84771267942.shtml)
+- 2026-06-30 04:00 - [金刚川](https://www.blog.minike.top/Article/details/682359.shtml)
+- 2026-06-30 03:58 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/20907572099.shtml)
+- 2026-06-30 04:15 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/87667247.shtml)
+- 2026-06-30 04:22 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/42168565035.shtml)
+- 2026-06-30 04:07 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/5318766.shtml)
+- 2026-06-30 04:23 - [急先锋](http://www.share.minike.top/Article/details/495484039.shtml)
+- 2026-06-30 04:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/3263880703.shtml)

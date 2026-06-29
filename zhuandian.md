@@ -1,53 +1,53 @@
-# 江苏：大力创新民营经济保险服务
+# 端午节期间云南各口岸共25.14万人次出入境
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-5月18日金融一线消息，江苏金融监管局印发《江苏金融业支持民营经济高质量发展十六条措施》，其中提到，大力创新民营经济保险服务，各保险机构要根据民营经济主体特点，积极创设适配保险产品，合理简化理赔手续，满足其风险保障需求。发挥政策性科技保险共保体作用，为民营企业科技研发活动提供保险保障。用好小微企业统保平台，推广跨境电商、海外仓等专属保险产品，拓展出口信用保险产业链承保。责任编辑
+中新网昆明6月23日电 (记者 韩帅南)记者23日从云南出入境边防检查总站(下称“云南边检总站”)获悉，今年端午节假期(6月19日至21日)，共25.14万人次中外人员从云南各口岸出入境，日均8.38万人次，同比增长16.49%；其中，外国人入出境13.06万人次，同比增长10.11%；单日出入境通关最高峰出现在6月21日，达8.53万人次。云南省地处中国西南边陲，与缅甸、老挝
 
 ## 正文
 
-5月18日金融一线消息，江苏金融监管局印发《江苏金融业支持民营经济高质量发展十六条措施》，其中提到，大力创新民营经济保险服务，各保险机构要根据民营经济主体特点，积极创设适配保险产品，合理简化理赔手续，满足其风险保障需求。
+中新网昆明6月23日电 (记者 韩帅南)记者23日从云南出入境边防检查总站(下称“云南边检总站”)获悉，今年端午节假期(6月19日至21日)，共25.14万人次中外人员从云南各口岸出入境，日均8.38万人次，同比增长16.49%；其中，外国人入出境13.06万人次，同比增长10.11%；单日出入境通关最高峰出现在6月21日，达8.53万人次。
 
-发挥政策性科技保险共保体作用，为民营企业科技研发活动提供保险保障。
+云南省地处中国西南边陲，与缅甸、老挝、越南接壤，毗邻南亚东南亚，边境线长达4000多公里，有对外开放口岸29个。
 
-用好小微企业统保平台，推广跨境电商、海外仓等专属保险产品，拓展出口信用保险产业链承保。
+假期期间，云南边检总站在各口岸共查验出入境交通运输工具2.52万架(艘、列、辆)次，同比增长15.59%。
 
-责任编辑：王馨茹
+假日期间，云南边检总站加强节日期间出入境流量监测，及时发布口岸出入境客流高峰预警，提示引导广大出入境人员合理安排行程。
+
+同时科学组织勤务，开足查验通道，增设现场引导岗位，进一步提升通关便利化水平。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 04:13 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-30 04:16 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 04:11 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 04:14 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 04:13 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 03:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 03:57 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 04:08 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 04:08 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 03:51 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 04:03 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 03:55 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 04:00 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 03:53 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 04:06 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 04:16 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 04:22 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 04:02 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-30 03:59 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 04:12 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 03:58 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 04:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 04:07 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 04:16 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 03:56 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/6989817.shtml)
-- 2026-06-30 04:02 - [千香](https://www.share.minike.top/Article/details/5137805406.shtml)
-- 2026-06-30 04:09 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/967538339598.shtml)
-- 2026-06-30 04:07 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/494661.shtml)
-- 2026-06-30 04:02 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/634093580764.shtml)
-- 2026-06-30 03:49 - [日本反击率先破门](http://www.share.minike.top/Article/details/550874.shtml)
-- 2026-06-30 03:57 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/76043669993.shtml)
-- 2026-06-30 03:56 - [TOP Prada](https://www.share.minike.top/Article/details/189378898697.shtml)
-- 2026-06-30 04:02 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/4756026400.shtml)
-- 2026-06-30 04:10 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/326524427.shtml)
-- 2026-06-30 04:11 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/104842456.shtml)
-- 2026-06-30 04:07 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/918038.shtml)
-- 2026-06-30 04:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/763207807669.shtml)
-- 2026-06-30 04:11 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/718751.shtml)
-- 2026-06-30 04:14 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/327782.shtml)
+- 2026-06-30 04:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/79048284686.shtml)
+- 2026-06-30 04:06 - [第一炉香](https://www.blog.minike.top/Article/details/5707256326.shtml)
+- 2026-06-30 04:24 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/40344.shtml)
+- 2026-06-30 04:06 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/169895021321.shtml)
+- 2026-06-30 04:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/08224.shtml)
+- 2026-06-30 04:20 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/99888509.shtml)
+- 2026-06-30 03:57 - [金刚川](http://www.share.minike.top/Article/details/767833.shtml)
+- 2026-06-30 04:00 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/719141.shtml)
+- 2026-06-30 04:01 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/96057.shtml)
+- 2026-06-30 03:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/73314860.shtml)
+- 2026-06-30 04:05 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/772341.shtml)
+- 2026-06-30 04:11 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/05288.shtml)
+- 2026-06-30 04:11 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/97879598372.shtml)
+- 2026-06-30 03:58 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/77203880487.shtml)
+- 2026-06-30 04:14 - [请回答王牌2019](https://www.blog.minike.top/Article/details/1491896765.shtml)

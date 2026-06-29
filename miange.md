@@ -1,60 +1,58 @@
-# 外交部：“倚外谋独”“以武谋独”最终只是痴心妄想
+# 政策发力，但猪价拐点难现？
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。 有记者提问：据报道，5月17日晚，赖清德在社交媒体发文，回应美国总统特朗普在结束访华后有关美国不支持台湾走向“独立”的表态，赖妄称“台湾是台海及区域和平稳定现状的‘维护者’”，“中华民国台湾是一个主权独立的民主国家”，“没有‘台独’问题”。中方对此有何评论？ 郭嘉昆：赖清德此番表演欲盖弥
+作者：侯晓瑞/F3044447、Z0015326/一德期货生鲜畜牧分析师 要点速览版 当前格局 近月：受“短期促出清”政策压制，操作上以震荡偏空思路为主； 远月：虽有去产能预期支撑，但当前盘面升水已偏高，做多性价比不高。 关键指标 能繁母猪去化：月度去化持续维持在1%以上，是判断产能实质性收缩的核心指标； 出栏均重变化：有效跌破123公斤关口，标志着前期积压库存是否消化完毕；
 
 ## 正文
 
-中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。
+作者：侯晓瑞/F3044447、Z0015326/一德期货生鲜畜牧分析师 要点速览版 当前格局 近月：受“短期促出清”政策压制，操作上以震荡偏空思路为主； 远月：虽有去产能预期支撑，但当前盘面升水已偏高，做多性价比不高。
 
-有记者提问：据报道，5月17日晚，赖清德在社交媒体发文，回应美国总统特朗普在结束访华后有关美国不支持台湾走向“独立”的表态，赖妄称“台湾是台海及区域和平稳定现状的‘维护者’”，“中华民国台湾是一个主权独立的民主国家”，“没有‘台独’问题”。
+关键指标 能繁母猪去化：月度去化持续维持在1%以上，是判断产能实质性收缩的核心指标； 出栏均重变化：有效跌破123公斤关口，标志着前期积压库存是否消化完毕； 各地政策执行情况：产能调控细则的落地力度，将决定供给压力的释放节奏。
 
-中方对此有何评论？
+本轮生猪下行周期自2022年启动，至今已连续下跌超40个月，底部震荡时长突破行业历史纪录。
 
-郭嘉昆：赖清德此番表演欲盖弥彰，再次暴露其顽固坚持推行“台独”分裂的本质和意图。
+此次端午备货虽带来小幅回升，但就目前行业表现来看，生猪市场的核心逻辑依旧是持续磨底。
 
-世界上只有一个中国，台湾从来不是一个国家，过去不是，今后更加绝无可能。
+尽管政策组合拳正加速产能出清，但短期内仍难见趋势性拐点。
 
-大陆和台湾同属一个中国。
+供应端 总量高位+体重偏高+补栏低迷 6月重点省份养殖企业计划出栏量环比仅微降，日均供给压力不减。
 
-这是台海真正的现状。
+出栏均重虽呈缓慢下降趋势，但仍维持在123公斤左右的偏高位置。
 
-赖清德当局不断勾连外部势力谋“独”挑衅，企图推动台湾问题“国际化”，是台海现状的最大破坏者，是台海和平稳定的最大乱源。
+前期压栏及二次育肥形成的大体重猪源仍在集中释放，尤其是散户手中150-170公斤乃至200公斤以上的超大猪源正陆续出栏，变相放大了市场的实际猪肉供给量。
 
 ## 相关推荐
 
-- 2026-06-30 03:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 03:53 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 04:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 03:54 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 04:14 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 04:01 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 03:57 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 03:49 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 04:07 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-30 03:53 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 04:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 04:11 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 03:54 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 03:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 03:55 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 03:56 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 04:08 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 04:14 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 04:17 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 04:16 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 04:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 03:55 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 03:58 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 04:09 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 04:17 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 03:54 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:14 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/21582312301.shtml)
-- 2026-06-30 03:57 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/76493238339.shtml)
-- 2026-06-30 04:14 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/7723069.shtml)
-- 2026-06-30 04:09 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/563626779249.shtml)
-- 2026-06-30 04:06 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/72957526457.shtml)
-- 2026-06-30 04:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/44586531688.shtml)
-- 2026-06-30 03:55 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/68739682849.shtml)
-- 2026-06-30 03:58 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/46131766433.shtml)
-- 2026-06-30 03:53 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/70497.shtml)
-- 2026-06-30 03:51 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/020321.shtml)
-- 2026-06-30 04:11 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/3579706.shtml)
-- 2026-06-30 03:48 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/0994056568.shtml)
-- 2026-06-30 03:58 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/83314263739.shtml)
-- 2026-06-30 03:48 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/3608315858.shtml)
-- 2026-06-30 03:57 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/08252849597.shtml)
+- 2026-06-30 04:08 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/34232038936.shtml)
+- 2026-06-30 04:23 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/141869.shtml)
+- 2026-06-30 04:21 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/49917.shtml)
+- 2026-06-30 03:57 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/9259126.shtml)
+- 2026-06-30 04:21 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/84701382881.shtml)
+- 2026-06-30 04:14 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/9717117.shtml)
+- 2026-06-30 03:55 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/54124042518.shtml)
+- 2026-06-30 04:06 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/715469170.shtml)
+- 2026-06-30 03:56 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/4159508.shtml)
+- 2026-06-30 03:58 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/800661.shtml)
+- 2026-06-30 04:05 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/40520071858.shtml)
+- 2026-06-30 03:58 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/05643068897.shtml)
+- 2026-06-30 03:55 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/217787715830.shtml)
+- 2026-06-30 04:23 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/58136940420.shtml)
+- 2026-06-30 04:15 - [天道](http://www.share.kurohicncr.top/Article/details/4785990827.shtml)

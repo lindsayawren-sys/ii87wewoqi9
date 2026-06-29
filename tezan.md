@@ -1,42 +1,60 @@
-# 美总统说极端组织二号头目被打死
+# 国金证券：长效AD产品价值进一步获得MNC验证 维持康诺亚-B“买入”评级
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月16日 20:13 来源：央视新闻 责任编辑：【王祎】
+国金证券发布研报称，2026年6月22日，艾伯维宣布拟以约109亿美金收购Apogee公司，其核心产品为长效IL-13单抗APG777，该交易预计于2026Q3完成。康诺亚同赛道药物CM512有望支持3-6个月给药间隔，目前正开展AD、COPD等多适应症II期。该行预测公司2026-2028年收入分别为28.71/20.64/29.94亿元，同比+300.8%/-28.1%/+
 
 ## 正文
 
-发布时间：2026年05月16日 20:13 来源：央视新闻 责任编辑：【王祎】
+国金证券发布研报称，2026年6月22日，艾伯维宣布拟以约109亿美金收购Apogee公司，其核心产品为长效IL-13单抗APG777，该交易预计于2026Q3完成。
+
+康诺亚同赛道药物CM512有望支持3-6个月给药间隔，目前正开展AD、COPD等多适应症II期。
+
+该行预测公司2026-2028年收入分别为28.71/20.64/29.94亿元，同比+300.8%/-28.1%/+45.0%；净利润10.98/-5.01/3.44亿元，对应EPS分别为3.67/-1.68/1.15元，维持“买入”评级。
+
+国金证券主要观点如下： 事件分析 Apogee核心管线为长效IL-13单抗APG777，给药间隔可超延长至3-6个月。
+
+APG777目前针对2型炎症反应积极探索特异性皮炎AD、哮喘和嗜酸性食管炎三大适应症，进度最快的AD正处于临床II期阶段，计划于26H2启动III期临床。
+
+APG777核心亮点为其给药间隔可以拉长，且能维持较好的疗效，其于2026年6月披露了最新的II期Part-B数据，诱导期给药间隔为：W02针，W22针，W41针，W121针后3个月/6个月给药。
+
+16周数据显示，中剂量组在EASI-75相对安慰剂提升约41.9%，EASI-90提升约37.8%。
+
+相较于Dupixent的36.8%和25.8%非头对头对比下更优。
 
 ## 相关推荐
 
-- 2026-06-30 03:55 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 03:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 04:10 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 04:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 04:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 03:55 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 04:01 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 03:53 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-30 04:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 03:52 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 04:17 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 03:56 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 04:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 04:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 04:06 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 04:14 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 03:59 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 04:02 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 04:11 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 04:11 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 04:06 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 04:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 04:08 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 04:08 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/491494527.shtml)
-- 2026-06-30 04:04 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/15486.shtml)
-- 2026-06-30 04:10 - [日本16强魔咒](https://www.blog.minike.top/Article/details/5698583261.shtml)
-- 2026-06-30 03:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/44456.shtml)
-- 2026-06-30 04:01 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/326673369.shtml)
-- 2026-06-30 04:17 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/25902680376.shtml)
-- 2026-06-30 03:52 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/605595.shtml)
-- 2026-06-30 04:06 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/597569.shtml)
-- 2026-06-30 04:02 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/371773447149.shtml)
-- 2026-06-30 04:13 - [沙丘](http://www.blog.minike.top/Article/details/245254429814.shtml)
-- 2026-06-30 03:49 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/3483335306.shtml)
-- 2026-06-30 03:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/67748767.shtml)
-- 2026-06-30 04:01 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/79605699568.shtml)
-- 2026-06-30 04:01 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/5759808084.shtml)
-- 2026-06-30 04:01 - [周生如故](http://www.blog.kurohicncr.top/Article/details/21178493.shtml)
+- 2026-06-30 03:56 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/3646514.shtml)
+- 2026-06-30 04:02 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/97232.shtml)
+- 2026-06-30 04:01 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/090396.shtml)
+- 2026-06-30 04:19 - [千与千寻](https://www.share.minike.top/Article/details/92660.shtml)
+- 2026-06-30 03:57 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/487839573.shtml)
+- 2026-06-30 03:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/627148.shtml)
+- 2026-06-30 04:22 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/3579175.shtml)
+- 2026-06-30 04:18 - [一见倾心](https://www.share.kurohicncr.top/Article/details/597393766.shtml)
+- 2026-06-30 04:12 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/44126603699.shtml)
+- 2026-06-30 04:18 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/6068213618.shtml)
+- 2026-06-30 04:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/19669495.shtml)
+- 2026-06-30 03:54 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/2292741468.shtml)
+- 2026-06-30 04:10 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/2027446.shtml)
+- 2026-06-30 03:57 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/3036987.shtml)
+- 2026-06-30 04:22 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/0537514796.shtml)

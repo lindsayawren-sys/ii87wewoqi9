@@ -1,49 +1,57 @@
-# 视频|李楠：全球贸易仍有韧性，南南贸易增长8%
+# 民生等十余家银行出手：沉睡借记卡将被清理
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月18日至19日，由清华大学主办、清华大学五道口金融学院承办的“2026清华五道口全球金融论坛”在成都举行。18日，在“全球变局下的国际贸易投资重构与展望”主题论坛上，联合国贸发会议投资与企业司司长、联合国可持续证券交易所倡议主席李楠表示：全球贸易体制仍具韧性，全球贸易仍在增长，其中，南南贸易增长8%。责任编
+21世纪经济报道记者 余纪昕 银行正加速清理沉睡账户。 6月16日，民生银行发布《关于清理个人长期未领用借记卡卡片的公告》（下称公告），明确为促进借记卡资源合理使用并确保卡片安全，将自2026年7月1日起，对已核发但超6个自然月未在指定网点领取的实物卡片介质分批开展安全清理。 公告同步提示，本次清理仅针对实体卡介质，对应账户本身不受影响；后续如仍需实体卡，可持本人有效身份证件到
 
 ## 正文
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月18日至19日，由清华大学主办、清华大学五道口金融学院承办的“2026清华五道口全球金融论坛”在成都举行。
+21世纪经济报道记者 余纪昕 银行正加速清理沉睡账户。
 
-18日，在“全球变局下的国际贸易投资重构与展望”主题论坛上，联合国贸发会议投资与企业司司长、联合国可持续证券交易所倡议主席李楠表示：全球贸易体制仍具韧性，全球贸易仍在增长，其中，南南贸易增长8%。
+6月16日，民生银行发布《关于清理个人长期未领用借记卡卡片的公告》（下称公告），明确为促进借记卡资源合理使用并确保卡片安全，将自2026年7月1日起，对已核发但超6个自然月未在指定网点领取的实物卡片介质分批开展安全清理。
 
-责任编辑：王馨茹
+公告同步提示，本次清理仅针对实体卡介质，对应账户本身不受影响；后续如仍需实体卡，可持本人有效身份证件到任意网点免费补制新卡。
+
+21世纪经济报道记者梳理发现，2026年以来，已有包括民生银行、平安银行、江苏银行、青海银行等在内的十余家银行相继发布长期不动户或闲置借记卡清理公告。
+
+节奏上，清理动作已从过去零散提示式通知升级为多批次、跨机构的“清理潮”，且多家机构将“后续每年持续清理、定期规范”写进公告。
+
+整体来看，相关管控或正在被纳入银行账户全生命周期管理的年度例行工作。
+
+清理口径更细 本轮清理时间线自3月中下旬起。
+
+地方中小银行率先启动，区分对象的口径相对细致。
 
 ## 相关推荐
 
-- 2026-06-30 04:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 04:03 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 04:06 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 04:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 04:00 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 03:59 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 04:05 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 04:14 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 04:12 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 03:59 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-30 04:11 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 04:17 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 04:06 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-30 04:23 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 03:57 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 04:18 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 04:17 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 04:04 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 04:21 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 04:19 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 04:01 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 04:04 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 04:19 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 04:22 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:12 - [田曦薇没招了](https://www.share.minike.top/Article/details/1860346.shtml)
-- 2026-06-30 04:10 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/783019274235.shtml)
-- 2026-06-30 03:50 - [乔家的儿女](https://www.blog.minike.top/Article/details/7415573.shtml)
-- 2026-06-30 03:57 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/7984993.shtml)
-- 2026-06-30 03:58 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/1077149.shtml)
-- 2026-06-30 04:14 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/1020240.shtml)
-- 2026-06-30 04:14 - [起风了](https://www.share.minike.top/Article/details/071020460314.shtml)
-- 2026-06-30 04:12 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/537888778392.shtml)
-- 2026-06-30 03:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/070385210.shtml)
-- 2026-06-30 04:07 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/161257780027.shtml)
-- 2026-06-30 03:55 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/9565127.shtml)
-- 2026-06-30 04:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/73272799.shtml)
-- 2026-06-30 04:00 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/748825386.shtml)
-- 2026-06-30 03:51 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/296433.shtml)
-- 2026-06-30 03:54 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/77359122152.shtml)
+- 2026-06-30 04:12 - [周生如故](http://www.share.kurohicncr.top/Article/details/328016.shtml)
+- 2026-06-30 04:13 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/8967207.shtml)
+- 2026-06-30 04:04 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/1388339504.shtml)
+- 2026-06-30 03:57 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/851134.shtml)
+- 2026-06-30 03:59 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/832537936275.shtml)
+- 2026-06-30 04:03 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/9153990286.shtml)
+- 2026-06-30 03:59 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/73065741153.shtml)
+- 2026-06-30 04:20 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/384056.shtml)
+- 2026-06-30 04:23 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/4078794.shtml)
+- 2026-06-30 03:54 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/761877.shtml)
+- 2026-06-30 04:13 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/482074481026.shtml)
+- 2026-06-30 03:55 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/6570479.shtml)
+- 2026-06-30 04:20 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/53090429397.shtml)
+- 2026-06-30 04:18 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/335395038670.shtml)
+- 2026-06-30 04:05 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/428492204.shtml)

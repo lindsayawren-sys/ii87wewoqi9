@@ -1,58 +1,58 @@
-# 流量难越税法红线，新业态当守纳税本分
+# 平陆运河航线船员签注工作启动
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-瞿周 近日，北京税务部门查处“百万学员”知识主播王仲焘偷税案。经查，2020年至2023年，其售卖线上创业课程期间，通过隐匿收入、转换收入性质、虚假申报等手段偷逃税费119.61万元。税务部门依法对其追缴税款、加收滞纳金并处罚款合计231.6万元，目前全部款项已足额入库。 近年来，知识付费乘着数字经济东风快速崛起，线上授课、IP孵化、技能培训等业态打通知识变现通道，众多知识主播
+中新网南宁6月23日电(黄艳梅 莫卫华 郑清欣)6月22日，经交通运输部海事局授权，广西海事局公告新增“平陆运河航线”签注，并在广西交通职业技术学院同步启动师资培训与宣贯活动，标志着服务运河通航的船员资质保障工作开始实施。 根据公告，“平陆运河航线”具体覆盖范围为：由南宁横州市西津库区平塘江口经钦州灵山县陆屋镇、钦江干流、茅尾海至钦州港。平陆运河全长约134.2公里，沿线设有三
 
 ## 正文
 
-瞿周 近日，北京税务部门查处“百万学员”知识主播王仲焘偷税案。
+中新网南宁6月23日电(黄艳梅 莫卫华 郑清欣)6月22日，经交通运输部海事局授权，广西海事局公告新增“平陆运河航线”签注，并在广西交通职业技术学院同步启动师资培训与宣贯活动，标志着服务运河通航的船员资质保障工作开始实施。
 
-经查，2020年至2023年，其售卖线上创业课程期间，通过隐匿收入、转换收入性质、虚假申报等手段偷逃税费119.61万元。
+根据公告，“平陆运河航线”具体覆盖范围为：由南宁横州市西津库区平塘江口经钦州灵山县陆屋镇、钦江干流、茅尾海至钦州港。
 
-税务部门依法对其追缴税款、加收滞纳金并处罚款合计231.6万元，目前全部款项已足额入库。
+平陆运河全长约134.2公里，沿线设有三座5000吨级船闸，涵盖连续弯道、狭窄航道、桥区水域及河海交汇区等复杂场景，通航风险较高。
 
-近年来，知识付费乘着数字经济东风快速崛起，线上授课、IP孵化、技能培训等业态打通知识变现通道，众多知识主播凭借专业内容积累大量粉丝、收获可观收益，成为新业态浪潮中的受益者。
+根据《中华人民共和国船员条例》，船员适任证书必须注明航区或航线，不得超范围任职。
 
-然而，一部分从业者却将流量红利异化为逃避责任的资本，把依法纳税的法定义务抛诸脑后。
+此前珠江水系航线名录未包含平陆运河，此次增设后，未取得平陆运河航线签注的船舶驾驶人员，不得在运河内航行。
 
-王仲焘坐拥百万学员、课程销量可观，却通过隐蔽手段偷逃税款，其行为并非个例，而是网红经济领域“赚大钱逃大税”乱象的缩影。
+目前，平陆运河航线签注的培训教材和考试题库已建成，系统调试完毕。
 
-从薇娅偷逃税被罚13.41亿元，到带货主播郭鑫鑫隐匿千万收入被查处，再到此次知识主播偷税案，一系列典型案例清晰勾勒出行业共性问题：一些网红主播一边享受新业态红利、公众信任与流量变现的便利，一边践踏税法底线，妄图规避纳税义务。
+6月22日起，海事部门将同步开放船员考试与签注申请。
 
-他们误以为新兴行业存在监管盲区，却忽视了税收公平是社会公平的重要基石——普通工薪阶层依规纳税，手握千万甚至上亿财富的网红主播却偷逃税款，不仅造成国家税款流失、扰乱税收征管秩序，更加剧社会分配不公，严重透支行业公信力。
+平陆运河自2022年8月开工建设，计划于今年9月正式通航。
 
 ## 相关推荐
 
-- 2026-06-30 04:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 03:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 03:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 03:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 03:48 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 04:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 04:09 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 04:12 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 03:56 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 03:54 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 04:15 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 04:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 03:54 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 03:54 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 04:20 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 04:13 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 04:19 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 04:17 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 04:02 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-30 04:06 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 04:08 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 04:17 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 04:20 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 04:07 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:03 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/345347661.shtml)
-- 2026-06-30 04:17 - [我觉得你是在无中生友](https://www.share.minike.top/Article/details/4641790935.shtml)
-- 2026-06-30 04:00 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/455018773908.shtml)
-- 2026-06-30 04:12 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/177368287610.shtml)
-- 2026-06-30 04:01 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/4637911.shtml)
-- 2026-06-30 04:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/119821659070.shtml)
-- 2026-06-30 03:50 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/85041983468.shtml)
-- 2026-06-30 04:00 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/474839710084.shtml)
-- 2026-06-30 04:12 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/92369328113.shtml)
-- 2026-06-30 04:03 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/535804179972.shtml)
-- 2026-06-30 04:01 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/164431.shtml)
-- 2026-06-30 03:51 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/628380.shtml)
-- 2026-06-30 04:01 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/7550099.shtml)
-- 2026-06-30 03:53 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/535701669975.shtml)
-- 2026-06-30 03:48 - [金刚川](http://www.share.minike.top/Article/details/17633235.shtml)
+- 2026-06-30 04:10 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/660161195969.shtml)
+- 2026-06-30 03:59 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/7944641131.shtml)
+- 2026-06-30 04:11 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/6336932023.shtml)
+- 2026-06-30 03:56 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/6077281634.shtml)
+- 2026-06-30 03:54 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/866472012.shtml)
+- 2026-06-30 04:05 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/6063354.shtml)
+- 2026-06-30 04:09 - [我和我的家乡](https://www.blog.minike.top/Article/details/75799658.shtml)
+- 2026-06-30 04:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/866753356.shtml)
+- 2026-06-30 04:06 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/663891.shtml)
+- 2026-06-30 04:10 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/424939656.shtml)
+- 2026-06-30 04:16 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/55693.shtml)
+- 2026-06-30 04:12 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/00055116.shtml)
+- 2026-06-30 03:56 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/7064184.shtml)
+- 2026-06-30 04:06 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/8555950.shtml)
+- 2026-06-30 03:54 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/063074284099.shtml)

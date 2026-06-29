@@ -1,57 +1,54 @@
-# 西藏居然有三家公募基金
+# 凯赛生物：公司将通过产品定价调整积极对冲原材料价格波动对盈利能力带来的负面影响
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-来源：小基慢跑 说起西藏，你可能想到的是布达拉宫、高原雪山、藏羚羊。但你大概想不到，这个常住人口只有三百多万的雪域高原，竟然藏着三家公募基金管理公司。 它们分别是：东财基金、泓德基金、惠升基金。 这三家公司有一个共同点：注册地都在拉萨市柳梧新区。但有趣的是，它们的管理团队和日常办公地，基本都在北上。 东财基金，前身叫“西藏东财基金管理有限公司”，2025年9月刚刚更名为“东财基
+证券日报网讯 6月22日，凯赛生物在互动平台回答投资者提问时表示，公司的主要产品系列生物法长链二元酸的主要原料为烷烃，生物基戊二胺的主要原料为生物质。其中，受行业整体形势影响，烷烃价格近期有所上涨。公司将通过产品定价调整积极对冲原材料价格波动对盈利能力带来的负面影响。布局生物基复材电池壳的凯酰时代项目以及和招商创科、合肥产投等合资的复材项目目前均已进入产线调试阶段。（文章来源：
 
 ## 正文
 
-来源：小基慢跑 说起西藏，你可能想到的是布达拉宫、高原雪山、藏羚羊。
+证券日报网讯 6月22日，凯赛生物在互动平台回答投资者提问时表示，公司的主要产品系列生物法长链二元酸的主要原料为烷烃，生物基戊二胺的主要原料为生物质。
 
-但你大概想不到，这个常住人口只有三百多万的雪域高原，竟然藏着三家公募基金管理公司。
+其中，受行业整体形势影响，烷烃价格近期有所上涨。
 
-它们分别是：东财基金、泓德基金、惠升基金。
+公司将通过产品定价调整积极对冲原材料价格波动对盈利能力带来的负面影响。
 
-这三家公司有一个共同点：注册地都在拉萨市柳梧新区。
+布局生物基复材电池壳的凯酰时代项目以及和招商创科、合肥产投等合资的复材项目目前均已进入产线调试阶段。
 
-但有趣的是，它们的管理团队和日常办公地，基本都在北上。
-
-东财基金，前身叫“西藏东财基金管理有限公司”，2025年9月刚刚更名为“东财基金管理有限公司”。
-
-它是东方财富证券100%出资设立的子公司，注册地在拉萨，但办公地在上海徐汇区。
-
-截至2026年5月，东财基金管理规模达到522.37亿元，旗下管理114只基金产品，有18名基金经理。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-30 03:57 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 04:05 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 03:56 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 04:03 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 03:58 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 03:49 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 04:08 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 04:09 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 03:48 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 04:11 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 04:16 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 04:18 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 03:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 04:21 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 03:54 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 04:23 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 04:02 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 03:56 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 04:10 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 04:14 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 04:11 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 03:59 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 04:18 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 04:03 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 04:12 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:48 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/13438558.shtml)
-- 2026-06-30 04:05 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/267622.shtml)
-- 2026-06-30 04:06 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/1388975.shtml)
-- 2026-06-30 03:57 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/59860066014.shtml)
-- 2026-06-30 04:01 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/06572234637.shtml)
-- 2026-06-30 04:01 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/857328826.shtml)
-- 2026-06-30 04:14 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/5417892423.shtml)
-- 2026-06-30 04:14 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/011692123.shtml)
-- 2026-06-30 03:59 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/147751759027.shtml)
-- 2026-06-30 03:53 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/76096402144.shtml)
-- 2026-06-30 04:09 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/949051.shtml)
-- 2026-06-30 03:59 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/253915029626.shtml)
-- 2026-06-30 04:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/60593730756.shtml)
-- 2026-06-30 03:54 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/449998596222.shtml)
-- 2026-06-30 04:00 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/40718356.shtml)
+- 2026-06-30 04:03 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/501771.shtml)
+- 2026-06-30 04:04 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/238833703159.shtml)
+- 2026-06-30 04:21 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.kurohicncr.top/Article/details/0180114568.shtml)
+- 2026-06-30 04:12 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/5310331.shtml)
+- 2026-06-30 04:12 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/180272.shtml)
+- 2026-06-30 03:58 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/2161206425.shtml)
+- 2026-06-30 03:58 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/979826.shtml)
+- 2026-06-30 04:08 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/6842222572.shtml)
+- 2026-06-30 04:15 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/182988.shtml)
+- 2026-06-30 04:10 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/27594.shtml)
+- 2026-06-30 04:09 - [啊啊啊](http://www.blog.minike.top/Article/details/246783.shtml)
+- 2026-06-30 04:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/2533323568.shtml)
+- 2026-06-30 04:22 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/85240.shtml)
+- 2026-06-30 04:13 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/902485641221.shtml)
+- 2026-06-30 03:55 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/706674413.shtml)

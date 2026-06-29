@@ -1,56 +1,45 @@
-# 广西启动自治区防汛四级应急响应
+# 张天荣获批出任贵州农商联合银行副行长
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月18日电 (林浩)5月18日，广西壮族自治区应急管理厅介绍，根据《广西防汛抗旱应急预案》有关规定，广西壮族自治区防汛抗旱指挥部决定于5月18日12时，启动自治区防汛四级应急响应。 5月14日以来，广西多地出现大雨到暴雨、局地大暴雨到特大暴雨。据预报，5月18日白天到21日，广西仍维持“面弱点强”的多雨天气，暴雨点分散、局地雨势强，桂北、桂东及沿海有中到大雨、局地有
+6月23日金融一线消息，国家金融监督管理总局贵州监管局发布批复，核准张天荣贵州农村商业联合银行股份有限公司副行长的任职资格。 责任编辑：秦艺
 
 ## 正文
 
-中新网南宁5月18日电 (林浩)5月18日，广西壮族自治区应急管理厅介绍，根据《广西防汛抗旱应急预案》有关规定，广西壮族自治区防汛抗旱指挥部决定于5月18日12时，启动自治区防汛四级应急响应。
+6月23日金融一线消息，国家金融监督管理总局贵州监管局发布批复，核准张天荣贵州农村商业联合银行股份有限公司副行长的任职资格。
 
-5月14日以来，广西多地出现大雨到暴雨、局地大暴雨到特大暴雨。
-
-据预报，5月18日白天到21日，广西仍维持“面弱点强”的多雨天气，暴雨点分散、局地雨势强，桂北、桂东及沿海有中到大雨、局地有暴雨或大暴雨并伴短时雷暴大风等强对流天气。
-
-广西壮族自治区防汛抗旱指挥部提醒各单位高度重视，树牢底线思维、增强风险意识，加密监测预报预警和联合会商研判，压实各方责任，全面排查汛期防汛隐患，高度警惕中小河流洪水、城市内涝、山洪和地质灾害等风险隐患，加强对江河水库、河道桥梁、城市易涝点等巡查防守，切实保障民众生命财产安全。
-
-响应期间加强值班值守和信息报送，重要信息按要求及时上报。
-
-当天，针对广西柳州市柳南区5.2级地震及部分地区洪涝等灾害应急处置和救灾救助工作需要，国家防灾减灾救灾委员会办公室、应急管理部会同国家粮食和物资储备局，向广西紧急调拨帐篷、折叠床、夏凉被、毛巾被、折叠桌凳等共1万件救灾物资，支持广西妥善做好受灾民众紧急避险、转移安置和救灾救助工作。
-
-(完)
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 03:53 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 03:48 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 04:10 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 04:12 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-30 04:13 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 03:56 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 04:09 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 03:54 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 04:14 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 04:10 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 04:11 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 04:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 04:09 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 04:18 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 03:58 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 04:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 04:12 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 03:55 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 04:00 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 04:17 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 04:11 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 03:57 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 03:59 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:04 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/10416333.shtml)
-- 2026-06-30 03:53 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/74827496818.shtml)
-- 2026-06-30 04:16 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/05048952.shtml)
-- 2026-06-30 03:50 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/0065590258.shtml)
-- 2026-06-30 04:10 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/55066.shtml)
-- 2026-06-30 04:01 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/10322954.shtml)
-- 2026-06-30 03:51 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/311735.shtml)
-- 2026-06-30 04:10 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/8560353348.shtml)
-- 2026-06-30 03:48 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/463057749.shtml)
-- 2026-06-30 04:05 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/05592225807.shtml)
-- 2026-06-30 04:03 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/480270474020.shtml)
-- 2026-06-30 04:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/5582680.shtml)
-- 2026-06-30 04:05 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/72116841.shtml)
-- 2026-06-30 04:02 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/55929238.shtml)
-- 2026-06-30 03:53 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/3558903.shtml)
+- 2026-06-30 04:20 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/80254440627.shtml)
+- 2026-06-30 04:14 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/204697666950.shtml)
+- 2026-06-30 04:09 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/561422947.shtml)
+- 2026-06-30 04:14 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/26596258.shtml)
+- 2026-06-30 04:14 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/2927947.shtml)
+- 2026-06-30 04:09 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/83652939851.shtml)
+- 2026-06-30 04:19 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/598334855.shtml)
+- 2026-06-30 03:57 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/3654482990.shtml)
+- 2026-06-30 03:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/58968279930.shtml)
+- 2026-06-30 04:12 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/210268104607.shtml)
+- 2026-06-30 04:08 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/58182819.shtml)
+- 2026-06-30 04:10 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/07794.shtml)
+- 2026-06-30 03:56 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/398133.shtml)
+- 2026-06-30 03:55 - [女心理师](https://www.share.minike.top/Article/details/88646.shtml)
+- 2026-06-30 04:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/49755.shtml)

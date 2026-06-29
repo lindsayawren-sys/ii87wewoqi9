@@ -1,57 +1,61 @@
-# 新华通讯频媒建议股份合并及更改每手买卖单位
+# 今年前5个月全国财政收支“成绩单”反映什么 专家解读→
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-新华通讯频媒（00309）发布公告，董事会建议实施股份合并，基准为每40股每股面值0.01港元的已发行及未发行股份合并为1股每股面值0.40港元的合并股份。股份合并须待（其中包括）股东于股东特别大会上批准后方可作实。 于本公告日期，公司的法定股本为4000万港元，分为40亿股每股面值0.01港元的现有股份，其中19.31亿股股份已配发及发行，并列为缴足或入账列为缴足。 于股份合
+原标题：视频丨今年前5个月全国财政收支“成绩单”反映什么 专家解读→ 昨天(22日)，财政部发布了今年1-5月的全国财政收支运行情况，数据显示，前五个月，全国一般公共预算收入超过10万亿元。 财政部数据显示，今年1-5月，全国一般公共预算收入100465亿元，同比增长4%，增幅比1-4月提高0.5个百分点。全国税收收入82617亿元，同比增长4.4%，增幅比1-4月提高0.5个
 
 ## 正文
 
-新华通讯频媒（00309）发布公告，董事会建议实施股份合并，基准为每40股每股面值0.01港元的已发行及未发行股份合并为1股每股面值0.40港元的合并股份。
+原标题：视频丨今年前5个月全国财政收支“成绩单”反映什么 专家解读→ 昨天(22日)，财政部发布了今年1-5月的全国财政收支运行情况，数据显示，前五个月，全国一般公共预算收入超过10万亿元。
 
-股份合并须待（其中包括）股东于股东特别大会上批准后方可作实。
+财政部数据显示，今年1-5月，全国一般公共预算收入100465亿元，同比增长4%，增幅比1-4月提高0.5个百分点。
 
-于本公告日期，公司的法定股本为4000万港元，分为40亿股每股面值0.01港元的现有股份，其中19.31亿股股份已配发及发行，并列为缴足或入账列为缴足。
+全国税收收入82617亿元，同比增长4.4%，增幅比1-4月提高0.5个百分点。
 
-于股份合并生效后，并假设自本公告日期起至股份合并生效之日止，公司的法定股本并无变动，公司的法定股本将变为4000万港元，分为1亿股每股面值0.40港元的合并股份，其中将有4827.67万股已发行合并股份。
+中央财经大学财税学院教授 白彦锋：这次的财政收入数据改善，是中央到地方，财政到经济全方位全面改善，这还是非常可喜的，财政收支的紧平衡的状态得到了非常大的缓解。
 
-于本公告日期，现有股份于联交所的每手买卖单位为1000股现有股份。
+税收收入的增速超过一般公共预算的增速，也就是税收占比在提高。
 
-建议在股份合并生效的规限下及以其为条件，于联交所买卖的每手买卖单位由1000股现有股份更改为2000股合并股份。
+这其实体现的是财政收入质量在改善，另外反映了经济增长的潜质得到进一步的释放和提升。
 
-责任编辑：卢昱君
+从主体税种来看，1-5月，受工业服务业持续增长、工业生产者出厂价格上行等带动，国内增值税增长6.2%，增幅连续4个月提高。
+
+中央财经大学财税学院教授 白彦锋：增值税和国民经济、工业生产以及服务消费都是密切相关的，这是税收收入中的主体税种，也反映了经济的压舱石在不断改善。
 
 ## 相关推荐
 
-- 2026-06-30 03:53 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 04:13 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 04:17 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 03:54 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 03:49 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 04:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 04:02 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 03:50 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 03:58 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 03:55 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 04:00 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 04:04 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 04:07 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-30 04:07 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 04:10 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 04:12 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 04:03 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 04:12 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 03:58 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 04:18 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 04:04 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 04:24 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 04:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 04:02 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 04:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 04:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 04:05 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-30 03:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/12433130.shtml)
-- 2026-06-30 03:55 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/264180653311.shtml)
-- 2026-06-30 04:09 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/130655435.shtml)
-- 2026-06-30 03:56 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/60783703540.shtml)
-- 2026-06-30 04:09 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/5775662.shtml)
-- 2026-06-30 03:55 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/400240.shtml)
-- 2026-06-30 03:52 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/124054.shtml)
-- 2026-06-30 04:10 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/888951.shtml)
-- 2026-06-30 03:52 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/721937727.shtml)
-- 2026-06-30 04:00 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/263801.shtml)
-- 2026-06-30 03:52 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/303618572347.shtml)
-- 2026-06-30 04:11 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/6039595.shtml)
-- 2026-06-30 04:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/2750597.shtml)
-- 2026-06-30 04:06 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/19477103.shtml)
-- 2026-06-30 03:51 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/466968583264.shtml)
+- 2026-06-30 03:57 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/20816181240.shtml)
+- 2026-06-30 04:17 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/756374.shtml)
+- 2026-06-30 04:19 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/86969.shtml)
+- 2026-06-30 04:19 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/9789615774.shtml)
+- 2026-06-30 04:19 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/0457016.shtml)
+- 2026-06-30 04:19 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/9906112539.shtml)
+- 2026-06-30 04:13 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/65984595704.shtml)
+- 2026-06-30 04:13 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/929735485380.shtml)
+- 2026-06-30 04:04 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/73876093.shtml)
+- 2026-06-30 04:15 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/672133025037.shtml)
+- 2026-06-30 04:00 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/068298.shtml)
+- 2026-06-30 03:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/49433.shtml)
+- 2026-06-30 04:18 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/9912829.shtml)
+- 2026-06-30 04:16 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/25100.shtml)
+- 2026-06-30 03:55 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/948623715.shtml)

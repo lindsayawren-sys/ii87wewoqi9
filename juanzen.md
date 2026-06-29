@@ -1,60 +1,50 @@
-# 美国设立17亿美元“法律战”基金，换取特朗普放弃100亿美元国税局诉讼
+# 快讯：现货黄金日内跌超2% 现货白银失守62美元/盎司
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-美国迈阿密联邦法院的一份文件显示，特朗普和他的两个长子以及特朗普集团于周一撤销了对美国国税局（IRS）的100亿美元诉讼，以此换取司法部设立一个17.76亿美元的基金，用于和解那些自称是所谓“法律战”受害者的人提出的索赔。 特朗普律师提交的这份撤诉文件暗示，此举实际上阻止了法官审查总统的民事诉讼是否具有法律效力，也阻止了法官在认定其无效时将其驳回。 此前有报道称，司法部正与特朗
+北京时间6月23日下午，现货黄金日内跌幅扩大至2%，报4106.03美元/盎司。现货白银失守62美元/盎司，日内跌4.72%。 责任编辑：朱赫楠
 
 ## 正文
 
-美国迈阿密联邦法院的一份文件显示，特朗普和他的两个长子以及特朗普集团于周一撤销了对美国国税局（IRS）的100亿美元诉讼，以此换取司法部设立一个17.76亿美元的基金，用于和解那些自称是所谓“法律战”受害者的人提出的索赔。
+北京时间6月23日下午，现货黄金日内跌幅扩大至2%，报4106.03美元/盎司。
 
-特朗普律师提交的这份撤诉文件暗示，此举实际上阻止了法官审查总统的民事诉讼是否具有法律效力，也阻止了法官在认定其无效时将其驳回。
+现货白银失守62美元/盎司，日内跌4.72%。
 
-此前有报道称，司法部正与特朗普协商和解，条件是设立一个基金来补偿那些声称遭到拜登政府不当对待的特朗普盟友。
-
-这一撤诉紧随相关争议而来。
-
-5月14日有报道称，特朗普预计将撤销其对国税局的诉讼，以换取设立该基金。
-
-美国国会的民主党成员称该基金为“贿赂基金”。
-
-美国司法部在一份声明中表示，除了撤销与特朗普纳税申报表泄露相关的国税局诉讼外，原告还同意，作为设立该基金的交换条件，特朗普将撤回两项行政索赔，“包括因非法搜查海湖庄园和‘通俄门骗局’而造成的损害赔偿”。
-
-代理司法部长托德·布兰奇在一份声明中表示：“政府的机器绝不应该被武器化用来对付任何美国人，本部门的意图是纠正先前犯下的错误，并确保此类事件不再发生。
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-30 03:49 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 04:15 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 03:57 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 04:02 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 04:03 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 04:06 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 03:55 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 04:01 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 04:12 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-30 04:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 04:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 03:49 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 03:58 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-30 04:14 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 04:07 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 04:10 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 04:06 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 04:14 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 04:08 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 03:56 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 04:13 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 04:10 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 04:09 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 04:09 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-30 04:07 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 04:04 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 04:12 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 03:55 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:04 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/209325547.shtml)
-- 2026-06-30 04:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/22636.shtml)
-- 2026-06-30 04:10 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/0413378.shtml)
-- 2026-06-30 03:56 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/77409432133.shtml)
-- 2026-06-30 04:01 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/72253.shtml)
-- 2026-06-30 04:16 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/2637394606.shtml)
-- 2026-06-30 04:07 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/497365428.shtml)
-- 2026-06-30 03:57 - [天道](http://www.share.kurohicncr.top/Article/details/61091254.shtml)
-- 2026-06-30 03:50 - [月亮](http://www.share.kurohicncr.top/Article/details/8090261608.shtml)
-- 2026-06-30 03:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/09067468330.shtml)
-- 2026-06-30 03:51 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/577889.shtml)
-- 2026-06-30 04:14 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/791519310644.shtml)
-- 2026-06-30 04:01 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/979494988400.shtml)
-- 2026-06-30 04:10 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/770352.shtml)
-- 2026-06-30 04:01 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/026142374246.shtml)
+- 2026-06-30 03:55 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/644051180732.shtml)
+- 2026-06-30 03:57 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/94619.shtml)
+- 2026-06-30 03:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/436471.shtml)
+- 2026-06-30 04:07 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/075406113561.shtml)
+- 2026-06-30 04:21 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/77071.shtml)
+- 2026-06-30 03:57 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/114938027787.shtml)
+- 2026-06-30 04:21 - [德国vs巴拉圭](http://www.blog.minike.top/Article/details/195926455301.shtml)
+- 2026-06-30 04:15 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/517909611237.shtml)
+- 2026-06-30 04:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/110496164.shtml)
+- 2026-06-30 04:10 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/390577423105.shtml)
+- 2026-06-30 04:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/230813.shtml)
+- 2026-06-30 04:22 - [日本16强魔咒](https://www.share.minike.top/Article/details/016713952989.shtml)
+- 2026-06-30 04:05 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/660298373721.shtml)
+- 2026-06-30 04:20 - [斛珠夫人](http://www.blog.minike.top/Article/details/9212995.shtml)
+- 2026-06-30 04:18 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/85928.shtml)

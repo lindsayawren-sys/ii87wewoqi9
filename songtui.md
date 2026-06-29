@@ -1,56 +1,61 @@
-# 中国地震局：柳州5.2级地震为逆冲型破裂
+# 中央气象台：全球天气公报（2026年06月22日）
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 (记者 孙自法)记者18日从中国地震局获悉，当天凌晨广西柳州市柳南区发生5.2级地震后，中国地震台网中心组织专家研究分析认为，此次地震距离最近的断层是百朋断裂，小于5公里；距离河池-宜山断裂约23公里。初步震源机制解结果显示，该地震为逆冲型破裂。本次5.2级地震区域以中等地震活动为主，总体表现为强度弱、频度低的特点。1900年以来，震中100公里范围内仅
+来源：中央气象台网站 欧洲西南部高温持续发展 印度西部沿海有强降雨 一、全球天气实况 1．日本孟加拉国等地出现强降雨 过去24小时（6月21日00时-6月22日00时，UTC），澳大利亚东南部、新西兰北岛南部、日本中部、孟加拉国、印度东北部、泰国、老挝北部、越南北部、马来西亚、菲律宾、巴基斯坦北部、蒙古国中部、荷兰、比利时、挪威北部、芬兰北部、德国、波兰、捷克、斯洛伐克、奥地利
 
 ## 正文
 
-中新社北京5月18日电 (记者 孙自法)记者18日从中国地震局获悉，当天凌晨广西柳州市柳南区发生5.2级地震后，中国地震台网中心组织专家研究分析认为，此次地震距离最近的断层是百朋断裂，小于5公里；距离河池-宜山断裂约23公里。
+来源：中央气象台网站 欧洲西南部高温持续发展 印度西部沿海有强降雨 一、全球天气实况 1．日本孟加拉国等地出现强降雨 过去24小时（6月21日00时-6月22日00时，UTC），澳大利亚东南部、新西兰北岛南部、日本中部、孟加拉国、印度东北部、泰国、老挝北部、越南北部、马来西亚、菲律宾、巴基斯坦北部、蒙古国中部、荷兰、比利时、挪威北部、芬兰北部、德国、波兰、捷克、斯洛伐克、奥地利、意大利北部、加蓬、安哥拉、加拿大中部、美国中部、墨西哥、洪都拉斯、哥伦比亚等地部分地区出现中到大雨、局地暴雨或大暴雨。
 
-初步震源机制解结果显示，该地震为逆冲型破裂。
+二、未来重点天气预报 1．欧洲西南部高温持续发展 未来三天，受高空暖脊影响，法国、西班牙、葡萄牙、意大利、英国南部、比利时、荷兰南部等地部分地区最高气温有35~38℃，西班牙、法国局地超过40℃。
 
-本次5.2级地震区域以中等地震活动为主，总体表现为强度弱、频度低的特点。
+2．印度西部沿海有强降雨 未来三天，受西南季风影响，印度西部沿海有大到暴雨、局地大暴雨，并伴有短时强降水等强对流天气。
 
-1900年以来，震中100公里范围内仅发生过1次5.0级以上地震，震中300公里范围内发生5.0级以上地震8次(不含本次)；时间最近的为2019年10月12日广西北流5.2级地震。
+三、未来三天各大洲具体预报 （一）亚洲：印度日本等地有强降雨 6月22日12时-6月25日12时（UTC）：日本中南部、琉球群岛、不丹、印度东北部和西部沿海、缅甸北部和西部沿海等地部分地区有大到暴雨、局地大暴雨，并伴有短时强降水、雷暴大风等强对流天气。
 
-1900年以来5级以上地震序列类型统计结果显示，震中附近300公里范围内历史地震序列类型均为主余型。
+此外，阿拉伯半岛、伊朗高原、巴基斯坦南部、土库曼斯坦、乌兹别克斯坦、哈萨克斯坦南部等地部分地区最高气温超过40℃，局地45℃以上。
 
-此次地震震中位于广西柳州市柳南区，距离柳州市城区16公里，柳州市中心震感强烈，南宁、河池等地均有震感。
+（二）欧洲：欧洲西南部高温持续发展 6月22日12时-6月25日12时（UTC）：法国、西班牙、葡萄牙、意大利、英国南部、比利时、荷兰南部等地部分地区最高气温有35~38℃，西班牙、法国局地超过40℃。
 
-根据历史地震、地震序列衰减特征、地震前兆资料综合会商结果初步判断，此次地震为前震-主震-余震型地震。
+此外，北欧部分地区有5~6级风，阵风7~9级。
 
-中国地震台网中心、广西壮族自治区地震局、中国地震局地震预测研究所将密切跟踪此次地震余震活动，持续开展地震序列跟踪分析和滚动会商研判。
+（三）北美洲：美国东部和中部有降雨和强对流天气 6月22日12时-6月25日12时（UTC）：美国中部和东部、墨西哥等地的部分地区有中到大雨、局地暴雨，并伴有短时强降水、雷暴大风等强对流天气。
 
 ## 相关推荐
 
-- 2026-06-30 04:17 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 04:05 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 03:53 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 03:55 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-30 04:06 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 04:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 03:57 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 03:48 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 04:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 03:48 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 04:06 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 04:15 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 03:54 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 04:15 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 03:58 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 04:18 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 04:04 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 04:15 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 04:02 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 04:04 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 03:57 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 04:02 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 04:00 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 04:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 04:13 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/261485.shtml)
-- 2026-06-30 03:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/44673.shtml)
-- 2026-06-30 04:09 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/87092.shtml)
-- 2026-06-30 04:16 - [巴西2比1日本](https://www.share.minike.top/Article/details/9926275056.shtml)
-- 2026-06-30 04:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/97235.shtml)
-- 2026-06-30 03:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/9387549741.shtml)
-- 2026-06-30 04:03 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/06197.shtml)
-- 2026-06-30 04:04 - [日本反击率先破门](https://www.share.minike.top/Article/details/88600470493.shtml)
-- 2026-06-30 04:04 - [斗破苍穹](http://www.blog.minike.top/Article/details/78445.shtml)
-- 2026-06-30 04:11 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/53652082798.shtml)
-- 2026-06-30 04:17 - [时光音乐会](https://www.share.minike.top/Article/details/8856404.shtml)
-- 2026-06-30 03:59 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/283619.shtml)
-- 2026-06-30 03:59 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/309472223925.shtml)
-- 2026-06-30 04:02 - [金刚川](https://www.share.kurohicncr.top/Article/details/837470094.shtml)
-- 2026-06-30 03:48 - [明星大侦探第一季](https://www.share.minike.top/Article/details/565444.shtml)
+- 2026-06-30 04:21 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/20027662653.shtml)
+- 2026-06-30 04:07 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/2923986.shtml)
+- 2026-06-30 04:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/6648244.shtml)
+- 2026-06-30 04:00 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/4748782305.shtml)
+- 2026-06-30 04:05 - [刘念回应](http://www.blog.minike.top/Article/details/975718940.shtml)
+- 2026-06-30 04:22 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/7109149.shtml)
+- 2026-06-30 03:57 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/7066580941.shtml)
+- 2026-06-30 04:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/9315213584.shtml)
+- 2026-06-30 04:04 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/355304.shtml)
+- 2026-06-30 04:21 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/2608104198.shtml)
+- 2026-06-30 04:12 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/209594577653.shtml)
+- 2026-06-30 03:59 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/0684899.shtml)
+- 2026-06-30 03:57 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/14114.shtml)
+- 2026-06-30 04:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/71525.shtml)
+- 2026-06-30 04:15 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/76751667045.shtml)

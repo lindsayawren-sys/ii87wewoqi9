@@ -1,56 +1,61 @@
-# 全国助残日公益宣传片《爱满花城 梦想启航》在广州发布
+# 李强在辽宁大连调研时强调 大力发展高端装备制造业 加快建设现代化产业体系
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网广州5月17日电 (记者 张璐)5月17日是第三十六个全国助残日。当日，以“保障残疾人平等权益 促进残疾人融合发展”为主题的广州地区第三十六个全国助残日主场活动(简称“活动”)在广州市儿童活动中心童梦剧场举行。 当日，全国助残日公益宣传片《爱满花城 梦想启航》发布，该片围绕广州市无障碍环境建设助力残疾人追梦，生动呈现建设成果与服务细节。 活动现场，肢体残疾演员黎淑瑜佩戴3
+新华社大连6月22日电(记者邹伟)中共中央政治局常委、国务院总理李强6月22日在辽宁省大连市调研。他强调，要深入贯彻落实习近平总书记关于新时代东北全面振兴和建设现代化产业体系的重要指示精神，坚持智能化、绿色化、融合化方向，加强原创性、引领性科技攻关，强化产业基础再造，大力发展高端装备制造业，加快建设现代化产业体系，为高质量发展不断注入新动能。 李强首先来到大连船舶重工集团有限公
 
 ## 正文
 
-中新网广州5月17日电 (记者 张璐)5月17日是第三十六个全国助残日。
+新华社大连6月22日电(记者邹伟)中共中央政治局常委、国务院总理李强6月22日在辽宁省大连市调研。
 
-当日，以“保障残疾人平等权益 促进残疾人融合发展”为主题的广州地区第三十六个全国助残日主场活动(简称“活动”)在广州市儿童活动中心童梦剧场举行。
+他强调，要深入贯彻落实习近平总书记关于新时代东北全面振兴和建设现代化产业体系的重要指示精神，坚持智能化、绿色化、融合化方向，加强原创性、引领性科技攻关，强化产业基础再造，大力发展高端装备制造业，加快建设现代化产业体系，为高质量发展不断注入新动能。
 
-当日，全国助残日公益宣传片《爱满花城 梦想启航》发布，该片围绕广州市无障碍环境建设助力残疾人追梦，生动呈现建设成果与服务细节。
+李强首先来到大连船舶重工集团有限公司，听取企业规划布局、业务发展、数智化转型等介绍和大连市船舶工业发展汇报，登上在建船只，了解液化天然气运输船等船舶建造情况，对企业取得的技术突破予以肯定。
 
-活动现场，肢体残疾演员黎淑瑜佩戴3D打印功能性义肢演奏大提琴，与视障演员王子安的中提琴交相辉映；李金凯、江晓茵等残障表演者与专业歌手演绎残特奥会广州赛区宣传曲《破浪者·光》；广州市轮椅舞蹈队带来《青春disco》的表演；广州市少年宫“雨后彩虹融合艺术团”30名成员合唱《We are here》；广东省培英职业技术学校17名听障学生演绎融合舞蹈《那束光》；广州市启明学校40名视障孩子合唱《光亮》；广州扬爱融合妈妈形体旗袍团带来《万水千山总是情》的表演；黎淑瑜、王子安与视障艺术家、启智学校唐氏宝宝共同演绎《世界赠予我的》。
+他指出，高端船舶制造具有高技术、高难度、高附加值的特点，产业链条长、辐射带动效应大。
 
-当日，“特需儿童融合共建基地”“孤独症儿童医康教协同发展基地”举行结对共建仪式。
+要强化企业创新主体地位，支持整机和零部件企业、装备和用户企业开展协同攻关，加快关键技术研发突破，培养造就一批掌握精湛技艺、具有丰富经验的技术骨干和产业工人，进一步提升自主创新能力，通过经营理念创新和产品、服务迭代升级来创造市场、引领市场，不断巩固拓展船舶和海洋工程装备产业优势。
 
-广州市康纳学校(广州儿童孤独症康复研究中心)、广州康复实验学校(广州小儿脑性瘫痪康复研究中心)、广州市儿童活动中心、广州医科大学附属妇女儿童医疗中心签约共建，共谋发展。
+大连造船业拥有悠久历史，在发展高端装备制造业方面有比较好的基础，要紧盯国际前沿，聚焦关键领域持续攻坚，加强行业内交流合作，着力打造先进制造业集群、建设世界一流造船基地。
 
-十五运会和残特奥会吉祥物“喜洋洋”“乐融融”亮相活动现场，携手歌手梁山山献演“喜洋洋”“乐融融”的官方主题曲《大湾鸡我爱你》。
+在一重集团大连核电石化有限公司，李强详细了解核电、石化等装备研制情况，走进车间察看核反应堆压力容器加工制造，细致询问重大工程项目运行状况。
 
-十五运会会徽和吉祥物设计团队负责人刘平云与梁山山进行了现场访谈，围绕扶残助残、残健共融理念展开深入交流。
+他强调，先进核电等高端装备对国家能源、产业、科技安全意义重大。
 
 ## 相关推荐
 
-- 2026-06-30 04:12 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 03:51 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 04:14 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 04:08 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 04:06 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 03:49 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 04:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 04:04 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 03:53 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 03:50 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 03:55 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 03:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 04:21 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 04:17 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 04:07 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 04:22 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 04:05 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 04:07 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 04:00 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 04:10 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 03:54 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 04:17 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 04:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 04:09 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 04:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:53 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/1667254.shtml)
-- 2026-06-30 04:17 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/810528059275.shtml)
-- 2026-06-30 04:14 - [周生如故](https://www.blog.minike.top/Article/details/48154441.shtml)
-- 2026-06-30 04:02 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/25013018.shtml)
-- 2026-06-30 04:16 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/64886971488.shtml)
-- 2026-06-30 04:09 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/102480.shtml)
-- 2026-06-30 04:10 - [巴西补时绝杀日本](http://www.share.minike.top/Article/details/53937070.shtml)
-- 2026-06-30 04:17 - [TOP Prada](https://www.blog.minike.top/Article/details/48270949.shtml)
-- 2026-06-30 03:56 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/14372544168.shtml)
-- 2026-06-30 03:53 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/482221.shtml)
-- 2026-06-30 03:48 - [千香](http://www.blog.kurohicncr.top/Article/details/153724074.shtml)
-- 2026-06-30 04:06 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/50947810.shtml)
-- 2026-06-30 03:55 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/61989105500.shtml)
-- 2026-06-30 04:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/2149293.shtml)
-- 2026-06-30 04:17 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/76789809.shtml)
+- 2026-06-30 04:23 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/556180074873.shtml)
+- 2026-06-30 04:07 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/86868960.shtml)
+- 2026-06-30 04:14 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/6913903601.shtml)
+- 2026-06-30 04:11 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/886189661.shtml)
+- 2026-06-30 04:02 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/889034864.shtml)
+- 2026-06-30 04:11 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/28767914408.shtml)
+- 2026-06-30 04:19 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/0652750.shtml)
+- 2026-06-30 04:05 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/36285.shtml)
+- 2026-06-30 04:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/86339231.shtml)
+- 2026-06-30 04:18 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/41599.shtml)
+- 2026-06-30 04:01 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/3586519.shtml)
+- 2026-06-30 04:04 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/9422977.shtml)
+- 2026-06-30 04:15 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/105443506.shtml)
+- 2026-06-30 04:01 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/55946.shtml)
+- 2026-06-30 03:57 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/3474276187.shtml)

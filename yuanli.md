@@ -1,59 +1,52 @@
-# 蔚来李斌谈为何不搞增程：错误归因会忽略真正原因，建换电站比装增程器更高效
+# 特朗普：我很快能解决黎巴嫩问题
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。蔚来创始人、董事长、CEO李斌线上参与对话。 被问及蔚来为何一直坚持纯电路线而不搞增程时，李斌回应称，搞增程的话销量可能会比现在更多，但很多时候不能错误归因。一旦错误归因，该坚持什么、该改变什么就会搞错。 李斌指出，全世界十几年来公认做得最成功的汽车企业，比如特斯
+中新网6月23日电 当地时间22日，美国总统特朗普在白宫接受记者提问时表示，他很快就能解决黎巴嫩问题。 特朗普表示他有信心管控围绕最近达成的美伊协议而出现的紧张局势。 当被问及以色列总理内塔尼亚胡表示将让以军继续驻留黎巴嫩的言论时，特朗普表示：“他跟谁说的？” 特朗普随后补充道，“我不会告诉你我要做什么，但问题总会解决，我是个问题解决者，我能很快解决问题，包括内塔尼亚胡的问题。
 
 ## 正文
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
+中新网6月23日电 当地时间22日，美国总统特朗普在白宫接受记者提问时表示，他很快就能解决黎巴嫩问题。
 
-蔚来创始人、董事长、CEO李斌线上参与对话。
+特朗普表示他有信心管控围绕最近达成的美伊协议而出现的紧张局势。
 
-被问及蔚来为何一直坚持纯电路线而不搞增程时，李斌回应称，搞增程的话销量可能会比现在更多，但很多时候不能错误归因。
+当被问及以色列总理内塔尼亚胡表示将让以军继续驻留黎巴嫩的言论时，特朗普表示：“他跟谁说的？
 
-一旦错误归因，该坚持什么、该改变什么就会搞错。
+” 特朗普随后补充道，“我不会告诉你我要做什么，但问题总会解决，我是个问题解决者，我能很快解决问题，包括内塔尼亚胡的问题。
 
-李斌指出，全世界十几年来公认做得最成功的汽车企业，比如特斯拉，一直也是纯电路线，并没有影响卖车。
-
-也有一些搞增程的企业，车也没有卖好。
-
-“并不是说搞了增程就一定能卖好。
-
-如果错误归因，前两年销量最高的是油车，难道去搞油车吗？
+”
 
 ## 相关推荐
 
-- 2026-06-30 03:49 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 03:59 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 03:49 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 04:11 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 04:06 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 04:00 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 04:13 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 04:01 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 04:15 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 04:15 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 04:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 04:05 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 03:55 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 03:54 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 03:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 04:21 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 04:09 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 04:03 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-30 04:04 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 04:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 04:10 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 04:20 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 04:03 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 03:55 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 04:18 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:09 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/8093886.shtml)
-- 2026-06-30 03:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/832703301.shtml)
-- 2026-06-30 04:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/20908356239.shtml)
-- 2026-06-30 03:58 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/90911.shtml)
-- 2026-06-30 04:02 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/2458848.shtml)
-- 2026-06-30 04:12 - [恋与深空回应争议](http://www.share.minike.top/Article/details/1495873847.shtml)
-- 2026-06-30 03:50 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/0618641318.shtml)
-- 2026-06-30 03:48 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/01607198203.shtml)
-- 2026-06-30 04:09 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/30329407.shtml)
-- 2026-06-30 04:03 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/233157.shtml)
-- 2026-06-30 03:52 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/22325113274.shtml)
-- 2026-06-30 04:14 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/6116607.shtml)
-- 2026-06-30 03:48 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/50667494234.shtml)
-- 2026-06-30 03:56 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/07003.shtml)
-- 2026-06-30 04:10 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/3126283985.shtml)
+- 2026-06-30 03:56 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/248340216.shtml)
+- 2026-06-30 04:07 - [点菜也要教吗](https://www.share.minike.top/Article/details/5257749.shtml)
+- 2026-06-30 04:12 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/740798.shtml)
+- 2026-06-30 03:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/1565699454.shtml)
+- 2026-06-30 03:54 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/632214775872.shtml)
+- 2026-06-30 04:04 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/41478721452.shtml)
+- 2026-06-30 04:17 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/4673526.shtml)
+- 2026-06-30 04:03 - [苗族银饰](http://www.blog.minike.top/Article/details/32917526.shtml)
+- 2026-06-30 03:58 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/777060.shtml)
+- 2026-06-30 04:07 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/6505482.shtml)
+- 2026-06-30 04:21 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/5633427.shtml)
+- 2026-06-30 04:09 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/969129.shtml)
+- 2026-06-30 04:19 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/93232860335.shtml)
+- 2026-06-30 04:05 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/047137.shtml)
+- 2026-06-30 04:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/7828053.shtml)

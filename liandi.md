@@ -1,42 +1,59 @@
-# 河南省举办高校残疾大学生就业双选会
+# 丁薛祥出席第四届中国国际供应链促进博览会开幕式并作主旨讲话
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 09:36 来源：央视新闻 责任编辑：【王祎】
+新华社北京6月22日电 第四届中国国际供应链促进博览会22日在北京开幕，中共中央政治局常委、国务院副总理丁薛祥出席并作主旨讲话。 丁薛祥表示，当前世界形势复杂多变，产业链供应链碎片化风险增加。习近平主席指出，维护全球产业链供应链韧性和稳定是推动世界经济发展的重要保障，符合世界各国人民共同利益。中国作为负责任大国，有效发挥完整产业体系、超大规模市场等优势，努力畅通世界经济运行脉络
 
 ## 正文
 
-发布时间：2026年05月18日 09:36 来源：央视新闻 责任编辑：【王祎】
+新华社北京6月22日电 第四届中国国际供应链促进博览会22日在北京开幕，中共中央政治局常委、国务院副总理丁薛祥出席并作主旨讲话。
+
+丁薛祥表示，当前世界形势复杂多变，产业链供应链碎片化风险增加。
+
+习近平主席指出，维护全球产业链供应链韧性和稳定是推动世界经济发展的重要保障，符合世界各国人民共同利益。
+
+中国作为负责任大国，有效发挥完整产业体系、超大规模市场等优势，努力畅通世界经济运行脉络，以实际行动坚定维护全球产业链供应链稳定畅通。
+
+事实充分证明，中国既是全球产业链供应链合作的参与者和受益者，也是坚定的维护者和建设者。
+
+丁薛祥强调，全球供应链、产业链、价值链紧密联系，每个国家都是合作链条中的一环，维护全球产业链供应链稳定畅通需要各方共同努力。
+
+他提出4点建议：一是加强相互信任，防止将经贸问题政治化、武器化、泛安全化，着力消除非经济因素干扰，共同维护产业链供应链的全球公共产品属性。
+
+二是加强贸易畅通，维护和践行真正的多边主义，维护以世界贸易组织为核心的多边贸易体制，反对以绿色低碳为名、行保护主义之实，积极营造公平、开放、可预期的市场环境，促进贸易投资自由化便利化。
 
 ## 相关推荐
 
-- 2026-06-30 03:54 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 03:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 03:50 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 03:58 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 04:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 04:14 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 03:53 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 03:52 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 03:59 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 04:07 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 04:06 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 04:08 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 04:01 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 04:14 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 03:57 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 03:54 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 04:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 04:11 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 04:00 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 03:57 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 03:54 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 04:07 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 04:14 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:48 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/5551383.shtml)
-- 2026-06-30 04:07 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/3539057.shtml)
-- 2026-06-30 03:51 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/43095.shtml)
-- 2026-06-30 03:52 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/5268122301.shtml)
-- 2026-06-30 03:57 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/545626.shtml)
-- 2026-06-30 04:00 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/0480161.shtml)
-- 2026-06-30 03:58 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/07823.shtml)
-- 2026-06-30 04:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/68092508248.shtml)
-- 2026-06-30 03:59 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/370498375.shtml)
-- 2026-06-30 03:53 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/309599227.shtml)
-- 2026-06-30 03:51 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/4348232758.shtml)
-- 2026-06-30 03:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/93087.shtml)
-- 2026-06-30 04:02 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/2076424072.shtml)
-- 2026-06-30 04:12 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/45209626912.shtml)
-- 2026-06-30 04:16 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/323220.shtml)
+- 2026-06-30 04:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/7930522.shtml)
+- 2026-06-30 03:58 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/5470779872.shtml)
+- 2026-06-30 03:58 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/6411253872.shtml)
+- 2026-06-30 04:09 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/38592.shtml)
+- 2026-06-30 04:10 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/190884922.shtml)
+- 2026-06-30 04:19 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/3075694.shtml)
+- 2026-06-30 03:58 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/273631159.shtml)
+- 2026-06-30 04:22 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/17785917001.shtml)
+- 2026-06-30 04:20 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/19701254003.shtml)
+- 2026-06-30 04:20 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/43822.shtml)
+- 2026-06-30 03:58 - [扬名立万](http://www.share.minike.top/Article/details/97960244736.shtml)
+- 2026-06-30 04:12 - [第一炉香](http://www.share.kurohicncr.top/Article/details/91646512619.shtml)
+- 2026-06-30 04:16 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/378875343.shtml)
+- 2026-06-30 04:14 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/03842742.shtml)
+- 2026-06-30 04:08 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/03982398.shtml)

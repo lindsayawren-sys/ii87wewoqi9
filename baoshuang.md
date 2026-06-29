@@ -1,57 +1,55 @@
-# 全国重点文保单位福胜寺公开征集文化研究成果
+# 河南安阳市委统战部开展老党员慰问、驻村帮扶调研活动
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网运城5月17日电 (陆祁国)全国重点文物保护单位福胜寺正在等待各界人士揭开神秘面纱。5月16日，山西省新绛县文化和旅游局发布公告，公开征集福胜寺及三佛洞文化研究阐释成果，旨在推进福胜寺的文物保护、文脉传承与活化利用工作。 福胜寺位于新绛县泽掌镇光村，始建于北齐天统年间(565—569年)，现存主要建筑为元代建筑遗构，系《黑神话：悟空》游戏画面取景地之一。寺内弥陀殿及后大殿
+工作动态｜市委统战部开展老党员慰问、驻村帮扶调研活动 6月22日，按照全市基层党建工作安排，市委统战部常务副部长尚栋带队到定点帮扶村——安阳县白璧镇西邵科村，开展庆“七一”慰问调研活动，为村内老党员、驻村第一书记送去党组织的关怀和节日问候。 尚栋一行首先走访了村内部分老党员，关切询问身体状况和生活需求，认真听取他们对村庄发展的意见建议，感谢他们为村级建设和乡村发展作出的积极贡献
 
 ## 正文
 
-中新网运城5月17日电 (陆祁国)全国重点文物保护单位福胜寺正在等待各界人士揭开神秘面纱。
+工作动态｜市委统战部开展老党员慰问、驻村帮扶调研活动 6月22日，按照全市基层党建工作安排，市委统战部常务副部长尚栋带队到定点帮扶村——安阳县白璧镇西邵科村，开展庆“七一”慰问调研活动，为村内老党员、驻村第一书记送去党组织的关怀和节日问候。
 
-5月16日，山西省新绛县文化和旅游局发布公告，公开征集福胜寺及三佛洞文化研究阐释成果，旨在推进福胜寺的文物保护、文脉传承与活化利用工作。
+尚栋一行首先走访了村内部分老党员，关切询问身体状况和生活需求，认真听取他们对村庄发展的意见建议，感谢他们为村级建设和乡村发展作出的积极贡献，希望老党员继续发挥“传帮带”作用，积极为村庄发展出谋划策、凝聚群众合力，助力乡村振兴提质增效。
 
-福胜寺位于新绛县泽掌镇光村，始建于北齐天统年间(565—569年)，现存主要建筑为元代建筑遗构，系《黑神话：悟空》游戏画面取景地之一。
+随后，与镇包村干部、村“两委”班子成员、驻村第一书记面对面交流，详细了解西邵科村基层党组织建设、巩固拓展脱贫攻坚成果、特色产业培育、民生实事办理、人居环境整治等工作推进现状，梳理当前发展难点堵点，共同研讨下一步发展思路。
 
-寺内弥陀殿及后大殿内保存有元、明时期彩塑、悬塑30余尊，其中包括元代悬塑“中国最美菩萨”渡海观音。
+座谈会上，尚栋叮嘱村“两委”干部和驻村第一书记，要提高政治站位，始终把全面推进乡村振兴作为中心任务，胸怀“国之大者”，心系“民之关切”。
 
-2001年6月，被公布为第五批全国重点文物保护单位。
+要聚焦重点任务，充分发挥驻村第一书记桥梁纽带和示范引领作用，持续抓好乡村基层党建、产业发展、民生实事、守牢底线等重点工作。
 
-福胜寺内三佛洞历经近70年保护性封闭，洞内元明彩塑、建筑遗存等珍贵文物长期未向公众开放，其历史脉络、艺术内涵、文化价值亟待系统挖掘梳理。
+要强化支撑保障，市委统战部作为帮扶单位，将一如既往、全力支持西邵科村发展和驻村工作，推动村内各项工作高质量发展。
 
-2025年10月，三佛洞单体洞窟试行开放后，引发社会各界广泛关注，得到相关领域专家学者高度评价。
-
-为进一步做好剩余洞窟保护展示筹备工作，完善整体文化阐释体系，夯实文物展陈、科普宣传、学术研究基础，新绛县文化和旅游局决定开展相关文物征集和文化遗产活化利用宣传创作活动。
+(来源：市委统战部干部科) 来源：“安阳统一战线”微信公众号
 
 ## 相关推荐
 
-- 2026-06-30 04:01 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 03:52 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 04:02 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 03:59 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 03:58 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 04:12 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 04:05 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 04:08 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 03:55 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 03:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 03:48 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 04:07 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 04:20 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 04:05 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 04:00 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 04:01 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 04:16 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 04:18 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 04:17 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 04:00 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 04:02 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 03:56 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:15 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/6148307413.shtml)
-- 2026-06-30 03:54 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/30629031472.shtml)
-- 2026-06-30 03:48 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/8299896.shtml)
-- 2026-06-30 03:58 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/34453.shtml)
-- 2026-06-30 04:12 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/38041459368.shtml)
-- 2026-06-30 03:53 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/91015.shtml)
-- 2026-06-30 04:05 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/448230829859.shtml)
-- 2026-06-30 03:50 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/277068.shtml)
-- 2026-06-30 04:09 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/681141635.shtml)
-- 2026-06-30 04:04 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/37709461201.shtml)
-- 2026-06-30 04:17 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/81176204.shtml)
-- 2026-06-30 04:05 - [第一炉香](https://www.share.minike.top/Article/details/2620000.shtml)
-- 2026-06-30 04:15 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/37072715.shtml)
-- 2026-06-30 04:13 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/271528955.shtml)
-- 2026-06-30 04:01 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/8770282.shtml)
+- 2026-06-30 04:04 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/861485117116.shtml)
+- 2026-06-30 03:55 - [我觉得你是在无中生友](https://www.share.minike.top/Article/details/21398729831.shtml)
+- 2026-06-30 04:12 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/33676456346.shtml)
+- 2026-06-30 04:02 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/79874483.shtml)
+- 2026-06-30 04:11 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/9843611.shtml)
+- 2026-06-30 03:54 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/64299.shtml)
+- 2026-06-30 04:16 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/11098.shtml)
+- 2026-06-30 04:21 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/33579654280.shtml)
+- 2026-06-30 04:18 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/3845716.shtml)
+- 2026-06-30 04:11 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/79427216.shtml)
+- 2026-06-30 04:09 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/3805510.shtml)
+- 2026-06-30 04:08 - [速度与激情9](https://www.blog.minike.top/Article/details/7197178.shtml)
+- 2026-06-30 04:19 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/66847571.shtml)
+- 2026-06-30 03:59 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/78720.shtml)
+- 2026-06-30 03:54 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/7157912.shtml)

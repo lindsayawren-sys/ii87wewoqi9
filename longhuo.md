@@ -1,58 +1,60 @@
-# 国产赛级汽油来了！103号到底有何特殊之处？
+# 蚂蚁集团彭翼捷：女性在AI时代需汇聚“心、身、思想”三股力量，真正相信自己的优势
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-5月16日，我国自主研发生产的103号赛级汽油在2026环塔克拉玛干汽车摩托车越野拉力赛中正式投入使用。这是国内首批实现工业化生产的103号高标号赛级汽油，填补了国内高性能赛车燃油的空白，结束了我国顶级赛事用油长期依赖进口的局面。平时我们加油，一般用标号92号、95号、98号汽油，103号汽油是一种怎样的汽油？与普通加油站中看到的汽油有何不同？我们的家用汽车可以加103号汽油吗
+专题：2026第十七届夏季达沃斯论坛 6月23日，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。蚂蚁集团资深副总裁、首席可持续发展官彭翼捷出席“女性正在错失AI机遇吗？”论坛并演讲。 谈及AI时代，女性能做什么，彭翼捷表示，其实可以做很多事情。改变不可能仅靠一步或一件事就实现，需要进行系统性的思考。 她认为，需要“心、身、思想”三股力量的汇聚。 首先
 
 ## 正文
 
-5月16日，我国自主研发生产的103号赛级汽油在2026环塔克拉玛干汽车摩托车越野拉力赛中正式投入使用。
+专题：2026第十七届夏季达沃斯论坛 6月23日，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。
 
-这是国内首批实现工业化生产的103号高标号赛级汽油，填补了国内高性能赛车燃油的空白，结束了我国顶级赛事用油长期依赖进口的局面。
+蚂蚁集团资深副总裁、首席可持续发展官彭翼捷出席“女性正在错失AI机遇吗？
 
-平时我们加油，一般用标号92号、95号、98号汽油，103号汽油是一种怎样的汽油？
+”论坛并演讲。
 
-与普通加油站中看到的汽油有何不同？
+谈及AI时代，女性能做什么，彭翼捷表示，其实可以做很多事情。
 
-我们的家用汽车可以加103号汽油吗？
+改变不可能仅靠一步或一件事就实现，需要进行系统性的思考。
 
-从92号到103号 不同标号意味着什么？
+她认为，需要“心、身、思想”三股力量的汇聚。
 
-作为高标号的赛级汽油，103号汽油燃烧效率高、动力响应快，兼顾了高性能与绿色环保。
+首先，彭翼捷指出，“心”代表愿景和信念。
 
-我们的家用汽车是否适合加注这种新汽油呢？
+“如果我们整个社会真正相信女性在AI时代拥有优势，而不仅仅是把女性当作桌上的少数力量或多样性符号，这才是真正的改变。
 
 ## 相关推荐
 
-- 2026-06-30 04:15 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 04:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 04:08 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 03:51 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 03:48 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 04:10 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 04:03 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 03:50 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 04:05 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 04:04 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 04:06 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 03:48 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 03:56 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 03:59 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 04:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 03:57 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 03:54 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 04:19 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 04:17 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 04:00 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 04:01 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 04:15 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 04:14 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 04:01 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 03:56 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 04:23 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:05 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/768052220.shtml)
-- 2026-06-30 04:12 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/3652420936.shtml)
-- 2026-06-30 04:14 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/480264274314.shtml)
-- 2026-06-30 03:54 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/09041.shtml)
-- 2026-06-30 04:09 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/832481144738.shtml)
-- 2026-06-30 04:17 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/576253106541.shtml)
-- 2026-06-30 04:01 - [巴西2比1日本](https://www.share.minike.top/Article/details/77889.shtml)
-- 2026-06-30 04:15 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/52662780313.shtml)
-- 2026-06-30 03:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/65459.shtml)
-- 2026-06-30 03:52 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/75249109.shtml)
-- 2026-06-30 04:17 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/8246032.shtml)
-- 2026-06-30 04:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/70504.shtml)
-- 2026-06-30 04:07 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/668967980.shtml)
-- 2026-06-30 04:15 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/12043280.shtml)
-- 2026-06-30 04:02 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/649355.shtml)
+- 2026-06-30 04:09 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/127957258169.shtml)
+- 2026-06-30 04:06 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/8073209318.shtml)
+- 2026-06-30 04:05 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/6514510240.shtml)
+- 2026-06-30 04:11 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/340038861.shtml)
+- 2026-06-30 04:11 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/201681607660.shtml)
+- 2026-06-30 04:19 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/56387.shtml)
+- 2026-06-30 03:57 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/636257540.shtml)
+- 2026-06-30 04:03 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/058480797.shtml)
+- 2026-06-30 04:21 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/0063791481.shtml)
+- 2026-06-30 04:21 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/730682711886.shtml)
+- 2026-06-30 04:20 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/371574.shtml)
+- 2026-06-30 04:20 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/79932.shtml)
+- 2026-06-30 04:18 - [千与千寻](https://www.share.kurohicncr.top/Article/details/0558132897.shtml)
+- 2026-06-30 04:00 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/24606257645.shtml)
+- 2026-06-30 04:08 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/1745359869.shtml)

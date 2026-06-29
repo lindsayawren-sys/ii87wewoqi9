@@ -1,56 +1,42 @@
-# 工业遗产焕新 活化利用释放新活力
+# 拓邦股份：2026年7月8日召开2026年第二次临时股东会
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：今年以来，全国多地城市更新提速推进，一大批闲置、废弃的老厂房、矿区遗址，经改造提升后，变身热门打卡地、便民空间与创业园区。在留住城市工业记忆的同时，让老空间长出了新生活、新消费、新产业。 正在演出的，是湖北大冶铜绿山古铜矿遗址推出的沉浸式戏剧。演出不在传统舞台，而是在废弃千年的露天老矿场里。经过生态修复与场景再造，这里成为文旅打卡地。 不仅是大冶，如今很
+证券日报网讯6月22日，拓邦股份发布公告称，公司将于2026年7月8日召开2026年第二次临时股东会。
 
 ## 正文
 
-央视网消息(新闻联播)：今年以来，全国多地城市更新提速推进，一大批闲置、废弃的老厂房、矿区遗址，经改造提升后，变身热门打卡地、便民空间与创业园区。
-
-在留住城市工业记忆的同时，让老空间长出了新生活、新消费、新产业。
-
-正在演出的，是湖北大冶铜绿山古铜矿遗址推出的沉浸式戏剧。
-
-演出不在传统舞台，而是在废弃千年的露天老矿场里。
-
-经过生态修复与场景再造，这里成为文旅打卡地。
-
-不仅是大冶，如今很多地方都把工业遗址改造成文旅景点，有的直接变成了百姓身边的休闲公园、便民空间。
-
-在山东济南，数十年历史的老模具厂通过精细化“微更新”，变身潮流文创园，年客流量超290万人次；在湖南长沙，闲置老旧车间直接改成便民健身乐园。
-
-除了打造文旅项目和公共空间，不少老厂房还被改造成年轻人创业创新的活力园区。
+证券日报网讯6月22日，拓邦股份发布公告称，公司将于2026年7月8日召开2026年第二次临时股东会。
 
 ## 相关推荐
 
-- 2026-06-30 04:03 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 03:51 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-30 04:07 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 04:02 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 03:55 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 03:57 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 03:54 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 03:52 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 04:16 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 03:48 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 04:10 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 03:55 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 04:23 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 04:20 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 03:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 03:57 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 03:55 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 04:16 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 04:01 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 04:02 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:13 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/025537448.shtml)
-- 2026-06-30 04:03 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/5720284450.shtml)
-- 2026-06-30 03:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/85441212.shtml)
-- 2026-06-30 03:59 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/31566130419.shtml)
-- 2026-06-30 03:57 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/0604657734.shtml)
-- 2026-06-30 04:08 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/83503306.shtml)
-- 2026-06-30 04:18 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/4327737017.shtml)
-- 2026-06-30 03:48 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/090724360472.shtml)
-- 2026-06-30 04:14 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/731344.shtml)
-- 2026-06-30 04:14 - [起风了](http://www.share.minike.top/Article/details/050526645.shtml)
-- 2026-06-30 04:17 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/17688817.shtml)
-- 2026-06-30 04:12 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/6775359899.shtml)
-- 2026-06-30 03:49 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/6962466.shtml)
-- 2026-06-30 04:06 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/53539062.shtml)
-- 2026-06-30 04:02 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/847992188366.shtml)
+- 2026-06-30 03:54 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/21617932612.shtml)
+- 2026-06-30 04:04 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/894780.shtml)
+- 2026-06-30 04:21 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/827476404171.shtml)
+- 2026-06-30 04:17 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/2351888111.shtml)
+- 2026-06-30 04:04 - [千香](https://www.blog.kurohicncr.top/Article/details/02824.shtml)
+- 2026-06-30 03:54 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/458066464.shtml)
+- 2026-06-30 04:19 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/37187.shtml)
+- 2026-06-30 04:22 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/9166097392.shtml)
+- 2026-06-30 04:14 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/70391.shtml)
+- 2026-06-30 04:08 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/14757.shtml)
+- 2026-06-30 03:55 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/37027584.shtml)
+- 2026-06-30 04:03 - [斛珠夫人](http://www.blog.minike.top/Article/details/297577302.shtml)
+- 2026-06-30 04:06 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/300576.shtml)
+- 2026-06-30 04:22 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/1840115.shtml)
+- 2026-06-30 03:54 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/93005.shtml)

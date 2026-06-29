@@ -1,57 +1,60 @@
-# 湖北科创及科普机构组团“亮宝”
+# （活力中国调研行）京津冀协同创新 河北激活产业新动能
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网武汉5月16日电 (高笛 杨斌 陈长丽)2026年湖北省科普亮宝会暨荆楚科普大秀场走进武汉植物园活动16日在中国科学院武汉植物园举行，湖北40余家高校、科研院所、科普场馆、科普教育基地及科技企业，展出60余项科技创新成果、上百项科普展品。 本次活动由湖北省科学技术协会主办，致力于将深奥的科研成果转化为公众喜闻乐见的科普体验，通过可视、可感的互动形式，激发全社会特别是青少年
+中新网雄安6月23日电(李若晗 牛琳 张子扬)2026年“活力中国调研行”河北集中采访活动22日在雄安新区启动。记者从活动情况介绍会上获悉，河北紧抓京津冀协同发展机遇，推动科技创新与产业创新深度融合，加快构建现代化产业体系，以新质生产力培育高质量发展新动能。 河北省科学技术厅副厅长高建锋介绍，河北强化京津冀协同创新机制，持续提升创新资源配置效率。京津冀三地联合攻关破解“卡点”，
 
 ## 正文
 
-中新网武汉5月16日电 (高笛 杨斌 陈长丽)2026年湖北省科普亮宝会暨荆楚科普大秀场走进武汉植物园活动16日在中国科学院武汉植物园举行，湖北40余家高校、科研院所、科普场馆、科普教育基地及科技企业，展出60余项科技创新成果、上百项科普展品。
+中新网雄安6月23日电(李若晗 牛琳 张子扬)2026年“活力中国调研行”河北集中采访活动22日在雄安新区启动。
 
-本次活动由湖北省科学技术协会主办，致力于将深奥的科研成果转化为公众喜闻乐见的科普体验，通过可视、可感的互动形式，激发全社会特别是青少年崇尚科学、探索未知的热情。
+记者从活动情况介绍会上获悉，河北紧抓京津冀协同发展机遇，推动科技创新与产业创新深度融合，加快构建现代化产业体系，以新质生产力培育高质量发展新动能。
 
-步入线下亮宝展区，在一家AI展演中心展位前，观众戴上脑电头环，便能凭意念操控机械手抓取物品，直观感受脑机接口技术的神奇。
+河北省科学技术厅副厅长高建锋介绍，河北强化京津冀协同创新机制，持续提升创新资源配置效率。
 
-武汉人工智能研究院展出的“紫东太初”数字人一体机不仅能流畅对话，更能进行跨模态创作，展示了AI赋能千行百业的广阔潜力与无限可能。
+京津冀三地联合攻关破解“卡点”，设立京津冀协同创新专项，2025年以来围绕重点产业链“卡点”开展39个项目；实施京津冀自然科学基金合作专项，聚焦轨道交通、生态环境、生物医药、氢能等领域，累计投入1.47亿元，资助277个项目。
 
-在生命健康与现代农业板块，中国农业科学院油料作物研究所展出了油料种质资源和最新品种；新质能力增强技术湖北省重点学科实验室(华中师范大学)则通过沉浸式核心训练机和体成分分析仪，为青少年健康成长提供科学指导。
+高建锋表示，河北深度融入北京(京津冀)国际科技创新中心建设，立足三地功能定位，不断加强与北京创新策源能力对接，拓展产业应用场景。
 
-在绿色能源与公共安全领域，“武碳江湖”碳普惠平台诠释了低碳生活的践行路径；智能巡检四足机器人与电力巡检无人机，展现了科技守护电网安全的“空地一体”巡检能力；滑坡深部大位移监测柔性测斜仪，体现了地质灾害监测预警的先进技术水平…… 此次活动还设立“科创集市”，展出油脂文创口红、番茄新品、精品科普图书等产品。
+河北省发展和改革委员会副主任段占东介绍，全省正在加快构建现代化产业体系，已明确八大重点产业方向，并配套出台电子信息、生物医药、人工智能等一系列专项政策，强化企业科技创新主体地位。
 
-公众在逛集市过程中，不仅能近距离感受前沿科技，还能选购科普产品和优质农产品，促进科创成果融入日常生活。
+在创新能力建设方面，河北持续强化高能级平台支撑，8家全国重点实验室重组获批，钢铁、绿色化工等燕赵系列实验室有序布局。
 
-(完)
+值得关注的是，据河北省科技厅消息，河北正加快打造科技成果转化“中试首选地”。
 
 ## 相关推荐
 
-- 2026-06-30 03:53 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 04:15 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 03:54 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 04:13 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 03:55 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 03:57 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 03:50 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 03:56 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 03:49 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 04:00 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 04:06 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 03:55 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 04:18 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 04:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 04:01 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 04:23 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 04:00 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 04:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 04:16 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 03:57 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 04:08 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 03:55 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 04:06 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 04:19 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 04:07 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:14 - [沙丘](http://www.blog.minike.top/Article/details/14506076149.shtml)
-- 2026-06-30 03:56 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/677902.shtml)
-- 2026-06-30 04:09 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/977391368.shtml)
-- 2026-06-30 04:02 - [速度与激情9](http://www.blog.minike.top/Article/details/702620.shtml)
-- 2026-06-30 04:01 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/084633004069.shtml)
-- 2026-06-30 04:07 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/808460695.shtml)
-- 2026-06-30 03:51 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/6049170034.shtml)
-- 2026-06-30 04:07 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/545913580.shtml)
-- 2026-06-30 04:17 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/30944.shtml)
-- 2026-06-30 04:04 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/12852538.shtml)
-- 2026-06-30 04:10 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/9942019.shtml)
-- 2026-06-30 03:54 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/15261031.shtml)
-- 2026-06-30 04:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/0973521899.shtml)
-- 2026-06-30 03:55 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/0249161154.shtml)
-- 2026-06-30 04:09 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/79640981632.shtml)
+- 2026-06-30 04:16 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/49031.shtml)
+- 2026-06-30 04:21 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/44109.shtml)
+- 2026-06-30 04:06 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/290130974268.shtml)
+- 2026-06-30 04:12 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/531060420.shtml)
+- 2026-06-30 04:23 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/100513075778.shtml)
+- 2026-06-30 03:56 - [《贺子珍》](https://www.blog.minike.top/Article/details/209198.shtml)
+- 2026-06-30 04:09 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/10891576.shtml)
+- 2026-06-30 04:08 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/944443414868.shtml)
+- 2026-06-30 04:13 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/755382507.shtml)
+- 2026-06-30 03:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/916303448.shtml)
+- 2026-06-30 04:06 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/9485042.shtml)
+- 2026-06-30 04:16 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/28533.shtml)
+- 2026-06-30 04:23 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/60708437.shtml)
+- 2026-06-30 04:01 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/92560937.shtml)
+- 2026-06-30 04:20 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/2037642671.shtml)

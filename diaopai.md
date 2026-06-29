@@ -1,53 +1,49 @@
-# 十四届全国政协常委王晓东被查 曾任湖北省省长
+# 民族团结进步促进法是30多年来第一部设序言的法律
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新社北京5月17日电 中国官方17日通报，十四届全国政协常委、农业和农村委员会副主任王晓东涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。 公开资料显示，王晓东，1960年1月出生，江西信丰人，曾任贵州省贵阳市委书记，贵州省委常委，贵州省政府副省长、党组副书记，湖北省委副书记，湖北省政府省长、党组书记等职。2023年，王晓东任十四届全国政协常委、农业和农村委员
+国务院新闻办公室6月24日举行新闻发布会，介绍《中华人民共和国民族团结进步促进法》和我国民族工作有关情况。记者从新闻发布会上了解到，民族团结进步促进法是新时代实施宪法有关规定、处理民族事务和开展民族工作的基本法律。在体例上专门设置序言，是30多年来第一部设置序言的法律，凸显了这部法律的政治性、原则性、宣示性、导向性。(记者范思翔、唐健辉)
 
 ## 正文
 
-中新社北京5月17日电 中国官方17日通报，十四届全国政协常委、农业和农村委员会副主任王晓东涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
+国务院新闻办公室6月24日举行新闻发布会，介绍《中华人民共和国民族团结进步促进法》和我国民族工作有关情况。
 
-公开资料显示，王晓东，1960年1月出生，江西信丰人，曾任贵州省贵阳市委书记，贵州省委常委，贵州省政府副省长、党组副书记，湖北省委副书记，湖北省政府省长、党组书记等职。
+记者从新闻发布会上了解到，民族团结进步促进法是新时代实施宪法有关规定、处理民族事务和开展民族工作的基本法律。
 
-2023年，王晓东任十四届全国政协常委、农业和农村委员会副主任。
+在体例上专门设置序言，是30多年来第一部设置序言的法律，凸显了这部法律的政治性、原则性、宣示性、导向性。
 
-(完)
+(记者范思翔、唐健辉)
 
 ## 相关推荐
 
-- 2026-06-30 03:56 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 04:12 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 03:58 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 03:48 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 04:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 04:00 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 04:17 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 04:06 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 03:53 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 03:54 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 03:48 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 04:02 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 04:13 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 03:50 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 03:58 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 04:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 03:58 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 04:08 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 04:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 03:54 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 03:55 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 04:23 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 04:23 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 04:00 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 04:00 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 03:58 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:53 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/11243.shtml)
-- 2026-06-30 03:51 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/39022948.shtml)
-- 2026-06-30 03:55 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/71352614.shtml)
-- 2026-06-30 03:55 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/9769102.shtml)
-- 2026-06-30 04:07 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/94774544.shtml)
-- 2026-06-30 03:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/626637025673.shtml)
-- 2026-06-30 03:50 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/214407.shtml)
-- 2026-06-30 03:57 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/0728898.shtml)
-- 2026-06-30 04:16 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/37454660.shtml)
-- 2026-06-30 03:54 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/068041394316.shtml)
-- 2026-06-30 04:17 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/89706.shtml)
-- 2026-06-30 04:13 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/374931129.shtml)
-- 2026-06-30 04:17 - [扬名立万](http://www.share.minike.top/Article/details/7950296.shtml)
-- 2026-06-30 04:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/46143.shtml)
-- 2026-06-30 04:05 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/99432305859.shtml)
+- 2026-06-30 04:18 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/18328202142.shtml)
+- 2026-06-30 03:56 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/91375.shtml)
+- 2026-06-30 03:55 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/9185158516.shtml)
+- 2026-06-30 04:19 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/361554652.shtml)
+- 2026-06-30 04:14 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/62472178782.shtml)
+- 2026-06-30 04:18 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/61998088.shtml)
+- 2026-06-30 04:12 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/493079697.shtml)
+- 2026-06-30 04:15 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/05831672252.shtml)
+- 2026-06-30 03:59 - [《共患难》](https://www.blog.minike.top/Article/details/834727895942.shtml)
+- 2026-06-30 03:59 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/89804392.shtml)
+- 2026-06-30 04:13 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/7195672.shtml)
+- 2026-06-30 04:02 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/98722478879.shtml)
+- 2026-06-30 04:12 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/827016.shtml)
+- 2026-06-30 04:23 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/46602.shtml)
+- 2026-06-30 04:02 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/70998.shtml)

@@ -1,59 +1,56 @@
-# 国际纸业收购特拉华州加工厂，拓展东海岸可持续包装业务
+# 物理AI规模化之王将登陆港股！Momenta开启物理AI万亿产业周期
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-收购详情 国际纸业公司近日宣布，已从Delmarva Corrugated Packaging手中收购了其位于特拉华州多佛的加工厂。交易的财务条款未予披露。 战略意义与增长 此次战略性收购将增强国际纸业的运营能力，扩大其市场覆盖范围，并增加其为客户生产高品质可持续包装解决方案的产能。国际纸业北美包装解决方案执行副总裁兼总裁Tom Hamic表示，此次收购加强了公司在该地区的业务
+6月23日，全球领先的物理AI公司Momenta在港交所刊发聆讯后资料集（PHIP），这意味着公司已通过港交所聆讯，正式进入IPO冲刺阶段。中金公司和德意志银行为其联席保荐人。成功挂牌后，Momenta将以物理AI基座模型的构建者及高达65%的第三方城市NOA销量市占率，成为“物理AI第一股”。 招股书显示，Momenta近三年营收规模实现跨越式增长：2023年至2025年，M
 
 ## 正文
 
-收购详情 国际纸业公司近日宣布，已从Delmarva Corrugated Packaging手中收购了其位于特拉华州多佛的加工厂。
+6月23日，全球领先的物理AI公司Momenta在港交所刊发聆讯后资料集（PHIP），这意味着公司已通过港交所聆讯，正式进入IPO冲刺阶段。
 
-交易的财务条款未予披露。
+中金公司和德意志银行为其联席保荐人。
 
-战略意义与增长 此次战略性收购将增强国际纸业的运营能力，扩大其市场覆盖范围，并增加其为客户生产高品质可持续包装解决方案的产能。
+成功挂牌后，Momenta将以物理AI基座模型的构建者及高达65%的第三方城市NOA销量市占率，成为“物理AI第一股”。
 
-国际纸业北美包装解决方案执行副总裁兼总裁Tom Hamic表示，此次收购加强了公司在该地区的业务版图，并支持其长期增长战略。
+招股书显示，Momenta近三年营收规模实现跨越式增长：2023年至2025年，Momenta营业收入从7.43亿元增长至24.13亿元，三年翻三倍，年均复合增长率超80%。
 
-多佛工厂强大的客户基础和战略位置，将帮助公司以更高的速度和可靠性交付高品质、可持续的包装解决方案。
+截至2025年底，公司现金储备超100亿元，为加速Robo市场和全球化发展提供了有力支撑。
 
-管理层评价 Delmarva Corrugated Packaging总裁兼首席执行官Dennis D． Mehiel对此次交易表示欣喜，称很难找到比国际纸业更合适的组织来帮助多佛的团队实现业务潜力，并相信此次交易将使公司的所有利益相关者受益。
+这一强劲业绩表现的背后，是Momenta在行业里率先跑通了数据和商业的规模化闭环。
 
-公司背景 国际纸业是可持续包装解决方案的领导者，此次收购与其为客户、股东和员工创造最大价值的战略相契合。
+目前，搭载Momenta系统的量产车辆规模已超90万台，已成功交付超100款量产车型，累计定点车型数超210款，并实现最快不到40天交付10万台的高效部署。
 
-此前公布的2026年第一季度财报显示，公司营收为59.7亿美元，来自持续经营的收益为7600万美元。
+Momenta将自己定位为物理AI基座模型的构建者。
 
 ## 相关推荐
 
-- 2026-06-30 04:15 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 04:16 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 04:14 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 03:59 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-30 04:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 04:12 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 04:04 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 03:58 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 04:15 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 04:06 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 04:12 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-30 04:06 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-30 04:11 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 03:59 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 04:05 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 03:57 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 04:07 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 04:12 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 03:56 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 04:21 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 04:13 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 03:54 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 04:09 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:49 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/12222.shtml)
-- 2026-06-30 04:14 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/7956150.shtml)
-- 2026-06-30 04:13 - [美人鱼](https://www.share.minike.top/Article/details/1436697671.shtml)
-- 2026-06-30 03:55 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/1675008.shtml)
-- 2026-06-30 04:07 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/747631.shtml)
-- 2026-06-30 03:53 - [点菜也要教吗](https://www.blog.minike.top/Article/details/67286895.shtml)
-- 2026-06-30 04:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/6692319425.shtml)
-- 2026-06-30 04:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/29851.shtml)
-- 2026-06-30 03:48 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/24672.shtml)
-- 2026-06-30 04:07 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/1452238.shtml)
-- 2026-06-30 03:52 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/98424567.shtml)
-- 2026-06-30 03:53 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/596327.shtml)
-- 2026-06-30 04:05 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/27237406565.shtml)
-- 2026-06-30 03:48 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/59313.shtml)
-- 2026-06-30 04:17 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/807559701955.shtml)
+- 2026-06-30 04:00 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/70342.shtml)
+- 2026-06-30 04:04 - [巴西扳平比分](https://www.share.minike.top/Article/details/1741306356.shtml)
+- 2026-06-30 03:59 - [小娘惹](http://www.blog.minike.top/Article/details/8196502627.shtml)
+- 2026-06-30 04:19 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/763626.shtml)
+- 2026-06-30 03:56 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/6419539.shtml)
+- 2026-06-30 04:21 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/283539231177.shtml)
+- 2026-06-30 04:08 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/80343.shtml)
+- 2026-06-30 04:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/061725823.shtml)
+- 2026-06-30 04:18 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/29581114326.shtml)
+- 2026-06-30 04:07 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/159133747106.shtml)
+- 2026-06-30 04:18 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/0889997.shtml)
+- 2026-06-30 04:17 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/0942211.shtml)
+- 2026-06-30 04:19 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/6281998.shtml)
+- 2026-06-30 04:21 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/2066384069.shtml)
+- 2026-06-30 04:00 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/94879.shtml)

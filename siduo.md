@@ -1,54 +1,56 @@
-# 礼来将出席伯恩斯坦第42届年度战略决策会议
+# （经济观察）端午假期中国旅游市场现三大新风向
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-参会详情 礼来公司宣布，将出席于2026年5月28日举行的伯恩斯坦第42届年度战略决策会议。礼来首席科学官、礼来研究实验室总裁Daniel M． Skovronsky医学博士将在美国东部时间下午1：30参加炉边谈话。 线上参与方式 届时，礼来投资者网站“网络广播与演示”栏目将提供现场音频直播。会议重播将在同一网站在线保存约90天。 礼来公司总部位于印第安纳波利斯，目前市值超过1
+中新社北京6月22日电 题：端午假期中国旅游市场现三大新风向 中新社记者 刘文文 2026年端午假期已收官。据中国交通运输部统计，假期三天(2026年6月19日-21日)，预计全社会跨区域人员流动量超6.5亿人次。假日期间，旅游市场呈现三大出游新风向。 民俗游成假日流量担当 作为传统佳节，端午民俗体验持续“出圈”。今年显著变化在于：从“打卡式”观光转向“沉浸式”体验。同程旅行数
 
 ## 正文
 
-参会详情 礼来公司宣布，将出席于2026年5月28日举行的伯恩斯坦第42届年度战略决策会议。
+中新社北京6月22日电 题：端午假期中国旅游市场现三大新风向 中新社记者 刘文文 2026年端午假期已收官。
 
-礼来首席科学官、礼来研究实验室总裁Daniel M． Skovronsky医学博士将在美国东部时间下午1：30参加炉边谈话。
+据中国交通运输部统计，假期三天(2026年6月19日-21日)，预计全社会跨区域人员流动量超6.5亿人次。
 
-线上参与方式 届时，礼来投资者网站“网络广播与演示”栏目将提供现场音频直播。
+假日期间，旅游市场呈现三大出游新风向。
 
-会议重播将在同一网站在线保存约90天。
+民俗游成假日流量担当 作为传统佳节，端午民俗体验持续“出圈”。
 
-礼来公司总部位于印第安纳波利斯，目前市值超过1万亿美元，是全球最大的制药公司之一。
+今年显著变化在于：从“打卡式”观光转向“沉浸式”体验。
 
-责任编辑：张俊 SF065
+同程旅行数据显示，包粽子、手工制香囊、编织五彩绳、制作艾草花束等深度体验类产品，预订热度同比增长23%。
+
+沉浸式手作将节日氛围拉满，让传统古韵可触可感。
+
+同时，新中式游园、古风市集、古礼复原等文旅新业态热度持续走高。
 
 ## 相关推荐
 
-- 2026-06-30 04:11 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 04:12 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 03:57 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 03:56 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 04:15 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 04:13 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 03:49 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 04:05 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 03:59 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 04:02 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 03:50 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 04:01 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 04:17 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-30 04:12 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 04:23 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 04:20 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 04:16 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 04:06 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 04:24 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 03:58 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 04:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 03:55 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:53 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/178657048381.shtml)
-- 2026-06-30 03:53 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/6955855043.shtml)
-- 2026-06-30 03:59 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/1853435.shtml)
-- 2026-06-30 04:03 - [世界杯](http://www.blog.minike.top/Article/details/12486684117.shtml)
-- 2026-06-30 04:00 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/0426281374.shtml)
-- 2026-06-30 03:52 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/20783.shtml)
-- 2026-06-30 03:57 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/620143663.shtml)
-- 2026-06-30 03:58 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/32416.shtml)
-- 2026-06-30 03:48 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/062389584.shtml)
-- 2026-06-30 03:56 - [金刚川](https://www.share.kurohicncr.top/Article/details/93924.shtml)
-- 2026-06-30 04:00 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/269115808.shtml)
-- 2026-06-30 03:55 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/075138.shtml)
-- 2026-06-30 03:55 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/091933.shtml)
-- 2026-06-30 04:00 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/42513.shtml)
-- 2026-06-30 03:49 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/90079.shtml)
+- 2026-06-30 04:20 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/217737968.shtml)
+- 2026-06-30 04:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/82863.shtml)
+- 2026-06-30 04:16 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/33159331251.shtml)
+- 2026-06-30 03:54 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/171742537.shtml)
+- 2026-06-30 04:03 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/168344574.shtml)
+- 2026-06-30 04:13 - [毒液2](http://www.blog.kurohicncr.top/Article/details/970723919.shtml)
+- 2026-06-30 04:17 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/2807695.shtml)
+- 2026-06-30 04:15 - [扫黑风暴](http://www.share.minike.top/Article/details/41634027.shtml)
+- 2026-06-30 04:06 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/9870925556.shtml)
+- 2026-06-30 04:22 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/72521.shtml)
+- 2026-06-30 04:07 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/607882204.shtml)
+- 2026-06-30 04:08 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/39722141.shtml)
+- 2026-06-30 04:13 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/799280.shtml)
+- 2026-06-30 04:02 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/16232.shtml)
+- 2026-06-30 04:02 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/046907830556.shtml)

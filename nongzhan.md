@@ -1,59 +1,52 @@
-# 湖北省AEO高级认证企业达183家
+# 柳江2026年1号洪水过境 广西柳州转移受困群众269人
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网武汉5月18日电 (张恒熠 万宇 朱浩)记者18日从武汉海关获悉，湖北省AEO高级认证企业已达183家。 据悉，AEO证书被业界称为全球国际贸易的“绿色通行证”，获得AEO认证的企业不仅可以享受海关给予的通关便利及部门间联合激励措施，还可以在全球58个与中国互认的国家(地区)享受通关便利。 近日，武汉某半导体产品研发及制造企业通过海关AEO(经认证的经营者)认证，成为新修
+6月21日至22日，柳江2026年1号洪水过境广西柳州，沿江区域出现大面积江水倒灌，多处群众受困，江面漂浮物影响水上安全情况频发。面对严峻汛情，柳州海事联合水上搜救志愿者队伍组成应急救援队伍，全力开展防汛抢险水上应急处置工作。截至6月22日18时，本次联合救援行动共计安全转移被困群众269人。本次防汛救援行动累计出动橡皮艇11艘次、一线执法人员12人次，联动水上搜救志愿者26人
 
 ## 正文
 
-中新网武汉5月18日电 (张恒熠 万宇 朱浩)记者18日从武汉海关获悉，湖北省AEO高级认证企业已达183家。
+6月21日至22日，柳江2026年1号洪水过境广西柳州，沿江区域出现大面积江水倒灌，多处群众受困，江面漂浮物影响水上安全情况频发。
 
-据悉，AEO证书被业界称为全球国际贸易的“绿色通行证”，获得AEO认证的企业不仅可以享受海关给予的通关便利及部门间联合激励措施，还可以在全球58个与中国互认的国家(地区)享受通关便利。
+面对严峻汛情，柳州海事联合水上搜救志愿者队伍组成应急救援队伍，全力开展防汛抢险水上应急处置工作。
 
-近日，武汉某半导体产品研发及制造企业通过海关AEO(经认证的经营者)认证，成为新修订的《中华人民共和国海关注册登记和备案企业信用管理办法》正式实施后，湖北省首家通过认证的AEO高级认证企业。
+截至6月22日18时，本次联合救援行动共计安全转移被困群众269人。
 
-该公司产品覆盖新能源汽车、光伏、储能、充电桩、电力电网等领域，进出口需求大，获得AEO高级认证后，将搭建更稳固供应链，产品出海更高效。
+本次防汛救援行动累计出动橡皮艇11艘次、一线执法人员12人次，联动水上搜救志愿者26人次。
 
-湖北黄石某机电集团深耕制冷压缩机领域多年，产品远销60多个国家和地区，是多个全球知名家电品牌的主要供应商。
+柳州海事部门将持续紧盯汛期各类安全风险，加密江面巡航排查频次，防范洪水次生安全风险，持续做好后续保障工作。
 
-随着海外订单增长，集团对通关时效、海外市场开拓有更高要求。
-
-武汉海关所属黄石海关主动提供全流程帮扶，助力集团内的进出口企业顺利通过AEO认证。
-
-武汉海关相关负责人表示，武汉海关将持续聚焦湖北省“51020”先进制造业产业集群、专精特新企业等，关注新兴和未来产业，帮扶更多企业获得AEO资质，促进地方外向型经济发展。
+(总台记者 邓君洋)
 
 ## 相关推荐
 
-- 2026-06-30 04:12 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 04:15 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 03:50 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-30 04:05 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 04:09 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 03:49 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 03:49 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 04:09 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 04:10 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 04:07 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 04:10 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 04:12 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 03:51 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 04:13 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 03:54 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 04:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 04:14 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 04:22 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 04:23 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 04:22 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 04:07 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 03:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 04:22 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:17 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/3151996.shtml)
-- 2026-06-30 03:58 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/81793896021.shtml)
-- 2026-06-30 04:15 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/607271316.shtml)
-- 2026-06-30 03:59 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/27866599.shtml)
-- 2026-06-30 04:03 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/48817305141.shtml)
-- 2026-06-30 04:11 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/84865038305.shtml)
-- 2026-06-30 04:16 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/142948944472.shtml)
-- 2026-06-30 04:16 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/82399.shtml)
-- 2026-06-30 04:13 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/749033762.shtml)
-- 2026-06-30 03:55 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/740922.shtml)
-- 2026-06-30 03:56 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/79761749.shtml)
-- 2026-06-30 04:12 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/25689.shtml)
-- 2026-06-30 04:08 - [恋与深空 日服](http://www.blog.minike.top/Article/details/72447681.shtml)
-- 2026-06-30 04:08 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/85274.shtml)
-- 2026-06-30 03:54 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/762319616161.shtml)
+- 2026-06-30 03:56 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/1346641585.shtml)
+- 2026-06-30 04:20 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/576515.shtml)
+- 2026-06-30 04:16 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/72083935200.shtml)
+- 2026-06-30 04:08 - [我们的少年时代2](https://www.blog.minike.top/Article/details/679346359800.shtml)
+- 2026-06-30 04:22 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/72518.shtml)
+- 2026-06-30 04:06 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/142143.shtml)
+- 2026-06-30 04:20 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/28734498712.shtml)
+- 2026-06-30 04:11 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/1325994707.shtml)
+- 2026-06-30 04:09 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/24405.shtml)
+- 2026-06-30 04:11 - [逃狱兄弟](http://www.blog.minike.top/Article/details/381137105581.shtml)
+- 2026-06-30 03:55 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/88254.shtml)
+- 2026-06-30 04:04 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/856448377.shtml)
+- 2026-06-30 03:55 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/24883423942.shtml)
+- 2026-06-30 03:57 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/31832168.shtml)
+- 2026-06-30 03:54 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/873451165456.shtml)

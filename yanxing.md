@@ -1,47 +1,56 @@
-# 湖北荆州遭遇特大暴雨 中心城区实施“五停”措施
+# 总书记的人民情怀｜“把党的政治建设作为党的根本性建设”
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-昨天至今天凌晨，湖北荆州市遭遇持续性强降雨天气。昨天8时到今天6时，荆州市荆州区、沙市区、公安县10个乡镇出现特大暴雨，最大雨量为357.3毫米，出现在公安县斑竹垱长河村。 今天(18日)一早，荆州市政府启动极端降雨城市内涝应急响应，中心城区严格落实“停工、停产、停业、停运、停课”措施。
+原标题：“把党的政治建设作为党的根本性建设”(总书记的人民情怀) 党的政治建设是党的根本性建设。 党的十九大首次把党的政治建设纳入党的建设总体布局并摆在首位。党的二十大进一步明确“以党的政治建设统领党的建设各项工作”。习近平党建思想将“坚持以党的政治建设为统领”作为“十四个坚持”的一个重要方面。 “如果马克思主义政党政治上的先进性丧失了，党的先进性和纯洁性就无从谈起。这就是我们
 
 ## 正文
 
-昨天至今天凌晨，湖北荆州市遭遇持续性强降雨天气。
+原标题：“把党的政治建设作为党的根本性建设”(总书记的人民情怀) 党的政治建设是党的根本性建设。
 
-昨天8时到今天6时，荆州市荆州区、沙市区、公安县10个乡镇出现特大暴雨，最大雨量为357.3毫米，出现在公安县斑竹垱长河村。
+党的十九大首次把党的政治建设纳入党的建设总体布局并摆在首位。
 
-今天(18日)一早，荆州市政府启动极端降雨城市内涝应急响应，中心城区严格落实“停工、停产、停业、停运、停课”措施。
+党的二十大进一步明确“以党的政治建设统领党的建设各项工作”。
+
+习近平党建思想将“坚持以党的政治建设为统领”作为“十四个坚持”的一个重要方面。
+
+“如果马克思主义政党政治上的先进性丧失了，党的先进性和纯洁性就无从谈起。
+
+这就是我们把党的政治建设作为党的根本性建设的道理所在。
+
+”习近平总书记指出。
+
+加强党的政治建设，首要任务是保证全党服从中央，坚持党中央权威和集中统一领导。
 
 ## 相关推荐
 
-- 2026-06-30 04:03 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-30 04:10 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 04:11 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 04:03 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 04:06 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-30 03:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 03:50 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 03:53 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 04:10 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 04:08 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 03:49 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 04:21 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 04:14 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 04:09 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 04:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 04:02 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 04:01 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 04:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 04:22 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 03:56 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 04:20 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:01 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/165366704.shtml)
-- 2026-06-30 04:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/2594721.shtml)
-- 2026-06-30 04:11 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/57730827189.shtml)
-- 2026-06-30 04:06 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/0866594.shtml)
-- 2026-06-30 03:53 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/84434.shtml)
-- 2026-06-30 03:59 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/9908287449.shtml)
-- 2026-06-30 04:00 - [斗破苍穹](https://www.blog.minike.top/Article/details/077224099.shtml)
-- 2026-06-30 03:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/752976755343.shtml)
-- 2026-06-30 03:59 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/442235720546.shtml)
-- 2026-06-30 03:58 - [千香](https://www.share.minike.top/Article/details/14973.shtml)
-- 2026-06-30 04:14 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/0053909.shtml)
-- 2026-06-30 03:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/88994.shtml)
-- 2026-06-30 04:06 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/599006087364.shtml)
-- 2026-06-30 03:53 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/110202390.shtml)
-- 2026-06-30 04:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/339574.shtml)
+- 2026-06-30 04:16 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/0664233.shtml)
+- 2026-06-30 03:56 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/626169.shtml)
+- 2026-06-30 04:04 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/3091311.shtml)
+- 2026-06-30 04:22 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/0601032946.shtml)
+- 2026-06-30 04:07 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/880892489.shtml)
+- 2026-06-30 04:22 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/89620.shtml)
+- 2026-06-30 04:13 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/3122863.shtml)
+- 2026-06-30 03:56 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/3004818.shtml)
+- 2026-06-30 04:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/992508.shtml)
+- 2026-06-30 04:05 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/99581927.shtml)
+- 2026-06-30 04:16 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/7398204.shtml)
+- 2026-06-30 04:20 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/51927988.shtml)
+- 2026-06-30 04:21 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/4333403739.shtml)
+- 2026-06-30 04:06 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/6658709362.shtml)
+- 2026-06-30 03:56 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/740973.shtml)

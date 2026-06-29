@@ -1,57 +1,60 @@
-# 民生人寿总资产缩水160亿，船大难掉头
+# 年内险企发债超320亿：规模回落，置换主导、中小主体分散发行
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：燕梳师院 文|辛苔 编辑|言生 民生人寿的二十余载历程，可以说是中国民营资本逐鹿金融保险行业的缩影。早期，便经历了两大派系——“万向系”与“泛海系”的资本博弈。而由于股权架构的不稳定，直接波及了公司管理层的稳定性，一度出现了长期的“群龙无首”状态，坎坷不断。 如今，历史遗留问题犹存，公司经营大起大落、合规漏洞频出，再次将这
+来源：蓝鲸财经 蓝鲸新闻6月23日讯险企发债动向，正在悄然变化。 蓝鲸新闻记者统计发现，2026年以来，已有14家险企发行16只资本补充类债券，总规模约320.7亿元，与此前三年连续超千亿的规模相比明显回落。 随着偿二代二期过渡期收官、行业偿付能力“安全垫”增厚，险企发债正由应急补缺口转向常态化优化，全年供给正呈现总量收缩、置换主导、中小主体分散发行的特征。 同比回落，年内14
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：燕梳师院 文|辛苔 编辑|言生 民生人寿的二十余载历程，可以说是中国民营资本逐鹿金融保险行业的缩影。
+来源：蓝鲸财经 蓝鲸新闻6月23日讯险企发债动向，正在悄然变化。
 
-早期，便经历了两大派系——“万向系”与“泛海系”的资本博弈。
+蓝鲸新闻记者统计发现，2026年以来，已有14家险企发行16只资本补充类债券，总规模约320.7亿元，与此前三年连续超千亿的规模相比明显回落。
 
-而由于股权架构的不稳定，直接波及了公司管理层的稳定性，一度出现了长期的“群龙无首”状态，坎坷不断。
+随着偿二代二期过渡期收官、行业偿付能力“安全垫”增厚，险企发债正由应急补缺口转向常态化优化，全年供给正呈现总量收缩、置换主导、中小主体分散发行的特征。
 
-如今，历史遗留问题犹存，公司经营大起大落、合规漏洞频出，再次将这家老牌民营险企推向大众视野。
+同比回落，年内14家险企发行320.7亿债券 截至6月23日，年内保险机构资本补充类债券总发行规模达320.7亿元，其中永续债与资本补充债券各发行8只，发行规模分别为193.4亿元、127.3亿元，永续债占比超6成。
 
-01 经营难题 单看2026年一季度数据，民生人寿的经营表现中规中矩。
+从发行主体来看，以人身险公司为主，涵盖横琴人寿、民生人寿、招商信诺人寿、中英人寿、同方全球人寿、中信保诚人寿、中荷人寿、泰康养老、中华联合人寿、阳光人寿、中邮人寿、招商局仁和人寿、长城人寿13家人身险公司，以及中华联合财产保险1家财产险公司。
 
-具体而言，截至一季度末，公司实现保险业务收入38.59亿元，同比微降6.49%；实现净利润6143.38万元，同比大幅增长947.43%。
+其中，中信保诚人寿、阳光人寿发行规模均达50亿元，为上半年发债规模最大的两家机构；招商信诺人寿、招商局仁和人寿、泰康养老发行规模也均超过20亿元。
 
-图源：2026年第一季度偿付能力报告 渠道端来看，一季度里，个人渠道狂揽38.94亿元，占比高达93.5%；而银保渠道仅2.22亿元，渠道结构存在严重“偏科”。
+从发行利率来看，上半年险企发债票面利率区间为2.05%-2.98%，处于低位区间。
 
-值得注意的是，公司期末个人营销员数量仅为6892人。
+其中，招商信诺人寿、中荷人寿发行的永续债票面利率均为2.05%，为上半年最低发行利率；横琴人寿发行的资本补充债券票面利率2.98%，为上半年最高。
 
 ## 相关推荐
 
-- 2026-06-30 04:14 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 04:06 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-30 03:55 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 04:17 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 03:51 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-30 04:10 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 03:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 03:59 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 04:03 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 04:15 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 03:50 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 04:04 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 04:23 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 04:16 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 04:14 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 04:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 04:14 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 04:23 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 04:17 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 03:54 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 04:19 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 04:23 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 04:09 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 04:09 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 04:05 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:53 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/1625438.shtml)
-- 2026-06-30 04:14 - [极限挑战第一季](http://www.share.minike.top/Article/details/535869.shtml)
-- 2026-06-30 03:57 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/835456784373.shtml)
-- 2026-06-30 03:48 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/8491502752.shtml)
-- 2026-06-30 03:52 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/8634953.shtml)
-- 2026-06-30 03:55 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/3896255723.shtml)
-- 2026-06-30 04:14 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/1178413198.shtml)
-- 2026-06-30 03:58 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/237924260.shtml)
-- 2026-06-30 03:51 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/549542.shtml)
-- 2026-06-30 04:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/22332.shtml)
-- 2026-06-30 03:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/61346053234.shtml)
-- 2026-06-30 04:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/82144324916.shtml)
-- 2026-06-30 03:57 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/42104650838.shtml)
-- 2026-06-30 03:49 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/5956523.shtml)
-- 2026-06-30 03:49 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/503037.shtml)
+- 2026-06-30 04:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/668617698564.shtml)
+- 2026-06-30 04:05 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/799929974302.shtml)
+- 2026-06-30 04:07 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/857320.shtml)
+- 2026-06-30 04:21 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/9077144275.shtml)
+- 2026-06-30 04:13 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/93365.shtml)
+- 2026-06-30 03:58 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/391923580207.shtml)
+- 2026-06-30 04:22 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/78705364.shtml)
+- 2026-06-30 04:20 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/7098704455.shtml)
+- 2026-06-30 04:02 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/889100791898.shtml)
+- 2026-06-30 03:56 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/171649463.shtml)
+- 2026-06-30 04:18 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/9006881918.shtml)
+- 2026-06-30 04:03 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/376797.shtml)
+- 2026-06-30 04:19 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/65562983454.shtml)
+- 2026-06-30 04:12 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/17448962.shtml)
+- 2026-06-30 04:07 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/655485.shtml)

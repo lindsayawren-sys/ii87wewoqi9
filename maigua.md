@@ -1,47 +1,51 @@
-# 现场直击：广西柳州5.2级地震 民众户外避险
+# 华为乾崑智驾高阶包下月调价，一次性购买恢复至标准价36000元
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 09:21 来源：中国新闻网 责任编辑：【王祎】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：IT之家）IT之家 6 月 22 日消息，华为乾崑智能汽车解决方案官微 22 日（今天）公告称，华为乾崑智驾 ADS Max 高阶功能包将从 7 月 1 日起调整价格。其中，一次性购买的建议销售价限时优惠将取消，由 32000 元恢复至标准价 36000 元。IT之家附上公告全文如下图：随着此次价格
 
 ## 正文
 
-发布时间：2026年05月18日 09:21 来源：中国新闻网 责任编辑：【王祎】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+
+（来源：IT之家）IT之家 6 月 22 日消息，华为乾崑智能汽车解决方案官微 22 日（今天）公告称，华为乾崑智驾 ADS Max 高阶功能包将从 7 月 1 日起调整价格。
+
+其中，一次性购买的建议销售价限时优惠将取消，由 32000 元恢复至标准价 36000 元。
+
+IT之家附上公告全文如下图：随着此次价格的调整，引望新增了 ADS 高阶功能包保障与服务权益，对智驾保障权益进行了重大升级，将城区 NCA 及高速 NCA 纳入保障场景。
+
+公告还强调，用户购买时享有的高阶功能包补贴，由各车企自行发布，最终支付金额以实际成交价为准。
 
 ## 相关推荐
 
-- 2026-06-30 03:54 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 03:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 04:17 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 03:51 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 04:14 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 04:11 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 04:10 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 03:48 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 04:05 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 04:05 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 03:53 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 03:55 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 03:53 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 03:48 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 03:56 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 04:22 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 04:07 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 03:56 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 04:09 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 04:05 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 04:08 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 04:06 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 03:57 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-30 04:01 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 04:23 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 03:57 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:59 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/10785.shtml)
-- 2026-06-30 04:14 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/3436968.shtml)
-- 2026-06-30 04:17 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/806304.shtml)
-- 2026-06-30 03:49 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/89448.shtml)
-- 2026-06-30 03:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/5369752055.shtml)
-- 2026-06-30 04:04 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/082150100933.shtml)
-- 2026-06-30 03:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/914995.shtml)
-- 2026-06-30 04:08 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/656324.shtml)
-- 2026-06-30 04:08 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/66941.shtml)
-- 2026-06-30 03:50 - [世界杯](https://www.share.kurohicncr.top/Article/details/09873.shtml)
-- 2026-06-30 04:10 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/2166454.shtml)
-- 2026-06-30 03:52 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/651648.shtml)
-- 2026-06-30 03:53 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/27716.shtml)
-- 2026-06-30 03:48 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/8290745630.shtml)
-- 2026-06-30 04:13 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/01791974.shtml)
+- 2026-06-30 04:05 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/271231.shtml)
+- 2026-06-30 04:21 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/748282850416.shtml)
+- 2026-06-30 04:22 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/42936427616.shtml)
+- 2026-06-30 04:03 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/80207.shtml)
+- 2026-06-30 04:01 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/629488552236.shtml)
+- 2026-06-30 04:12 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/805463722.shtml)
+- 2026-06-30 04:16 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/07704272571.shtml)
+- 2026-06-30 04:23 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/17971364.shtml)
+- 2026-06-30 04:03 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/327367.shtml)
+- 2026-06-30 04:14 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/755566162041.shtml)
+- 2026-06-30 04:05 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/5197594.shtml)
+- 2026-06-30 04:14 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/216610247.shtml)
+- 2026-06-30 04:07 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/35066837.shtml)
+- 2026-06-30 03:55 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/49732304014.shtml)
+- 2026-06-30 04:21 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/49242.shtml)

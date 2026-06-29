@@ -1,57 +1,57 @@
-# 今年第六家！同方全球人寿获准发行10亿资本补充债“补血”
+# “九色甘南”首创跨省篮球IP：28场对决燃动雪域
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-来源：燕梳师院 近日，深圳金融监管局发布批复，同意同方全球人寿在全国银行间债券市场公开发行不超过10亿元人民币（含）的10年期可赎回资本补充债券，这也是今年以来第六家获准发行资本补充债的保险公司。 图源：深圳监管局 根据批复要求，同方全球人寿需在获得债券市场主管部门发行许可的期限内完成发行事宜，并在发行结束后10个工作日内就发行情况向深圳金融监管局报告。 此次获准发行的资本补充
+中新网兰州6月23日电 (刘娜)2026年(第一届)“九色甘南杯”雪域羚城篮球邀请赛23日在甘肃省甘南藏族自治州合作市正式开赛。来自湖北、四川、青海、甘肃四省10支代表队齐聚雪域羚城，以篮球为媒，搭建跨区域体育竞技与民族交融的新平台。 据了解，本次赛事是甘南州自主孵化的首个跨省原创篮球IP，立足铸牢中华民族共同体意识主线，把篮球运动作为各族民众交往交流交融的重要载体。参赛队伍涵
 
 ## 正文
 
-来源：燕梳师院 近日，深圳金融监管局发布批复，同意同方全球人寿在全国银行间债券市场公开发行不超过10亿元人民币（含）的10年期可赎回资本补充债券，这也是今年以来第六家获准发行资本补充债的保险公司。
+中新网兰州6月23日电 (刘娜)2026年(第一届)“九色甘南杯”雪域羚城篮球邀请赛23日在甘肃省甘南藏族自治州合作市正式开赛。
 
-图源：深圳监管局 根据批复要求，同方全球人寿需在获得债券市场主管部门发行许可的期限内完成发行事宜，并在发行结束后10个工作日内就发行情况向深圳金融监管局报告。
+来自湖北、四川、青海、甘肃四省10支代表队齐聚雪域羚城，以篮球为媒，搭建跨区域体育竞技与民族交融的新平台。
 
-此次获准发行的资本补充债，将进一步拓宽该公司资本补充渠道，为其业务持续发展提供资本支撑。
+据了解，本次赛事是甘南州自主孵化的首个跨省原创篮球IP，立足铸牢中华民族共同体意识主线，把篮球运动作为各族民众交往交流交融的重要载体。
 
-公开信息显示，同方全球人寿经营状况稳健，2025年实现净利润12.59亿元，资产规模突破490亿元，重述下同比增长11%，净资产超67亿元，全年累计保险业务收入超90亿元。
+参赛队伍涵盖湖北恩施土家族苗族自治州、四川凉山彝族自治州，青海海北、海南、黄南藏族自治州，临夏回族自治州、白银市、定西市、兰州新区以及东道主甘南州代表队，均来自多民族聚居区和沿黄河洮河民族团结进步创新示范区。
 
-同时，公司风险管控能力突出，已连续15个季度在风险综合评级中保持A类，具备良好的发债基础。
+甘南素有深厚的篮球底蕴，全州县域篮球争霸赛已连续举办五届，“扎尕那杯”篮球赛等基层活动常态化落地。
 
-业内人士指出，随着偿二代二期规则过渡期临近，险企资本补充需求持续提升，发行资本补充债成为险企补充资本、提升偿付能力的重要方式。
+本次邀请赛跳出单纯竞技比拼范畴，依托篮球赛事搭建跨区域体育竞技、地域文化互通、民族深度交融的综合平台。
 
-资本补充债可有效缓解险企核心偿付能力充足率紧张问题，且不改变股权结构，对亟需补充资本的险企具有显著优势。
+未来赛事将固定为年度常态化品牌赛事长期举办，同步向下延伸深耕基层篮球联赛、常态化开展青少年篮球选拔培优工作。
 
-作为今年第六家拿到发债“通行证”的险企，同方全球人寿此举可谓顺势而为。
+赛事赛制方面，10支队伍划分为A、B两个小组，每组5队展开小组单循环对决，各组前四名晋级八强，后续依次推进交叉淘汰赛、半决赛、三四名决赛和冠亚军决赛，全程共计28场精彩对决。
 
 ## 相关推荐
 
-- 2026-06-30 04:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 04:11 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 03:55 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 04:09 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 04:02 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 03:54 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 04:03 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 04:01 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-30 03:52 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 03:55 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 03:54 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 04:00 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 04:12 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-30 04:07 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 04:11 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 04:20 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 04:16 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 03:55 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 04:11 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 04:05 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 04:20 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 04:06 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:17 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/840932120472.shtml)
-- 2026-06-30 04:04 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/882221013.shtml)
-- 2026-06-30 04:14 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/819248974.shtml)
-- 2026-06-30 03:59 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/74127.shtml)
-- 2026-06-30 04:02 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/833452559.shtml)
-- 2026-06-30 03:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/78301483683.shtml)
-- 2026-06-30 03:52 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/943156.shtml)
-- 2026-06-30 03:51 - [世界杯](http://www.blog.minike.top/Article/details/6248427.shtml)
-- 2026-06-30 04:00 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/4391628689.shtml)
-- 2026-06-30 03:59 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/674612.shtml)
-- 2026-06-30 04:06 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/023574293.shtml)
-- 2026-06-30 03:50 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/15877.shtml)
-- 2026-06-30 04:11 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/96608.shtml)
-- 2026-06-30 04:14 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/324511.shtml)
-- 2026-06-30 04:11 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/499866843.shtml)
+- 2026-06-30 04:15 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/306076.shtml)
+- 2026-06-30 04:12 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/6042406.shtml)
+- 2026-06-30 04:19 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/2162452428.shtml)
+- 2026-06-30 04:01 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/1404451.shtml)
+- 2026-06-30 04:04 - [TOP Prada](http://www.share.minike.top/Article/details/7435268674.shtml)
+- 2026-06-30 04:01 - [绘画区你赢了](https://www.blog.minike.top/Article/details/020192452102.shtml)
+- 2026-06-30 04:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/04233266.shtml)
+- 2026-06-30 04:08 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/710272677.shtml)
+- 2026-06-30 04:18 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/95060826.shtml)
+- 2026-06-30 04:21 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/46561.shtml)
+- 2026-06-30 04:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/623668.shtml)
+- 2026-06-30 04:09 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/478570957310.shtml)
+- 2026-06-30 04:06 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/68517612.shtml)
+- 2026-06-30 04:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/24280.shtml)
+- 2026-06-30 04:21 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/582736.shtml)

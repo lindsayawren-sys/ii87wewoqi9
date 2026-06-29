@@ -1,58 +1,50 @@
-# 香港廉政专员出席欧洲大型区域反贪会议 倡合作应对贪污风险
+# 金融监管总局联合中国人民银行、中国证监会召开金融消费者和投资者保护监管联络员会议
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网香港5月18日电 据香港廉政公署(简称“香港廉署”)18日消息，香港廉政专员胡英明近日以国际反贪局联合会(下称“联合会”)主席身份，出席在匈牙利布达佩斯举行的联合会首个欧洲大型区域反贪会议。 会上，来自欧洲及其他地区超过70个反贪、执法和监管机构的180余位专家齐聚一堂，团结反贪力量突破地缘限制，提升多边协作推动欧洲乃至全球廉洁治理。 胡英明在致辞中表示，面对日益复杂的贪
+近日，金融监管总局联合中国人民银行、中国证监会召开第四次金融消费者和投资者保护监管联络员会议。 会议研究了金融消保制度规划以及近期跨领域金融消保和投保重点问题，通报了金融消保和投保领域国际交流与合作情况。 会议强调，金融管理部门要持续加强常态化会商会晤、信息共享和协同共治，坚持问题导向，聚焦金融消费者和投资者集中反映的重点领域问题，紧密协作、齐抓共管，共同做好规范金融产品网络营
 
 ## 正文
 
-中新网香港5月18日电 据香港廉政公署(简称“香港廉署”)18日消息，香港廉政专员胡英明近日以国际反贪局联合会(下称“联合会”)主席身份，出席在匈牙利布达佩斯举行的联合会首个欧洲大型区域反贪会议。
+近日，金融监管总局联合中国人民银行、中国证监会召开第四次金融消费者和投资者保护监管联络员会议。
 
-会上，来自欧洲及其他地区超过70个反贪、执法和监管机构的180余位专家齐聚一堂，团结反贪力量突破地缘限制，提升多边协作推动欧洲乃至全球廉洁治理。
+会议研究了金融消保制度规划以及近期跨领域金融消保和投保重点问题，通报了金融消保和投保领域国际交流与合作情况。
 
-胡英明在致辞中表示，面对日益复杂的贪腐犯罪，我们必须团结各方反贪力量，共同克服地缘政治等各项挑战，以专业合作方式，应对未来贪污罪行风险。
+会议强调，金融管理部门要持续加强常态化会商会晤、信息共享和协同共治，坚持问题导向，聚焦金融消费者和投资者集中反映的重点领域问题，紧密协作、齐抓共管，共同做好规范金融产品网络营销、个人贷款业务明示综合融资成本以及金融领域个人信息专项治理等工作；继续加强与相关部门联动，协同做好适老助残服务、优化个人身后金融事服务、金融教育等。
 
-此次反贪会议由联合会、香港廉署、匈牙利廉政局、意大利国家反腐败局及希腊国家透明管理局共同举办，采用“区域板块”模式，以匈牙利作为中心点，集中为欧洲多国反贪机构提供高效交流和培训平台。
+进一步深化金融消费者和投资者保护工作协调机制，着力提升金融消费者和投资者保护质效。
 
-香港廉署代表在会上分享了创新反贪教育工作策略，探讨了反贪机构工作成效等。
-
-廉署人员借此机会介绍中国内地和香港的廉洁、法治和繁荣优势，邀请各机构人员到访内地和香港亲身体验。
-
-廉署下辖的香港国际廉政学院在会后举办反贪讲座，分享如何有效衡量反贪工作成效。
-
-香港廉署亦与国际反腐败学院签订合作备忘录，内容包括加强反贪经验交流、安排反贪培训等。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 03:57 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 03:52 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 04:00 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 04:13 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 04:03 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-30 04:10 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 04:08 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 03:49 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-30 04:02 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 03:58 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 04:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 04:05 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 04:01 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 04:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 03:58 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 04:03 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 03:54 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 04:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 04:03 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 03:54 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 03:58 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 03:59 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/0727601851.shtml)
-- 2026-06-30 03:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/5388213475.shtml)
-- 2026-06-30 03:58 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/8980150.shtml)
-- 2026-06-30 03:48 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/713933800325.shtml)
-- 2026-06-30 03:57 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/21597.shtml)
-- 2026-06-30 04:12 - [请回答王牌2019](https://www.blog.minike.top/Article/details/0023906567.shtml)
-- 2026-06-30 03:57 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/435314496005.shtml)
-- 2026-06-30 04:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/701604622.shtml)
-- 2026-06-30 04:00 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/754865287.shtml)
-- 2026-06-30 04:10 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/437687.shtml)
-- 2026-06-30 04:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/21018694154.shtml)
-- 2026-06-30 03:57 - [我们的少年时代2](http://www.blog.minike.top/Article/details/69521109426.shtml)
-- 2026-06-30 03:52 - [扬名立万](http://www.share.kurohicncr.top/Article/details/6101093663.shtml)
-- 2026-06-30 04:17 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/68506657.shtml)
-- 2026-06-30 03:50 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/074410588078.shtml)
+- 2026-06-30 04:16 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/57009107.shtml)
+- 2026-06-30 04:15 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/8577894731.shtml)
+- 2026-06-30 04:15 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/129702.shtml)
+- 2026-06-30 03:57 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/5841579.shtml)
+- 2026-06-30 04:15 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/5969150.shtml)
+- 2026-06-30 04:22 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/402945.shtml)
+- 2026-06-30 04:15 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/484660942.shtml)
+- 2026-06-30 04:22 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/051198228.shtml)
+- 2026-06-30 04:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/75817163762.shtml)
+- 2026-06-30 04:01 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/300828790459.shtml)
+- 2026-06-30 04:15 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/287418186631.shtml)
+- 2026-06-30 04:07 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/684690149.shtml)
+- 2026-06-30 04:16 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/252320946559.shtml)
+- 2026-06-30 04:03 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/647918014.shtml)
+- 2026-06-30 04:21 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/83845077345.shtml)

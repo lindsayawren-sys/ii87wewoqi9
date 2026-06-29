@@ -1,58 +1,58 @@
-# 苏州：解锁民主党派基层组织“活力密码”
+# 联合国粮农组织：厄尔尼诺或于数周内来袭，全球农业粮食风险升温
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中国特色社会主义进入新时代，对我国新型政党制度效能的发挥提出了更高要求。习近平总书记强调，要支持民主党派加强自身建设，努力成为政治坚定、组织坚实、履职有力、作风优良、制度健全的中国特色社会主义参政党。为深入贯彻落实中共二十大精神和习近平总书记关于做好新时代党的统一战线工作的重要思想，中共苏州市委统战部坚持问题导向、目标导向，系统谋划、统筹推进，支持各民主党派市委会开展“基层组织
+来源：财联社 财联社6月23日讯（实习编辑 李莹/编辑 齐灵）当地时间6月22日，联合国粮农组织发布全球农业高风险区域分布图，警告新一轮厄尔尼诺现象或于数周内启动，且强度高于以往周期，全球农业生产及粮食安全须进入全面戒备状态。 本次干旱高风险区域集中，萨赫勒地带、非洲南部、南亚、东南亚、中美洲干旱走廊及加勒比地区受灾概率最高，部分农田和牧场在未来数月出现干旱的概率超过50%。
 
 ## 正文
 
-中国特色社会主义进入新时代，对我国新型政党制度效能的发挥提出了更高要求。
+来源：财联社 财联社6月23日讯（实习编辑 李莹/编辑 齐灵）当地时间6月22日，联合国粮农组织发布全球农业高风险区域分布图，警告新一轮厄尔尼诺现象或于数周内启动，且强度高于以往周期，全球农业生产及粮食安全须进入全面戒备状态。
 
-习近平总书记强调，要支持民主党派加强自身建设，努力成为政治坚定、组织坚实、履职有力、作风优良、制度健全的中国特色社会主义参政党。
+本次干旱高风险区域集中，萨赫勒地带、非洲南部、南亚、东南亚、中美洲干旱走廊及加勒比地区受灾概率最高，部分农田和牧场在未来数月出现干旱的概率超过50%。
 
-为深入贯彻落实中共二十大精神和习近平总书记关于做好新时代党的统一战线工作的重要思想，中共苏州市委统战部坚持问题导向、目标导向，系统谋划、统筹推进，支持各民主党派市委会开展“基层组织建设提升年”活动，着力推动新时代苏州多党合作事业高质量发展。
+上述区域曾在2015–2016年、2023–2024年厄尔尼诺灾害中遭受重创，极易出现粮食绝收、畜禽死亡、家庭负债攀升、民生迁徙等问题。
 
-01 强化项目牵引 系统谋划推进 市委统战部指导各民主党派市委会联合制定《关于开展“基层组织建设提升年”活动座谈会纪要》，以项目化方式系统推进思想政治素质、参政履职实效、队伍建设质量、组织运行活力和制度建设水平，并细化工作举措。
+粮农组织指出，相较以往，本轮厄尔尼诺叠加效应更为严峻。
 
-各民主党派市级组织在组织领导、支持保障和宣传引导上协同发力，构建齐抓共促、层层落实的工作体系。
+粮农组织自然资源官员Jorge Alvar-Beltrán表示：“本次厄尔尼诺与以往截然不同。
 
-02 聚焦重点任务 全面提质增效 苏州统一战线聚焦搭建平台、畅通渠道、强化宣传、推动体验，全面提升民主党派基层组织建设质效。
+全球气温已显著升高，叠加大范围冲突与粮食不安全问题，本轮气候冲击将集中作用于本就抗风险能力薄弱、应对资源匮乏的脆弱地区。
 
-搭建学习平台。
+” 针对持续攀升的气候风险，粮农组织联合世界粮食计划署（WFP）启动前瞻性应急倡议，拟筹措2.02亿美元专项资金，帮扶22个高风险国家的880万民众。
 
-将民主党派代表人士纳入“同心悦读 书香统战”读书体系，举办12期主题读书分享，推动代表人士成为“多读书、读好书、善读书”的引领者。
+粮农组织绘制的高精度风险地图可将预警精度细化至1平方公里，助力各国摒弃粗放式救灾，精准聚焦高风险重点区域，定向投放资金、灌溉物资、畜禽饲料等帮扶资源。
 
 ## 相关推荐
 
-- 2026-06-30 03:52 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 04:10 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 04:06 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 03:53 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 04:12 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 04:05 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 04:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 03:51 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 03:58 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 04:01 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 04:08 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 04:15 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 03:57 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 04:17 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 04:18 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 03:58 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 04:13 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 04:09 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 04:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 03:59 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 04:18 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 04:11 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 04:16 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 04:09 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:13 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/751527.shtml)
-- 2026-06-30 03:50 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/3168202.shtml)
-- 2026-06-30 03:58 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/91785.shtml)
-- 2026-06-30 04:01 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/066577.shtml)
-- 2026-06-30 04:03 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/928878931456.shtml)
-- 2026-06-30 04:15 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/31154647.shtml)
-- 2026-06-30 03:56 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/252763809539.shtml)
-- 2026-06-30 04:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/9848193.shtml)
-- 2026-06-30 04:11 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/77220670.shtml)
-- 2026-06-30 03:56 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/54693.shtml)
-- 2026-06-30 04:15 - [日本进球](https://www.blog.kurohicncr.top/Article/details/28362.shtml)
-- 2026-06-30 04:06 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/025276.shtml)
-- 2026-06-30 04:10 - [世界杯](http://www.share.kurohicncr.top/Article/details/441177672.shtml)
-- 2026-06-30 04:09 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/470513188800.shtml)
-- 2026-06-30 03:53 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/6056757.shtml)
+- 2026-06-30 04:20 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/63921460685.shtml)
+- 2026-06-30 04:10 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/66240985139.shtml)
+- 2026-06-30 03:56 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/65894.shtml)
+- 2026-06-30 04:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/7745340.shtml)
+- 2026-06-30 04:15 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/0931929.shtml)
+- 2026-06-30 04:09 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/27642.shtml)
+- 2026-06-30 04:14 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/922095.shtml)
+- 2026-06-30 03:56 - [房价什么时候能涨](http://www.share.minike.top/Article/details/026694.shtml)
+- 2026-06-30 04:00 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/5781870.shtml)
+- 2026-06-30 03:58 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/135899467624.shtml)
+- 2026-06-30 04:05 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/542867850.shtml)
+- 2026-06-30 04:03 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/006692.shtml)
+- 2026-06-30 04:18 - [恋与深空回应争议](https://www.share.minike.top/Article/details/75544.shtml)
+- 2026-06-30 04:07 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/10488938087.shtml)
+- 2026-06-30 04:15 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/410463881771.shtml)

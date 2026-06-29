@@ -1,50 +1,61 @@
-# 文脉华章丨一个博物院就是一所大学校
+# 达美乐提升首席运营官乔丹为CEO
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-2026年5月18日是国际博物馆日，今年的主题是“博物馆：联结世界的桥梁”。 习近平总书记一直高度重视博物馆工作，并指出“博物馆是保护和传承人类文明的重要殿堂，是连接过去、现在、未来的桥梁，在促进世界文明交流互鉴方面具有特殊作用”。 如今，扎根深厚的中华文脉，新时代的博物馆事业蓬勃发展，不断满足群众精神文化生活需要，夯实着强国建设、民族复兴的文化自信。 文案、制作：涂诗轩、彭晓
+达美乐披萨周一宣布任命首席运营官乔·乔丹（Joe Jordan）为首席执行官，寄希望于他丰富的经验能够带领公司渡过当前充满不确定性的经济环境，尤其是在消费者谨慎消费的情况下。 现年53岁的乔丹在达美乐工作了15年，曾担任过市场营销和其他部门的高级职务。他将接替即将退休的拉塞尔·韦纳（Russell Weiner），后者执掌该公司已有四年多。 韦纳将于10月1日正式就任公司董事会
 
 ## 正文
 
-2026年5月18日是国际博物馆日，今年的主题是“博物馆：联结世界的桥梁”。
+达美乐披萨周一宣布任命首席运营官乔·乔丹（Joe Jordan）为首席执行官，寄希望于他丰富的经验能够带领公司渡过当前充满不确定性的经济环境，尤其是在消费者谨慎消费的情况下。
 
-习近平总书记一直高度重视博物馆工作，并指出“博物馆是保护和传承人类文明的重要殿堂，是连接过去、现在、未来的桥梁，在促进世界文明交流互鉴方面具有特殊作用”。
+现年53岁的乔丹在达美乐工作了15年，曾担任过市场营销和其他部门的高级职务。
 
-如今，扎根深厚的中华文脉，新时代的博物馆事业蓬勃发展，不断满足群众精神文化生活需要，夯实着强国建设、民族复兴的文化自信。
+他将接替即将退休的拉塞尔·韦纳（Russell Weiner），后者执掌该公司已有四年多。
 
-文案、制作：涂诗轩、彭晓玲 资料来源：人民日报、新华社、央视新闻等 (人民网-中国共产党新闻网)
+韦纳将于10月1日正式就任公司董事会执行主席。
+
+今年4月，达美乐预测，由于消费者支出疲软和竞争激烈，其在美国和国际市场的年度增长都将放缓。
+
+该公司股价在盘后交易中下跌约1.8%，至289.81美元。
+
+该公司在一份监管文件中表示，乔丹担任首席执行官后的年基本工资为92.5万美元，并有资格获得相当于基本工资200%的年度目标奖金。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 03:52 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 04:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 04:11 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 04:12 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 04:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 04:02 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 04:14 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 03:53 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 03:52 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 04:14 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 04:04 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 03:54 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 03:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 03:55 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 03:57 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 04:14 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 03:59 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 04:02 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 04:03 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 04:14 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 04:03 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 04:09 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 03:57 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 04:09 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 04:22 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 04:21 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 04:08 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/241469789062.shtml)
-- 2026-06-30 04:00 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/28330605.shtml)
-- 2026-06-30 04:15 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/62421.shtml)
-- 2026-06-30 04:14 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/36289.shtml)
-- 2026-06-30 04:18 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/74637408.shtml)
-- 2026-06-30 03:57 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/934651042.shtml)
-- 2026-06-30 04:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/63468452344.shtml)
-- 2026-06-30 04:16 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/684741342.shtml)
-- 2026-06-30 04:11 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/03222584042.shtml)
-- 2026-06-30 03:52 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/701823804.shtml)
-- 2026-06-30 04:01 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/03761648.shtml)
-- 2026-06-30 04:09 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/912377200.shtml)
-- 2026-06-30 03:58 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/933568255484.shtml)
-- 2026-06-30 03:54 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/69852331.shtml)
-- 2026-06-30 04:04 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/955642.shtml)
+- 2026-06-30 03:57 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/03839150361.shtml)
+- 2026-06-30 04:22 - [日本进球](http://www.blog.minike.top/Article/details/16811.shtml)
+- 2026-06-30 04:21 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/161788.shtml)
+- 2026-06-30 04:03 - [一生一世](https://www.blog.kurohicncr.top/Article/details/72142669.shtml)
+- 2026-06-30 04:06 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/888535827463.shtml)
+- 2026-06-30 03:59 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/9389859641.shtml)
+- 2026-06-30 04:06 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/06897825033.shtml)
+- 2026-06-30 04:02 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/1498740.shtml)
+- 2026-06-30 04:02 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/43832.shtml)
+- 2026-06-30 03:56 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/687679711042.shtml)
+- 2026-06-30 04:14 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/23392824.shtml)
+- 2026-06-30 04:18 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/8603807432.shtml)
+- 2026-06-30 04:23 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/5280914.shtml)
+- 2026-06-30 04:02 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/32508817.shtml)
+- 2026-06-30 04:13 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/670484795341.shtml)

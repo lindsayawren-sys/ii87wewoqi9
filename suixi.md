@@ -1,44 +1,61 @@
-# 黄河壶口瀑布再现浊浪翻滚壮美景观
+# 深圳科创学院于盈：女性视角在AI时代被低估，共情等软技能难以被替代
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 19:03 来源：中国新闻网 5月18日，山西临汾，受近期强降雨影响，黄河壶口瀑布水量明显增大，再现浊浪翻滚的壮美画面，吸引众多游客打卡参观。(张立程 吕桂明刘贵明） 责任编辑：【李季】
+专题：2026第十七届夏季达沃斯论坛 6月23日，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。深圳科创学院创始合伙人&副院长于盈出席“女性正在错失AI机遇吗？”论坛并演讲。 谈及“女性在AI时代能够发挥什么样的领导力”，于盈指出，女性能够看到很多男性看不到的视角。 她举例说，第一代AI眼镜技术非常好，但设计笨重、颜色只有黑色、外观丑陋，“有哪一种女
 
 ## 正文
 
-发布时间：2026年05月18日 19:03 来源：中国新闻网 5月18日，山西临汾，受近期强降雨影响，黄河壶口瀑布水量明显增大，再现浊浪翻滚的壮美画面，吸引众多游客打卡参观。
+专题：2026第十七届夏季达沃斯论坛 6月23日，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。
 
-(张立程 吕桂明刘贵明） 责任编辑：【李季】
+深圳科创学院创始合伙人&副院长于盈出席“女性正在错失AI机遇吗？
+
+”论坛并演讲。
+
+谈及“女性在AI时代能够发挥什么样的领导力”，于盈指出，女性能够看到很多男性看不到的视角。
+
+她举例说，第一代AI眼镜技术非常好，但设计笨重、颜色只有黑色、外观丑陋，“有哪一种女性愿意一直戴这样的眼镜呢？
+
+”因此，技术虽好，但产品本身并不是为女性设计的。
+
+于盈认为，很多时候需要从以人为本的需求出发，而不是单纯从技术出发。
+
+“要从女性的需求出发，去理解不同场景下人们的痛点和需求。
 
 ## 相关推荐
 
-- 2026-06-30 04:05 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 04:05 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 04:11 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 04:12 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 04:06 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 03:59 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 04:05 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 03:58 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 03:52 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 04:14 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 04:18 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 04:17 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 04:18 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 04:21 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 03:57 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 03:57 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 04:21 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 04:05 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 04:13 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 04:08 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 04:07 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 04:11 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 04:12 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 04:16 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 04:00 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:03 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/339675.shtml)
-- 2026-06-30 04:14 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/9782732594.shtml)
-- 2026-06-30 04:12 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/9694079389.shtml)
-- 2026-06-30 03:57 - [《贺子珍》](https://www.blog.minike.top/Article/details/9984255.shtml)
-- 2026-06-30 04:03 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/86742552.shtml)
-- 2026-06-30 03:56 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/837006.shtml)
-- 2026-06-30 04:05 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/66892918518.shtml)
-- 2026-06-30 03:51 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/998823044.shtml)
-- 2026-06-30 04:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/74196180.shtml)
-- 2026-06-30 03:58 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/74028477.shtml)
-- 2026-06-30 03:50 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/07193995130.shtml)
-- 2026-06-30 03:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/23589.shtml)
-- 2026-06-30 03:49 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/46856143.shtml)
-- 2026-06-30 04:16 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/3551004598.shtml)
-- 2026-06-30 04:05 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/5667702978.shtml)
+- 2026-06-30 04:18 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/1103149.shtml)
+- 2026-06-30 04:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/42215650.shtml)
+- 2026-06-30 03:54 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/73086.shtml)
+- 2026-06-30 04:17 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/325764360.shtml)
+- 2026-06-30 04:18 - [苗族银饰](http://www.share.minike.top/Article/details/09223012517.shtml)
+- 2026-06-30 04:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/17591923750.shtml)
+- 2026-06-30 03:57 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/21998530832.shtml)
+- 2026-06-30 04:00 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/9861650360.shtml)
+- 2026-06-30 04:18 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/49971789.shtml)
+- 2026-06-30 03:58 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/04936134354.shtml)
+- 2026-06-30 04:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/001259446249.shtml)
+- 2026-06-30 04:09 - [起风了](https://www.share.kurohicncr.top/Article/details/202846.shtml)
+- 2026-06-30 03:54 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/976098329719.shtml)
+- 2026-06-30 04:02 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/873066.shtml)
+- 2026-06-30 03:56 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/287835.shtml)

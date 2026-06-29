@@ -1,61 +1,60 @@
-# 乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”
+# 国际金价跌破4100美元整数关口，A股黄金股全线重挫
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网北京5月16日电 题：乳房再造公益项目十周年 专家吁以新起点促“美丽重绽” 记者 张素 “十周年既是阶段性总结，又是体系成熟的起点。”中国人体健康科技促进会副会长、中国医学科学院整形外科医院主任医师栾杰说。 “新希望·心同行—乳房再造‘援’梦公益救助行动”十周年公益活动近日在北京举行。会上，多位专家学者建言推动全社会深化对乳房再造技术及其人文价值的认知。 “破除心理的枷锁
+国际金价周二再度急挫，一度跌破4100美元整数关口。 Wind数据显示，6月23日，现货黄金（伦敦金现，下同）跌超2%，跌破4100美元/盎司关口，跌幅一度达2.16%，最低报4090.50美元/盎司。与此同时，现货白银一度跌近5%，至61.80美元/盎司下方。此外，期货方面，COMEX黄金最低跌2.25%报4108.2美元/盎司。COMEX白银跌5.69%报61.85美元/盎
 
 ## 正文
 
-中新网北京5月16日电 题：乳房再造公益项目十周年 专家吁以新起点促“美丽重绽” 记者 张素 “十周年既是阶段性总结，又是体系成熟的起点。
+国际金价周二再度急挫，一度跌破4100美元整数关口。
 
-”中国人体健康科技促进会副会长、中国医学科学院整形外科医院主任医师栾杰说。
+Wind数据显示，6月23日，现货黄金（伦敦金现，下同）跌超2%，跌破4100美元/盎司关口，跌幅一度达2.16%，最低报4090.50美元/盎司。
 
-“新希望·心同行—乳房再造‘援’梦公益救助行动”十周年公益活动近日在北京举行。
+与此同时，现货白银一度跌近5%，至61.80美元/盎司下方。
 
-会上，多位专家学者建言推动全社会深化对乳房再造技术及其人文价值的认知。
+此外，期货方面，COMEX黄金最低跌2.25%报4108.2美元/盎司。
 
-“破除心理的枷锁” 近年来，乳腺癌高发逐渐成为困扰女性的重要问题。
+COMEX白银跌5.69%报61.85美元/盎司。
 
-国家癌症中心2025年数据显示，中国乳腺癌年新发病例突破42万例，患者确诊中位年龄仅47岁。
+截至发稿时，现货黄金价格回到4100美元上方，跌幅收窄至1.77%。
 
-手术切除是治疗乳腺癌的主要方法。
+国内市场方面，截至6月23日收盘，沪金期货2608合约收报897.90元/克，跌2.04%，年初至今跌幅达到8.85%。
 
-但栾杰发现，很多患者术后不愿社交、不敢面对生活，“心理的枷锁远比身体的伤口更难愈合”。
+与此同时，周二A股贵金属板块重挫。
 
 ## 相关推荐
 
-- 2026-06-30 04:11 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 04:04 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 03:54 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-30 04:05 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 04:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 04:14 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 03:49 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 03:52 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 04:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 03:58 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 04:07 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 04:02 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 04:07 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 03:55 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 04:11 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 03:54 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 04:07 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 04:04 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 04:21 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 04:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 04:04 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 04:16 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 04:14 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 04:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 04:21 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 04:06 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 04:01 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 04:23 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 04:15 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:11 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/719893721.shtml)
-- 2026-06-30 03:50 - [女心理师](https://www.share.minike.top/Article/details/55282.shtml)
-- 2026-06-30 04:14 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/90471.shtml)
-- 2026-06-30 04:08 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/38351683991.shtml)
-- 2026-06-30 04:07 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/8558139415.shtml)
-- 2026-06-30 04:01 - [TOP Prada](http://www.share.minike.top/Article/details/96561.shtml)
-- 2026-06-30 03:58 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/118351294.shtml)
-- 2026-06-30 04:08 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/835968159.shtml)
-- 2026-06-30 04:09 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/02264.shtml)
-- 2026-06-30 03:56 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/273733239.shtml)
-- 2026-06-30 04:16 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/5285759.shtml)
-- 2026-06-30 04:07 - [女心理师](http://www.blog.minike.top/Article/details/385524.shtml)
-- 2026-06-30 04:15 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/2191758.shtml)
-- 2026-06-30 04:09 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/382451752453.shtml)
-- 2026-06-30 04:02 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/14255881.shtml)
+- 2026-06-30 04:17 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/1439011.shtml)
+- 2026-06-30 04:15 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/01106582822.shtml)
+- 2026-06-30 04:17 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/55094088591.shtml)
+- 2026-06-30 03:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/5770357217.shtml)
+- 2026-06-30 04:05 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/43497.shtml)
+- 2026-06-30 04:14 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/6094807885.shtml)
+- 2026-06-30 03:56 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/0853531.shtml)
+- 2026-06-30 04:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/772598.shtml)
+- 2026-06-30 04:06 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/34034.shtml)
+- 2026-06-30 03:59 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/8547602409.shtml)
+- 2026-06-30 04:13 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/5088546126.shtml)
+- 2026-06-30 04:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/07229372.shtml)
+- 2026-06-30 04:08 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/151391289948.shtml)
+- 2026-06-30 03:59 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/38378.shtml)
+- 2026-06-30 03:54 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/7307563543.shtml)

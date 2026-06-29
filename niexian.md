@@ -1,54 +1,49 @@
-# 湖南石门强降雨灾害已致1人死亡、2人失联
+# 美联储前主席格林斯潘去世
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-5月17日7时起，湖南石门县遭遇极端强降雨天气，降雨瞬时雨量大、致灾风险高，突破历史极值。 县委、县政府第一时间启动应急处置机制，根据雨情汛情调整为防汛Ⅱ级应急响应，迅速统筹各方救援力量，全力开展群众转移、抢险救援、基础设施抢修等工作，已紧急转移安置群众18406人，受灾区域群众基本生活得到保障。截至5月18日19时，强降雨灾害已造成1人死亡、2人失联。 石门县将持续做好群众转
+据美国媒体今天（6月22日）报道，美国联邦储备委员会前主席格林斯潘去世，享年100岁。（@CCTV国际时讯）责任编辑：刘万里 SF014
 
 ## 正文
 
-5月17日7时起，湖南石门县遭遇极端强降雨天气，降雨瞬时雨量大、致灾风险高，突破历史极值。
+据美国媒体今天（6月22日）报道，美国联邦储备委员会前主席格林斯潘去世，享年100岁。
 
-县委、县政府第一时间启动应急处置机制，根据雨情汛情调整为防汛Ⅱ级应急响应，迅速统筹各方救援力量，全力开展群众转移、抢险救援、基础设施抢修等工作，已紧急转移安置群众18406人，受灾区域群众基本生活得到保障。
-
-截至5月18日19时，强降雨灾害已造成1人死亡、2人失联。
-
-石门县将持续做好群众转移、巡查排险、抢险救灾、受灾群众生活保障等工作，及时发布相关信息。
-
-在此提醒广大群众密切关注天气预警，远离河道、山体陡坡、低洼易涝等危险区域，切实做好自身安全防护。
-
-(央视新闻客户端)
+（@CCTV国际时讯）责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 04:15 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 03:56 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 03:50 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 03:51 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 03:50 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 04:15 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 04:15 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 03:48 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-30 03:59 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 04:12 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 03:50 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 04:05 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 04:05 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 03:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 04:13 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 04:21 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 04:18 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 04:15 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 03:56 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 04:17 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 04:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 04:08 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 03:56 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 04:12 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 04:05 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 04:23 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 04:13 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:51 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/784860.shtml)
-- 2026-06-30 04:03 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/89731269.shtml)
-- 2026-06-30 04:05 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/591457408.shtml)
-- 2026-06-30 03:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/473568491.shtml)
-- 2026-06-30 03:54 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/817040057.shtml)
-- 2026-06-30 04:06 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/593967044.shtml)
-- 2026-06-30 04:03 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/9070797070.shtml)
-- 2026-06-30 04:05 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/526575.shtml)
-- 2026-06-30 04:02 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/553941742.shtml)
-- 2026-06-30 04:09 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/08413.shtml)
-- 2026-06-30 03:53 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/5747925324.shtml)
-- 2026-06-30 03:49 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/304898397.shtml)
-- 2026-06-30 03:58 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/612089116766.shtml)
-- 2026-06-30 04:06 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/52610000301.shtml)
-- 2026-06-30 04:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/2315582429.shtml)
+- 2026-06-30 04:04 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/64632675227.shtml)
+- 2026-06-30 03:56 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/004705401.shtml)
+- 2026-06-30 04:17 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/7336018698.shtml)
+- 2026-06-30 04:19 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/963224454888.shtml)
+- 2026-06-30 04:03 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/045451236.shtml)
+- 2026-06-30 04:21 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/6319485269.shtml)
+- 2026-06-30 04:15 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/101093.shtml)
+- 2026-06-30 04:20 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/709644421.shtml)
+- 2026-06-30 04:18 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/987966958330.shtml)
+- 2026-06-30 04:07 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/1421244.shtml)
+- 2026-06-30 04:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/05767081390.shtml)
+- 2026-06-30 04:04 - [时光音乐会](https://www.share.minike.top/Article/details/5670346528.shtml)
+- 2026-06-30 04:09 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/251444.shtml)
+- 2026-06-30 04:13 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/229995702.shtml)
+- 2026-06-30 03:58 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/0811443.shtml)

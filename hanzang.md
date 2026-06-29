@@ -1,60 +1,57 @@
-# 英国央行内部政策分歧扩大，英镑承压调整
+# 上海发布25条举措吸引生物医药外资企业高能级项目
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——英国央行副行长Sarah Breeden近日表示，在当前全球地缘局势紧张以及能源危机持续升级背景下，英国央行无需急于采取新的利率行动，而应保持“稳健”和“耐心”的政策立场。 布里登是在英格兰西南部与企业高管会面期间发表上述言论的。她强调，目前英国经济正面临能源价格上涨、债券收益率攀升以及居民生活成本压力重新加剧等多重挑战，因此央行需要更多时间观察经济形势变化
+中新社上海6月23日电 (记者 郑莹莹)根据上海市科学技术委员会23日发布的消息，为有效促进生物医药外资企业高能级项目落地发展，上海市科学技术委员会、上海市发展和改革委员会等部门联合发布《关于支持生物医药外资企业高能级项目落地的若干措施》(以下简称“若干措施”)，有25条举措。近年来，随着政策红利、市场红利、生态红利的不断释放，外资企业在华投资布局迎来重要机遇期，上海正成为生物
 
 ## 正文
 
-汇通财经APP讯——英国央行副行长Sarah Breeden近日表示，在当前全球地缘局势紧张以及能源危机持续升级背景下，英国央行无需急于采取新的利率行动，而应保持“稳健”和“耐心”的政策立场。
+中新社上海6月23日电 (记者 郑莹莹)根据上海市科学技术委员会23日发布的消息，为有效促进生物医药外资企业高能级项目落地发展，上海市科学技术委员会、上海市发展和改革委员会等部门联合发布《关于支持生物医药外资企业高能级项目落地的若干措施》(以下简称“若干措施”)，有25条举措。
 
-布里登是在英格兰西南部与企业高管会面期间发表上述言论的。
+近年来，随着政策红利、市场红利、生态红利的不断释放，外资企业在华投资布局迎来重要机遇期，上海正成为生物医药全球创新和高端制造的重要高地。
 
-她强调，目前英国经济正面临能源价格上涨、债券收益率攀升以及居民生活成本压力重新加剧等多重挑战，因此央行需要更多时间观察经济形势变化，而不是过早调整政策。
+若干措施支持生物医药外资企业在沪布局各类功能载体，吸引国际组织落沪，强化政策、要素、全周期服务保障，助力外资企业强化全球资源配置核心枢纽地位。
 
-布里登明确表示，英国央行“并不需要急于行动”。
+沪上重点区域各有布局。
 
-这一表态被市场视为明显偏向鸽派立场，也显示英国央行内部对于未来货币政策方向的分歧正在扩大。
+浦东新区打造跨国药械企业全球战略布局集聚区，闵行区建设外资企业高端制造集聚区，静安区吸引外资企业高级别总部。
 
-在4月议息会议上，布里登与多数委员一致支持将基准利率维持在3.75%不变。
+上海鼓励外资企业加快产线改造升级和设备更新，支持开展智能化、绿色化、融合化、高端化制造业项目建设或迭代升级，对符合条件的按规定给予支持。
 
-不过，英国央行首席经济学家Huw Pill则支持进一步加息，以应对持续存在的通胀压力。
+上海还鼓励外资企业联合上海市高校院所、医疗机构、创新企业开展前沿技术和未来产业等领域的研发和产业化应用。
 
-随着国际能源价格持续上涨，市场开始担忧英国未来通胀可能重新反弹。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:58 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 04:08 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 04:06 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 04:11 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 04:04 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 04:17 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 04:10 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 04:17 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 04:14 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 04:14 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 03:48 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 03:50 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 03:54 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 03:58 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 04:02 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 04:09 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 04:05 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 04:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 04:23 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 04:05 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 04:07 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 04:19 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-30 04:03 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 04:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 04:15 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:13 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/351351.shtml)
-- 2026-06-30 04:17 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/538185832.shtml)
-- 2026-06-30 03:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/8092609579.shtml)
-- 2026-06-30 04:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/51527307.shtml)
-- 2026-06-30 04:13 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/431638.shtml)
-- 2026-06-30 04:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/2555606.shtml)
-- 2026-06-30 03:52 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/6460810.shtml)
-- 2026-06-30 04:00 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/09111.shtml)
-- 2026-06-30 03:49 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/20038575119.shtml)
-- 2026-06-30 04:05 - [美股](http://www.blog.minike.top/Article/details/41311117953.shtml)
-- 2026-06-30 04:05 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/12759.shtml)
-- 2026-06-30 03:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/701692537.shtml)
-- 2026-06-30 04:04 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/983710584.shtml)
-- 2026-06-30 04:12 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/372512.shtml)
-- 2026-06-30 04:16 - [美人鱼](https://www.blog.minike.top/Article/details/372628535.shtml)
+- 2026-06-30 04:19 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/763661048646.shtml)
+- 2026-06-30 04:12 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/8089911.shtml)
+- 2026-06-30 03:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/09429.shtml)
+- 2026-06-30 04:22 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/363370882.shtml)
+- 2026-06-30 04:15 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/6381405.shtml)
+- 2026-06-30 04:10 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/529691.shtml)
+- 2026-06-30 04:05 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/22122.shtml)
+- 2026-06-30 03:56 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/9222590.shtml)
+- 2026-06-30 04:10 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/43205617039.shtml)
+- 2026-06-30 04:03 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/7274952710.shtml)
+- 2026-06-30 04:08 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/429970862.shtml)
+- 2026-06-30 04:01 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/17881998425.shtml)
+- 2026-06-30 04:04 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/76443883795.shtml)
+- 2026-06-30 04:22 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/6131987328.shtml)
+- 2026-06-30 04:01 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/4900462207.shtml)

@@ -1,50 +1,50 @@
-# 港股震荡走低，恒生科技指数跌超2%，理想汽车跌超10%
+# 外交部：中英应共同维护好关系改善发展势头
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-港股震荡走低，恒生科技指数跌超2%，恒生指数跌超1.5%。科指成分股中，理想汽车跌超10%，零跑汽车跌近10%，地平线机器人跌超4%，比亚迪跌超3%。 责任编辑：郝欣煜
+新华社北京6月23日电(记者万倩仪、马卓言)英国首相斯塔默22日宣布辞职，外交部发言人郭嘉昆23日在例行记者会上回答有关提问时表示，这是英国内政，中方不做评论。中国和英国都是联合国安理会常任理事国和世界主要经济体，发展长期稳定的全面战略伙伴关系符合两国和两国人民根本利益，也有利于世界和平稳定繁荣。双方应该相向而行，深化双边合作和多边协调，共同维护好两国关系改善发展势头。
 
 ## 正文
 
-港股震荡走低，恒生科技指数跌超2%，恒生指数跌超1.5%。
+新华社北京6月23日电(记者万倩仪、马卓言)英国首相斯塔默22日宣布辞职，外交部发言人郭嘉昆23日在例行记者会上回答有关提问时表示，这是英国内政，中方不做评论。
 
-科指成分股中，理想汽车跌超10%，零跑汽车跌近10%，地平线机器人跌超4%，比亚迪跌超3%。
+中国和英国都是联合国安理会常任理事国和世界主要经济体，发展长期稳定的全面战略伙伴关系符合两国和两国人民根本利益，也有利于世界和平稳定繁荣。
 
-责任编辑：郝欣煜
+双方应该相向而行，深化双边合作和多边协调，共同维护好两国关系改善发展势头。
 
 ## 相关推荐
 
-- 2026-06-30 03:52 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 03:50 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 03:52 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 03:49 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 04:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 03:58 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 03:52 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 04:00 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 04:04 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 04:12 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 04:08 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 04:13 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 04:17 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 04:12 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 04:07 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 04:19 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-30 04:05 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 04:16 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 04:23 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 04:22 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 03:59 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 04:04 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 04:12 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 03:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 04:03 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 04:02 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 04:03 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 03:54 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:09 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/454177441.shtml)
-- 2026-06-30 04:11 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/9415154.shtml)
-- 2026-06-30 04:13 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/252680993.shtml)
-- 2026-06-30 04:08 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/0778820.shtml)
-- 2026-06-30 03:51 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/848582928.shtml)
-- 2026-06-30 04:02 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/327723450738.shtml)
-- 2026-06-30 04:09 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/6394416.shtml)
-- 2026-06-30 03:50 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/709754.shtml)
-- 2026-06-30 04:14 - [刘念回应](http://www.share.kurohicncr.top/Article/details/59170054923.shtml)
-- 2026-06-30 04:04 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/805130281.shtml)
-- 2026-06-30 04:16 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/1740943965.shtml)
-- 2026-06-30 04:07 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/40879.shtml)
-- 2026-06-30 04:01 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/1217921.shtml)
-- 2026-06-30 03:57 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/328771893.shtml)
-- 2026-06-30 04:16 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/334339144598.shtml)
+- 2026-06-30 04:03 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/0962652092.shtml)
+- 2026-06-30 04:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/9236391136.shtml)
+- 2026-06-30 04:03 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/2144472890.shtml)
+- 2026-06-30 04:11 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/994711.shtml)
+- 2026-06-30 04:09 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/646961.shtml)
+- 2026-06-30 04:13 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/49420728107.shtml)
+- 2026-06-30 03:58 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/47698.shtml)
+- 2026-06-30 04:18 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/96684393.shtml)
+- 2026-06-30 04:07 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/911254683805.shtml)
+- 2026-06-30 04:21 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/547211.shtml)
+- 2026-06-30 04:06 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/117372382.shtml)
+- 2026-06-30 04:17 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/3497338009.shtml)
+- 2026-06-30 03:58 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/243642078169.shtml)
+- 2026-06-30 04:17 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/76961385.shtml)
+- 2026-06-30 04:15 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/2099783.shtml)

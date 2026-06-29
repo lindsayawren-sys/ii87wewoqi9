@@ -1,56 +1,46 @@
-# 总市值达3.44万亿！起底长鑫科技概念股全景图
+# 中国创意控股遭梁龙飞减持800万股 每股作价0.249港元
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-长鑫科技的DRAM产业链各环节均涌现出一批深度参与供应链的本土企业，组成了“长鑫科技概念股全景图”。 作为我国规模最大、技术最先进的DRAM（动态随机存取存储器）研发设计制造一体化企业，长鑫科技日前更新招股说明书，拟登陆上交所科创板。公司已成长为全球第四大DRAM厂商，今年第一季度，实现营收508亿元，同比增长719.13%，实现归母净利润247.62亿元。 长鑫科技采用IDM
+香港联交所最新资料显示，6月18日，梁龙飞减持中国创意控股（08368）800万股，每股作价0.249港元，总金额为199.2万港元。减持后最新持股数目为2800万股，最新持股比例为4.85%。责任编辑：卢昱君
 
 ## 正文
 
-长鑫科技的DRAM产业链各环节均涌现出一批深度参与供应链的本土企业，组成了“长鑫科技概念股全景图”。
+香港联交所最新资料显示，6月18日，梁龙飞减持中国创意控股（08368）800万股，每股作价0.249港元，总金额为199.2万港元。
 
-作为我国规模最大、技术最先进的DRAM（动态随机存取存储器）研发设计制造一体化企业，长鑫科技日前更新招股说明书，拟登陆上交所科创板。
+减持后最新持股数目为2800万股，最新持股比例为4.85%。
 
-公司已成长为全球第四大DRAM厂商，今年第一季度，实现营收508亿元，同比增长719.13%，实现归母净利润247.62亿元。
-
-长鑫科技采用IDM（垂直整合制造）全产业链模式，该公司本次IPO拟募集资金295亿元，重点用于技术升级和前沿研发。
-
-长鑫科技的产能扩张与技术升级，不仅加速了半导体供应链本土化进程，一个总市值达3.44万亿元的产业链全景图也浮出水面：从产业链上游的IP、EDA软件、半导体设备及零部件、材料，到中游环节的DRAM设计、晶圆制造及封装测试环节，这是核心环节，产业链下游则涵盖了服务器、移动设备、个人电脑、通信、工业控制、智能家居等应用领域。
-
-未来随着AI应用进一步渗透进入物理世界，DRAM需求扩大，这份概念股名单有望进一步扩大。
-
-IDM模式下的DRAM全产业链布局 5月18日，海外市场明显调整，A股多头也暂时停下攻势，市场量能明显缩减，但在长鑫科技更新招股书并披露亮眼业绩表现的催化下，存储芯片板块表现仍十分活跃，龙头股集体飙升，有6只个股刷新股价历史高点，电子化学品、气体、光刻胶等与存储芯片相关的概念板块也都表现活跃。
-
-截至当日收盘，大普微（301666.SZ）、同有科技（300302.SZ）“20cm”涨停，股价刷新历史高点，朗科科技（300042.SZ）涨逾11%，万润科技（002654.SZ）、深科技（000021.SZ）涨停，佰维存储（688525.SH）、兆易创新（603986.SH）跟涨并创股价新高。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:58 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-30 03:56 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 04:17 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-30 04:01 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 03:53 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 04:16 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 04:03 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 03:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 04:12 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 03:51 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 04:22 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 03:57 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 04:22 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 04:23 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 04:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 03:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 04:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 04:10 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 04:14 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-30 03:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:58 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/8513148914.shtml)
-- 2026-06-30 04:00 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/7037205.shtml)
-- 2026-06-30 04:17 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/3236957.shtml)
-- 2026-06-30 04:01 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/9524675.shtml)
-- 2026-06-30 04:11 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/543250917.shtml)
-- 2026-06-30 03:50 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/492658.shtml)
-- 2026-06-30 04:09 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/064285.shtml)
-- 2026-06-30 04:12 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/49038784.shtml)
-- 2026-06-30 04:04 - [日本 高位逼抢](https://www.share.minike.top/Article/details/347263488.shtml)
-- 2026-06-30 04:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/476275241603.shtml)
-- 2026-06-30 03:55 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/835594825.shtml)
-- 2026-06-30 04:08 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/75222792.shtml)
-- 2026-06-30 03:58 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/767185.shtml)
-- 2026-06-30 04:15 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/04967665598.shtml)
-- 2026-06-30 04:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/600332.shtml)
+- 2026-06-30 03:57 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/971877132149.shtml)
+- 2026-06-30 03:57 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/756384214021.shtml)
+- 2026-06-30 04:15 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/8088556576.shtml)
+- 2026-06-30 04:18 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/23439.shtml)
+- 2026-06-30 03:58 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/6898137930.shtml)
+- 2026-06-30 04:06 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/90026357.shtml)
+- 2026-06-30 04:16 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/612677211061.shtml)
+- 2026-06-30 04:21 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/7888329.shtml)
+- 2026-06-30 04:20 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/9639385968.shtml)
+- 2026-06-30 04:14 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/4826974135.shtml)
+- 2026-06-30 04:23 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/5413516429.shtml)
+- 2026-06-30 04:14 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/6725023260.shtml)
+- 2026-06-30 04:06 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/78223868806.shtml)
+- 2026-06-30 04:12 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/556294078.shtml)
+- 2026-06-30 03:56 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/480992961562.shtml)

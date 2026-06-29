@@ -1,45 +1,56 @@
-# 黄仁勋逛吃北京说“我爱中国”，台网红“馆长”模仿“青鸟”破防
+# SpaceX收盘上涨近1%，终结三连跌
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 17:38 来源：中国新闻网 台湾网红“馆长”近日在直播英伟达创始人兼CEO黄仁勋逛吃北京说“I love China(我爱中国)”画面时模仿破防“青鸟”，并嘲讽：“有种把电脑显卡拔下来，黄仁勋可以讲‘I love China’，为什么我不能讲我是中国人！”(策划/制作：燕新台 君言晚 常望涛 中新网“燕新台”工作室出品） 责任编辑：【吉翔】
+SpaceX股价周二收盘上涨近1%，终结了此前连续三天的下跌走势，期间该股累计跌幅近24%。 开盘后不久，股价一度跌破150美元——这是该股近两周前上市首笔交易的价格。早盘的下跌还使其市值一度跌破2万亿美元。 SpaceX周一市值蒸发4000亿美元，暴跌16%，此前两个交易日已分别下跌3.6%和5%。 SpaceX在6月12日创纪录的IPO后曾大幅上涨，市值一度短暂超越亚马逊和
 
 ## 正文
 
-发布时间：2026年05月18日 17:38 来源：中国新闻网 台湾网红“馆长”近日在直播英伟达创始人兼CEO黄仁勋逛吃北京说“I love China(我爱中国)”画面时模仿破防“青鸟”，并嘲讽：“有种把电脑显卡拔下来，黄仁勋可以讲‘I love China’，为什么我不能讲我是中国人！
+SpaceX股价周二收盘上涨近1%，终结了此前连续三天的下跌走势，期间该股累计跌幅近24%。
 
-”(策划/制作：燕新台 君言晚 常望涛 中新网“燕新台”工作室出品） 责任编辑：【吉翔】
+开盘后不久，股价一度跌破150美元——这是该股近两周前上市首笔交易的价格。
+
+早盘的下跌还使其市值一度跌破2万亿美元。
+
+SpaceX周一市值蒸发4000亿美元，暴跌16%，此前两个交易日已分别下跌3.6%和5%。
+
+SpaceX在6月12日创纪录的IPO后曾大幅上涨，市值一度短暂超越亚马逊和微软，但随着市场情绪降温，又回落至两者之下。
+
+该公司周一宣布发行优先无担保票据，并披露截至6月19日持有现金及现金等价物1008亿美元。
+
+同一天，SpaceX还透露已与开源AI初创公司Reflection签署了一项重大计算能力协议，为该公司提供马斯克“Colossus”基础设施的访问权限。
+
+SpaceX股价在轰动性上市后飙升，较发行价上涨超过50%，投资者争相买入马斯克对公司宏伟愿景的押注。
 
 ## 相关推荐
 
-- 2026-06-30 04:03 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 04:01 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 03:48 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 04:18 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 03:58 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 04:17 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 03:52 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 03:53 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 04:17 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 04:06 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 04:03 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 04:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-30 04:05 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 04:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 03:59 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 04:01 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 04:05 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 04:14 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 04:10 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 04:01 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 04:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:54 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/4138645.shtml)
-- 2026-06-30 04:12 - [蔚来车主罚站](https://www.share.minike.top/Article/details/54676057713.shtml)
-- 2026-06-30 03:50 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/312247331.shtml)
-- 2026-06-30 03:54 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/07423.shtml)
-- 2026-06-30 04:03 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/84413433832.shtml)
-- 2026-06-30 04:05 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/588864334.shtml)
-- 2026-06-30 03:55 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/0024855.shtml)
-- 2026-06-30 03:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/44552.shtml)
-- 2026-06-30 04:11 - [青春环游记第三季](https://www.share.minike.top/Article/details/91378986059.shtml)
-- 2026-06-30 03:51 - [爱很美味](http://www.blog.minike.top/Article/details/71296765.shtml)
-- 2026-06-30 04:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/29120665.shtml)
-- 2026-06-30 04:15 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/62107472.shtml)
-- 2026-06-30 04:02 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/69896486.shtml)
-- 2026-06-30 04:00 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/7879810338.shtml)
-- 2026-06-30 03:57 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/595333528344.shtml)
+- 2026-06-30 04:21 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/200651210355.shtml)
+- 2026-06-30 03:56 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/857294.shtml)
+- 2026-06-30 04:01 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/60224.shtml)
+- 2026-06-30 04:16 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/8316764309.shtml)
+- 2026-06-30 04:21 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/540127044952.shtml)
+- 2026-06-30 04:22 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/292977794356.shtml)
+- 2026-06-30 04:10 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/729709443774.shtml)
+- 2026-06-30 04:02 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/8736286736.shtml)
+- 2026-06-30 04:10 - [送你一朵小红花](https://www.share.minike.top/Article/details/904142193939.shtml)
+- 2026-06-30 04:13 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/03780911.shtml)
+- 2026-06-30 04:06 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/93561.shtml)
+- 2026-06-30 04:09 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/74215399.shtml)
+- 2026-06-30 04:00 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/69400883542.shtml)
+- 2026-06-30 04:23 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/61962829143.shtml)
+- 2026-06-30 04:23 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/764264116.shtml)

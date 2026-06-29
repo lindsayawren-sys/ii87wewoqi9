@@ -1,59 +1,50 @@
-# 刚刚！美国航母，传来大消息！
+# 日韩股市开盘 韩股开盘上涨1.9%
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-美国航母有新动向！ 据最新消息，此前部署在中东地区的美国海军“福特”号航空母舰已返回位于美国弗吉尼亚州的诺福克海军基地。此前，该航母曾参与针对伊朗的军事行动。 另据报道，一艘满载200万桶伊拉克原油、原定驶往越南的超级油轮，此前遭美军拦截后在阿曼湾滞留数日，目前已恢复航行。 值得注意的是，伊朗战事导致霍尔木兹海峡航运近乎中断，引发全球油气价格上涨，各国纷纷重新启用煤炭这种污染程
+日经225指数开盘下跌0.2%，报69615.08点，受金属类股拖累。韩国综合股价指数（KOSPI）开盘上涨1.9%，至8356.79点。责任编辑：王永生
 
 ## 正文
 
-美国航母有新动向！
+日经225指数开盘下跌0.2%，报69615.08点，受金属类股拖累。
 
-据最新消息，此前部署在中东地区的美国海军“福特”号航空母舰已返回位于美国弗吉尼亚州的诺福克海军基地。
+韩国综合股价指数（KOSPI）开盘上涨1.9%，至8356.79点。
 
-此前，该航母曾参与针对伊朗的军事行动。
-
-另据报道，一艘满载200万桶伊拉克原油、原定驶往越南的超级油轮，此前遭美军拦截后在阿曼湾滞留数日，目前已恢复航行。
-
-值得注意的是，伊朗战事导致霍尔木兹海峡航运近乎中断，引发全球油气价格上涨，各国纷纷重新启用煤炭这种污染程度高但供应稳定的能源。
-
-“福特”号航母返回美国 当地时间5月16日，美国海军“福特”号航空母舰返回位于美国弗吉尼亚州的诺福克海军基地，结束为期11个月的部署。
-
-据央视新闻援引美媒消息，“福特”号航母本次部署时长达到326天，打破了越南战争后美军航母的部署时长纪录。
-
-自去年6月以来，“福特”号航母先后参与美国对委内瑞拉、对伊朗的军事行动。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 03:48 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 03:53 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 04:02 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 03:53 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 04:02 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 04:07 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 03:50 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 03:55 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 04:05 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 03:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-30 04:06 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 04:12 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 03:58 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 04:18 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 04:18 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 04:06 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 04:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 03:58 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 04:02 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 04:20 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 04:01 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 04:24 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 04:09 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 03:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 04:07 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 04:23 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 04:11 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:12 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/66754.shtml)
-- 2026-06-30 04:15 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/828179194.shtml)
-- 2026-06-30 04:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/204486.shtml)
-- 2026-06-30 04:10 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/82439177641.shtml)
-- 2026-06-30 03:55 - [刘念回应](https://www.share.minike.top/Article/details/80971698786.shtml)
-- 2026-06-30 03:55 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/8833938.shtml)
-- 2026-06-30 03:56 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/57726737644.shtml)
-- 2026-06-30 04:07 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/4310909725.shtml)
-- 2026-06-30 04:06 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/03582973.shtml)
-- 2026-06-30 04:02 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/552131277.shtml)
-- 2026-06-30 03:49 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/887636472843.shtml)
-- 2026-06-30 03:59 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/308281.shtml)
-- 2026-06-30 04:09 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/5282006000.shtml)
-- 2026-06-30 04:11 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/1443189882.shtml)
-- 2026-06-30 04:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/055150900.shtml)
+- 2026-06-30 04:19 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/97145485.shtml)
+- 2026-06-30 04:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/950978911.shtml)
+- 2026-06-30 04:13 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/8479525.shtml)
+- 2026-06-30 04:00 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/04168547.shtml)
+- 2026-06-30 04:14 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/07554.shtml)
+- 2026-06-30 03:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/13018984897.shtml)
+- 2026-06-30 04:01 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/7183927.shtml)
+- 2026-06-30 04:09 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/51735613981.shtml)
+- 2026-06-30 04:08 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/65016582027.shtml)
+- 2026-06-30 04:00 - [一见倾心](http://www.blog.minike.top/Article/details/4684032807.shtml)
+- 2026-06-30 04:21 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/9745414.shtml)
+- 2026-06-30 04:19 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/524539.shtml)
+- 2026-06-30 03:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/638118292775.shtml)
+- 2026-06-30 04:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/78104091.shtml)
+- 2026-06-30 04:00 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/4908894108.shtml)

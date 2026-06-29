@@ -1,59 +1,44 @@
-# 百度2026年Q1：总营收321亿元 AI业务占比达52%
+# 英维克：公司将始终聚焦主业，以扎实的经营成果和长期稳健的发展来回报投资者的信任
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-5月18日，百度发布2026年第一季度财报，显示季度总营收321亿元，百度一般性业务收入260亿元，同比增长2%，超出市场预期。其中，AI业务收入136亿元，占百度一般性业务收入的52%，已连续多个季度增长。 “一季度，百度AI业务收入占比首次超过百度一般性业务收入的一半，这表明AI已成为百度的核心驱动力。”百度创始人李彦宏表示，“在企业需求激增和我们多年来建立的差异化全栈AI
+证券日报网讯6月22日，英维克在互动平台回答投资者提问时表示，公司将始终聚焦主业，以扎实的经营成果和长期稳健的发展来回报投资者的信任。
 
 ## 正文
 
-5月18日，百度发布2026年第一季度财报，显示季度总营收321亿元，百度一般性业务收入260亿元，同比增长2%，超出市场预期。
-
-其中，AI业务收入136亿元，占百度一般性业务收入的52%，已连续多个季度增长。
-
-“一季度，百度AI业务收入占比首次超过百度一般性业务收入的一半，这表明AI已成为百度的核心驱动力。
-
-”百度创始人李彦宏表示，“在企业需求激增和我们多年来建立的差异化全栈AI能力的推动下，AI云收入增长势头强劲。
-
-百度AI应用持续在企业和个人中扩大影响力，进一步验证了百度AI创新的商业潜力。
-
-与此同时，萝卜快跑在全无人驾驶出行单量上保持三位数增长，并持续推进国际化扩张。
-
-我们认为AI将在未来几个季度为百度带来更大价值。
-
-” 全栈AI能力优势凸显 AI云高速增长79% 季度内，百度AI云收入88亿元，同比高速增长79%；GPU云收入同比增长184%。
+证券日报网讯6月22日，英维克在互动平台回答投资者提问时表示，公司将始终聚焦主业，以扎实的经营成果和长期稳健的发展来回报投资者的信任。
 
 ## 相关推荐
 
-- 2026-06-30 04:13 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 03:50 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 04:06 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 03:53 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-30 04:11 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 04:15 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 04:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 03:51 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 04:14 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 03:57 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 03:58 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 03:59 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 03:57 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 03:59 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 04:01 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 04:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 04:12 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 04:12 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 04:20 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 04:02 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 04:22 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 04:15 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 04:16 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 04:08 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-30 04:11 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:14 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/0128252.shtml)
-- 2026-06-30 04:04 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/2104552618.shtml)
-- 2026-06-30 04:07 - [一生一世](https://www.share.kurohicncr.top/Article/details/48318.shtml)
-- 2026-06-30 03:49 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/59708940.shtml)
-- 2026-06-30 04:05 - [巴西扳平比分](https://www.blog.minike.top/Article/details/222409293.shtml)
-- 2026-06-30 04:03 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/7129015.shtml)
-- 2026-06-30 04:13 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/465351.shtml)
-- 2026-06-30 03:55 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/685739.shtml)
-- 2026-06-30 04:03 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/072483176702.shtml)
-- 2026-06-30 03:53 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/8514071.shtml)
-- 2026-06-30 04:03 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/8211902.shtml)
-- 2026-06-30 04:14 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/395938.shtml)
-- 2026-06-30 04:12 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/89646037.shtml)
-- 2026-06-30 04:02 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/071873661.shtml)
-- 2026-06-30 04:07 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/83509324647.shtml)
+- 2026-06-30 03:54 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/167247068.shtml)
+- 2026-06-30 04:20 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/14218.shtml)
+- 2026-06-30 04:17 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/622031.shtml)
+- 2026-06-30 04:05 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/86756814.shtml)
+- 2026-06-30 04:19 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/119822.shtml)
+- 2026-06-30 04:05 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/27283889.shtml)
+- 2026-06-30 04:15 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/9143635.shtml)
+- 2026-06-30 03:55 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/688815.shtml)
+- 2026-06-30 04:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/49586528512.shtml)
+- 2026-06-30 04:19 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/27111750094.shtml)
+- 2026-06-30 04:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/5014328.shtml)
+- 2026-06-30 04:15 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/6051130180.shtml)
+- 2026-06-30 04:15 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/591463856008.shtml)
+- 2026-06-30 04:06 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/425614300.shtml)
+- 2026-06-30 04:12 - [流金岁月](http://www.share.kurohicncr.top/Article/details/06315336.shtml)

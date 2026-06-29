@@ -1,60 +1,57 @@
-# Mon Power与Potomac Edison提交双路径电价方案，平衡电网投资与用户成本
+# 国民技术盘中涨超21% 公司持续跟踪CPO共封装光学前沿技术
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-双路径提案概述 FirstEnergy Corp．旗下的Mon Power和Potomac Edison公司已向西弗吉尼亚州公共服务委员会提交电价审查申请，旨在为提升电网可靠性和应对恶劣天气的投资提供资金支持。此次审查提出了两种费率方案：一种是基于通胀的投资调整方案，将较小的涨幅分散在一段时间内而非一次性大幅上调；另一种是传统的基于已完成投资的费率调整方案。 具体费率方案细节
+国民技术（02701）盘中涨超21%，截至发稿，股价上涨14.80%，现报12.49港元，成交额5.32亿港元。 国民技术日前在投资者互动平台表示，公司持续跟踪CPO共封装光学前沿技术。从技术架构来看，CPO光引擎所需MCU与现有800G/1.6T可插拔光模块主控MCU核心技术基础相近，公司依托现有技术储备具备适配开发能力，后续将结合市场需求评估产品开发计划。现阶段N32H49
 
 ## 正文
 
-双路径提案概述 FirstEnergy Corp．旗下的Mon Power和Potomac Edison公司已向西弗吉尼亚州公共服务委员会提交电价审查申请，旨在为提升电网可靠性和应对恶劣天气的投资提供资金支持。
+国民技术（02701）盘中涨超21%，截至发稿，股价上涨14.80%，现报12.49港元，成交额5.32亿港元。
 
-此次审查提出了两种费率方案：一种是基于通胀的投资调整方案，将较小的涨幅分散在一段时间内而非一次性大幅上调；另一种是传统的基于已完成投资的费率调整方案。
+国民技术日前在投资者互动平台表示，公司持续跟踪CPO共封装光学前沿技术。
 
-具体费率方案细节 通胀调整方案提出总计7600万美元的调整额度，分别于2026年8月1日和2027年6月1日各生效3800万美元。
+从技术架构来看，CPO光引擎所需MCU与现有800G/1.6T可插拔光模块主控MCU核心技术基础相近，公司依托现有技术储备具备适配开发能力，后续将结合市场需求评估产品开发计划。
 
-对于普通居民用户，每月电费分别上涨约3%和2.9%。
+现阶段N32H493系列MCU主要适配800G/1.6T可插拔高速光模块，承担控制、监控、协议处理等功能，目前正在推进客户导入验证工作。
 
-作为替代方案，传统费率调整方案提出1.88亿美元的调整额度，包括一项可靠性和基础设施改进计划，使普通居民用户每月电费上涨约13.9%。
+此外，MCU行业出现普遍涨价。
 
-在这两种方案下，居民用户的电价仍将保持在西弗吉尼亚州受监管公用事业公司中的最低水平。
+MCU及功率半导体大厂意法半导体此前向客户发出了“价格调整通知函”，宣布将自2026年6月28日起对部分产品价格进行上调。
 
-投资成效显著，数据需求激增 Mon Power和Potomac Edison近年来已完成多项电网升级：西弗吉尼亚州高压输电系统相关的停电时长已减少43.8%；对Fort Martin和Harrison电站的关键设备进行了改进；并升级了电线杆、输电线路和设备以增强抗灾能力。
+这是意法半导体在今年3月24日宣布涨价后，今年以来第二次宣布涨价。
 
-FirstEnergy此前已将2026-2030年资本计划提高30%至360亿美元，包括190亿美元的输电项目。
+在此之前，英飞凌、德州仪器等国际功率半导体巨头也相继发布涨价通知。
 
 ## 相关推荐
 
-- 2026-06-30 04:11 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 04:01 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 04:17 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 04:16 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 03:57 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 03:51 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 04:07 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 04:07 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 04:06 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 04:01 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 03:48 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 03:58 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 03:55 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 03:59 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 04:06 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 04:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 04:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 04:17 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 04:12 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 04:15 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 04:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 03:56 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 03:56 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 03:55 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 04:03 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:58 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/1918540.shtml)
-- 2026-06-30 03:52 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/91027397.shtml)
-- 2026-06-30 04:14 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/107043329.shtml)
-- 2026-06-30 03:52 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/047702298357.shtml)
-- 2026-06-30 03:57 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/2378899366.shtml)
-- 2026-06-30 04:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/21622285.shtml)
-- 2026-06-30 04:14 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/2118067836.shtml)
-- 2026-06-30 04:14 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/005938132877.shtml)
-- 2026-06-30 03:49 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/9252636750.shtml)
-- 2026-06-30 04:08 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/4070166459.shtml)
-- 2026-06-30 04:11 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/3612344666.shtml)
-- 2026-06-30 04:09 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/67038049.shtml)
-- 2026-06-30 04:02 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/340337.shtml)
-- 2026-06-30 04:03 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/95669718180.shtml)
-- 2026-06-30 04:15 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/8397599.shtml)
+- 2026-06-30 04:00 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/6458463.shtml)
+- 2026-06-30 04:10 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/24268890.shtml)
+- 2026-06-30 04:16 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/11089.shtml)
+- 2026-06-30 04:10 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/73796.shtml)
+- 2026-06-30 03:58 - [扬名立万](https://www.share.kurohicncr.top/Article/details/62858012.shtml)
+- 2026-06-30 03:57 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/13217.shtml)
+- 2026-06-30 04:02 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/746397.shtml)
+- 2026-06-30 03:56 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/3280656.shtml)
+- 2026-06-30 04:12 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/605413.shtml)
+- 2026-06-30 04:07 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/413175460872.shtml)
+- 2026-06-30 04:06 - [点菜也要教吗](https://www.share.minike.top/Article/details/8098704741.shtml)
+- 2026-06-30 04:09 - [斗破苍穹](https://www.blog.minike.top/Article/details/350643.shtml)
+- 2026-06-30 04:13 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/51290108313.shtml)
+- 2026-06-30 04:13 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/621484554685.shtml)
+- 2026-06-30 04:23 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/032622188224.shtml)

@@ -1,59 +1,58 @@
-# 国产特种光纤第一股，来了
+# 解码广州海珠湿地如何成为“飞羽天堂”
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-【导读】下周有2只新股可申购，分别是北交所新股龙辰科技和上交所科创板新股长进光子 中国基金报记者 闻言 A股打新投资者注意啦！ 根据目前发行安排，下周有2只新股可申购，分别是北交所新股龙辰科技、上交所科创板新股长进光子，申购时间均在5月18日。 龙辰科技：薄膜电容器用BOPP基膜龙头企业 龙辰科技的申购代码是920161，发行价为9.21元/股，发行市盈率为14.98倍，参考行
+中新网广州6月22日电 题：解码广州海珠湿地如何成为“飞羽天堂” 中新网记者 王坚 随着赤颈鸭、棕尾褐鹟接连“报到”，“消失”四十余年的红领绿鹦鹉回归，位于广州城市中央的“城市绿心”——海珠湿地鸟类记录目前已刷新至207种。在中国南部人口最稠密、经济社会活动最活跃的地区，广州的这颗“城市绿心”，为何能让各类物种“争相落地”？记者近日前往海珠湿地一探究竟。 对于鸟类而言，海珠湿地
 
 ## 正文
 
-【导读】下周有2只新股可申购，分别是北交所新股龙辰科技和上交所科创板新股长进光子 中国基金报记者 闻言 A股打新投资者注意啦！
+中新网广州6月22日电 题：解码广州海珠湿地如何成为“飞羽天堂” 中新网记者 王坚 随着赤颈鸭、棕尾褐鹟接连“报到”，“消失”四十余年的红领绿鹦鹉回归，位于广州城市中央的“城市绿心”——海珠湿地鸟类记录目前已刷新至207种。
 
-根据目前发行安排，下周有2只新股可申购，分别是北交所新股龙辰科技、上交所科创板新股长进光子，申购时间均在5月18日。
+在中国南部人口最稠密、经济社会活动最活跃的地区，广州的这颗“城市绿心”，为何能让各类物种“争相落地”？
 
-龙辰科技：薄膜电容器用BOPP基膜龙头企业 龙辰科技的申购代码是920161，发行价为9.21元/股，发行市盈率为14.98倍，参考行业市盈率为70.47倍。
+记者近日前往海珠湿地一探究竟。
 
-龙辰科技此次发行股份总数为3400万股，网上发行股份数量为3060万股。
+对于鸟类而言，海珠湿地就像一座五星级综合度假村。
 
-投资者参与网上申购龙辰科技，申购股份数量上限为152.99万股。
+不仅有品类超丰富的自助餐服务——延续岭南垛基果林传统，补充54种本土果树，将单一林改造为四季百果林，全年提供果实食源；改造增益水稻田，将耕道改为水生动物鱼道，联通河网、潮汐供肥，鱼虾蟹蛙繁茂生长。
 
-龙辰科技从事薄膜电容器相关BOPP（双向拉伸聚丙烯薄膜）薄膜材料研发、生产和销售。
+还有堪比度假别墅的住宿条件——广州海珠区坚持自然恢复为主、自然恢复与人工修复相结合，湿地率从54.8%大幅提升至79.4%。
 
-BOPP薄膜材料作为薄膜电容器的核心原材料之一，是由聚丙烯树脂经过双向拉伸工艺制成的一种绝缘介质材料。
+改造了4座专属鸟岛，加密筑巢林、拓展浅滩、布置枯木与浮排，新增栖息面积2.3万平方米，搭建49个人工浮排，随水位浮动，为涉禽营造“水上浅滩”，为鸟类打造绝佳的“安居房”。
 
-2021年，龙辰科技被认定为国家级专精特新“小巨人”企业。
+记者了解到，近年来，广州市生态环境局海珠分局常态化开展大气、水、土壤、噪声等各领域精准管控，与海珠区人民法院签署《涉生态环境纠纷联动联调机制共建协议》，用“信息共享、制度共建、资源共用、纠纷共调”的联动联调工作机制打击污染环境、破坏湿地、猎捕野生动物等违法犯罪行为，为海珠湿地稳定、健康的生态系统筑牢了法治根基。
 
 ## 相关推荐
 
-- 2026-06-30 04:10 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 04:06 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 04:09 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 03:57 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 04:02 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 03:54 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 04:02 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 04:17 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 04:16 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 04:00 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 04:14 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 04:01 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-30 04:16 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 04:01 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 04:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 04:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 04:13 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 04:14 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 04:20 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 04:22 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 04:21 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 03:55 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 04:14 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 04:06 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 04:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:55 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/22465.shtml)
-- 2026-06-30 04:12 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/80690836578.shtml)
-- 2026-06-30 03:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/8786921807.shtml)
-- 2026-06-30 04:09 - [绘画区你赢了](http://www.blog.minike.top/Article/details/84695.shtml)
-- 2026-06-30 04:12 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/715789.shtml)
-- 2026-06-30 04:15 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/38298990317.shtml)
-- 2026-06-30 04:03 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/27614727255.shtml)
-- 2026-06-30 04:11 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/97542.shtml)
-- 2026-06-30 04:04 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/9700106.shtml)
-- 2026-06-30 03:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/26439466918.shtml)
-- 2026-06-30 03:59 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/050429252959.shtml)
-- 2026-06-30 03:51 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/0757158.shtml)
-- 2026-06-30 04:03 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/620373.shtml)
-- 2026-06-30 04:13 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/9548259693.shtml)
-- 2026-06-30 04:15 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/39058.shtml)
+- 2026-06-30 04:20 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/999136.shtml)
+- 2026-06-30 04:11 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/6423366937.shtml)
+- 2026-06-30 04:21 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/15508.shtml)
+- 2026-06-30 04:03 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/7674513432.shtml)
+- 2026-06-30 04:10 - [日本进球](http://www.share.kurohicncr.top/Article/details/828537491.shtml)
+- 2026-06-30 04:19 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/42917223.shtml)
+- 2026-06-30 04:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/841907125.shtml)
+- 2026-06-30 04:14 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/608062227.shtml)
+- 2026-06-30 04:17 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/32836453.shtml)
+- 2026-06-30 03:57 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/76972723.shtml)
+- 2026-06-30 04:07 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/6703401.shtml)
+- 2026-06-30 04:19 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/61078920961.shtml)
+- 2026-06-30 04:09 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/70258959045.shtml)
+- 2026-06-30 04:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/39994474.shtml)
+- 2026-06-30 04:08 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/8947290524.shtml)

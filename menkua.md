@@ -1,57 +1,61 @@
-# 2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成
+# 嘉年华邮轮：伊朗战事冲击预订业务，下调业绩预期
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网保定5月17日电 (王夏菲)17日，2026河北省赛事经济暨户外运动产业大会发布《河北省户外运动产业发展报告(2025)》(以下简称《报告》)指出，2025年，河北举办户外赛事1614场，拉动消费超143.53亿元。户外赛事参赛观赛总人数达653.46万人，省外参与者达122.92万人，京津地区客源占比超四成。5月16日至17日，2026河北省赛事经济暨户外运动产业大会在
+专题：聚焦美股2026年第一季度财报 内容速览 受地缘政治剧烈波动冲击邮轮预订量叠加燃油成本走高影响，嘉年华邮轮给出本季度偏弱的业绩预期。 嘉年华邮轮表示，激烈的地缘冲突打乱了邮轮预订节奏，燃油成本持续攀升不断挤压企业利润，因此下调了本季度业绩预期。 这家邮轮公司于周二披露，上一财季的邮轮预订业务在欧洲地区受冲击最为严重，地中海航线遭遇的影响尤为突出。 公司首席执行官乔希・温斯
 
 ## 正文
 
-中新网保定5月17日电 (王夏菲)17日，2026河北省赛事经济暨户外运动产业大会发布《河北省户外运动产业发展报告(2025)》(以下简称《报告》)指出，2025年，河北举办户外赛事1614场，拉动消费超143.53亿元。
+专题：聚焦美股2026年第一季度财报 内容速览 受地缘政治剧烈波动冲击邮轮预订量叠加燃油成本走高影响，嘉年华邮轮给出本季度偏弱的业绩预期。
 
-户外赛事参赛观赛总人数达653.46万人，省外参与者达122.92万人，京津地区客源占比超四成。
+嘉年华邮轮表示，激烈的地缘冲突打乱了邮轮预订节奏，燃油成本持续攀升不断挤压企业利润，因此下调了本季度业绩预期。
 
-5月16日至17日，2026河北省赛事经济暨户外运动产业大会在河北省保定市涞源县举办。
+这家邮轮公司于周二披露，上一财季的邮轮预订业务在欧洲地区受冲击最为严重，地中海航线遭遇的影响尤为突出。
 
-河北省体育局党组书记、局长王彪说，2025年，河北面向社会公开举办各类体育赛事活动10485场，吸引参赛人员和观众2589.25万人，带动消费超488.78亿元，分别同比增长120.27%、137.26%、201.72%。
+公司首席执行官乔希・温斯坦表示，集团旗下全航线旺盛的出行需求与游客消费能力，一定程度对冲了地缘冲突带来的业务负面影响。
 
-其中，户外运动成为特色最明显、拉动力最强的板块。
+上一财季公司营收同比上涨 5.3%，达到 66.6 亿美元，略低于华尔街机构预期的 66.9 亿美元。
 
-《报告》指出，河北户外赛事参与规模实现倍增，河北品牌赛事享誉国际。
+尽管嘉年华持续推行降本举措，但仍未能完全抵消燃油涨价带来的压力，当期利润出现下滑。
 
-2025年ILCA亚洲(公开)帆船锦标赛举办期间，直接带动赛事所在景区接待游客超14万人次，较同期增长35%；金山岭长城越野赛吸引来自全球53个国家和地区的2500名选手参赛，创下中国越野跑赛事国际化新纪录；崇礼168超级越野赛吸引超11000名中外跑者，被誉为“中国越野跑殿堂级赛事”。
+周二公司股价大跌 7.3%，报收 27.96 美元，今年以来该股累计跌幅已达 9.7%。
 
-值得一提的是，河北连续四年举办国际、国家级雪上赛事数量居全国首位。
+展望后市，随着近期国际油价回落，嘉年华预计 2026 年剩余运营周期的燃油开支将小幅下行。
 
 ## 相关推荐
 
-- 2026-06-30 04:03 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 04:12 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 04:13 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 03:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 03:50 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 04:02 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 03:58 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 03:57 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 04:01 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 03:48 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 04:13 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 03:57 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 04:23 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 04:10 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 03:59 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 03:54 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 04:08 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 04:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 04:09 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 03:56 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 03:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 04:09 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 03:59 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 04:09 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 04:22 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 04:14 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:00 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/653305.shtml)
-- 2026-06-30 04:11 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/350207590.shtml)
-- 2026-06-30 04:11 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/35561.shtml)
-- 2026-06-30 04:13 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/4531070.shtml)
-- 2026-06-30 04:07 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/99076386.shtml)
-- 2026-06-30 04:03 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/85347.shtml)
-- 2026-06-30 04:09 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/86964.shtml)
-- 2026-06-30 03:48 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/9901991442.shtml)
-- 2026-06-30 04:17 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/39837351.shtml)
-- 2026-06-30 04:01 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/095177943527.shtml)
-- 2026-06-30 04:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/8643122865.shtml)
-- 2026-06-30 03:55 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/1909331148.shtml)
-- 2026-06-30 04:01 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/78609129.shtml)
-- 2026-06-30 03:58 - [《贺子珍》](http://www.blog.minike.top/Article/details/25468.shtml)
-- 2026-06-30 04:00 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/921601751504.shtml)
+- 2026-06-30 04:05 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/53916.shtml)
+- 2026-06-30 04:08 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/62862677003.shtml)
+- 2026-06-30 04:00 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/60244290.shtml)
+- 2026-06-30 03:59 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/111047447785.shtml)
+- 2026-06-30 03:58 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/89869872.shtml)
+- 2026-06-30 04:10 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/47814.shtml)
+- 2026-06-30 04:22 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/39775825832.shtml)
+- 2026-06-30 04:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/24151.shtml)
+- 2026-06-30 03:56 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/63047.shtml)
+- 2026-06-30 04:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/76772346.shtml)
+- 2026-06-30 03:59 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/536309409.shtml)
+- 2026-06-30 04:23 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/9725393692.shtml)
+- 2026-06-30 04:10 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/014306856.shtml)
+- 2026-06-30 04:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/500792.shtml)
+- 2026-06-30 04:01 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/10349.shtml)

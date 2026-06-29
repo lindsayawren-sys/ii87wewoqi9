@@ -1,45 +1,57 @@
-# 去年全国核发绿证超过29亿个
+# 长城基金督察长正式落定：审计老将李建军接棒 总经理不再代为履职
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 09:47 来源：央视新闻 责任编辑：【王祎】
+6月24日，长城基金发布高级管理人员变更的公告，新任李建军为公司督察长，任职日期2026-06-23。同日，公司总经理祝函不再代为履行督察长职务。至此，这家管理规模超3700亿元的老牌公募，在经历一季度管理层重大调整后，终于完成了合规条线的最终落定。 督察长李建军：审计出身的合规“老兵” 公告显示，李建军于2001年7月起就职于国家审计署驻深圳特派员办事处，拥有深厚的审计与监管
 
 ## 正文
 
-发布时间：2026年05月18日 09:47 来源：央视新闻 责任编辑：【王祎】
+6月24日，长城基金发布高级管理人员变更的公告，新任李建军为公司督察长，任职日期2026-06-23。
+
+同日，公司总经理祝函不再代为履行督察长职务。
+
+至此，这家管理规模超3700亿元的老牌公募，在经历一季度管理层重大调整后，终于完成了合规条线的最终落定。
+
+督察长李建军：审计出身的合规“老兵” 公告显示，李建军于2001年7月起就职于国家审计署驻深圳特派员办事处，拥有深厚的审计与监管背景。
+
+2017年11月起，他就职于中天国富证券有限公司；2023年9月起就职于世纪证券有限责任公司。
+
+2026年3月，李建军加入长城基金管理有限公司。
+
+值得关注的是，李建军的履历与现任总经理祝函高度重叠。
+
+两人均曾在世纪证券、中天国富证券任职，且都曾是券业老将余维佳的老部下。
 
 ## 相关推荐
 
-- 2026-06-30 04:03 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 03:54 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 04:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-30 03:53 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 03:53 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 03:56 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 03:51 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 03:57 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 03:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 03:48 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 03:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 04:08 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 04:02 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 04:06 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 04:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 04:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 04:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 04:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 04:16 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 04:06 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 04:21 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 04:08 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 04:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 04:07 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:54 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/62906446.shtml)
-- 2026-06-30 03:55 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/75984.shtml)
-- 2026-06-30 04:04 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/4885774111.shtml)
-- 2026-06-30 04:06 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/53044041.shtml)
-- 2026-06-30 03:50 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/3930582.shtml)
-- 2026-06-30 04:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/107480270.shtml)
-- 2026-06-30 04:12 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/63353784501.shtml)
-- 2026-06-30 03:54 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/756574172.shtml)
-- 2026-06-30 04:02 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/59426197.shtml)
-- 2026-06-30 03:51 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/24184928102.shtml)
-- 2026-06-30 04:10 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/09802.shtml)
-- 2026-06-30 04:02 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/752056568.shtml)
-- 2026-06-30 03:53 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/088464.shtml)
-- 2026-06-30 03:54 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/168274300907.shtml)
-- 2026-06-30 04:02 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/4302803384.shtml)
+- 2026-06-30 04:07 - [急先锋](https://www.blog.minike.top/Article/details/292373343.shtml)
+- 2026-06-30 03:59 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/87582821913.shtml)
+- 2026-06-30 04:09 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/9586976954.shtml)
+- 2026-06-30 04:15 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/3645974.shtml)
+- 2026-06-30 03:54 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/680652410.shtml)
+- 2026-06-30 04:09 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/01910002.shtml)
+- 2026-06-30 04:10 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/663552117340.shtml)
+- 2026-06-30 04:06 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/5311457.shtml)
+- 2026-06-30 04:02 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/42694170343.shtml)
+- 2026-06-30 04:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/49450780771.shtml)
+- 2026-06-30 04:17 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/442046516.shtml)
+- 2026-06-30 04:03 - [流金岁月](http://www.share.kurohicncr.top/Article/details/79006903345.shtml)
+- 2026-06-30 04:07 - [月亮](http://www.blog.kurohicncr.top/Article/details/23469647789.shtml)
+- 2026-06-30 04:17 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/96374.shtml)
+- 2026-06-30 03:58 - [日本进球](https://www.share.kurohicncr.top/Article/details/8271186.shtml)

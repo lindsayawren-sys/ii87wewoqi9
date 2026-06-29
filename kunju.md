@@ -1,60 +1,57 @@
-# 日本阿尔茨海默病初创企业Sound Wave融资约1700万美元
+# 赫力昂首次参展链博会，中国副总裁傅悦：与更多合作伙伴携手推动产业链协同创新
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-投资方包括寰世创投、富杜西亚投资及住友重机械工业 日本医疗初创企业声波创新公司（Sound Wave Innovation）主打利用超声波疗法攻克阿尔茨海默病，该公司已完成一轮融资，募资金额约 1700 万美元，新加坡风投机构寰世创投（iGlobe Partners）参投。 声波创新公司于周一宣布，本轮融资共计筹得 26.5 亿日元，折合 1670 万美元，所筹资金将用于推进正
+专题：第四届中国国际供应链促进博览会（链博会） 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新浪科技讯 6月23日下午消息，近日，全球消费健康公司赫力昂首次亮相第四届链博会“健康生活链”展区，与中国英国商会联合参展。这是赫力昂首次参加链博会，现场展示了多款核心产品。 赫力昂中国副总裁、企业事务部负责人傅悦表示：“链博会是促进产业链供应链交流合作的重要
 
 ## 正文
 
-投资方包括寰世创投、富杜西亚投资及住友重机械工业 日本医疗初创企业声波创新公司（Sound Wave Innovation）主打利用超声波疗法攻克阿尔茨海默病，该公司已完成一轮融资，募资金额约 1700 万美元，新加坡风投机构寰世创投（iGlobe Partners）参投。
+专题：第四届中国国际供应链促进博览会（链博会） 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-声波创新公司于周一宣布，本轮融资共计筹得 26.5 亿日元，折合 1670 万美元，所筹资金将用于推进正在开展的临床试验，该试验预计在今年年底收官。
+新浪科技讯 6月23日下午消息，近日，全球消费健康公司赫力昂首次亮相第四届链博会“健康生活链”展区，与中国英国商会联合参展。
 
-企业表示，除寰世创投外，本轮投资方还包括东京投资机构富杜西亚（Fiducia）、住友重机械工业等原有股东，同时吸纳了海内外多家风投机构、医药企业及个人投资者。
+这是赫力昂首次参加链博会，现场展示了多款核心产品。
 
-据熟悉该公司规划的知情人士透露，声波创新计划在 2028 年推进首次公开募股，预计 2026 年末启动下一轮融资。
+赫力昂中国副总裁、企业事务部负责人傅悦表示：“链博会是促进产业链供应链交流合作的重要平台，不仅展示创新成果，更推动产业链上下游、产学研各界的深度链接与协同发展。
 
-此前完成初步临床研究后，日本厚生劳动省认定该疗法具备创新医疗价值，将其纳入审批快速通道，加速其获批落地进程。
+作为首次参展企业，我们希望以开放的心态向各方伙伴学习交流，深入了解中国健康产业链创新发展的最新实践，并分享赫力昂在绿色制造、本土创新和健康生态共建等方面的经验。
 
-目前全球有数千万阿尔茨海默病患者。
+未来，我们期待与更多合作伙伴携手，推动产业链协同创新，让科学健康更加可及可得，共同助力‘健康中国2030’建设。
 
-2023 年，由日本卫材与渤健联合研发的阿尔茨海默病药物仑卡奈单抗获美国食品药品监督管理局批准上市；礼来制药的同类药物基苏单抗也于 2024 年获批，两款药物均能够延缓患者认知能力衰退。
+” 赫力昂深耕营养健康、口腔健康、疼痛管理、呼吸健康及皮肤健康等领域，旗下拥有善存、钙尔奇、舒适达、益周适、芬必得、扶他林、新康泰克、百多邦和辅舒良等品牌。
 
-声波创新手握低强度脉冲超声波治疗早期阿尔茨海默病相关基础专利，专利覆盖日本与美国两地。
+基于对中国市场中长期潜力的信心，赫力昂加码在华投入。
 
 ## 相关推荐
 
-- 2026-06-30 04:16 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 04:02 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-30 04:06 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 04:01 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 03:54 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 03:50 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 04:11 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 04:08 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 04:00 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 04:10 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 04:09 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 03:54 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 03:50 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 03:48 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 04:07 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 04:04 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 04:04 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 04:03 - [巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 03:54 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 03:59 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 03:55 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 04:00 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 04:17 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 04:23 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 04:08 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:11 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/02399.shtml)
-- 2026-06-30 03:57 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/6987378.shtml)
-- 2026-06-30 04:10 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/886248750.shtml)
-- 2026-06-30 04:17 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/14386.shtml)
-- 2026-06-30 03:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/82405481473.shtml)
-- 2026-06-30 04:01 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/4824172.shtml)
-- 2026-06-30 04:05 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/6664866.shtml)
-- 2026-06-30 04:10 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/90814406.shtml)
-- 2026-06-30 04:00 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/5795107674.shtml)
-- 2026-06-30 03:54 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/607012.shtml)
-- 2026-06-30 04:09 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/7728635.shtml)
-- 2026-06-30 03:48 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/25470505.shtml)
-- 2026-06-30 03:49 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/536423019583.shtml)
-- 2026-06-30 04:09 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/98546.shtml)
-- 2026-06-30 04:06 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/56945.shtml)
+- 2026-06-30 04:23 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/61096052620.shtml)
+- 2026-06-30 04:14 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/4742771.shtml)
+- 2026-06-30 04:13 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/633188827723.shtml)
+- 2026-06-30 04:14 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/09656688.shtml)
+- 2026-06-30 04:16 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/333665677.shtml)
+- 2026-06-30 04:14 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/0146596.shtml)
+- 2026-06-30 04:20 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/630888272.shtml)
+- 2026-06-30 04:10 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/4690687.shtml)
+- 2026-06-30 04:06 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/42484.shtml)
+- 2026-06-30 03:57 - [TOP Prada](http://www.share.minike.top/Article/details/75902172090.shtml)
+- 2026-06-30 04:15 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/43583232420.shtml)
+- 2026-06-30 04:01 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/3113248043.shtml)
+- 2026-06-30 03:55 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/097684637769.shtml)
+- 2026-06-30 04:03 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/487329913.shtml)
+- 2026-06-30 04:15 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/23228075789.shtml)

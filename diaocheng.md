@@ -1,60 +1,59 @@
-# 2026（第二十届）中国品牌节8月回归北京 聚焦“出海与生态”
+# 广西推出外国人才“一站式”服务平台
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-摘要：2026中国品牌节8月8日北京开幕，聚焦出海与生态，活动环节异彩纷呈。 5月17日下午，2026（第二十届）中国品牌节新闻发布会在深圳举行。会议宣布，以“出海与生态”为主题的第二十届中国品牌节，将于8月7日至10日在北京盛大举办。时隔多年，中国品牌节再度回到首届举办地北京。现场近百位中国企业家、专家学者、合作伙伴及媒体记者等嘉宾齐聚深圳，共同见证！ 中国品牌节发起人、品牌
+中新社南宁6月23日电 (记者 黄艳梅)广西外国人才“一站式”综合服务平台暨外国专家书屋23日在南宁启用。该平台旨在为来桂工作的外籍人才提供全周期、集成化服务，是广西健全外国人才服务体系、优化涉外人才发展环境的新举措。 广西外国人才“一站式”综合服务平台由广西壮族自治区党委组织部统筹，广西壮族自治区人力资源和社会保障厅联合教育、科技、公安、卫生健康等部门共同建设。 该平台全面推
 
 ## 正文
 
-摘要：2026中国品牌节8月8日北京开幕，聚焦出海与生态，活动环节异彩纷呈。
+中新社南宁6月23日电 (记者 黄艳梅)广西外国人才“一站式”综合服务平台暨外国专家书屋23日在南宁启用。
 
-5月17日下午，2026（第二十届）中国品牌节新闻发布会在深圳举行。
+该平台旨在为来桂工作的外籍人才提供全周期、集成化服务，是广西健全外国人才服务体系、优化涉外人才发展环境的新举措。
 
-会议宣布，以“出海与生态”为主题的第二十届中国品牌节，将于8月7日至10日在北京盛大举办。
+广西外国人才“一站式”综合服务平台由广西壮族自治区党委组织部统筹，广西壮族自治区人力资源和社会保障厅联合教育、科技、公安、卫生健康等部门共同建设。
 
-时隔多年，中国品牌节再度回到首届举办地北京。
+该平台全面推行外国人来华工作“一件事”集成服务，线上建设信息平台，线下设立服务专窗，实行“一窗受理、集成服务”。
 
-现场近百位中国企业家、专家学者、合作伙伴及媒体记者等嘉宾齐聚深圳，共同见证！
+外籍人才可通过平台办理科研人才项目申报、职称评审、社会保险等事项，开展政策咨询、委托代办和陪同协办服务。
 
-中国品牌节发起人、品牌联盟董事长王永在发布会上介绍，2006年8月8日，在人民大会堂金色大厅举办的品牌中国高峰论坛上，正式提出举办中国品牌节的倡议，并确定每年8月8日为举办日期。
+同步启用的外国专家书屋汇集多语种书籍，涵盖中国国情、中华文化、广西发展、行业专业、人文历史等各类读物，不仅提供舒适的阅读空间，还将定期举办政策宣讲、文化体验、学术沙龙等活动，打造中外文化交流的“暖心驿站”。
 
-2007年8月8日，首届中国品牌节在北京扬帆起航。
+来自巴基斯坦的可汗是南宁师范大学数学与统计学院教授和学科带头人。
 
-十九年来，品牌节先后走进青岛、大连、贵阳、成都、武汉、呼和浩特、长沙、杭州、广州、深圳等城市，见证并参与了中国品牌从小到大、从大到强的奋进历程。
+他在接受媒体采访时表示，新服务平台和书屋让外籍人才感受到广西的开放与温度，对未来在广西的工作与生活充满期待。
 
 ## 相关推荐
 
-- 2026-06-30 04:13 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 04:10 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 04:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 03:54 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 04:06 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 03:50 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 04:11 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 04:04 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 03:51 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 04:05 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 04:06 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 03:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 03:56 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 04:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 04:10 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 04:10 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 04:19 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 03:58 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 04:05 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 04:00 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 04:17 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 04:05 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 04:19 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 03:54 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 03:59 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 04:15 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 03:59 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/755396551183.shtml)
-- 2026-06-30 04:02 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/04233655605.shtml)
-- 2026-06-30 03:58 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/8769609563.shtml)
-- 2026-06-30 04:06 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/540018206514.shtml)
-- 2026-06-30 04:01 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/350883.shtml)
-- 2026-06-30 04:04 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/01116424.shtml)
-- 2026-06-30 03:48 - [蔚来车主罚站](https://www.share.minike.top/Article/details/38676386.shtml)
-- 2026-06-30 04:03 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/099612885.shtml)
-- 2026-06-30 04:00 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/36701897.shtml)
-- 2026-06-30 03:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/7572589879.shtml)
-- 2026-06-30 03:51 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/048181570839.shtml)
-- 2026-06-30 04:09 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/1417082801.shtml)
-- 2026-06-30 03:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/790222170073.shtml)
-- 2026-06-30 03:53 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/186706.shtml)
-- 2026-06-30 04:14 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/248221.shtml)
+- 2026-06-30 03:54 - [沙丘](http://www.blog.kurohicncr.top/Article/details/6499656161.shtml)
+- 2026-06-30 04:21 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/94721.shtml)
+- 2026-06-30 04:23 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/58249.shtml)
+- 2026-06-30 03:57 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/067528258.shtml)
+- 2026-06-30 04:14 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/297374903312.shtml)
+- 2026-06-30 04:03 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/0239381524.shtml)
+- 2026-06-30 04:06 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/031743.shtml)
+- 2026-06-30 04:13 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/37857376324.shtml)
+- 2026-06-30 04:17 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/11117559276.shtml)
+- 2026-06-30 04:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/969712.shtml)
+- 2026-06-30 04:13 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/36250.shtml)
+- 2026-06-30 04:07 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/462246699751.shtml)
+- 2026-06-30 04:04 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/371445.shtml)
+- 2026-06-30 04:02 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/7492647354.shtml)
+- 2026-06-30 03:58 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/467831205.shtml)

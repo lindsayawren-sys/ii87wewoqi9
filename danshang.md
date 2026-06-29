@@ -1,60 +1,52 @@
-# 存储芯片龙头，资金爆买，已连续5周获加仓
+# 湖北恩施大清江：星河揽夜幕 云海漫朝晖
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-澜起科技获南向资金净买入超10亿港元。 本周（5月11日至15日），港股市场主要股指集体下跌，恒生指数跌1.63%，恒生科技指数跌3.17%，恒生中国企业指数跌2.23%。据证券时报·数据宝统计，本周南向资金合计成交净买入93.33亿港元。 连续五周净买入澜起科技 从本周成交活跃股来看，共有22只个股上榜，阿里巴巴-W本周港股通合计买卖总额最高，达到382.9亿港元， 腾讯控股
+发布时间：2026年06月23日 21:31 来源：中国新闻网 湖北恩施大清江，蕴藏峡谷山野独有的山水诗意。入夜之后，世间喧嚣悄然消散，漫天星河垂落山谷，拥抱整片沉沉夜幕，满目星光静谧悠远，抚慰人心。待到破晓时分，星光缓缓隐匿天际，层层云海在群峰之间翻涌奔腾，初升朝阳挥洒万丈霞光，温柔浸染千山万壑。一夜一朝，星河与云海交替亮相，每一帧风光都动人心弦，尽显大清江得天独厚的山水风姿
 
 ## 正文
 
-澜起科技获南向资金净买入超10亿港元。
+发布时间：2026年06月23日 21:31 来源：中国新闻网 湖北恩施大清江，蕴藏峡谷山野独有的山水诗意。
 
-本周（5月11日至15日），港股市场主要股指集体下跌，恒生指数跌1.63%，恒生科技指数跌3.17%，恒生中国企业指数跌2.23%。
+入夜之后，世间喧嚣悄然消散，漫天星河垂落山谷，拥抱整片沉沉夜幕，满目星光静谧悠远，抚慰人心。
 
-据证券时报·数据宝统计，本周南向资金合计成交净买入93.33亿港元。
+待到破晓时分，星光缓缓隐匿天际，层层云海在群峰之间翻涌奔腾，初升朝阳挥洒万丈霞光，温柔浸染千山万壑。
 
-连续五周净买入澜起科技 从本周成交活跃股来看，共有22只个股上榜，阿里巴巴-W本周港股通合计买卖总额最高，达到382.9亿港元， 腾讯控股紧随其后，为336.52亿港元，其他还有中芯国际、长飞光纤光缆买卖总额均超过200亿港元。
+一夜一朝，星河与云海交替亮相，每一帧风光都动人心弦，尽显大清江得天独厚的山水风姿。
 
-从成交净买入金额来看，澜起科技获南向资金净买入10.31亿港元。
-
-互联网科技巨头以净卖出为主，阿里巴巴-W遭南向资金净卖出44.54亿港元，小米集团-W、腾讯控股、美团-W分别遭净卖出15.52亿港元、12.07亿港元、7.07亿港元。
-
-澜起科技（06809）已获得南向资金连续五周持股量增长，最新持股量为638.66万股，占自由流通股本比例为19.32%。
-
-公司在投资者调研活动中表示，今年第一季度，随着DDR5渗透率提高且子代持续迭代，公司DDR5 RCD芯片出货量显著增加，其中第三、第四子代RCD芯片的出货占比进一步提升。
+(王关政 制作 税浪) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 04:15 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 03:54 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 04:00 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 03:52 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 04:09 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 03:56 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 04:06 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 04:04 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 04:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 04:04 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 03:56 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 04:14 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 03:57 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 03:52 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-30 04:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-30 04:02 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 03:55 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 04:18 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 04:18 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 04:16 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 03:58 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 04:23 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 04:05 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 03:56 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 04:04 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 03:55 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:01 - [电影后室值得看吗](http://www.share.minike.top/Article/details/603082502.shtml)
-- 2026-06-30 04:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/574015.shtml)
-- 2026-06-30 03:52 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/73453709.shtml)
-- 2026-06-30 04:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/740193080121.shtml)
-- 2026-06-30 04:12 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/76852.shtml)
-- 2026-06-30 03:49 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/4976080.shtml)
-- 2026-06-30 04:10 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/2905596000.shtml)
-- 2026-06-30 04:07 - [张凌赫 客串](https://www.share.minike.top/Article/details/180667647184.shtml)
-- 2026-06-30 03:51 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/29945224.shtml)
-- 2026-06-30 03:50 - [世界杯](http://www.blog.minike.top/Article/details/13300090769.shtml)
-- 2026-06-30 04:08 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/2891458287.shtml)
-- 2026-06-30 03:56 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/8278929801.shtml)
-- 2026-06-30 03:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/0699059.shtml)
-- 2026-06-30 04:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/70733844.shtml)
-- 2026-06-30 03:48 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/346704.shtml)
+- 2026-06-30 04:14 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/743688509.shtml)
+- 2026-06-30 04:06 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/8635514.shtml)
+- 2026-06-30 04:09 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/343651271492.shtml)
+- 2026-06-30 04:20 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/49359524.shtml)
+- 2026-06-30 03:55 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/1893281096.shtml)
+- 2026-06-30 04:21 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/0574604.shtml)
+- 2026-06-30 04:02 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/09584546215.shtml)
+- 2026-06-30 04:21 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/60014489.shtml)
+- 2026-06-30 04:08 - [日本进球](http://www.blog.minike.top/Article/details/09040286886.shtml)
+- 2026-06-30 04:06 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/781059159970.shtml)
+- 2026-06-30 04:00 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/660981.shtml)
+- 2026-06-30 04:00 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/147883716113.shtml)
+- 2026-06-30 04:03 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/7574590168.shtml)
+- 2026-06-30 04:23 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/238745.shtml)
+- 2026-06-30 04:20 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/32261542498.shtml)

@@ -1,56 +1,60 @@
-# “核宇宙科学大冒险”公众科学日：探秘大科学装置兰州重离子加速器
+# 买券商就是买科技？顶流券商ETF华宝（512000）再涨2%，基金经理：中报落地前，持续关注券商
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网北京5月18日电 (记者 孙自法)中国科学院第二十二届公众科学日5月16日至17日顺利举行，中国科学院近代物理研究所推出“核宇宙科学大冒险”主题开放活动，带领公众探秘大科学装置兰州重离子加速器，共同感受核科学的魅力。 兰州重离子加速器是中国科学院近代物理所开展核物理、核技术、核医学等领域研究的重要平台。在讲解员的引导下，观众通过实地参观，直观了解离子加速器的工作原理、科研
+继昨日倍量爆发，6月23日，券商板块继续上攻，规模380亿元+的顶流券商ETF华宝（512000）场内价格再涨超2%，前一日场内大涨7.37%。长江证券两连板，中信建投涨超5%，华安证券、东北证券、广发证券等涨幅居前。 对于近日亮眼表现，券商ETF华宝（512000）基金经理丰晨成指出，券商ETF华宝（512000）昨日罕见的2倍反包节前跌幅，没有出现日内回吐的长影线，ETF交
 
 ## 正文
 
-中新网北京5月18日电 (记者 孙自法)中国科学院第二十二届公众科学日5月16日至17日顺利举行，中国科学院近代物理研究所推出“核宇宙科学大冒险”主题开放活动，带领公众探秘大科学装置兰州重离子加速器，共同感受核科学的魅力。
+继昨日倍量爆发，6月23日，券商板块继续上攻，规模380亿元+的顶流券商ETF华宝（512000）场内价格再涨超2%，前一日场内大涨7.37%。
 
-兰州重离子加速器是中国科学院近代物理所开展核物理、核技术、核医学等领域研究的重要平台。
+长江证券两连板，中信建投涨超5%，华安证券、东北证券、广发证券等涨幅居前。
 
-在讲解员的引导下，观众通过实地参观，直观了解离子加速器的工作原理、科研进展和成果应用，近距离感受大国重器带来的科技震撼。
+对于近日亮眼表现，券商ETF华宝（512000）基金经理丰晨成指出，券商ETF华宝（512000）昨日罕见的2倍反包节前跌幅，没有出现日内回吐的长影线，ETF交易额创近期新高，头部券商引领涨停。
 
-公众科学日活动上，一场特殊的“薪火对话”引人注目：中国科学院近代物理所“两弹一星”亲历科学家、86岁高龄的侯明东研究员与青少年对话，通过讲述计算尺时代的科研故事，分享老一辈科学家“干惊天动地事，做隐姓埋名人”的奋斗历程，点燃青少年的科技强国梦想。
+科技板块没有出现暴跌，周期金融板块接棒，呈现“多点开花”。
 
-科普报告环节，中国科学院近代物理所姚存峰研究员作《探秘核能：小原子中蕴藏的大能量》主题报告，带领听众开启一场脑力大冒险。
+后续关注两市成交额维持3万亿高位的时间，尤其是在券商中报落地之前，依旧有持续估值修复潜力。
 
-“魔法学院”科学实验互动展演环节，高温超导磁悬浮、电磁感应现象演示、微观粒子径迹捕捉、“两弹一星”探索训练营、机器人与人工智能教育等项目内容丰富，人形机器人足球互动、四足机器狗越障、AI下棋机器人对弈、航模拼装等现场体验活动更是精彩纷呈。
+华创证券表示，买券商就是买科技！
 
-活动现场还专门策划准备了“粒子特工训练基地”沉浸式挑战、与NPC进行“诗词中的物理学”互动、在“原子核之环”套圈游戏中认识元素周期表等多种科学游戏，让少年儿童观众边玩边学，寓教于乐。
+具体来看：1、科创板IPO券商一律强制跟投，创业板公司（四类必须跟投，其中未盈利企业必须强制跟投，这非常AI），科技跟投业务产生大量浮盈；2、本轮牛市由AI+科技股带领，头部券商基本是科技股境内外上市的重要中介，是科技强国的服务员；3、全球科技牛市，仅A股券商表现不佳，其余美日韩均跑赢指数，部分韩国券商在指数翻倍的情况下涨了6倍；4、当前买券商就约等于买打折版科技，资金压制解除后，若科技大涨，券商跟上。
 
-中国科学院近代物理所透露，未来将持续常态化开放科普资源，以“猫小野科普星球”自主品牌为引领，构筑更具辨识度的科普活动矩阵，让科学可知可感、可触可及。
+科技大跌，券商因为此前已经超跌会少跌（历史分位数10%），FOMO科技当下最好的选择是券商！
 
 ## 相关推荐
 
-- 2026-06-30 04:09 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 04:17 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 03:50 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 04:00 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 04:16 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 04:10 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-30 04:10 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 04:09 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 04:05 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 04:06 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 04:04 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 03:54 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 04:11 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 04:06 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 04:16 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 03:54 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 04:06 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 03:57 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 04:22 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 04:20 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 04:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 04:12 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 04:22 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 04:05 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:01 - [千香](https://www.share.kurohicncr.top/Article/details/1524943.shtml)
-- 2026-06-30 03:52 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/1363420426.shtml)
-- 2026-06-30 04:10 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/120868481.shtml)
-- 2026-06-30 04:14 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/37718.shtml)
-- 2026-06-30 04:04 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/60155.shtml)
-- 2026-06-30 03:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/6823545482.shtml)
-- 2026-06-30 04:06 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/008974628.shtml)
-- 2026-06-30 04:13 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/643389075.shtml)
-- 2026-06-30 03:49 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/32942.shtml)
-- 2026-06-30 04:05 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/56602550.shtml)
-- 2026-06-30 04:10 - [流金岁月](https://www.blog.minike.top/Article/details/58565369928.shtml)
-- 2026-06-30 03:52 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/429747.shtml)
-- 2026-06-30 04:01 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/90102660.shtml)
-- 2026-06-30 03:50 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/856046543975.shtml)
-- 2026-06-30 04:02 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/55626784.shtml)
+- 2026-06-30 04:11 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/21749.shtml)
+- 2026-06-30 03:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/349608099.shtml)
+- 2026-06-30 04:18 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/5694684196.shtml)
+- 2026-06-30 04:20 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/984750647.shtml)
+- 2026-06-30 04:02 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/306683.shtml)
+- 2026-06-30 04:10 - [金刚川](https://www.share.minike.top/Article/details/7130380.shtml)
+- 2026-06-30 04:19 - [巴西扳平比分](http://www.share.minike.top/Article/details/5163121185.shtml)
+- 2026-06-30 04:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/550237489.shtml)
+- 2026-06-30 04:06 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/79802717976.shtml)
+- 2026-06-30 03:56 - [苗族银饰](http://www.share.minike.top/Article/details/08560103649.shtml)
+- 2026-06-30 04:17 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/4453240879.shtml)
+- 2026-06-30 04:06 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/85944636123.shtml)
+- 2026-06-30 04:04 - [一见倾心](https://www.share.minike.top/Article/details/932506.shtml)
+- 2026-06-30 04:06 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/9363571960.shtml)
+- 2026-06-30 04:20 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/04573.shtml)

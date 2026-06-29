@@ -1,60 +1,57 @@
-# 三位台青广西创业记：抓住年轻消费者的“胃”“嗅觉”与“健康观”
+# 沉浸式音乐剧《钱氏今生》在杭首演 展现千年钱氏家风
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月17日电 题：三位台青广西创业记：抓住年轻消费者的“胃”“嗅觉”与“健康观” 中新网记者 蒋雪林 “现在的年轻人，讲究效率，追求便利。”台青林凤怡近日接受记者采访时说，她在广西南宁市靠“外卖经济”起家，卖的是烤鸡。 林凤怡先生家在广西钦州市，从事养殖业。她发现，把活鸡卖给年轻人，路子根本走不通。“他们下班已经很累了，回家点上外卖、煮上饭，不怎么开火，也可以快速准备
+中新网杭州6月23日电(曹丹)6月23日晚，沉浸式音乐剧《钱氏今生》在浙江杭州西湖畔的钱王祠完成首演，以吴越文化为根、西湖文脉为脉、钱氏家训为魂，让千年家风走出典籍、走进当下。 该剧以五代吴越国君主钱镠的人生轨迹为主线，深挖“保境安民、利在天下”的精神内核，贯穿吴越历代君主恪守家训、传承家风的历史脉络。全剧共三幕，第一幕《优美家庭》以钱镠练兵开篇，借“陌上花开，可缓缓归矣”演绎
 
 ## 正文
 
-中新网南宁5月17日电 题：三位台青广西创业记：抓住年轻消费者的“胃”“嗅觉”与“健康观” 中新网记者 蒋雪林 “现在的年轻人，讲究效率，追求便利。
+中新网杭州6月23日电(曹丹)6月23日晚，沉浸式音乐剧《钱氏今生》在浙江杭州西湖畔的钱王祠完成首演，以吴越文化为根、西湖文脉为脉、钱氏家训为魂，让千年家风走出典籍、走进当下。
 
-”台青林凤怡近日接受记者采访时说，她在广西南宁市靠“外卖经济”起家，卖的是烤鸡。
+该剧以五代吴越国君主钱镠的人生轨迹为主线，深挖“保境安民、利在天下”的精神内核，贯穿吴越历代君主恪守家训、传承家风的历史脉络。
 
-林凤怡先生家在广西钦州市，从事养殖业。
+全剧共三幕，第一幕《优美家庭》以钱镠练兵开篇，借“陌上花开，可缓缓归矣”演绎钱镠与夫人吴氏的相思温情，引出勤俭和睦、诗书传家的治家理念；第二幕《利在天下》透过朝堂之上的填湖之争，阐释钱王“利在一身勿谋也，利在天下者必谋之”的治国智慧；第三幕《前世今生》描摹西湖四季与市井安乐，“三世五王”悉数登场，展现吴越一国丰功伟绩，尾声投龙仪式，串联千年时空，完成历史与当下的呼应。
 
-她发现，把活鸡卖给年轻人，路子根本走不通。
+该剧打破传统舞台边界，依托钱王祠实景创作，将舞台空间与吴越历史场景、西湖自然环境融为一体，设置观众互动、角色走场等环节，让观众从旁观者变为参与者。
 
-“他们下班已经很累了，回家点上外卖、煮上饭，不怎么开火，也可以快速准备好一份不错的晚餐。
+音乐方面融合独唱、合唱、古风咏唱、吴歌、说唱等多种形式，使吴越古风适配年轻观众审美。
 
-”她果断转型，做即食烤鸡，专攻外卖。
+“不做冰冷的历史复述，不搞生硬的家训宣讲，而是以生活化的故事、立体化的人物、沉浸式的体验，让千年钱氏家风走出典籍、走进当下。
 
-2024年10月开店，2025年扩至5家门店，覆盖南宁多个城区。
+”总导演张雪松表示，该剧一方面深度挖掘吴越历史与西湖文脉的精神内核，另一方面借力现代舞台艺术语言打通古今壁垒，同时探索文保场所实景演艺的全新形态。
 
-林凤怡的秘诀是：锁定20岁至40岁白领，营业时间15时至次日凌晨1时，主动放弃午市。
+出品人许十云认为，钱镠“保境安民、利在天下”的治国理念与《钱氏家训》修身、齐家、治国、利世的价值追求，不仅是吴越文明的缩影，更契合当代家风建设、民生为本、生态保护、家国情怀的时代命题。
 
 ## 相关推荐
 
-- 2026-06-30 03:56 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 04:11 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 04:09 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 04:10 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 04:16 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 04:12 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 04:07 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 03:49 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 03:49 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 04:10 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 04:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 04:06 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 03:54 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 04:14 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 04:09 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 04:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 04:17 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 04:23 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 04:00 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 03:57 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 03:54 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 04:05 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 04:19 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 04:07 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 03:56 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:13 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/512166744.shtml)
-- 2026-06-30 03:59 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/506093.shtml)
-- 2026-06-30 03:51 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/018222269.shtml)
-- 2026-06-30 04:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/336088.shtml)
-- 2026-06-30 04:11 - [扫黑风暴](https://www.share.minike.top/Article/details/64290887.shtml)
-- 2026-06-30 03:48 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/022416048.shtml)
-- 2026-06-30 04:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/977107617908.shtml)
-- 2026-06-30 04:03 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/314540074301.shtml)
-- 2026-06-30 04:18 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/250440601.shtml)
-- 2026-06-30 03:49 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/42478.shtml)
-- 2026-06-30 04:01 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/4539450804.shtml)
-- 2026-06-30 04:11 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/08663192.shtml)
-- 2026-06-30 04:12 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/80626260.shtml)
-- 2026-06-30 03:50 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/324843277.shtml)
-- 2026-06-30 04:00 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/26544158846.shtml)
+- 2026-06-30 04:01 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/179854134323.shtml)
+- 2026-06-30 03:59 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/4198746830.shtml)
+- 2026-06-30 04:07 - [巴西扳平比分](https://www.blog.minike.top/Article/details/63297186.shtml)
+- 2026-06-30 03:56 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/47097703.shtml)
+- 2026-06-30 03:54 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/139289156.shtml)
+- 2026-06-30 04:15 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/706760.shtml)
+- 2026-06-30 04:09 - [爱很美味](https://www.blog.minike.top/Article/details/027541608.shtml)
+- 2026-06-30 04:04 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/72649.shtml)
+- 2026-06-30 04:10 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/066073.shtml)
+- 2026-06-30 04:02 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/954302748.shtml)
+- 2026-06-30 04:03 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/382281.shtml)
+- 2026-06-30 03:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/74028.shtml)
+- 2026-06-30 03:57 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/863548.shtml)
+- 2026-06-30 04:17 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/03548216.shtml)
+- 2026-06-30 04:11 - [恋与深空回应争议](http://www.share.minike.top/Article/details/461541482502.shtml)

@@ -1,59 +1,54 @@
-# 同江水运口岸西部作业区明水期对俄水上跨境航运通航
+# 中国夏粮旺季收购开局良好 小麦收购量超3000万吨
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网佳木斯5月17日电(赵鹏 鲁春光 徐志强)16日，随着满载货物的“龙推610”轮拖带3艘千吨级驳船缓缓驶离同江水运口岸西部作业区泊位，驶往俄罗斯口岸，标志着同江市2026年夏季明水期对俄水上跨境航运航线全面恢复通航。 “‘龙推610’是同江水运口岸西部作业区今年明水期首艘出境中国籍船舶。”据同江海关物流监控二科一级行政执法员尤聪尧介绍，同江海关开展口岸智慧化建设，让该船承
+中新社北京6月23日电 (记者 陈溯)中国国家粮食和物资储备局23日发布，随着夏粮陆续收获上市，旺季收购正逐步展开。截至目前，中国各类粮食经营主体累计收购小麦超3000万吨，总体进展顺利、开局良好，呈现出购销活跃、市场平稳、优质优价等特点。目前，中国小麦大规模机收基本完成，夏粮旺季收购正在由南向北有序展开，收购进度与上年基本持平。 国家粮食和物资储备局粮食储备司司长罗守全表示，
 
 ## 正文
 
-中新网佳木斯5月17日电(赵鹏 鲁春光 徐志强)16日，随着满载货物的“龙推610”轮拖带3艘千吨级驳船缓缓驶离同江水运口岸西部作业区泊位，驶往俄罗斯口岸，标志着同江市2026年夏季明水期对俄水上跨境航运航线全面恢复通航。
+中新社北京6月23日电 (记者 陈溯)中国国家粮食和物资储备局23日发布，随着夏粮陆续收获上市，旺季收购正逐步展开。
 
-“‘龙推610’是同江水运口岸西部作业区今年明水期首艘出境中国籍船舶。
+截至目前，中国各类粮食经营主体累计收购小麦超3000万吨，总体进展顺利、开局良好，呈现出购销活跃、市场平稳、优质优价等特点。
 
-”据同江海关物流监控二科一级行政执法员尤聪尧介绍，同江海关开展口岸智慧化建设，让该船承运的水泥等大宗散货通过智能卡口进入港区，卡口可精准匹配货物舱单状态，自动完成入区核验，推动出口商品实现“抵港直装”，大幅简化通关流程，提高通关效率。
+目前，中国小麦大规模机收基本完成，夏粮旺季收购正在由南向北有序展开，收购进度与上年基本持平。
 
-“2026年我们计划全年完成运量20万吨。
+国家粮食和物资储备局粮食储备司司长罗守全表示，各级储备企业有序开展轮换收购，各类加工和贸易企业、饲料企业积极入市，市场购销较为活跃。
 
-主要以水泥及其他杂货为出口。
+目前，主产区小麦收购均价每斤1.21元(人民币，下同)左右，优质品种小麦售价比市场价每斤高出0.1元左右，以质论价、优质优价特征明显。
 
-有机肥、江砂、木材等为进口货物。
+国家粮食和物资储备局表示，下一步将统筹抓好市场化收购和政策性收储，持续加强市场监测预警，健全极端天气应对预案，完善粮食烘干、清理等服务，确保农民售粮渠道畅通、市场平稳运行。
 
-”佳木斯龙航港务局有限公司总经理郭凤辉表示，下一步将采取提升安全管理能力、提高服务效率等一系列举措，保障同江西部作业区至俄罗斯哈巴港的国际水上物流通道畅通，促进同江口岸外经贸发展。
-
-同江市商务和口岸局口岸综合业务股股长张艳艳表示，随着此次明水期首航顺利启航，同江水运口岸西部作业区正式拉开航运作业大幕，辖区建材出口货运业务迎来稳步上行态势。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:55 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 04:16 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 04:06 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 03:57 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 04:15 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 04:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 04:15 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 03:56 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 04:07 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 03:57 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 04:02 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 03:58 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 04:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-30 04:20 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 04:21 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 04:11 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 04:18 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 04:10 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 04:10 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 04:13 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 04:11 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 04:18 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 03:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:51 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/918269.shtml)
-- 2026-06-30 04:08 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/242620920133.shtml)
-- 2026-06-30 04:16 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/8066843494.shtml)
-- 2026-06-30 04:02 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/812192809811.shtml)
-- 2026-06-30 04:02 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/824748.shtml)
-- 2026-06-30 03:56 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/4289189.shtml)
-- 2026-06-30 04:13 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/40743332.shtml)
-- 2026-06-30 04:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/678236947575.shtml)
-- 2026-06-30 03:50 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/9050642.shtml)
-- 2026-06-30 04:17 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/95041749583.shtml)
-- 2026-06-30 04:04 - [急先锋](https://www.share.kurohicncr.top/Article/details/656071.shtml)
-- 2026-06-30 04:06 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/2518410.shtml)
-- 2026-06-30 03:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/37038.shtml)
-- 2026-06-30 04:16 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/23065389026.shtml)
-- 2026-06-30 04:11 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/177023513.shtml)
+- 2026-06-30 03:58 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/545164641.shtml)
+- 2026-06-30 04:17 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/40996229.shtml)
+- 2026-06-30 04:15 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/968998.shtml)
+- 2026-06-30 04:08 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/6862487.shtml)
+- 2026-06-30 04:09 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/17505264983.shtml)
+- 2026-06-30 04:10 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/80628487278.shtml)
+- 2026-06-30 04:22 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/533052.shtml)
+- 2026-06-30 03:57 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/94532110032.shtml)
+- 2026-06-30 03:54 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/02718203265.shtml)
+- 2026-06-30 04:14 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/28540351.shtml)
+- 2026-06-30 04:02 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/4838406796.shtml)
+- 2026-06-30 04:11 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/7871723.shtml)
+- 2026-06-30 04:04 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/971512791.shtml)
+- 2026-06-30 04:15 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/489322365.shtml)
+- 2026-06-30 04:19 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/78110.shtml)

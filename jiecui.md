@@ -1,57 +1,57 @@
-# 川投新能源公司总经理刘亮被遣返回国
+# 电影《给阿嬷的情书》在澳大利亚首映
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-近日，在中央反腐败协调小组国际追逃追赃工作办公室统筹协调和公安部等部门协助下，经四川省监察机关、公安机关与有关国家执法机关密切合作，外逃职务犯罪嫌疑人刘亮在境外落网并被遣返回国。 刘亮，男，1979年1月出生，川投新能源公司总经理，涉嫌严重职务违法犯罪，于2026年4月外逃，同月四川省资阳市监察机关对其立案调查。办案机关积极开展国际执法合作，于近日将其缉捕归案。 中央追逃办负责
+中新社悉尼6月24日电 (记者 薄雯雯)电影《给阿嬷的情书》23日晚在澳大利亚悉尼举行首映礼。 “纸短情长，伏惟珍重”“江海万里，心中念你，便不觉遥远”……活动现场，以侨批为主题设置的场景装置格外吸睛，不少观众手持票根驻足拍照留念，感受跨越山海的牵挂与思念。 中国驻悉尼总领事王愚在致辞中表示，这部影片生动展现了潮汕人精神品格的核心特质，面对生活的艰辛，他们用双手创造生活，用担当
 
 ## 正文
 
-近日，在中央反腐败协调小组国际追逃追赃工作办公室统筹协调和公安部等部门协助下，经四川省监察机关、公安机关与有关国家执法机关密切合作，外逃职务犯罪嫌疑人刘亮在境外落网并被遣返回国。
+中新社悉尼6月24日电 (记者 薄雯雯)电影《给阿嬷的情书》23日晚在澳大利亚悉尼举行首映礼。
 
-刘亮，男，1979年1月出生，川投新能源公司总经理，涉嫌严重职务违法犯罪，于2026年4月外逃，同月四川省资阳市监察机关对其立案调查。
+“纸短情长，伏惟珍重”“江海万里，心中念你，便不觉遥远”……活动现场，以侨批为主题设置的场景装置格外吸睛，不少观众手持票根驻足拍照留念，感受跨越山海的牵挂与思念。
 
-办案机关积极开展国际执法合作，于近日将其缉捕归案。
+中国驻悉尼总领事王愚在致辞中表示，这部影片生动展现了潮汕人精神品格的核心特质，面对生活的艰辛，他们用双手创造生活，用担当守护家庭。
 
-中央追逃办负责人表示，刘亮归案是落实二十届中央纪委五次全会精神、开展“天网2026”行动的重要成果。
+影片中看似平凡的生活细节，构成了中华优秀传统文化最温暖动人的精神底色。
 
-我们将深化反腐败执法司法合作，保持追逃追赃强大攻势，加大对重点人员的追缉力度，以天罗地网断其后路、绝其幻想。
+澳大利亚潮州同乡会青年会会长杜艇说，影片情感真挚、温暖感人，让他数度落泪。
 
-（总台央视记者 宋琎） 责任编辑：宋雅芳
+他希望更多华侨华人通过影片重温浓浓乡情、感受潮汕文化魅力，也希望年轻一代将潮汕人的精神传承下去。
+
+“看完影片，也让我想起了自己的阿嬷。
+
+”祖籍汕尾、在澳大利亚生活已有十年的观众卓紫红着眼眶说，在“下南洋”的年代，许多潮汕男性远赴海外打拼，留在家乡的女性则以柔弱的肩膀撑起家庭。
 
 ## 相关推荐
 
-- 2026-06-30 03:58 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 04:16 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 03:48 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 04:03 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 03:48 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 04:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 03:50 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 04:11 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 03:56 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 04:05 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 04:02 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 04:06 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 03:57 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 03:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 04:16 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 04:13 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 04:06 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 04:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 04:16 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 04:10 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 04:09 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 04:14 - [巴西2比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 04:01 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 03:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 04:08 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 04:11 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:03 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/6366526.shtml)
-- 2026-06-30 04:10 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/89946.shtml)
-- 2026-06-30 04:04 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/67426.shtml)
-- 2026-06-30 04:17 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/762381312.shtml)
-- 2026-06-30 03:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/6802387.shtml)
-- 2026-06-30 03:51 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/48103.shtml)
-- 2026-06-30 04:09 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/8483601550.shtml)
-- 2026-06-30 03:50 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/321874.shtml)
-- 2026-06-30 03:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/8197655.shtml)
-- 2026-06-30 04:07 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/40823426878.shtml)
-- 2026-06-30 04:10 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/90980.shtml)
-- 2026-06-30 04:08 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/6210775.shtml)
-- 2026-06-30 03:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/96495.shtml)
-- 2026-06-30 04:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/546794.shtml)
-- 2026-06-30 04:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/417664517617.shtml)
+- 2026-06-30 04:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/7998421.shtml)
+- 2026-06-30 03:55 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/664081.shtml)
+- 2026-06-30 03:55 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/669493019.shtml)
+- 2026-06-30 04:16 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/17597271191.shtml)
+- 2026-06-30 04:00 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/04166.shtml)
+- 2026-06-30 04:14 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/8324843431.shtml)
+- 2026-06-30 03:54 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/33214214.shtml)
+- 2026-06-30 04:16 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/379795.shtml)
+- 2026-06-30 03:59 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/30513239.shtml)
+- 2026-06-30 04:03 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/06350.shtml)
+- 2026-06-30 03:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/562240861.shtml)
+- 2026-06-30 04:18 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/52059932.shtml)
+- 2026-06-30 04:14 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/031144653.shtml)
+- 2026-06-30 04:22 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/087413672.shtml)
+- 2026-06-30 04:20 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/543194336319.shtml)

@@ -1,59 +1,58 @@
-# 土耳其前副总理阿里・巴巴詹：包容性是改革国际金融机构核心方向
+# 外交部：中国扩大高水平对外开放，欢迎各国企业深挖中国大市场潜力
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月18日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。“国际货币体系的重构”主题论坛上，土耳其前副总理阿里・巴巴詹表示，在当前国际环境下，全球治理体系亟需建立在可靠的行事规则与有效多边机制之上，以减缓国家间信任的持
+6月23日，外交部发言人郭嘉昆主持例行记者会。 有记者提问，昨天第四届中国国际供应链促进博览会在北京顺义开幕，吸引超过1200家中外参展商，其中美国参展企业和机构数量继续位列外资参展商榜首。我们注意到，中方近期密集举办系列博览会，中国南亚博览会上周在昆明闭幕，后天中国亚欧博览会将在乌鲁木齐举行，有分析认为在一些国家筑墙设垒推行保护主义的同时，中国则选择进一步敞开开放的大门，请问
 
 ## 正文
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月18日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。
+6月23日，外交部发言人郭嘉昆主持例行记者会。
 
-本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。
+有记者提问，昨天第四届中国国际供应链促进博览会在北京顺义开幕，吸引超过1200家中外参展商，其中美国参展企业和机构数量继续位列外资参展商榜首。
 
-“国际货币体系的重构”主题论坛上，土耳其前副总理阿里・巴巴詹表示，在当前国际环境下，全球治理体系亟需建立在可靠的行事规则与有效多边机制之上，以减缓国家间信任的持续流失。
+我们注意到，中方近期密集举办系列博览会，中国南亚博览会上周在昆明闭幕，后天中国亚欧博览会将在乌鲁木齐举行，有分析认为在一些国家筑墙设垒推行保护主义的同时，中国则选择进一步敞开开放的大门，请问发言人对此有何评论？
 
-阿里・巴巴詹提出，包容性是改革国际金融机构的核心方向。
+郭嘉昆表示，共同维护全球产业链、供应链稳定是世界经济健康发展的重要保障。
 
-当前布雷顿森林体系等国际机构的代表性不够民主、平等与公正，大量国家的声音无法被有效听取，必须通过改革提升全球与地区各国的代表性。
+中国作为负责任大国，积极发挥完整产业体系、超大规模市场等优势，努力畅通世界经济运行脉络，坚定维护产业链、供应链的公共产品属性。
 
-同时，流动性属于全球公共物品而非少数国家的特权，IMF 应推进相关认证机制建设，让符合标准的国家在危机中快速获得紧急流动性支持，包容性、代表性与流动性可及性是全球金融体系的三大重要原则。
+链博会是全球首个以供应链为主题的国家级展会，为中外企业提供展链条、展生态、展场景的平台，搭建找合作伙伴、找解决方案的桥梁。
 
-阿里・巴巴詹还指出，当前国际货币体系缺乏统一协调与 “总指挥”，多元体系并存已成必然趋势，互操作性是未来体系稳定运行的关键。
+本届链博会吸引超过1200家参展商，涉及85个国家地区和国际组，外资参展商占比超过36%，世界500强及行业龙头企业参展比例超过65%。
 
-各国应推动不同系统间的互联互通，建立共同标准与协议，实现信息与认证的标准化。
+各国企业的参展热情反映出对中国大市场的重视，对中国经济前景的信心。
 
 ## 相关推荐
 
-- 2026-06-30 03:48 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 03:55 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 04:00 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 04:09 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 03:59 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 04:12 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 04:03 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 04:01 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 04:00 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-30 03:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 03:49 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 04:11 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 03:54 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 03:58 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 04:04 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 04:11 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 04:15 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 04:07 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 04:08 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 03:54 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 04:00 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 04:15 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 04:06 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 04:20 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 04:09 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:12 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/1867498481.shtml)
-- 2026-06-30 03:51 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/7101538131.shtml)
-- 2026-06-30 03:58 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/37492625.shtml)
-- 2026-06-30 04:12 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/4537700166.shtml)
-- 2026-06-30 04:05 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/6314597.shtml)
-- 2026-06-30 04:11 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/57185.shtml)
-- 2026-06-30 04:16 - [千与千寻](http://www.share.kurohicncr.top/Article/details/9875960835.shtml)
-- 2026-06-30 04:03 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/304145448022.shtml)
-- 2026-06-30 03:58 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/2984022648.shtml)
-- 2026-06-30 03:57 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/34786.shtml)
-- 2026-06-30 03:51 - [绘画区你赢了](https://www.blog.minike.top/Article/details/820227.shtml)
-- 2026-06-30 04:14 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/673470210256.shtml)
-- 2026-06-30 04:04 - [啊啊啊](https://www.share.minike.top/Article/details/494098591421.shtml)
-- 2026-06-30 03:55 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/5588649808.shtml)
-- 2026-06-30 03:48 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/41421996.shtml)
+- 2026-06-30 04:09 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/90655846381.shtml)
+- 2026-06-30 04:18 - [送你一朵小红花](http://www.share.minike.top/Article/details/084932222.shtml)
+- 2026-06-30 04:16 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/35951722.shtml)
+- 2026-06-30 04:13 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/038101060.shtml)
+- 2026-06-30 03:57 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/66083441.shtml)
+- 2026-06-30 04:16 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/91122724.shtml)
+- 2026-06-30 03:58 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/3291598741.shtml)
+- 2026-06-30 04:17 - [日本16强魔咒](http://www.blog.minike.top/Article/details/955148125.shtml)
+- 2026-06-30 04:16 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/846731.shtml)
+- 2026-06-30 04:13 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/821368.shtml)
+- 2026-06-30 03:56 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/602650.shtml)
+- 2026-06-30 04:05 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/649153.shtml)
+- 2026-06-30 04:03 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/926666006.shtml)
+- 2026-06-30 04:10 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/332776859072.shtml)
+- 2026-06-30 04:13 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/66236.shtml)

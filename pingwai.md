@@ -1,59 +1,60 @@
-# 聚焦“过程改变未来”主题 科研一线“搬”到公众科学日活动现场
+# A股医药板块周二逆势上涨
 
-> 更新时间：2026-06-30 04:18:02 UTC+8
+> 更新时间：2026-06-30 04:24:02 UTC+8
 
 ## 摘要
 
-中新网北京5月17日电 (记者 孙自法)在科研人员指导下，一群爱科学的小朋友穿上实验服、戴上实验手套，动手研磨锂矿石，解密新能源电池；有条不紊地组装，体验石墨烯电池的制作过程；DIY(自己动手做)一套简易“流化床”，感受固体像液体流动起来的奇妙；制备不同的靶向药物模型，精准输送“狙击”肿瘤…… 这是中国科学院第二十二届公众科学日活动上，中国科学院过程工程研究所聚焦“过程改变未来
+中新社北京6月23日电 (记者 陈康亮)中国A股23日(周二)遭遇调整，主要股指下跌，但医药相关板块逆势上涨，表现亮眼。 根据金融数据服务商东方财富的数据，化学制药、医疗服务、中药、医药商业等板块涨幅居前。其中，化学制药板块当天上涨3.51%，领涨A股所有行业板块。个股方面，亨迪药业、共同药业、金石亚药、舒泰神等多股股价均涨逾10%。 财信证券分析师吴号表示，今年以来，A股医药
 
 ## 正文
 
-中新网北京5月17日电 (记者 孙自法)在科研人员指导下，一群爱科学的小朋友穿上实验服、戴上实验手套，动手研磨锂矿石，解密新能源电池；有条不紊地组装，体验石墨烯电池的制作过程；DIY(自己动手做)一套简易“流化床”，感受固体像液体流动起来的奇妙；制备不同的靶向药物模型，精准输送“狙击”肿瘤…… 这是中国科学院第二十二届公众科学日活动上，中国科学院过程工程研究所聚焦“过程改变未来”主题，将科研一线“搬”到科普活动现场的场景，让社会公众特别是青少年通过动手实验，解锁过程工程背后的科学奥秘。
+中新社北京6月23日电 (记者 陈康亮)中国A股23日(周二)遭遇调整，主要股指下跌，但医药相关板块逆势上涨，表现亮眼。
 
-中国科学院过程工程所所长杨超院士致辞表示，此次公众科学日活动将一系列前沿科技成果深度融入科普场景，该所希望以科普为桥，用公众看得见、摸得着、听得懂的过程工程科普，激发孩子们的科学热情，播撒科学的种子。
+根据金融数据服务商东方财富的数据，化学制药、医疗服务、中药、医药商业等板块涨幅居前。
 
-公众科学日活动上，介科学与过程工程全国重点实验室、生物药制备与递送全国重点实验室开放参观。
+其中，化学制药板块当天上涨3.51%，领涨A股所有行业板块。
 
-其中，虚拟过程工程平台(VPE)是国际首个集计算机模拟、在线控制、测量、数据处理和显示的过程工程虚拟现实平台，为多家世界500强企业提供过程优化以及新技术。
+个股方面，亨迪药业、共同药业、金石亚药、舒泰神等多股股价均涨逾10%。
 
-作为转化医学影像技术平台，生物药制备与递送全国重点实验室-珀金埃尔默转化医学工程共建实验室，向公众展现如何通过成像技术探究病因，寻找治疗方法。
+财信证券分析师吴号表示，今年以来，A股医药相关板块总体遭遇较为充分的调整，但产业发展保持积极向上态势，板块估值性价比凸显，不少上市公司近期积极回购股票，板块底部信号开始显现，投资者信心有所增强。
 
-在中国科学院过程工程所的现代化工科普展厅，通过对化工产业的系统展示，传播“新化工”理念，观众可身临其境感受现代化工的魅力。
+消息面上，据媒体报道，统计显示，今年4月1日至6月21日，共有68家A股医药公司实施回购，合计金额约38亿元(人民币，下同)，较一季度增加54.1%。
 
-在该所廊坊工程试验基地，公众通过参观科技成果展厅、听取科普报告、参与趣味科学小实验等活动环节，能体验一场别开生面的科普之旅。
+与此同时，有70余家公司发布回购预案，数量较一季度翻倍，计划回购金额(以回购上限计算)超100亿元，较一季度大增约3倍。
 
-学习和传承科学家精神，也是公众科学日活动的一项重要内容。
+就当天A股主要指数的表现而言，截至收盘，上证指数报4106点，跌幅为1.37%；深证成指报15854点，跌幅为3.17%；创业板指报4192点，跌3.84%。
 
 ## 相关推荐
 
-- 2026-06-30 03:57 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 03:50 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 04:05 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-30 04:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 04:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 04:02 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 04:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 04:10 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 03:57 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 04:05 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 03:49 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 04:07 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 04:17 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 04:09 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 04:05 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 04:00 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 04:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 04:23 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 03:57 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 04:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 04:22 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 04:16 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 04:15 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 04:05 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 04:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 04:22 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 03:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/336194.shtml)
-- 2026-06-30 03:57 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/395710579.shtml)
-- 2026-06-30 04:08 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/8168115.shtml)
-- 2026-06-30 03:51 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/210831607589.shtml)
-- 2026-06-30 04:00 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/30029.shtml)
-- 2026-06-30 03:57 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/96238.shtml)
-- 2026-06-30 04:08 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/825326725315.shtml)
-- 2026-06-30 04:04 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/231274788.shtml)
-- 2026-06-30 03:59 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/250012346.shtml)
-- 2026-06-30 03:50 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/504348.shtml)
-- 2026-06-30 03:49 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/725353141.shtml)
-- 2026-06-30 03:59 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/97848876.shtml)
-- 2026-06-30 04:17 - [巴西2比1日本](https://www.share.minike.top/Article/details/93535102.shtml)
-- 2026-06-30 04:07 - [日本进球](https://www.blog.kurohicncr.top/Article/details/4603076417.shtml)
-- 2026-06-30 03:58 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/38442.shtml)
+- 2026-06-30 04:15 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/192952452.shtml)
+- 2026-06-30 04:21 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/061819589301.shtml)
+- 2026-06-30 04:01 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/15656261.shtml)
+- 2026-06-30 04:08 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/44241699069.shtml)
+- 2026-06-30 04:07 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/38318379592.shtml)
+- 2026-06-30 04:14 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/56887567.shtml)
+- 2026-06-30 04:06 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/4895243.shtml)
+- 2026-06-30 04:09 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/179310936.shtml)
+- 2026-06-30 04:13 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/3655254.shtml)
+- 2026-06-30 04:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/510346.shtml)
+- 2026-06-30 04:18 - [《共患难》](http://www.blog.minike.top/Article/details/07389858.shtml)
+- 2026-06-30 04:19 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/48203585.shtml)
+- 2026-06-30 03:55 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/046554.shtml)
+- 2026-06-30 04:10 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/5800762.shtml)
+- 2026-06-30 04:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/0471064.shtml)
