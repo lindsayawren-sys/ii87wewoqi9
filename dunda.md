@@ -1,59 +1,59 @@
-# 美防长赫格塞思就国防预算出席国会听证会
+# 外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-中新社华盛顿5月12日电 (记者 沙晗汀)美国国防部长赫格塞思当地时间12日就2027财年国防预算出席国会参众两院听证会。 赫格塞思当天分别出席了众议院拨款委员会国防小组和参议院拨款委员会国防小组听证会，两场听证会总时长达4小时。特朗普政府提出的2027财年1.5万亿美元国防预算、伊朗战事等成为听证会焦点。 在当天两场听证会上，多位议员问及中东战事花费问题。民主党参议员穆雷(P
+中新网北京4月22日电 (记者 张蔚然)中国外交部发言人郭嘉昆22日主持例行记者会。 有记者提问：据报道，继日本首相高市早苗向靖国神社供奉祭品后，今天高市再次向靖国神社供奉祭祀费，成长战略担当大臣城内实、自民党总务会长有村治子和多名国会议员前往参拜，请问中方对此有何评论？ 郭嘉昆：我们昨天已经阐明中方的严正立场，日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知。中
 
 ## 正文
 
-中新社华盛顿5月12日电 (记者 沙晗汀)美国国防部长赫格塞思当地时间12日就2027财年国防预算出席国会参众两院听证会。
+中新网北京4月22日电 (记者 张蔚然)中国外交部发言人郭嘉昆22日主持例行记者会。
 
-赫格塞思当天分别出席了众议院拨款委员会国防小组和参议院拨款委员会国防小组听证会，两场听证会总时长达4小时。
+有记者提问：据报道，继日本首相高市早苗向靖国神社供奉祭品后，今天高市再次向靖国神社供奉祭祀费，成长战略担当大臣城内实、自民党总务会长有村治子和多名国会议员前往参拜，请问中方对此有何评论？
 
-特朗普政府提出的2027财年1.5万亿美元国防预算、伊朗战事等成为听证会焦点。
+郭嘉昆：我们昨天已经阐明中方的严正立场，日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知。
 
-在当天两场听证会上，多位议员问及中东战事花费问题。
+中方对上述恶行十分愤慨，严厉谴责。
 
-民主党参议员穆雷(Patty Murray)表示，国防部“是将民众的钱花在一场很多民众都反对的战争上，并且强迫民众花更多钱加油”，“然而，你连这场战争成本明细都不能提供”。
+二战期间日本军国主义犯下罄竹难书的滔天罪行，给中国等亚洲国家和世界带来深重灾难。
 
-对此，赫格塞思并未直接回答战争具体花费，而是强调伊朗战争对于美国的必要性。
+靖国神社是日本军国主义对外发动侵略战争的精神工具和象征，是事实上的“战犯神社”，供奉有对侵略战争负有直接罪责的二战甲级战犯，包括战争狂人、头号战犯东条英机，侵华贼首土肥原贤二，南京大屠杀元凶松井石根、偷袭珍珠港的下令者永野修身、杀害无数朝鲜半岛抗日民众的罪魁小矶国昭等。
 
-在当天众议院的听证会上，国防部代理审计长赫斯特(Jules Hurst)表示，中东战事目前花费约290亿美元，包括弹药补充、装备维修及维持军队部署成本，该数字不包括该地区美军事基地受损设施的修复或重建费用。
+这些人均是对亚洲乃至世界人民犯下滔天罪行的重要战争责任者。
 
-对于议员关切的武器库存问题，赫格塞思表示，关于武器库存不足的担忧“被无益地夸大了”，“我们有所需要的武器”，并且军工企业已被告知“快速生产更多武器”。
+靖国神社问题的实质是日本能否正确认识和深刻反省军国主义侵略历史，能否汲取历史教训，避免重蹈历史覆辙。
 
 ## 相关推荐
 
-- 2026-06-29 12:48 - [太平洋岛国瑙鲁拟更改国名 下一步将举行全民公投](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:44 - [300965，重大资产重组，明日复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:58 - [纽约联储研究：美国信用卡债务回落至1.25万亿美元，但仍呈现K型分化格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:47 - [“海南鲜品”加速海南农产品向高端走、线上走、海外走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:37 - [美国总统特朗普抵达北京](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:55 - [欧佩克下调2026年全球石油需求增长预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:52 - [力量发展午前涨近4% 机构指公司南非煤矿盈利较为可靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:32 - [金银冲高回落！专家：下半年金银仍上行，白银弹性更大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:53 - [ST龙大实控人戴学斌被刑拘，今日开盘跌停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:47 - [油价上涨拖累全球股市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:30 - [五月生猪行情横向震荡，中期修复窗口逐步临近](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:48 - [四川优化升级无人机“扫码飞” 适飞空域预计超全省面积八成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:59 - [龙泉股份：截至2026年5月8日公司股东人数为23412户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:45 - [金针菇概念股，净利润大增超7000%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:50 - [方邦股份4月21日龙虎榜数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:37 - [接迎第十三批在韩中国人民志愿军烈士遗骸回国的空军运-20B降落在沈阳桃仙国际机场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:54 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:50 - [金宏气体：受国际局势和市场供需关系影响，氦气产品价格存在一定波动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:50 - [旷日持久的冲突或将对铜价构成压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:56 - [“易中天”市值力压贵州茅台！创业板人工智能近1年飙涨202%持续跑赢！高“光”159363放量再创新高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:51 - [AI光模块市场年增57%！260亿美元机遇爆发！含光量超45%的创业板人工智能ETF华宝159363上探逾2%冲击前高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:39 - [国泰海通：宏观与供需共振 金属板块呈现结构性机会（附股）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:55 - [强降雨致漓江排筏全线封航 桂林海事部门筑牢水上安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 13:05 - [在洪安边城寻找“翠翠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:51 - [滴滴成为香港引进办重点企业，两地乘客可顺畅使用同一个App](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:49 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:54 - [一季度西藏社会消费品零售总额255.83亿元](http://www.blog.minike.top/Article/details/536817447545.shtml)
-- 2026-06-29 12:31 - [习近平会见文莱王储比拉](http://www.blog.kurohicncr.top/Article/details/7174100.shtml)
-- 2026-06-29 12:43 - [韩国交易所开始在资本市场监测工作中采用AI技术](http://www.blog.minike.top/Article/details/4604027224.shtml)
-- 2026-06-29 12:58 - [机构预测2026年泰国平均通货膨胀率为3.4%](http://www.share.minike.top/Article/details/37934.shtml)
-- 2026-06-29 12:58 - [习近平同塔吉克斯坦总统拉赫蒙共同出席合作文件签字仪式](http://www.share.kurohicncr.top/Article/details/4320570583.shtml)
-- 2026-06-29 12:37 - [三峡库区水位加快消落 调整航标保畅通](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [AI盈利兑现+油价回落，美股延续反弹](http://www.blog.kurohicncr.top/Article/details/74377422072.shtml)
-- 2026-06-29 12:54 - [股海导航_2026年5月13日_沪深股市公告与交易提示](http://www.blog.kurohicncr.top/Article/details/718035.shtml)
-- 2026-06-29 12:37 - [保时捷控股一季度业绩受挫，敦促大众汽车重组业务模式](http://www.blog.kurohicncr.top/Article/details/196187643016.shtml)
-- 2026-06-29 12:54 - [世界期待中美携手多办大事实事好事](http://www.share.kurohicncr.top/Article/details/482665235.shtml)
-- 2026-06-29 12:57 - [500亿市值巨头突然直线拉升](http://www.blog.kurohicncr.top/Article/details/54681783300.shtml)
-- 2026-06-29 12:33 - [获刑十三年！荐股“杀猪盘”被查](http://www.blog.minike.top/Article/details/439614.shtml)
-- 2026-06-29 12:42 - [“二号位”或套现4737万，百亿京北方频遭高管减持](http://www.share.minike.top/Article/details/19917.shtml)
-- 2026-06-29 12:54 - [德邦证券思考：当“护主心切”演变为“系统性自伤”](http://www.share.minike.top/Article/details/30138.shtml)
-- 2026-06-29 12:40 - [英国首相斯塔默周三将与一位主要对手会面](http://www.share.kurohicncr.top/Article/details/25038.shtml)
+- 2026-06-29 12:46 - [耀才证券金融盘中涨超9% 正式进入港股通名单](http://www.share.minike.top/Article/details/8014065.shtml)
+- 2026-06-29 13:00 - [黄金遭遇一个月来最大跌幅，多头式微但支撑犹在](http://www.blog.minike.top/Article/details/923014.shtml)
+- 2026-06-29 12:49 - [百利天恒4月21日大宗交易成交354.40万元](http://www.share.kurohicncr.top/Article/details/3520438144.shtml)
+- 2026-06-29 12:38 - [贵阳银行：2025年实现营业收入129.99亿元，同比下降12.94%](http://www.share.kurohicncr.top/Article/details/8347345074.shtml)
+- 2026-06-29 13:00 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [日本原则上将允许杀伤性武器对外出口，外交部：严重关切](http://www.blog.kurohicncr.top/Article/details/79112117867.shtml)
+- 2026-06-29 12:40 - [光大期货：4月21日能源化工日报](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [必和必拓第三财季铁矿石产量增长3%，维持全年产量预期不变](http://www.blog.kurohicncr.top/Article/details/37088989832.shtml)
+- 2026-06-29 12:48 - [沈阳都市圈汇聚创新力量 集中展示区域高价值专利成果](http://www.blog.kurohicncr.top/Article/details/050769.shtml)
+- 2026-06-29 12:37 - [长春都市圈打造农产品精深加工集群 锚定千亿元级](http://www.blog.kurohicncr.top/Article/details/1720754191.shtml)
+- 2026-06-29 12:58 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](http://www.blog.minike.top/Article/details/495109937728.shtml)
+- 2026-06-29 12:46 - [检察机关依法分别对谢红心、王成兵、崔孝栓、黎敦满提起公诉](http://www.share.kurohicncr.top/Article/details/363746385.shtml)
+- 2026-06-29 12:48 - [日本通过内阁决议正式允许出口杀伤性武器](http://www.share.minike.top/Article/details/43820928.shtml)
+- 2026-06-29 13:03 - [这种清凉主食热量低，减肥可吃！但这几点要注意](http://www.share.minike.top/Article/details/50756648262.shtml)

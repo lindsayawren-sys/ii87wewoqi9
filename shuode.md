@@ -1,57 +1,59 @@
-# 515投资者保护|富国基金口播轻投教“基金小课堂”：全网播放6000万，助力碎片化投教
+# 长江有色：22日铜价小涨 高价货源成交寥寥
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。富国基金口播系列轻投教基金小课堂参选“投教项目优秀实践奖”类别。>>活动详情 据悉，2025年，富国基金在抖音、小红书等新媒体平台全新推出多系列真人出镜的口播轻投教短视频，以“短小精悍、生动有趣”为核心，实现分层化科普，让用户在刷短视频的过程中轻松学
+4月22日铜期货市场动态：今日沪期铜早盘窄幅震荡，午后强势拉升；主力月2606合约开盘价报102300元/吨，最高102810元/吨，最低102060元/吨，昨结102340元/吨，今日收盘价报102640元/吨，涨300元，涨幅0.29%。沪铜主力2606合约全天成交量82957手增加440手，持仓量204017手增加4701手。亚盘时段，伦铜偏强上扬，北京时间15：05最新
 
 ## 正文
 
-专题：515投资者保护！
+4月22日铜期货市场动态：今日沪期铜早盘窄幅震荡，午后强势拉升；主力月2606合约开盘价报102300元/吨，最高102810元/吨，最低102060元/吨，昨结102340元/吨，今日收盘价报102640元/吨，涨300元，涨幅0.29%。
 
-新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
+沪铜主力2606合约全天成交量82957手增加440手，持仓量204017手增加4701手。
 
-富国基金口播系列轻投教基金小课堂参选“投教项目优秀实践奖”类别。
+亚盘时段，伦铜偏强上扬，北京时间15：05最新报价13307美元/吨，涨152.5美元/吨，涨幅1.16%。
 
->>活动详情 据悉，2025年，富国基金在抖音、小红书等新媒体平台全新推出多系列真人出镜的口播轻投教短视频，以“短小精悍、生动有趣”为核心，实现分层化科普，让用户在刷短视频的过程中轻松学习投资知识。
+长江铜业网铜价格统计：今日国内现货铜价格小涨，长江现货1#铜价报102410元/吨，涨120元，升水160-升水200，持平；长江综合1#铜价报102400元/吨，涨125元，升水120-升水220，涨5元；广东现货1#铜价报102490元/吨，涨140元，升水160-升水360，涨20元；上海地区1#铜价报102300元/吨，涨110元，升水30-升水110，跌10元。
 
-栏目包括面向基金基础知识的《养基必备攻略》、面向ETF和场内基金投资者的《60s速通ETF》、聚焦债券基金科普的《收蛋人集合》、围绕权益基金投资的《聊聊主动基》，以及解读各热门指数的《这个指数能投吗》和解析市场热点的泛财经科普《秒懂财经热点》。
+长江铜市分析：宏观层面，中东局势仍是市场核心变量。
 
-传播效果上，以上系列视频在全网多平台发布，内容覆盖面广、反响热烈，累计播放量近6000万。
+特朗普虽宣布延长美伊停火期限，但伊朗明确拒绝22日赴巴基斯坦谈判，双方强硬表态暗示冲突风险未消。
 
-责任编辑：石秀珍 SF183
+避险情绪支撑美元指数维持坚挺，而国内一季度原材料工业增加值同比增长4.6%，叠加工信部推进算力基础设施与算电协同建设，为铜的长期需求提供政策托底。
+
+此外，美联储主席候选人沃什在听证会上阐述政策框架，主张以价格稳定与充分就业为核心，维护美联储货币政策独立性，严防越权扩权，倡导回归职责边界、强化制度约束，以提升货币政策效能与机构公信力，但未释放明确宽松信号，令风险资产承压。
 
 ## 相关推荐
 
-- 2026-06-29 12:53 - [日本北海道发生4.8级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:44 - [沪粤文脉双向奔赴 展示海丝千年风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:54 - [“加息噩梦”近了？美联储“昔日鸽派”：通胀走向错误，与关税、石油无关！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:35 - [腾讯最新声明：不会开发提供“微信访客功能”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:49 - [抓住重点 务求实效（人民论坛）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:54 - [美丽中国行｜我的家园，越来越美——美丽中国建设成效观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:50 - [eBay拒绝GameStop560亿美元收购要约，称其既缺乏可信度、也毫无吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 13:00 - [朝“问”健康 慢性病老人泡脚 水温控制在40℃左右](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:58 - [研奥股份积极拓展后市场业务，稳步开拓海外市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:53 - [我国成功发射千帆极轨09组卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:41 - [在伊朗冲突存在不确定性之际 日经指数可能下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:54 - [焦煤短期承压的核心逻辑是？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:33 - [欧洲股市下跌，英镑及英国银行股因政治动荡走低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 13:03 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 13:01 - [美军称对一艘“涉伊朗”油轮登船检查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 13:03 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 13:05 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:42 - [别瞧不起格林基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:36 - [UPS与联邦快递已开始申请部分关税退款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 13:01 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 13:02 - [中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:46 - [苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:36 - [全国首个全民阅读活动周！建行花样守护“城市书香”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:55 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:45 - [财政部今日在港发行155亿元人民币国债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:57 - [印尼工商会主席：印尼与中国经济融合愈发重要](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:58 - [龙泉股份：截至2026年5月8日公司股东人数为23412户](http://www.share.kurohicncr.top/Article/details/9902008860.shtml)
-- 2026-06-29 12:57 - [联合航空将恢复飞往委内瑞拉航线](http://www.share.minike.top/Article/details/42225054.shtml)
-- 2026-06-29 12:55 - [尼日利亚军方称打死至少70名疑似恐怖分子](http://www.share.kurohicncr.top/Article/details/7326615.shtml)
-- 2026-06-29 13:00 - [欧洲央行管委Nagel：如果伊朗战争威胁到价格稳定 则必须采取行动](http://www.share.kurohicncr.top/Article/details/3164502516.shtml)
-- 2026-06-29 12:51 - [突破800万人次 北京口岸2026年度出入境人员总量再攀新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报](http://www.blog.minike.top/Article/details/794949644457.shtml)
-- 2026-06-29 12:49 - [新疆新鑫矿业遭周传有减持81万股 每股均价2.70港元](http://www.blog.kurohicncr.top/Article/details/55724555.shtml)
-- 2026-06-29 12:35 - [哈萨克斯坦前4个月GDP同比增长3.6%](http://www.blog.minike.top/Article/details/106618297888.shtml)
-- 2026-06-29 12:35 - [国元国际：首钢资源给予“买入”评级 目标价3.18港元](http://www.blog.kurohicncr.top/Article/details/324312708.shtml)
-- 2026-06-29 12:50 - [受汽油价格推动，美国4月通胀飙升至 3.8%](http://www.blog.minike.top/Article/details/25954961.shtml)
-- 2026-06-29 12:30 - [特斯拉前高管创办热泵初创公司 已有数名特斯拉前员工加入](http://www.share.kurohicncr.top/Article/details/896066913984.shtml)
-- 2026-06-29 12:55 - [受中东局势影响 德钢铁巨头下调销售预期](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [ATFX:美国CPI数据发布 美元何去何从](http://www.blog.kurohicncr.top/Article/details/19675.shtml)
-- 2026-06-29 12:47 - [一家外资家电巨头在中国卖场的“最后时刻”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [多家海外华文媒体聚焦广西南宁 记录南宁发展变化](http://www.blog.kurohicncr.top/Article/details/10757.shtml)
+- 2026-06-29 12:40 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:02 - [全线爆发！三大龙头，历史新高](http://www.blog.kurohicncr.top/Article/details/46846.shtml)
+- 2026-06-29 12:55 - [乌克兰总统泽连斯基称石油输送可恢复 为欧盟贷款铺平道路](http://www.share.kurohicncr.top/Article/details/0674100.shtml)
+- 2026-06-29 12:55 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.share.minike.top/Article/details/103189.shtml)
+- 2026-06-29 12:55 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [欧洲央行Guindos：在利率问题上需要谨慎并保持冷静](http://www.blog.kurohicncr.top/Article/details/93396514907.shtml)
+- 2026-06-29 13:05 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](http://www.share.kurohicncr.top/Article/details/709332632.shtml)
+- 2026-06-29 12:38 - [长安期货侯荃宇：纯碱期价探底回升 基本面弱势未改](http://www.share.kurohicncr.top/Article/details/331976.shtml)
+- 2026-06-29 12:46 - [微视频丨山河迎忠魂](http://www.blog.kurohicncr.top/Article/details/5228565493.shtml)
+- 2026-06-29 12:57 - [江苏举办养老企业与金融机构对接会 推动金融资源与养老产业精准对接](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [四川累计外送电量突破2万亿千瓦时](http://www.share.kurohicncr.top/Article/details/89016623.shtml)
+- 2026-06-29 13:03 - [在韩志愿军烈士遗骸交接仪式举行 中国驻韩国大使为烈士棺椁覆盖国旗并鞠躬](http://www.blog.minike.top/Article/details/503146696.shtml)
+- 2026-06-29 12:51 - [多家A股公司上市后首亏，部分年报披露前业绩“变脸”](http://www.blog.minike.top/Article/details/21154543.shtml)
+- 2026-06-29 12:59 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:03 - [多地楼市新政密集落地 市场积极信号加速释放](http://www.blog.kurohicncr.top/Article/details/061309.shtml)

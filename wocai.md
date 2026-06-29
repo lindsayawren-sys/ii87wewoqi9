@@ -1,57 +1,59 @@
-# 金银冲高回落！专家：下半年金银仍上行，白银弹性更大
+# AI光模块市场年增57%！260亿美元机遇爆发！含光量超45%的创业板人工智能ETF华宝159363上探逾2%冲击前高！
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-中新经纬5月12日电 (张芷菡)在经历11日大幅上涨之后，12日盘中，国际金银走势出现转变。截至发稿，现货黄金冲高后跳水0.83%，白银也下跌2.45%。 中国外汇投资研究院研究总监李钢表示，黄金作为经典避险资产，对宏观政策预期和美元指数更为敏感。市场对美联储政策预期的调整，以及部分获利了结需求，为黄金带来压力，白银表现同样与技术面突破关键阻力位有关。 但整体来看，2026年以
+据TrendForce集邦咨询最新报告显示，全球AI专用光收发模块市场正经历高速增长，预计其市场规模将从2025年的165亿美元大幅攀升至2026年的260亿美元，年增长率有望超57%。 行情方面，4月22日早盘，光模块CPO概念再度走强，天孚通信昨天大跌后今日暴力反弹逾6%，光模块含量超45%的创业板人工智能ETF华宝（159363）场内上探逾2%冲击前高，日线冲击五连阳，实
 
 ## 正文
 
-中新经纬5月12日电 (张芷菡)在经历11日大幅上涨之后，12日盘中，国际金银走势出现转变。
+据TrendForce集邦咨询最新报告显示，全球AI专用光收发模块市场正经历高速增长，预计其市场规模将从2025年的165亿美元大幅攀升至2026年的260亿美元，年增长率有望超57%。
 
-截至发稿，现货黄金冲高后跳水0.83%，白银也下跌2.45%。
+行情方面，4月22日早盘，光模块CPO概念再度走强，天孚通信昨天大跌后今日暴力反弹逾6%，光模块含量超45%的创业板人工智能ETF华宝（159363）场内上探逾2%冲击前高，日线冲击五连阳，实时成交超6亿元，交投居全市场AI主题类ETF首位。
 
-中国外汇投资研究院研究总监李钢表示，黄金作为经典避险资产，对宏观政策预期和美元指数更为敏感。
+热点追踪 根据行业研究机构TrendForce集邦咨询的最新分析，全球AI专用光收发模块市场正迎来高速成长期，预计市场规模将从2025年的165亿美元大幅跃升至2026年的260亿美元，年增长率超过57%。
 
-市场对美联储政策预期的调整，以及部分获利了结需求，为黄金带来压力，白银表现同样与技术面突破关键阻力位有关。
+这一显著增长不仅源于技术规格的持续升级，更反映了全球AI数据中心加速建设背景下，光通信供应链正在经历结构性重组。
 
-但整体来看，2026年以来黄金、白银价格均呈上涨趋势，白银涨势却更为突出。
+AI推理需求的爆发式增长正推动算力架构从通用GPU向专用ASIC转移，后者凭借深度优化的能效和成本优势，在推理场景中表现突出，博通、Marvell等头部厂商的定制化芯片业务已呈现强劲增长态势。
 
-截至5月11日，国际现货黄金(伦敦金现)涨幅约9.6%，而国际现货白银(伦敦银现)同期涨幅约20.4%，涨幅为黄金的两倍。
+ASIC化的核心逻辑在于通过更低成本部署更多算力节点，这导致需互联的端点总数同步增加，从而为光模块和PCB产业链带来长期增长动力。
 
-李钢指出，工业需求为白银价格提供支撑。
+与此同时，英伟达等巨头在下一代AI算力架构中重点布局更高密度的芯片互连和高速数据传输，进一步强化了光互连技术在替代传统铜缆方案中的核心地位。
 
-白银约60%的需求来自工业领域，尤其在全球绿色转型和AI浪潮中发挥关键作用。
+热点解读 全球AI专用光收发模块市场正迎来爆发式增长，预计2025年市场规模达165亿美元，2026年将扩大至260亿美元，年增长率超过57%。
 
 ## 相关推荐
 
-- 2026-06-29 12:43 - [尼日利亚军方称打死至少70名疑似恐怖分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:37 - [欧洲央行管委Nagel：如果伊朗战争威胁到价格稳定 则必须采取行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:37 - [突破800万人次 北京口岸2026年度出入境人员总量再攀新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:41 - [App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:43 - [新疆新鑫矿业遭周传有减持81万股 每股均价2.70港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:44 - [哈萨克斯坦前4个月GDP同比增长3.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:57 - [国元国际：首钢资源给予“买入”评级 目标价3.18港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:46 - [受汽油价格推动，美国4月通胀飙升至 3.8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:42 - [特斯拉前高管创办热泵初创公司 已有数名特斯拉前员工加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:55 - [受中东局势影响 德钢铁巨头下调销售预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:48 - [ATFX:美国CPI数据发布 美元何去何从](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:36 - [乌克兰总统泽连斯基称石油输送可恢复 为欧盟贷款铺平道路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:59 - [人民海军成立77周年系列报道之：沧海·初心如磐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:54 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:42 - [欧洲央行Guindos：在利率问题上需要谨慎并保持冷静](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:51 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:43 - [长安期货侯荃宇：纯碱期价探底回升 基本面弱势未改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:57 - [微视频丨山河迎忠魂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:52 - [江苏举办养老企业与金融机构对接会 推动金融资源与养老产业精准对接](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:45 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:55 - [在韩志愿军烈士遗骸交接仪式举行 中国驻韩国大使为烈士棺椁覆盖国旗并鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:51 - [多家A股公司上市后首亏，部分年报披露前业绩“变脸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:58 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:45 - [多地楼市新政密集落地 市场积极信号加速释放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:36 - [英国首相斯塔默周三将与一位主要对手会面](http://www.blog.minike.top/Article/details/9836026688.shtml)
-- 2026-06-29 12:37 - [光大期货0513热点追踪：橡胶开割季价格不跌反涨，还能看高一线吗？](http://www.blog.kurohicncr.top/Article/details/66171951.shtml)
-- 2026-06-29 12:58 - [因发放流动资金贷款贷前调查不尽职、贷后管理不到位 一人被禁止从事银行业工作七年](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [Waymo因积水路段行驶风险召回近3800辆机器人出租车](http://www.blog.kurohicncr.top/Article/details/480284645.shtml)
-- 2026-06-29 12:35 - [滇藏公路通车50周年：缅怀筑路先烈](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [四川宝兴蜂桶寨今年首只人工繁育绿尾虹雉孵化出壳](http://www.blog.minike.top/Article/details/93671035.shtml)
-- 2026-06-29 12:44 - [仅部分支行业务量小幅上升，广州楼市再现“日光盘”未惠及银行，分化格局依旧明显](http://www.blog.kurohicncr.top/Article/details/893614604.shtml)
-- 2026-06-29 12:40 - [黑田东彦：日元汇率跌破160可能性较低，日本经济基本面稳健](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [截至5月7日当周美国大豆出口检验量为655294吨](http://www.blog.minike.top/Article/details/20872.shtml)
-- 2026-06-29 12:34 - [国产算力爆发，新手怎么布局？一次讲清芯片产业链四只指数](http://www.share.minike.top/Article/details/859941757555.shtml)
-- 2026-06-29 12:51 - [海外台胞在云南看见中医药的“古方新生”](http://www.share.kurohicncr.top/Article/details/8808351.shtml)
-- 2026-06-29 12:52 - [云南巧家：万亩野生高山杜鹃迎来最佳观赏期](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [日民众集会反对“国家情报会议”设置法案 在野党现场声援](http://www.blog.kurohicncr.top/Article/details/950147071.shtml)
-- 2026-06-29 12:44 - [美元受通胀数据影响不大，不太可能改变美联储叙事](http://www.share.kurohicncr.top/Article/details/176806.shtml)
-- 2026-06-29 12:40 - [欧盟拟与阿富汗塔利班举行技术会议，磋商遣返移民事宜](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [这种清凉主食热量低，减肥可吃！但这几点要注意](http://www.blog.minike.top/Article/details/36581.shtml)
+- 2026-06-29 12:42 - [拍照识字、自动翻译 探索打开古籍的N种方式](http://www.share.minike.top/Article/details/093078063.shtml)
+- 2026-06-29 12:49 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](http://www.blog.minike.top/Article/details/534219.shtml)
+- 2026-06-29 12:47 - [钢铁动脉连山海 同心筑梦向未来——中老铁路助力区域发展观察](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](http://www.share.minike.top/Article/details/202865776.shtml)
+- 2026-06-29 12:36 - [广州知识产权国际化布局加速 助力粤港澳三地协同创新](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [四川2025年高价值发明专利拥有量达7.79万件](http://www.share.kurohicncr.top/Article/details/19597866.shtml)
+- 2026-06-29 13:03 - [RYOEX:黄金中长期仍具坚实支撑](http://www.share.minike.top/Article/details/2383500.shtml)
+- 2026-06-29 13:00 - [民生调查局丨别被牙膏的“3D炫白”“医研”骗了，那只是商标](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [A股开盘：超3600只个股飘绿，三大指数集体低开](http://www.share.kurohicncr.top/Article/details/271774644.shtml)
+- 2026-06-29 12:50 - [金岩高岭新材将于5月22日派发末期股息每10股2.27元](http://www.share.kurohicncr.top/Article/details/4592659168.shtml)
+- 2026-06-29 13:05 - [美退伍军人抗议 要求结束对伊朗军事行动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [宁德时代发布第三代神行超充电池，满电仅需6分钟](http://www.blog.minike.top/Article/details/805999.shtml)
+- 2026-06-29 12:44 - [199元抢万元手机？反诈宣传如何跑赢直播间骗术？](http://www.share.minike.top/Article/details/59674015422.shtml)

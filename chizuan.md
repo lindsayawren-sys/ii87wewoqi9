@@ -1,56 +1,57 @@
-# 数读中国开局新活力｜青年占比超50% 小镇20年长成“青春经济”样本
+# 券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-编者按：2026年是“十五五”开局之年。内需市场潜力持续释放，消费新场景不断涌现，文旅融合、冰雪经济、国潮消费等热点频现，展现出超大规模市场的韧性与活力。为深入解读开局新气象，央广网推出《数读中国开局新活力》系列报道，以数据为支撑，聚焦各地消费场景、产业升级与民生改善的生动实践，呈现中国经济稳中求进、活力迸发的时代图景。央广网苏州5月13日消息(记者 吕倩媛)苏州昆山花桥经济开
+4月21日，券商板块释放暖意，350亿顶流券商ETF（512000）场内价格一度涨逾1%，现涨0.98%，向上收复5日、10日线。上交所数据显示，券商ETF华宝（512000）近5日连续获资金净流入合计1.98亿元。个股大面积飘红，广发证券涨超2%，财通证券、华泰证券、中信证券、湘财股份等涨逾1%。 步入一季报密集披露期，券商业绩增长确定性或较强。“券业一哥”中信证券现已发布一
 
 ## 正文
 
-编者按：2026年是“十五五”开局之年。
+4月21日，券商板块释放暖意，350亿顶流券商ETF（512000）场内价格一度涨逾1%，现涨0.98%，向上收复5日、10日线。
 
-内需市场潜力持续释放，消费新场景不断涌现，文旅融合、冰雪经济、国潮消费等热点频现，展现出超大规模市场的韧性与活力。
+上交所数据显示，券商ETF华宝（512000）近5日连续获资金净流入合计1.98亿元。
 
-为深入解读开局新气象，央广网推出《数读中国开局新活力》系列报道，以数据为支撑，聚焦各地消费场景、产业升级与民生改善的生动实践，呈现中国经济稳中求进、活力迸发的时代图景。
+个股大面积飘红，广发证券涨超2%，财通证券、华泰证券、中信证券、湘财股份等涨逾1%。
 
-央广网苏州5月13日消息(记者 吕倩媛)苏州昆山花桥经济开发区，一群年轻人刚开完晨会，桌上散落着手机影像套装的设计稿和样品。
+步入一季报密集披露期，券商业绩增长确定性或较强。
 
-他们是昆山蒲公英智能科技有限公司(以下简称“蒲公英”)的员工——这家2015年成立的影像生活方式品牌，团队平均年龄30岁左右，产品远销全球100多个国家和地区，累计获得230多项专利。
+“券业一哥”中信证券现已发布一季度业绩快报，营收与归母净利润同比增幅分别为41%和55%，单季盈利历史首次超百亿，年化ROE提升至13.84%，率先兑现业绩增长。
 
-蒲公英这样的企业，在花桥越来越多。
+此外，中金公司预计一季度实现归母净利润为33.69亿元至38.80亿元，同比增长65%到90%。
 
-年轻人在这里做研发、做产品，也把产品卖给全世界的年轻人。
+与此同时，券商板块估值筑底。
 
-而小镇花桥同样年轻，2006年启动建设，今年刚建区20周年。
+截至4月21日，证券公司指数市净率PB（LF）仅1.29倍，位于近十年16.24分位点，估值与行业景气度之间存在错配，安全边际充分。
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [奥特曼出庭作证：马斯克想要“完全掌控”OpenAI并将其传给子女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:44 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:53 - [新疆导游“天山那头有人民”被贴标签 台湾教师：扩交流是解方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:35 - [广电网络（600831）投资者索赔再获得法院立案，向日葵（300111）索赔案再提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:54 - [道达尔能源、康菲石油与卡塔尔能源签署协议 助力叙利亚重返国际能源版图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:35 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:37 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:49 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:33 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:38 - [劳动者杯中国职工篮球系列赛鸣哨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:52 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:56 - [挪威三月油气产量超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:39 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:37 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:37 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:36 - [【理响中国·经视图】以投资于物支撑投资于人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:54 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:49 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:36 - [理财规模季末回落超万亿，全年增速或放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 13:00 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:49 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [华尔街通胀焦虑加剧 机构关注美联储下一步如何抉择](http://www.blog.kurohicncr.top/Article/details/401624907.shtml)
-- 2026-06-29 12:41 - [敲诈900多家网店 买家恶意下单2700多次被判刑](http://www.blog.minike.top/Article/details/9990239651.shtml)
-- 2026-06-29 12:32 - [印度拟调整大宗商品衍生品交易规则，以提振市场流动性](http://www.blog.kurohicncr.top/Article/details/011995188.shtml)
-- 2026-06-29 12:32 - [助力乡村振兴，平安农业无人机公益计划首站落地伊犁](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [泡泡玛特跨界卖茶饮？知情人士：POP BAKERY直营门店仍以甜品为主](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [新疆哈密：光热发电项目年发2亿度清洁电](http://www.share.minike.top/Article/details/581596076.shtml)
-- 2026-06-29 12:43 - [515投资者保护|富国基金口播轻投教“基金小课堂”：全网播放6000万，助力碎片化投教](http://www.blog.minike.top/Article/details/0318787.shtml)
-- 2026-06-29 12:35 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](http://www.share.minike.top/Article/details/13905716.shtml)
-- 2026-06-29 12:51 - [融汇东西方经典爱情传说 实验轻歌剧《阴阳喜帖》将首演](http://www.blog.minike.top/Article/details/9136747.shtml)
-- 2026-06-29 12:51 - [赣锋锂业(002460.SZ)：注销2022年股票期权激励计划剩余55.125万份期权，因第四个行权期业绩未达标](http://www.share.minike.top/Article/details/418901.shtml)
-- 2026-06-29 12:44 - [谁在借网络平台给日本社会“投毒”？（环球走笔）](http://www.share.minike.top/Article/details/982573.shtml)
-- 2026-06-29 12:50 - [电动化替代速度超预期，中国新能源汽车创新纪录](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.blog.minike.top/Article/details/0501049621.shtml)
-- 2026-06-29 12:53 - [日本北海道发生4.8级地震](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [沪粤文脉双向奔赴 展示海丝千年风华](http://www.blog.minike.top/Article/details/21402.shtml)
+- 2026-06-29 12:37 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](http://www.share.minike.top/Article/details/09250135855.shtml)
+- 2026-06-29 12:50 - [学习新语｜山河永念 英雄回家](http://www.share.minike.top/Article/details/3591954.shtml)
+- 2026-06-29 13:03 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](http://www.blog.minike.top/Article/details/6248866.shtml)
+- 2026-06-29 13:00 - [厦门举办连横逝世九十周年纪念座谈会](http://www.blog.minike.top/Article/details/2974523.shtml)
+- 2026-06-29 12:38 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](http://www.share.minike.top/Article/details/8607647451.shtml)
+- 2026-06-29 12:46 - [国内油价，今年首次下调](http://www.share.kurohicncr.top/Article/details/86505147865.shtml)
+- 2026-06-29 12:48 - [长江有色：22日铜价小涨 高价货源成交寥寥](http://www.blog.kurohicncr.top/Article/details/690034.shtml)
+- 2026-06-29 12:46 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](http://www.share.minike.top/Article/details/5010868088.shtml)
+- 2026-06-29 13:04 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](http://www.blog.kurohicncr.top/Article/details/3693497.shtml)
+- 2026-06-29 13:04 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.blog.minike.top/Article/details/119188.shtml)
+- 2026-06-29 12:39 - [重回4100点！A股三大指数午后集体大涨](http://www.share.kurohicncr.top/Article/details/109839.shtml)
+- 2026-06-29 13:01 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.blog.minike.top/Article/details/90209626655.shtml)
+- 2026-06-29 12:49 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:02 - [美军称对一艘“涉伊朗”油轮登船检查](http://www.share.minike.top/Article/details/760415.shtml)

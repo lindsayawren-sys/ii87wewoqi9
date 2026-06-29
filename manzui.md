@@ -1,55 +1,57 @@
-# 伊朗空袭行动期间摩萨德局长到访阿联酋 协助战事协同部署
+# 日本首相高市早苗向靖国神社献祭品
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-据阿拉伯官员及知情人士透露，以色列情报机构摩萨德负责人在与伊朗交战期间，至少两次到访阿联酋，就战事开展协同对接，此举也凸显出以色列与这个海湾阿拉伯国家的合作关系正不断深化。 知情人士称，摩萨德局长戴维・巴尔内亚曾分别于 3 月和 4 月两次秘密访问阿联酋。 本轮冲突期间，两国展现出高度密切的安全协同态势。据报道，阿联酋对伊朗实施了多轮军事打击，包括袭击波斯湾伊朗拉万岛的一处炼油
+中新社东京4月21日电 (记者 朱晨曦)日本首相高市早苗21日以“内阁总理大臣”名义，向供奉二战甲级战犯的靖国神社供奉名为“真榊”的祭品。 靖国神社21日起举行为期三天的春季大祭。据日媒报道，除高市早苗以外，日本厚生劳动大臣上野贤一郎、日本国家公安委员长赤间二郎、日本成长战略担当大臣城内实等内阁阁僚，以及国会众议院议长森英介和参议院议长关口昌一也向靖国神社供奉了“真榊”。 靖国
 
 ## 正文
 
-据阿拉伯官员及知情人士透露，以色列情报机构摩萨德负责人在与伊朗交战期间，至少两次到访阿联酋，就战事开展协同对接，此举也凸显出以色列与这个海湾阿拉伯国家的合作关系正不断深化。
+中新社东京4月21日电 (记者 朱晨曦)日本首相高市早苗21日以“内阁总理大臣”名义，向供奉二战甲级战犯的靖国神社供奉名为“真榊”的祭品。
 
-知情人士称，摩萨德局长戴维・巴尔内亚曾分别于 3 月和 4 月两次秘密访问阿联酋。
+靖国神社21日起举行为期三天的春季大祭。
 
-本轮冲突期间，两国展现出高度密切的安全协同态势。
+据日媒报道，除高市早苗以外，日本厚生劳动大臣上野贤一郎、日本国家公安委员长赤间二郎、日本成长战略担当大臣城内实等内阁阁僚，以及国会众议院议长森英介和参议院议长关口昌一也向靖国神社供奉了“真榊”。
 
-据报道，阿联酋对伊朗实施了多轮军事打击，包括袭击波斯湾伊朗拉万岛的一处炼油厂；与此同时，以色列向阿联酋部署了铁穹防空系统，并派遣数十名军事人员负责操作部署，协助阿联酋抵御伊朗弹道武器袭击。
+靖国神社位于东京千代田区，神社内供奉有包括东条英机在内的14名二战甲级战犯。
 
-阿联酋外交部与以色列总理办公室暂未就此置评请求作出回应。
+长期以来，日本部分政客、国会议员坚持参拜靖国神社，引发日本国内众多爱好和平人士及国际社会强烈反对。
 
-责任编辑：刘明亮
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:49 - [英国政府拟立法改革银行“隔离”制度,以提振企业融资与经济增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:39 - [“广西三月三”系列活动走进香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:36 - [M4Markets:白银突破八十美元关口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:35 - [奥特曼出庭作证：马斯克想要“完全掌控”OpenAI并将其传给子女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:44 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:37 - [新疆导游“天山那头有人民”被贴标签 台湾教师：扩交流是解方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:53 - [广电网络（600831）投资者索赔再获得法院立案，向日葵（300111）索赔案再提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:48 - [道达尔能源、康菲石油与卡塔尔能源签署协议 助力叙利亚重返国际能源版图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:36 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:46 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:38 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:44 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:54 - [劳动者杯中国职工篮球系列赛鸣哨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:58 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:45 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:59 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:59 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:44 - [挪威三月油气产量超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:54 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 13:03 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:43 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:44 - [【理响中国·经视图】以投资于物支撑投资于人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:51 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:53 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:56 - [理财规模季末回落超万亿，全年增速或放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 13:04 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:40 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:54 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [多元融合焕新消费 “电影+”让大银幕有大引力](http://www.blog.minike.top/Article/details/179169321.shtml)
-- 2026-06-29 12:45 - [新疆吐鲁番：青蛙巷文脉绵延 研学赋能葡萄沟文旅新生](http://www.blog.minike.top/Article/details/15221661.shtml)
-- 2026-06-29 12:56 - [人工智能概念股涨势消退，中东停火协议“命悬一线”](http://www.share.kurohicncr.top/Article/details/3350310442.shtml)
-- 2026-06-29 12:46 - [华尔街通胀焦虑加剧 机构关注美联储下一步如何抉择](http://www.share.minike.top/Article/details/68907647.shtml)
-- 2026-06-29 12:57 - [敲诈900多家网店 买家恶意下单2700多次被判刑](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [印度拟调整大宗商品衍生品交易规则，以提振市场流动性](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [助力乡村振兴，平安农业无人机公益计划首站落地伊犁](http://www.share.kurohicncr.top/Article/details/883858580801.shtml)
-- 2026-06-29 12:40 - [泡泡玛特跨界卖茶饮？知情人士：POP BAKERY直营门店仍以甜品为主](http://www.share.kurohicncr.top/Article/details/572986179.shtml)
-- 2026-06-29 12:50 - [新疆哈密：光热发电项目年发2亿度清洁电](http://www.share.minike.top/Article/details/37288710981.shtml)
-- 2026-06-29 12:44 - [515投资者保护|富国基金口播轻投教“基金小课堂”：全网播放6000万，助力碎片化投教](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](http://www.blog.minike.top/Article/details/82259.shtml)
-- 2026-06-29 12:52 - [融汇东西方经典爱情传说 实验轻歌剧《阴阳喜帖》将首演](http://www.share.minike.top/Article/details/34628.shtml)
-- 2026-06-29 12:54 - [赣锋锂业(002460.SZ)：注销2022年股票期权激励计划剩余55.125万份期权，因第四个行权期业绩未达标](http://www.share.kurohicncr.top/Article/details/719694300.shtml)
-- 2026-06-29 12:58 - [谁在借网络平台给日本社会“投毒”？（环球走笔）](http://www.share.minike.top/Article/details/095660899117.shtml)
-- 2026-06-29 12:57 - [电动化替代速度超预期，中国新能源汽车创新纪录](http://www.share.minike.top/Article/details/43455397834.shtml)
+- 2026-06-29 13:04 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.share.kurohicncr.top/Article/details/71988298145.shtml)
+- 2026-06-29 12:52 - [联合健康集团业绩超预期并上调展望](http://www.share.kurohicncr.top/Article/details/49945554.shtml)
+- 2026-06-29 12:37 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](http://www.blog.kurohicncr.top/Article/details/75538814953.shtml)
+- 2026-06-29 12:57 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [学习新语｜山河永念 英雄回家](http://www.blog.kurohicncr.top/Article/details/90871.shtml)
+- 2026-06-29 12:58 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](http://www.share.minike.top/Article/details/370180961416.shtml)
+- 2026-06-29 12:51 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](http://www.share.kurohicncr.top/Article/details/5251798.shtml)
+- 2026-06-29 12:51 - [国内油价，今年首次下调](http://www.share.minike.top/Article/details/14366823461.shtml)
+- 2026-06-29 13:02 - [长江有色：22日铜价小涨 高价货源成交寥寥](http://www.share.kurohicncr.top/Article/details/353252.shtml)
+- 2026-06-29 12:44 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](http://www.share.minike.top/Article/details/980188.shtml)
+- 2026-06-29 12:37 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](http://www.share.minike.top/Article/details/6066467468.shtml)
+- 2026-06-29 12:57 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](http://www.share.kurohicncr.top/Article/details/581674.shtml)
+- 2026-06-29 13:02 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:02 - [重回4100点！A股三大指数午后集体大涨](http://www.share.kurohicncr.top/Article/details/482753556489.shtml)

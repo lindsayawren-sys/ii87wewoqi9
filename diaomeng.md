@@ -1,60 +1,55 @@
-# 白银为何大涨？瑞银：中国是唯一的理由
+# 华沿机器人午前涨超20% 近日与卓世科技签署合作协议
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：华尔街见闻 银价突破85美元创两个月新高，瑞银表示中国是目前白银需求的唯一来源，中国3月单月进口528吨白银，创近二十年纪录，零售投资者抢购银条、太阳能厂商抢在退税取消前囤货，两股力量叠加引爆需求。美国关税政策的不确定性制造了额外的混乱，纽约交割库存持续消化，市场结构趋于脆弱。瑞银维持年底银价100美
+华沿机器人（01021）早盘涨超23%，高见23.92港元，股价创上市新高。截至发稿，股价上涨20.37%，现报23.34港元，成交额1.026亿港元。 近日，卓世科技与华沿机器人签署合作协议。双方将依托各自在具身智能技术研发、协作机器人硬件制造与场景落地领域的核心优势，围绕具身智能机器人的技术融合、产品研发、场景落地与市场推广开展深度合作，携手推动协作机器人产业向自主化、智能
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+华沿机器人（01021）早盘涨超23%，高见23.92港元，股价创上市新高。
 
-来源：华尔街见闻 银价突破85美元创两个月新高，瑞银表示中国是目前白银需求的唯一来源，中国3月单月进口528吨白银，创近二十年纪录，零售投资者抢购银条、太阳能厂商抢在退税取消前囤货，两股力量叠加引爆需求。
+截至发稿，股价上涨20.37%，现报23.34港元，成交额1.026亿港元。
 
-美国关税政策的不确定性制造了额外的混乱，纽约交割库存持续消化，市场结构趋于脆弱。
+近日，卓世科技与华沿机器人签署合作协议。
 
-瑞银维持年底银价100美元目标不变。
+双方将依托各自在具身智能技术研发、协作机器人硬件制造与场景落地领域的核心优势，围绕具身智能机器人的技术融合、产品研发、场景落地与市场推广开展深度合作，携手推动协作机器人产业向自主化、智能化、柔性化升级，为智能制造行业发展注入全新动能。
 
-白银市场近期出现明显上涨，背后的驱动力高度集中——中国需求主导了当前的价格走势，而美国关税政策带来的不确定性则在边际上放大了市场波动。
+卓世科技作为国内行业大模型头部科技创新企业，拥有行业领先的大模型与具身智能核心技术。
 
-银价近日突破每盎司85美元，创两个多月来新高。
+其自主研发的具身智能大脑Tri-Core构建了集成直觉、逻辑、共情的“三核协同”解决方案，在具身行业权威基准测试SimplerEnv和LIBERO中均取得SOTA水平，能够为机器人提供多模态感知理解、自主任务规划、自然语言交互、自适应决策推理等全栈AI能力，可有效赋能机器人实现复杂工业场景的智能感知、自主学习与柔性作业。
 
-与此同时，上海白银溢价重新升至每盎司10美元以上，显示出中国市场对实物金属的强劲吸引力。
-
-瑞银全球贵金属分销主管Andrew Matthews直接指出，中国是目前白银需求的唯一来源，美国关税政策的不确定性则在市场结构层面制造了额外的混乱。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:39 - [首届香港具身智能产业峰会暨智元APC2026成功举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:36 - [浙江黄岩话剧《问瓷》登国家大剧院 馆藏陈列走向艺术舞台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:48 - [赖清德散布“民主对抗威权”叙事 国台办：谎话说一千遍还是谎话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:37 - [新西兰拟修法限制企业气候排放责任诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:34 - [“交通安全统筹”等服务不属于车险（2026·05·12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:58 - [涉嫌侵犯隐私及诱导沉迷，美得克萨斯州对奈飞提起诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:31 - [午盘：美股走低科技股领跌 纳指下跌1.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:50 - [纳德拉作证：OpenAI当年解雇奥特曼的操作“极其业余”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:39 - [会计差错更正！ST龙韵更正定期报告，符合条件股民可登记索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:31 - [美国众议院议员就华纳兄弟收购案质询派拉蒙CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:55 - [哈尔滨电气早盘涨超4% 国内首台16兆瓦燃气轮机天然气燃气发生器满负荷试车成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:57 - [时政新闻眼丨一天三场会晤，习近平同外方领导人谈了什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:53 - [AI算力点燃“芯”火，信创指数近一月涨超两成！华宝基金信创ETF（562030）近3日连续吸金！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:34 - [长江有色：供紧叠加科技需求大爆发助振 13日铜价或大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:43 - [“荣归50”“红鹰”！运-20B、歼-20用特殊呼号唤英烈回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:56 - [首席记者谈首季经济丨“大码头”的经济密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:37 - [印度马恒达科技第四季度营收超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:55 - [外交部：所谓中国“窃取”知识产权完全是子虚乌有](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 13:04 - [冷藏柜里的高温杀菌乳到底是不是“假牛奶”？记者调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:55 - [华能蒙电：一季度归母净利润6.94亿元，同比下滑24.63%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:41 - [香港教大与清华大学合办教育主题论坛 推动AI与教育创新深度融合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:52 - [中华人民共和国和莫桑比克共和国关于构建新时代中莫命运共同体的联合声明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:49 - [百事转单嘉士伯，Royal Unibrew股价暴跌逾26%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:54 - [交易员：印度央行可能卖出美元以遏制卢比跌势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:42 - [“水立方”再迎跳水世界杯总决赛 中国队以老带新、满额参赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:31 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](http://www.blog.kurohicncr.top/Article/details/57869678.shtml)
-- 2026-06-29 12:45 - [嘴唇发紫就是心血管有淤堵？专家解答](http://www.blog.kurohicncr.top/Article/details/5867557.shtml)
-- 2026-06-29 12:36 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [中国—东盟科技减贫合作交流会在广西南宁开幕](http://www.blog.minike.top/Article/details/005162.shtml)
-- 2026-06-29 12:32 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](http://www.share.minike.top/Article/details/151179235633.shtml)
-- 2026-06-29 12:39 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](http://www.share.kurohicncr.top/Article/details/543810875.shtml)
-- 2026-06-29 12:43 - [新型“职业闭店人”骗局调查](http://www.share.kurohicncr.top/Article/details/56675342.shtml)
-- 2026-06-29 12:49 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [为应对欧盟反垄断调查，Meta宣布将向竞争对手开放WhatsApp接口](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [东航7月1日开通成都直航台中航线，国台办回应](http://www.share.minike.top/Article/details/6625936872.shtml)
-- 2026-06-29 12:56 - [直击！直升机水上绞车救援专项训练现场](http://www.share.kurohicncr.top/Article/details/71926514.shtml)
-- 2026-06-29 12:38 - [租充电宝1小时扣149元还被要求自证？专家教你维权](http://www.blog.minike.top/Article/details/22457921465.shtml)
-- 2026-06-29 12:33 - [斯沃琪集团股东大会否决激进投资者董事席位提案,创始家族维持控股权](http://www.blog.kurohicncr.top/Article/details/24550499.shtml)
-- 2026-06-29 12:53 - [上海启动滚动式灭蚊 严防蚊媒传染病](http://www.share.minike.top/Article/details/246349800.shtml)
-- 2026-06-29 12:32 - [亚马逊“极速达”再拓版图，30分钟送达席卷美国数十城](http://www.share.kurohicncr.top/Article/details/7979539.shtml)
+- 2026-06-29 12:36 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](http://www.blog.kurohicncr.top/Article/details/39674303226.shtml)
+- 2026-06-29 13:00 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](http://www.blog.kurohicncr.top/Article/details/592934573.shtml)
+- 2026-06-29 12:56 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](http://www.share.kurohicncr.top/Article/details/636531658478.shtml)
+- 2026-06-29 13:02 - [中方：反对在霍尔木兹海峡问题上的恶意关联和炒作](http://www.share.kurohicncr.top/Article/details/5798172.shtml)
+- 2026-06-29 13:00 - [大摩：长和给予增持评级 目标价61港元](http://www.share.minike.top/Article/details/8835161.shtml)
+- 2026-06-29 12:47 - [大众汽车集团被曝有意削减100万辆全球产能](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [大庆钻探首台数智化综合录井仪投用 9秒精准捕捉油气信号](http://www.share.minike.top/Article/details/188250.shtml)
+- 2026-06-29 12:42 - [美国民主党众议员Cherfilus-McCormick辞职 被指控盗窃资金](http://www.share.minike.top/Article/details/249156403149.shtml)
+- 2026-06-29 13:05 - [工信部：有序引导算力基础设施建设 构建多层级算力架构](http://www.blog.kurohicncr.top/Article/details/637344258.shtml)
+- 2026-06-29 12:56 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](http://www.share.kurohicncr.top/Article/details/85493259.shtml)
+- 2026-06-29 12:47 - [追忆侨领张素久：从容面对挑战 坚韧不拔](http://www.blog.kurohicncr.top/Article/details/25219804.shtml)
+- 2026-06-29 13:03 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](http://www.share.kurohicncr.top/Article/details/108126534651.shtml)
+- 2026-06-29 13:02 - [特朗普称最终将达成重大协议](http://www.share.minike.top/Article/details/212288.shtml)
+- 2026-06-29 13:04 - [向优、向新、向绿——江苏制造业企业高质量发展一线微观察](http://www.share.kurohicncr.top/Article/details/3138151.shtml)

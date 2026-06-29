@@ -1,57 +1,60 @@
-# 新型“职业闭店人”骗局调查
+# 大众汽车集团被曝有意削减100万辆全球产能
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-原标题：新型“职业闭店人”骗局调查 精心包装“接盘者”人设、陷阱套路环环相扣……近期，上海警方破获一起新型“职业闭店人”合同诈骗案，犯罪嫌疑人在半年内连续“接盘”并关停三家教培机构，非法占有资金140余万元，600余名消费者遭受财产损失。 店铺落入圈套被关停 2025年6月，上海市民肖女士报警称，孩子的美术培训机构突然关停，负责人失联。两个月前，她刚支付21250元购买了150
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！大众汽车集团拟将全球产能维持在900万辆左右。 4月21日，大众汽车集团首席执行官奥博穆在接受德国媒体专访时提到，该公司计划进一步削减100万辆汽车产能，以应对当前全球市场形势。 他表示，“一方面我们正大力投资新产品，另一方面已采取广泛举措，目前正评估再削减约100万辆产能，以匹配全球市场现状。” “这将让
 
 ## 正文
 
-原标题：新型“职业闭店人”骗局调查 精心包装“接盘者”人设、陷阱套路环环相扣……近期，上海警方破获一起新型“职业闭店人”合同诈骗案，犯罪嫌疑人在半年内连续“接盘”并关停三家教培机构，非法占有资金140余万元，600余名消费者遭受财产损失。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-店铺落入圈套被关停 2025年6月，上海市民肖女士报警称，孩子的美术培训机构突然关停，负责人失联。
+大众汽车集团拟将全球产能维持在900万辆左右。
 
-两个月前，她刚支付21250元购买了150节课程。
+4月21日，大众汽车集团首席执行官奥博穆在接受德国媒体专访时提到，该公司计划进一步削减100万辆汽车产能，以应对当前全球市场形势。
 
-“购课后才得知机构换了老板。
+他表示，“一方面我们正大力投资新产品，另一方面已采取广泛举措，目前正评估再削减约100万辆产能，以匹配全球市场现状。
 
-”肖女士说，新老板声称资源丰富、实力雄厚，结果几个月后机构“人去楼空”。
+” “这将让我们从总投入超1200万辆的产能规模，降至每年可持续的900万辆。
 
-上海警方调查发现，这并非一起普通的经营失败案件。
+”奥博穆表示，过剩产能仍给集团带来沉重成本负担，企业需要找到合理方式解决这一问题。
 
-自2024年12月起，一个以顾某、韩某为首的团伙开始在上海“物色”因个人原因欲转让的培训机构作为“猎物”。
+据报道，该集团已经在中国市场削减了100万辆年产能；在欧洲，大众方面也已宣布到2028年也将削减100万辆年产能，主要涉及大众与奥迪品牌。
 
-“不法分子将自己包装成‘经验丰富、资源众多’的行业老手。
+此外，该报道称，大众方面力求避免直接关闭工厂，不排除向计划在欧扩张的车企出售工厂的可能性，以实现产能优化与资源整合。
 
 ## 相关推荐
 
-- 2026-06-29 12:36 - [上海启动滚动式灭蚊 严防蚊媒传染病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:42 - [亚马逊“极速达”再拓版图，30分钟送达席卷美国数十城](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:58 - [上海加快开发适老化智能产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:48 - [伊朗空袭行动期间摩萨德局长到访阿联酋 协助战事协同部署](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:55 - [老将、新秀齐上阵 中国具身智能机器人加速实景应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:33 - [“中国李乡”广东信宜迎三华李丰收季 跑出乡村振兴“加速度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:42 - [数读中国开局新活力｜青年占比超50% 小镇20年长成“青春经济”样本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:36 - [奖励名额翻倍！货拉拉2026“平凡之光”魅力司机评选开启报名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:34 - [廖岷与英国财政部国际金融事务总司长怀特举行视频通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:37 - [美国对伊连打三张牌 油价黄金交易逻辑拆解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:47 - [英国政府拟立法改革银行“隔离”制度,以提振企业融资与经济增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:40 - [特朗普称最终将达成重大协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:44 - [向优、向新、向绿——江苏制造业企业高质量发展一线微观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:39 - [全民阅读活动周 各地举办多场活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:38 - [日本首相高市早苗向靖国神社献祭品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:42 - [经济大省调研行｜消费新动能：看“体验经济”如何创造“沉浸式快乐”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:37 - [美国能源部长：汽油价格可能在一周前已经见顶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:47 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 13:05 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:38 - [国务院印发《关于推进服务业扩能提质的意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 13:01 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:54 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:40 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 13:05 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:36 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:42 - [GTC泽汇资本:原油溢价回落供需博弈](http://www.share.minike.top/Article/details/6190446340.shtml)
-- 2026-06-29 12:58 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](http://www.share.minike.top/Article/details/09127093426.shtml)
-- 2026-06-29 12:42 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](http://www.blog.kurohicncr.top/Article/details/56509.shtml)
-- 2026-06-29 12:30 - [中国官方附条件批准腾讯收购喜马拉雅股权案](http://www.share.minike.top/Article/details/51576420.shtml)
-- 2026-06-29 12:40 - [英伟达CEO黄仁勋薪酬下滑27% 源于股票奖励缩水](http://www.share.minike.top/Article/details/74189.shtml)
-- 2026-06-29 12:40 - [海航6.6万元“顺心卡”背后的金融游戏](http://www.share.kurohicncr.top/Article/details/169311920.shtml)
-- 2026-06-29 12:41 - [中信建投期货：5月13日黑色系早报](http://www.share.kurohicncr.top/Article/details/274069511.shtml)
-- 2026-06-29 12:55 - [塔吉克斯坦总统寄语北大留学生：珍惜在华学习机会](http://www.blog.kurohicncr.top/Article/details/639966666119.shtml)
-- 2026-06-29 12:33 - [外交部：无论赖清德说什么做什么，都改变不了台湾是中国领土一部分的事实](http://www.blog.minike.top/Article/details/5447801.shtml)
-- 2026-06-29 12:36 - [一则传闻！盘面掉头下跌！多空齐发！钢价涨势有变？](http://www.share.minike.top/Article/details/916021.shtml)
-- 2026-06-29 12:54 - [多元融合焕新消费 “电影+”让大银幕有大引力](http://www.share.kurohicncr.top/Article/details/79925019130.shtml)
-- 2026-06-29 12:46 - [新疆吐鲁番：青蛙巷文脉绵延 研学赋能葡萄沟文旅新生](http://www.share.minike.top/Article/details/669262476.shtml)
-- 2026-06-29 12:59 - [人工智能概念股涨势消退，中东停火协议“命悬一线”](http://www.share.kurohicncr.top/Article/details/869054293879.shtml)
-- 2026-06-29 12:32 - [华尔街通胀焦虑加剧 机构关注美联储下一步如何抉择](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [敲诈900多家网店 买家恶意下单2700多次被判刑](http://www.share.minike.top/Article/details/97190116708.shtml)
+- 2026-06-29 12:41 - [沃伦：特朗普提名沃什出任美联储主席，意在短期刺激经济以谋取政治私利](http://www.blog.minike.top/Article/details/65820737.shtml)
+- 2026-06-29 12:40 - [临夏有约：“蓝色黄河”岸畔寻龙迹](http://www.blog.minike.top/Article/details/9591094499.shtml)
+- 2026-06-29 13:05 - [天弘基金高阳豪掷1771万入股，结构失衡下的利益捆绑疑云](http://www.share.minike.top/Article/details/163176149007.shtml)
+- 2026-06-29 12:43 - [封堵化肥管理漏洞，《肥料登记管理办法》加速修订](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:02 - [七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压](http://www.blog.kurohicncr.top/Article/details/3376214.shtml)
+- 2026-06-29 12:46 - [接迎英雄回家的运-20B专机进入我国领空](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [特朗普过去24小时都忙了什么？（2026-04-21）](http://www.blog.kurohicncr.top/Article/details/78572172.shtml)
+- 2026-06-29 12:42 - [海外旅行商甘肃掘金丝路游 便利支付迎全球客](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [机械车位闲置，如何盘活改造？](http://www.share.minike.top/Article/details/18242076.shtml)
+- 2026-06-29 12:41 - [加拿大总理批美贸易政策：加美关系“优势”变“劣势”](http://www.blog.kurohicncr.top/Article/details/18747.shtml)
+- 2026-06-29 12:58 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.blog.minike.top/Article/details/600542566900.shtml)
+- 2026-06-29 12:44 - [联合健康集团业绩超预期并上调展望](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](http://www.share.minike.top/Article/details/46834682.shtml)
+- 2026-06-29 12:36 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](http://www.share.kurohicncr.top/Article/details/80513642512.shtml)
+- 2026-06-29 12:41 - [学习新语｜山河永念 英雄回家](http://www.blog.kurohicncr.top/Article/details/517320896427.shtml)

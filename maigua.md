@@ -1,52 +1,53 @@
-# 在伊朗冲突存在不确定性之际 日经指数可能下跌
+# 何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-随着对伊朗冲突及其经济影响的不确定性持续存在，日本股市可能下跌。新加坡交易所的日经指数期货下跌0.2%，至62420点。隔夜公布的政府数据显示，受汽油价格上涨推动，4月份美国消费者物价涨幅较上年同期达到3.8%。投资者正关注中东局势的发展以及日本企业的盈利情况。日经指数周二上涨0.5%，至62742.57点。责任编辑：王永生
+何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼时指出 中国将坚定不移扩大高水平对外开放 欢迎美资企业共享中国高质量发展机遇 新华社北京4月21日电中共中央政治局委员、国务院副总理何立峰21日下午在北京会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼。 何立峰指出，2026年中国经济实现良好开局，发展韧性和活力进一步彰显。“十五五”时期，中国将坚定不移扩大高水平对外开
 
 ## 正文
 
-随着对伊朗冲突及其经济影响的不确定性持续存在，日本股市可能下跌。
+何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼时指出 中国将坚定不移扩大高水平对外开放 欢迎美资企业共享中国高质量发展机遇 新华社北京4月21日电中共中央政治局委员、国务院副总理何立峰21日下午在北京会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼。
 
-新加坡交易所的日经指数期货下跌0.2%，至62420点。
+何立峰指出，2026年中国经济实现良好开局，发展韧性和活力进一步彰显。
 
-隔夜公布的政府数据显示，受汽油价格上涨推动，4月份美国消费者物价涨幅较上年同期达到3.8%。
+“十五五”时期，中国将坚定不移扩大高水平对外开放，持续打造一流营商环境，欢迎包括通用电气医疗集团在内的更多美资企业持续深化对华互利合作，共享中国超大规模市场和高质量发展机遇。
 
-投资者正关注中东局势的发展以及日本企业的盈利情况。
+安杜尼表示，对在华长期发展充满信心，将继续深耕中国市场，并愿为推动美中经贸合作贡献力量。
 
-日经指数周二上涨0.5%，至62742.57点。
-
-责任编辑：王永生
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 12:52 - [创新的力量：视听传播如何实现“从点到链”的变革？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:42 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:41 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:48 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:53 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:53 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:40 - [卢比汇率持续走低，全球第二大黄金市场印度上调金银进口关税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:32 - [三星与工会奖金谈判破裂 官方深表遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:54 - [Casa Minerals认股权证行权获43万美元，将用于亚利桑那及BC省勘探项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:56 - [大理大学在洱海蓝藻水华防控研究中取得重要进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:57 - [连跌10周，猪价反弹了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:36 - [华为正式发布智擎动力品牌！余承东：同样100度电 我们能比别人多跑50公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:51 - [财报季丨金融高管战略校准指南！利差筑底、结构重构，银行、保险趋势判断全景图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:39 - [外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:49 - [全年净利润不到6亿 甘肃银行豪掷17亿分红为哪般？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:50 - [每一帧都很治愈，你读书的样子真好看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:40 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:49 - [中芯国际获南向资金连续3天净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:42 - [中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 13:00 - [中天期货:螺纹区间反弹 焦煤继续反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:37 - [金针菇概念股，净利润大增超7000%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:54 - [方邦股份4月21日龙虎榜数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:51 - [接迎第十三批在韩中国人民志愿军烈士遗骸回国的空军运-20B降落在沈阳桃仙国际机场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:52 - [常熟银行收到501笔投诉，薛文坚持“做小做散”](http://www.blog.kurohicncr.top/Article/details/67987.shtml)
-- 2026-06-29 12:36 - [商业航天即将迎来“可回收火箭+IPO”密集催化！航空航天ETF华泰柏瑞（563380）基金份额创历史新高](http://www.share.minike.top/Article/details/47980.shtml)
-- 2026-06-29 12:48 - [春光科技业绩变脸又迟发预告 官方解释与财报数据“打架” 股价逆势上涨呈现“妖股”特征](http://www.blog.kurohicncr.top/Article/details/441979.shtml)
-- 2026-06-29 12:35 - [特朗普将访华 北京机场高速公路附近挂起中美两国国旗](http://www.share.minike.top/Article/details/00028.shtml)
-- 2026-06-29 12:56 - [韩国AI繁荣下的分配之争：“国民分红”构想出炉，三星罢工风暴袭来](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [胖东来：从未在任何网络平台开展直播带货业务](http://www.share.kurohicncr.top/Article/details/95413213.shtml)
-- 2026-06-29 12:58 - [成都与比利时弗拉芒·布拉邦共庆友城十五载 携手挖掘合作新机遇](http://www.blog.minike.top/Article/details/6622718.shtml)
-- 2026-06-29 12:35 - [打卡同色系风景 城市“色彩漫步”成为年轻人新型散步方式](http://www.blog.kurohicncr.top/Article/details/56390627.shtml)
-- 2026-06-29 12:47 - [海外闽籍青年华商三明叙乡情：根在福建，梦连全球](http://www.blog.kurohicncr.top/Article/details/7446213.shtml)
-- 2026-06-29 12:48 - [德乌计划联合研发生产各型无人机](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [一季度西藏社会消费品零售总额255.83亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [习近平会见文莱王储比拉](http://www.blog.minike.top/Article/details/479761.shtml)
-- 2026-06-29 12:36 - [韩国交易所开始在资本市场监测工作中采用AI技术](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [机构预测2026年泰国平均通货膨胀率为3.4%](http://www.blog.minike.top/Article/details/137283946.shtml)
-- 2026-06-29 12:41 - [习近平同塔吉克斯坦总统拉赫蒙共同出席合作文件签字仪式](http://www.blog.kurohicncr.top/Article/details/01858.shtml)
+- 2026-06-29 12:51 - [寸草不生的百年毒矿渣，居然能提炼出高科技手机芯片？](http://www.share.minike.top/Article/details/839498.shtml)
+- 2026-06-29 12:59 - [三亚亚沙会开幕在即 主媒体中心迎接媒体记者](http://www.share.kurohicncr.top/Article/details/693284063.shtml)
+- 2026-06-29 12:36 - [华宝基金红利风向标 | 高股息板块再秀防御力，华宝红利家族全线飘红！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [《技术经理人执业能力评价白皮书》在穗发布](http://www.blog.minike.top/Article/details/25916879976.shtml)
+- 2026-06-29 12:53 - [自然资源部：已建成省级以上绿色矿山5500余家](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [宁波男篮队史首次挺进CBA季后赛 续写篮球热土故事](http://www.share.kurohicncr.top/Article/details/87445.shtml)
+- 2026-06-29 12:40 - [DJI Osmo Mobile 8P上手：分体遥控 一机三用](http://www.blog.kurohicncr.top/Article/details/69293.shtml)
+- 2026-06-29 12:49 - [特朗普政府官员抱怨其社交媒体帖子阻碍与伊朗和谈](http://www.blog.kurohicncr.top/Article/details/672004131.shtml)
+- 2026-06-29 12:46 - [90岁志愿军老兵吹军号迎战友回家，“我的号声还叫你们听一听”](http://www.share.minike.top/Article/details/611631653846.shtml)
+- 2026-06-29 12:57 - [中央气象台：江南华南有较强降水](http://www.blog.kurohicncr.top/Article/details/959042198.shtml)
+- 2026-06-29 12:52 - [耀才证券金融盘中涨超9% 正式进入港股通名单](http://www.blog.kurohicncr.top/Article/details/18029.shtml)
+- 2026-06-29 13:04 - [黄金遭遇一个月来最大跌幅，多头式微但支撑犹在](http://www.share.kurohicncr.top/Article/details/9128399.shtml)
+- 2026-06-29 12:38 - [百利天恒4月21日大宗交易成交354.40万元](http://www.share.kurohicncr.top/Article/details/170812182097.shtml)
+- 2026-06-29 12:44 - [贵阳银行：2025年实现营业收入129.99亿元，同比下降12.94%](http://www.share.kurohicncr.top/Article/details/27995542777.shtml)
+- 2026-06-29 12:39 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](http://www.share.minike.top/Article/details/13004287.shtml)

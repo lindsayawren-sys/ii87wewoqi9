@@ -1,46 +1,59 @@
-# 均胜电子将于6月16日派发末期股息每10股2.057467港元
+# 北京市欧美同学会赴北京中医药大学归国留学人员联谊会走访调研
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-均胜电子（00699）发布公告，将于2026年6月16日派发截至2025年12月31日止年度的末期股息每10股2.057467港元。责任编辑：卢昱君
+4月17日，北京市欧美同学会联络服务处副处长邵剑辉一行5人赴北京中医药大学归国留学人员联谊会走访调研。副校长、校归国留学人员联谊会会长丁霞出席调研。校党委统战部常务副部长李晨辉主持会议。校归国留学人员联谊会秘书长、中药学院教授刘闰平，副会长、中医学院副院长、市欧美同学会生物医药健康委员会副主任委员费宇彤，副会长、生命科学学院教授闫聪，理事、管理学院教授郑秋莹参加调研。调研组首先
 
 ## 正文
 
-均胜电子（00699）发布公告，将于2026年6月16日派发截至2025年12月31日止年度的末期股息每10股2.057467港元。
+4月17日，北京市欧美同学会联络服务处副处长邵剑辉一行5人赴北京中医药大学归国留学人员联谊会走访调研。
 
-责任编辑：卢昱君
+副校长、校归国留学人员联谊会会长丁霞出席调研。
+
+校党委统战部常务副部长李晨辉主持会议。
+
+校归国留学人员联谊会秘书长、中药学院教授刘闰平，副会长、中医学院副院长、市欧美同学会生物医药健康委员会副主任委员费宇彤，副会长、生命科学学院教授闫聪，理事、管理学院教授郑秋莹参加调研。
+
+调研组首先参观了中医药博物馆，了解中医药文化历史与珍贵馆藏。
+
+座谈交流环节，丁霞会长详细介绍了校归国留学人员联谊会的工作成效。
+
+她表示，校留联会始终围绕留学人员思想引领、学术创新赋能、组织效能提升、中医药科研成果场景转化、积极建言献策五大重点，扎实开展各项工作，留学人员为学校科研事业高质量发展提供了有力支撑、作出了突出贡献。
+
+邵剑辉同志介绍了市欧美同学会围绕三大核心职能开展的各项工作及2026年重点工作安排，重点说明了服务留学人员创新创业、搭建联谊交友平台、推动产学研融合场景应用等方面的工作举措，并表达了与学校携手共同服务留学人员成长发展的意愿。
 
 ## 相关推荐
 
-- 2026-06-29 12:43 - [新疆乌恰：大风吹歪屋顶 民辅警徒手帮民众加固](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:51 - [Optum Rx推出透明定价新模式，重塑药房福利管理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:48 - [法国农办调增2025/26年度谷物出口预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:39 - [习近平会见联合国教科文组织总干事阿纳尼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:35 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:35 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:49 - [嘴唇发紫就是心血管有淤堵？专家解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:49 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:57 - [中国—东盟科技减贫合作交流会在广西南宁开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:55 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:41 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:55 - [新型“职业闭店人”骗局调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:49 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:45 - [欧洲央行管委卡扎克斯：欧洲央行不急着加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:51 - [两岸媒体赴桂林 “打卡”“广西三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:41 - [哈萨克斯坦驻华大使点赞“China Travel”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:47 - [捷蓝航空被指利用个人数据定价，两党议员联名质询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 13:00 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:41 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:39 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:58 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:50 - [中方：反对在霍尔木兹海峡问题上的恶意关联和炒作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:51 - [大摩：长和给予增持评级 目标价61港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:57 - [大众汽车集团被曝有意削减100万辆全球产能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:41 - [大庆钻探首台数智化综合录井仪投用 9秒精准捕捉油气信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](http://www.share.kurohicncr.top/Article/details/9823959371.shtml)
-- 2026-06-29 12:30 - [劳动者杯中国职工篮球系列赛鸣哨](http://www.blog.minike.top/Article/details/78526336.shtml)
-- 2026-06-29 12:53 - [瑞银继续唱多黄金：多重利多因素推动 金价年内仍有望刷新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [我国牵头制定发布14项天然气领域国际标准](http://www.blog.minike.top/Article/details/44030114120.shtml)
-- 2026-06-29 12:55 - [5月12日龙虎榜，机构青睐这10股](http://www.blog.minike.top/Article/details/0550487.shtml)
-- 2026-06-29 12:33 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](http://www.blog.minike.top/Article/details/00953.shtml)
-- 2026-06-29 12:31 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](http://www.share.kurohicncr.top/Article/details/59674561380.shtml)
-- 2026-06-29 12:48 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](http://www.blog.kurohicncr.top/Article/details/99060147822.shtml)
-- 2026-06-29 12:46 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](http://www.blog.kurohicncr.top/Article/details/7942522434.shtml)
-- 2026-06-29 12:53 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [全球首个面向南方国家的教师数字素养提升行动计划发布](http://www.blog.minike.top/Article/details/658439.shtml)
-- 2026-06-29 12:32 - [打了网红“气血针”，能否“一针提神”？专家提醒](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具](http://www.share.kurohicncr.top/Article/details/19865458.shtml)
-- 2026-06-29 12:52 - [防汛关键期！感受直升机索滑降训练现场](http://www.blog.kurohicncr.top/Article/details/663099937.shtml)
+- 2026-06-29 12:36 - [理财规模季末回落超万亿，全年增速或放缓](http://www.share.kurohicncr.top/Article/details/261795.shtml)
+- 2026-06-29 12:47 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](http://www.blog.minike.top/Article/details/5825949645.shtml)
+- 2026-06-29 12:47 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](http://www.share.minike.top/Article/details/84256019.shtml)
+- 2026-06-29 12:58 - [日本一自卫队演习场发生爆炸 致3死1重伤](http://www.blog.kurohicncr.top/Article/details/76759695.shtml)
+- 2026-06-29 12:58 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](http://www.share.minike.top/Article/details/23172.shtml)
+- 2026-06-29 13:04 - [另类师徒携手追凶 《黑夜告白》定档](http://www.share.minike.top/Article/details/5184190536.shtml)
+- 2026-06-29 12:54 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](http://www.blog.minike.top/Article/details/0207105018.shtml)
+- 2026-06-29 13:04 - [人民币兑美元中间价报6.8594，上调54点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](http://www.blog.minike.top/Article/details/801771238374.shtml)
+- 2026-06-29 12:40 - [沃什如何推动美联储实现“政策范式转变”](http://www.blog.kurohicncr.top/Article/details/7268851.shtml)
+- 2026-06-29 12:37 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](http://www.blog.minike.top/Article/details/517731476583.shtml)
+- 2026-06-29 12:59 - [阿维塔总裁陈卓回应与深蓝汽车战略协同：不影响赴港上市计划，仍会按照当前节奏推进](http://www.share.kurohicncr.top/Article/details/1827586.shtml)
+- 2026-06-29 12:45 - [春播春管进行时——各地农业高质量发展一线观察](http://www.blog.minike.top/Article/details/77762505144.shtml)
+- 2026-06-29 12:39 - [两粕：美豆上涨提振内盘，低库存支撑菜粕价格](http://www.blog.kurohicncr.top/Article/details/232645302.shtml)

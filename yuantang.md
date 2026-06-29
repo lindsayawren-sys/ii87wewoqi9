@@ -1,56 +1,56 @@
-# 情绪易怒爱走神是前额叶受损吗？保护大脑做好这4件事
+# 通用汽车据悉无限期推迟下一代电动皮卡项目
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-最近，“前额叶受损”成为社交平台上的高频词。注意力不集中、做事拖延、情绪易怒，甚至晚上脑子爱放空，都被说成是“大脑中的前额叶坏了”。这个专业医学名词，成了部分网友解释自己失控的万能借口。前额叶究竟是什么？大脑前额叶位于额头后方，是大脑最高级中枢，被形象地称为“大脑CEO”。它的核心功能至关重要：负责全身运动控制、语言输出；制定并执行任务计划；抑制冲动、管控欲望；同时调控注意力、
+据知情人士称，通用汽车无限期推迟了其下一代全尺寸电动皮卡项目，其中包括GMC Sierra和雪佛兰Silverado，该项目原定于 2028 年启动。 消息人士称，通用汽车原本计划推出成本更低的Sierra、Silverado、Escalade IQ和 Hummer SUV及皮卡的全新电动版本，但供应商最近被告知该计划已暂停，且尚未发布新的时间表。 通用汽车在底特律的零号工厂生
 
 ## 正文
 
-最近，“前额叶受损”成为社交平台上的高频词。
+据知情人士称，通用汽车无限期推迟了其下一代全尺寸电动皮卡项目，其中包括GMC Sierra和雪佛兰Silverado，该项目原定于 2028 年启动。
 
-注意力不集中、做事拖延、情绪易怒，甚至晚上脑子爱放空，都被说成是“大脑中的前额叶坏了”。
+消息人士称，通用汽车原本计划推出成本更低的Sierra、Silverado、Escalade IQ和 Hummer SUV及皮卡的全新电动版本，但供应商最近被告知该计划已暂停，且尚未发布新的时间表。
 
-这个专业医学名词，成了部分网友解释自己失控的万能借口。
+通用汽车在底特律的零号工厂生产电动皮卡。
 
-前额叶究竟是什么？
+由于电动汽车销量放缓，这家汽车制造商最近在该工厂临时裁员约一个月。
 
-大脑前额叶位于额头后方，是大脑最高级中枢，被形象地称为“大脑CEO”。
+据报道，通用汽车预计将把Silverado和Sierra的插电式混合动力版本转移到密歇根州的另一家工厂，该工厂目前仍生产汽油动力卡车。
 
-它的核心功能至关重要：负责全身运动控制、语言输出；制定并执行任务计划；抑制冲动、管控欲望；同时调控注意力、情绪与人格，是人体认知功能的核心指挥部。
+该公司目前在美国没有销售任何混合动力汽车，但此前曾表示会将这项动力系统技术引入美国市场。
 
-网络上流传“前额叶要等到25岁才能发育成熟”，这个说法准确吗？
+据报道，通用汽车也在与供应商洽谈开发所谓的增程型电动汽车动力系统。
 
-拖延易怒爱走神，真的是因为前额叶受损吗？
+一些汽车制造商正在推广这项技术，该技术利用小型内燃机作为发电机为电池充电，以此吸引更多消费者尝试电动汽车。
 
 ## 相关推荐
 
-- 2026-06-29 12:36 - [白银为何大涨？瑞银：中国是唯一的理由](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:40 - [千年“柳杉王”见证中美民间代代“鼓岭缘”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:56 - [欧洲债市：政治危机加深导致英国国债遭抛售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:38 - [乙德投资控股遭Liu Chuang减持约1.11亿股 每股均价0.2438港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:32 - [“中华民族共有精神家园建设主题文化活动·河南篇”在古都安阳启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:52 - [今年被罚没已逾2200万元！交通银行为何合规问题不断？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:44 - [好评中国丨“防灾减灾救灾”为人民更靠人民](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:32 - [首届香港具身智能产业峰会暨智元APC2026成功举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:39 - [浙江黄岩话剧《问瓷》登国家大剧院 馆藏陈列走向艺术舞台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:40 - [赖清德散布“民主对抗威权”叙事 国台办：谎话说一千遍还是谎话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:55 - [华沿机器人午前涨超20% 近日与卓世科技签署合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:41 - [福建武夷山：春茶开山 仪式感满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:43 - [台青走进浙江宁波海岛“唱”宝岛文旅经](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 13:01 - [跨世纪的重逢！抗美援朝老战士用歌声迎战友回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:59 - [金宏气体：公司产品下游应用领域广泛，客户群体较为分散](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 13:04 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:37 - [伊朗体育部长：若球员安全得到保障将参加美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:43 - [“荣归50”“红鹰”！运-20B、歼-20用特殊呼号唤英烈回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 13:05 - [首席记者谈首季经济丨“大码头”的经济密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:39 - [印度马恒达科技第四季度营收超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:46 - [47岁资本大佬戴学斌，涉嫌刑事犯罪被拘！旗下蓝润系曾坐拥超千亿元资产，知情人：去年就已有风声](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [Hims & Hers一季度亏损、盈利指引疲软，股价暴跌16%](http://www.blog.minike.top/Article/details/159588040908.shtml)
-- 2026-06-29 12:30 - [新疆乌恰：大风吹歪屋顶 民辅警徒手帮民众加固](http://www.blog.kurohicncr.top/Article/details/703916.shtml)
-- 2026-06-29 12:53 - [Optum Rx推出透明定价新模式，重塑药房福利管理](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [法国农办调增2025/26年度谷物出口预期](http://www.blog.minike.top/Article/details/272674.shtml)
-- 2026-06-29 12:51 - [习近平会见联合国教科文组织总干事阿纳尼](http://www.share.kurohicncr.top/Article/details/46495863740.shtml)
-- 2026-06-29 12:56 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](http://www.share.minike.top/Article/details/16038704.shtml)
-- 2026-06-29 12:47 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:48 - [嘴唇发紫就是心血管有淤堵？专家解答](http://www.share.kurohicncr.top/Article/details/1789074884.shtml)
-- 2026-06-29 12:47 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](http://www.blog.kurohicncr.top/Article/details/8712794.shtml)
-- 2026-06-29 12:51 - [中国—东盟科技减贫合作交流会在广西南宁开幕](http://www.blog.minike.top/Article/details/896218.shtml)
-- 2026-06-29 12:49 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](http://www.share.minike.top/Article/details/95256.shtml)
-- 2026-06-29 12:49 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](http://www.blog.minike.top/Article/details/8977571.shtml)
-- 2026-06-29 12:49 - [新型“职业闭店人”骗局调查](http://www.blog.kurohicncr.top/Article/details/621643265.shtml)
-- 2026-06-29 12:52 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](http://www.share.kurohicncr.top/Article/details/08262.shtml)
+- 2026-06-29 12:44 - [政府提前还债从省级延伸至地市，怎么看？](http://www.share.kurohicncr.top/Article/details/238199.shtml)
+- 2026-06-29 13:03 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:01 - [上海着力打造首个“次元友好街区”](http://www.share.kurohicncr.top/Article/details/84463227.shtml)
+- 2026-06-29 12:57 - [欧洲央行管委卡扎克斯：欧洲央行不急着加息](http://www.share.minike.top/Article/details/3723906.shtml)
+- 2026-06-29 12:48 - [两岸媒体赴桂林 “打卡”“广西三月三”](http://www.share.minike.top/Article/details/15311218406.shtml)
+- 2026-06-29 12:51 - [哈萨克斯坦驻华大使点赞“China Travel”](http://www.share.minike.top/Article/details/8315307.shtml)
+- 2026-06-29 13:04 - [捷蓝航空被指利用个人数据定价，两党议员联名质询](http://www.blog.minike.top/Article/details/47150.shtml)
+- 2026-06-29 12:41 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](http://www.blog.minike.top/Article/details/36664168869.shtml)
+- 2026-06-29 12:57 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](http://www.blog.minike.top/Article/details/6656807216.shtml)
+- 2026-06-29 13:02 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](http://www.share.kurohicncr.top/Article/details/0654394.shtml)
+- 2026-06-29 12:45 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [中方：反对在霍尔木兹海峡问题上的恶意关联和炒作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [大摩：长和给予增持评级 目标价61港元](http://www.blog.minike.top/Article/details/446060.shtml)
+- 2026-06-29 12:40 - [大众汽车集团被曝有意削减100万辆全球产能](http://www.share.minike.top/Article/details/24063.shtml)
+- 2026-06-29 13:00 - [大庆钻探首台数智化综合录井仪投用 9秒精准捕捉油气信号](http://www.share.kurohicncr.top/Article/details/464378307.shtml)

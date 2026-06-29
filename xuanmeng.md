@@ -1,60 +1,57 @@
-# 五月生猪行情横向震荡，中期修复窗口逐步临近
+# 在洪安边城寻找“翠翠”
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-Mysteel农产品网 进入5月中旬，国内生猪市场陷入“供需弱平衡、价格窄幅震荡”的僵持格局，全国外三元生猪均价维持在9.5-10元/公斤区间反复拉锯，行业深陷深度亏损泥潭。短期价格反弹乏力，但底部信号逐步积累，长期拐点值得期待。 一、现货端：仔猪需求回暖，大体重出栏压制短期价格 1．仔猪需求稳步回升，价格小幅跟涨 5月进入传统仔猪需求旺季，放养公司与育肥场补栏意愿边际增强，仔
+中新网重庆4月21日电 (张旭)4月21日，位于秀山县洪安镇的洪安边城下起了雨，“拉拉渡”暂停运营，游人依旧不少。街面上，导游们挥动着导游旗，引导八方来客。 秀山是沈从文小说《边城》的原型地，洪安边城则是该县“边城”元素最集中的地方。这里位于渝湘黔三省(市)交界，可“一脚踏三省(市)”。“拉拉渡”则还原了《边城》里翠翠和爷爷的渡船，它不靠划桨，仅凭一根钢索即可横渡重庆与湖南。
 
 ## 正文
 
-Mysteel农产品网 进入5月中旬，国内生猪市场陷入“供需弱平衡、价格窄幅震荡”的僵持格局，全国外三元生猪均价维持在9.5-10元/公斤区间反复拉锯，行业深陷深度亏损泥潭。
+中新网重庆4月21日电 (张旭)4月21日，位于秀山县洪安镇的洪安边城下起了雨，“拉拉渡”暂停运营，游人依旧不少。
 
-短期价格反弹乏力，但底部信号逐步积累，长期拐点值得期待。
+街面上，导游们挥动着导游旗，引导八方来客。
 
-一、现货端：仔猪需求回暖，大体重出栏压制短期价格 1．仔猪需求稳步回升，价格小幅跟涨 5月进入传统仔猪需求旺季，放养公司与育肥场补栏意愿边际增强，仔猪需求呈现温和上升态势。
+秀山是沈从文小说《边城》的原型地，洪安边城则是该县“边城”元素最集中的地方。
 
-但价格上涨幅度有限，以小幅波动为主，未出现明显跳涨，核心原因在于行业亏损背景下，育肥端补栏偏理性，多以刚需补栏为主，大规模扩栏意愿不足。
+这里位于渝湘黔三省(市)交界，可“一脚踏三省(市)”。
 
-2．屠企分割由主动转被动，冻品库存高位 需求端疲软持续拖累屠企开工节奏。
+“拉拉渡”则还原了《边城》里翠翠和爷爷的渡船，它不靠划桨，仅凭一根钢索即可横渡重庆与湖南。
 
-4月国内屠企集中分割入库，冻品库存堆满；进入5月，屠企被迫减少分割量，以被动分割为主。
+“《边城》我看过无数遍，那条渡船摆渡的情形，心中念过无数次。
 
-以湖北地区为例，前期主流屠宰场单日分割量达四五百头，当前日均分割仅100-200头，大幅收缩，反映终端猪肉消费淡季效应凸显，对生猪收购形成压制。
+”尼日利亚《西非统一商报》副社长王淑华告诉中新网，走到洪安边城，她心里再次出现《边城》的结尾那句话——“这个人也许永远不回来了，也许明天回来。
 
-3．标肥倒挂持续，头部企业大体重出栏占比偏高 当前市场标肥价差倒挂现象未缓解，大体重生猪出栏占比居高不下，尤其头部养殖企业出于成本控制、现金流管理等考量，大体重猪出栏节奏偏慢，短期生猪供应压力延后释放，进一步加剧5月中下旬价格承压风险。
+” “我知道你会来，所以我等。
 
 ## 相关推荐
 
-- 2026-06-29 12:55 - [App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:38 - [新疆新鑫矿业遭周传有减持81万股 每股均价2.70港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:49 - [哈萨克斯坦前4个月GDP同比增长3.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:39 - [国元国际：首钢资源给予“买入”评级 目标价3.18港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:51 - [受汽油价格推动，美国4月通胀飙升至 3.8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:33 - [特斯拉前高管创办热泵初创公司 已有数名特斯拉前员工加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:30 - [受中东局势影响 德钢铁巨头下调销售预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:33 - [ATFX:美国CPI数据发布 美元何去何从](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:38 - [一家外资家电巨头在中国卖场的“最后时刻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:33 - [多家海外华文媒体聚焦广西南宁 记录南宁发展变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:42 - [国家市场监管总局附条件批准腾讯收购喜马拉雅股权案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:50 - [日本：民众集会反对“国家情报会议”设置法案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:31 - [常熟银行收到501笔投诉，薛文坚持“做小做散”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:36 - [商业航天即将迎来“可回收火箭+IPO”密集催化！航空航天ETF华泰柏瑞（563380）基金份额创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:39 - [欧洲央行Guindos：在利率问题上需要谨慎并保持冷静](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:54 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:44 - [长安期货侯荃宇：纯碱期价探底回升 基本面弱势未改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:46 - [微视频丨山河迎忠魂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:53 - [江苏举办养老企业与金融机构对接会 推动金融资源与养老产业精准对接](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:51 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 13:02 - [在韩志愿军烈士遗骸交接仪式举行 中国驻韩国大使为烈士棺椁覆盖国旗并鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 13:01 - [多家A股公司上市后首亏，部分年报披露前业绩“变脸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:56 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 13:02 - [多地楼市新政密集落地 市场积极信号加速释放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:43 - [多国央行预警！Anthropic最新模型让金融系统如临大敌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:48 - [Waymo因积水路段行驶风险召回近3800辆机器人出租车](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [滇藏公路通车50周年：缅怀筑路先烈](http://www.share.kurohicncr.top/Article/details/35507253.shtml)
-- 2026-06-29 12:57 - [四川宝兴蜂桶寨今年首只人工繁育绿尾虹雉孵化出壳](http://www.blog.minike.top/Article/details/50730389437.shtml)
-- 2026-06-29 12:32 - [仅部分支行业务量小幅上升，广州楼市再现“日光盘”未惠及银行，分化格局依旧明显](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [黑田东彦：日元汇率跌破160可能性较低，日本经济基本面稳健](http://www.blog.kurohicncr.top/Article/details/167112.shtml)
-- 2026-06-29 12:36 - [截至5月7日当周美国大豆出口检验量为655294吨](http://www.blog.minike.top/Article/details/3842248.shtml)
-- 2026-06-29 12:37 - [国产算力爆发，新手怎么布局？一次讲清芯片产业链四只指数](http://www.blog.kurohicncr.top/Article/details/317908276.shtml)
-- 2026-06-29 12:44 - [海外台胞在云南看见中医药的“古方新生”](http://www.share.kurohicncr.top/Article/details/46204583244.shtml)
-- 2026-06-29 12:37 - [云南巧家：万亩野生高山杜鹃迎来最佳观赏期](http://www.share.minike.top/Article/details/8327516.shtml)
-- 2026-06-29 12:53 - [日民众集会反对“国家情报会议”设置法案 在野党现场声援](http://www.blog.kurohicncr.top/Article/details/9531649030.shtml)
-- 2026-06-29 12:57 - [美元受通胀数据影响不大，不太可能改变美联储叙事](http://www.share.kurohicncr.top/Article/details/692541.shtml)
-- 2026-06-29 12:43 - [欧盟拟与阿富汗塔利班举行技术会议，磋商遣返移民事宜](http://www.share.minike.top/Article/details/134842869.shtml)
-- 2026-06-29 12:55 - [习近平同塔吉克斯坦总统拉赫蒙会谈](http://www.blog.kurohicncr.top/Article/details/5754570.shtml)
-- 2026-06-29 12:48 - [争分夺秒！就医途中突发炸胎 多方接力暖心护送](http://www.share.minike.top/Article/details/39623748.shtml)
-- 2026-06-29 12:44 - [云冈石窟部分洞窟昨起临时封闭](http://www.share.minike.top/Article/details/35606593.shtml)
+- 2026-06-29 12:46 - [钢铁动脉连山海 同心筑梦向未来——中老铁路助力区域发展观察](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](http://www.share.kurohicncr.top/Article/details/4722231656.shtml)
+- 2026-06-29 12:50 - [广州知识产权国际化布局加速 助力粤港澳三地协同创新](http://www.share.minike.top/Article/details/676229632279.shtml)
+- 2026-06-29 12:48 - [四川2025年高价值发明专利拥有量达7.79万件](http://www.blog.kurohicncr.top/Article/details/31138.shtml)
+- 2026-06-29 12:51 - [RYOEX:黄金中长期仍具坚实支撑](http://www.blog.minike.top/Article/details/0846247058.shtml)
+- 2026-06-29 12:53 - [民生调查局丨别被牙膏的“3D炫白”“医研”骗了，那只是商标](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](http://www.blog.kurohicncr.top/Article/details/14480.shtml)
+- 2026-06-29 12:40 - [A股开盘：超3600只个股飘绿，三大指数集体低开](http://www.blog.minike.top/Article/details/0829153.shtml)
+- 2026-06-29 13:00 - [金岩高岭新材将于5月22日派发末期股息每10股2.27元](http://www.blog.kurohicncr.top/Article/details/60636857.shtml)
+- 2026-06-29 12:48 - [美退伍军人抗议 要求结束对伊朗军事行动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [宁德时代发布第三代神行超充电池，满电仅需6分钟](http://www.share.minike.top/Article/details/289097095.shtml)
+- 2026-06-29 13:04 - [199元抢万元手机？反诈宣传如何跑赢直播间骗术？](http://www.blog.kurohicncr.top/Article/details/6529581703.shtml)
+- 2026-06-29 12:50 - [巴基斯坦从沙特阿拉伯获得10亿美元资金](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [卫生间摊放茶青 浙江松阳及时处置：全部封存 未流入市场](http://www.blog.minike.top/Article/details/426275.shtml)
+- 2026-06-29 13:05 - [丰田向宁德时代印尼工厂投资 120 亿日元，将在厂内建设专用产线](http://www.blog.kurohicncr.top/Article/details/702934.shtml)

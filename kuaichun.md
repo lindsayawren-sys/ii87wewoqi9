@@ -1,57 +1,60 @@
-# 宁淮城际铁路站前4标完成全部箱梁预制任务
+# 大陆发展快 台湾创意引过来
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-中新网南京5月13日电(崔建 任海霞)5月13日，随着宁淮城际铁路天长南制梁场最后一孔32米简支箱梁顺利浇筑完成，由中铁三局承建的宁淮城际铁路站前4标967孔箱梁预制任务全部完成，为后续架梁铺轨施工奠定了坚实基础。 宁淮城际铁路是长三角城际轨道交通网的重要组成部分，新建线路全长约179公里，设计时速350公里。全线设淮安东、洪泽、金湖、天长、六合西、南京北等6座车站。站前4标全
+“我现在戴的是一副AI眼镜，它非常酷，可以用眼前的视角来拍照、录影、导航、提词，比如平常在乡村田野、茶园，我就可以骑着自行车，很安全地导航，找到目的地，对工作、生活帮助非常大。” 近日在第七届台胞社团论坛的现场，杭州径山度假区文化旅游运营管理有限公司副总经理余纪萱一边演示，一边向记者介绍起她随身携带的“工作搭子”。 AI成为不少与会台胞打开话匣子的关键词，在余纪萱看来，技术发展
 
 ## 正文
 
-中新网南京5月13日电(崔建 任海霞)5月13日，随着宁淮城际铁路天长南制梁场最后一孔32米简支箱梁顺利浇筑完成，由中铁三局承建的宁淮城际铁路站前4标967孔箱梁预制任务全部完成，为后续架梁铺轨施工奠定了坚实基础。
+“我现在戴的是一副AI眼镜，它非常酷，可以用眼前的视角来拍照、录影、导航、提词，比如平常在乡村田野、茶园，我就可以骑着自行车，很安全地导航，找到目的地，对工作、生活帮助非常大。
 
-宁淮城际铁路是长三角城际轨道交通网的重要组成部分，新建线路全长约179公里，设计时速350公里。
+” 近日在第七届台胞社团论坛的现场，杭州径山度假区文化旅游运营管理有限公司副总经理余纪萱一边演示，一边向记者介绍起她随身携带的“工作搭子”。
 
-全线设淮安东、洪泽、金湖、天长、六合西、南京北等6座车站。
+AI成为不少与会台胞打开话匣子的关键词，在余纪萱看来，技术发展为她所在的文旅行业带来“活水”，“比如之前两岸刷屏的‘雪山救狐狸’的梗，我们就用AI做了一个径山茶文化的版本，很快就‘出圈’了。
 
-站前4标全长约33.6公里，主要施工内容包括两座特大桥及967孔箱梁的制运架任务。
+” 台胞徐韬在大陆创业多年，作为小包智工联合创始人，他更关注AI对中小企业的赋能。
 
-自进场以来，该项目部全面推进智能化与信息化建设，通过引进数控钢筋剪切弯曲生产线、全自动定位网焊接生产线，并自主研发可移动式钢筋绑扎胎具，构建了从钢筋取料、切断到弯曲、绑扎的全流程自动化作业链；创新采用3D全息投影工艺交底，将施工参数立体可视化，动态优化下料方案，将钢筋加工精度误差严格控制在毫米级；同时依托智能指挥中心与信息化平台，对关键工序实施实时监控，并在梁体关键部位布设传感设备，实现了数据实时上传与风险自动预警，筑牢了安全质量防线。
+“大陆有巨大的市场，还是科创的高地、资本和人才的策源地。
 
-宁淮城际铁路是加快苏北地区融入南京都市圈的重要客运通道，项目建成运营后，将与徐盐高铁、连镇高铁等互联互通，成为连云港、淮安、盐城、宿迁等苏北城市直达南京的快捷通道，实现淮安与南京1小时直达，对于完善区域城际轨道交通网络布局、便利沿线民众出行、促进南京都市圈及沿线地区经济社会发展、助力长三角一体化高质量发展等具有重要意义。
+这里的AI工具非常便民，我们都可以获取很好的AI信息和工具，帮助企业发展。
 
-(完)
+现在任何一个中小微企业都能做世界级的生意。
+
+”同时，这样的变化正在催生新的创业形态，徐韬观察发现，过去，台湾青年由于对大陆不够熟悉，往往需要寻找合作伙伴、提前了解市场，“现在随着OPC(一人企业)逐渐兴起，借助AI工具，一个人就可以很快融入大陆的创业环境，这带来了不同于以往的、非常低的创业门槛。
 
 ## 相关推荐
 
-- 2026-06-29 12:33 - [均胜电子将于6月16日派发末期股息每10股2.057467港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:42 - [美国财长贝森特承诺美日将在外汇领域保持持续且强有力的合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:54 - [AI超级行情引爆散户热情，投机热度创疫情以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:57 - [“三不明”中成药或从医保目录“清退” 专家解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:52 - [利好！3800亿巨头，午后直线拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:56 - [47岁资本大佬戴学斌，涉嫌刑事犯罪被拘！旗下蓝润系曾坐拥超千亿元资产，知情人：去年就已有风声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:53 - [Hims & Hers一季度亏损、盈利指引疲软，股价暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:30 - [新疆乌恰：大风吹歪屋顶 民辅警徒手帮民众加固](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:50 - [Optum Rx推出透明定价新模式，重塑药房福利管理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:34 - [法国农办调增2025/26年度谷物出口预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:33 - [习近平会见联合国教科文组织总干事阿纳尼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:39 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:44 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:44 - [北京市欧美同学会赴北京中医药大学归国留学人员联谊会走访调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:38 - [民众集会 反对日本政府修改武器出口规则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 13:03 - [特朗普称政府“或许”应救助陷入困境的精神航空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:36 - [特斯拉下一代Roadster终于要来了？马斯克称可能在月底发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:46 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:39 - [政府提前还债从省级延伸至地市，怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:39 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:47 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:54 - [欧洲央行管委卡扎克斯：欧洲央行不急着加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:49 - [两岸媒体赴桂林 “打卡”“广西三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:49 - [哈萨克斯坦驻华大使点赞“China Travel”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:57 - [捷蓝航空被指利用个人数据定价，两党议员联名质询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:57 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:50 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:57 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](http://www.share.kurohicncr.top/Article/details/99637.shtml)
-- 2026-06-29 12:57 - [新疆导游“天山那头有人民”被贴标签 台湾教师：扩交流是解方](http://www.blog.minike.top/Article/details/928618.shtml)
-- 2026-06-29 12:34 - [广电网络（600831）投资者索赔再获得法院立案，向日葵（300111）索赔案再提交立案](http://www.blog.minike.top/Article/details/65056016.shtml)
-- 2026-06-29 12:45 - [道达尔能源、康菲石油与卡塔尔能源签署协议 助力叙利亚重返国际能源版图](http://www.blog.minike.top/Article/details/946148.shtml)
-- 2026-06-29 12:34 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](http://www.share.kurohicncr.top/Article/details/18138.shtml)
-- 2026-06-29 12:39 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](http://www.share.kurohicncr.top/Article/details/92442.shtml)
-- 2026-06-29 12:47 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](http://www.share.minike.top/Article/details/119044.shtml)
-- 2026-06-29 12:49 - [劳动者杯中国职工篮球系列赛鸣哨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [瑞银继续唱多黄金：多重利多因素推动 金价年内仍有望刷新高](http://www.share.kurohicncr.top/Article/details/5956207187.shtml)
-- 2026-06-29 12:55 - [我国牵头制定发布14项天然气领域国际标准](http://www.share.minike.top/Article/details/096156266.shtml)
-- 2026-06-29 12:38 - [5月12日龙虎榜，机构青睐这10股](http://www.share.kurohicncr.top/Article/details/03180.shtml)
-- 2026-06-29 12:46 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](http://www.blog.minike.top/Article/details/809941.shtml)
-- 2026-06-29 12:57 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](http://www.share.kurohicncr.top/Article/details/7669087.shtml)
+- 2026-06-29 12:39 - [挪威三月油气产量超预期](http://www.share.kurohicncr.top/Article/details/228341.shtml)
+- 2026-06-29 12:43 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](http://www.share.minike.top/Article/details/5730575826.shtml)
+- 2026-06-29 12:46 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](http://www.share.kurohicncr.top/Article/details/467193569141.shtml)
+- 2026-06-29 12:57 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](http://www.share.minike.top/Article/details/743932725289.shtml)
+- 2026-06-29 12:45 - [【理响中国·经视图】以投资于物支撑投资于人](http://www.blog.minike.top/Article/details/67089.shtml)
+- 2026-06-29 13:01 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](http://www.blog.kurohicncr.top/Article/details/554134492780.shtml)
+- 2026-06-29 12:52 - [理财规模季末回落超万亿，全年增速或放缓](http://www.share.kurohicncr.top/Article/details/51569.shtml)
+- 2026-06-29 12:50 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](http://www.blog.kurohicncr.top/Article/details/7564583972.shtml)
+- 2026-06-29 12:42 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](http://www.blog.kurohicncr.top/Article/details/12635376.shtml)
+- 2026-06-29 12:54 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](http://www.blog.kurohicncr.top/Article/details/81180.shtml)
+- 2026-06-29 12:42 - [日本一自卫队演习场发生爆炸 致3死1重伤](http://www.blog.minike.top/Article/details/42536.shtml)
+- 2026-06-29 12:53 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [另类师徒携手追凶 《黑夜告白》定档](http://www.share.kurohicncr.top/Article/details/51666127.shtml)
+- 2026-06-29 13:03 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lisacumin64-arch)

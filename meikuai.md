@@ -1,59 +1,58 @@
-# App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报
+# 欧洲央行Guindos：在利率问题上需要谨慎并保持冷静
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-手机里各种各样的应用程序(APP)五花八门，在方便我们生活和工作的同时，似乎也越来越能精准地“捕捉”到我们的想法，相信不少人都有过“你在想什么，手机就给你推送什么”的经历。APP的这种“正合我意”是怎么实现？个人信息安全又是否存在风险呢？今天小安就和大家一同明风险、排隐患。超权限乱象频发 近年来，信息泄露事件屡屡发生，APP过度索取授权是个人信息泄露的重要原因之一。国家有关部门
+欧洲央行副行长Luis de Guindos表示，伊朗战争的不确定性意味着央行应该以审慎态度来设定利率。 “在高度不确定的环境下，我们需要谨慎、冷静地分析数据，”他周二在马德里表示，货币政策并非万能，无法阻止对价格的最初冲击。“但是，我们可以防止第二轮效应和通胀预期脱锚。” “我们不知道明天或后天会发生什么，”Guindos说。“霍尔木兹海峡一会儿关闭，一会儿开放，一会儿又关闭
 
 ## 正文
 
-手机里各种各样的应用程序(APP)五花八门，在方便我们生活和工作的同时，似乎也越来越能精准地“捕捉”到我们的想法，相信不少人都有过“你在想什么，手机就给你推送什么”的经历。
+欧洲央行副行长Luis de Guindos表示，伊朗战争的不确定性意味着央行应该以审慎态度来设定利率。
 
-APP的这种“正合我意”是怎么实现？
+“在高度不确定的环境下，我们需要谨慎、冷静地分析数据，”他周二在马德里表示，货币政策并非万能，无法阻止对价格的最初冲击。
 
-个人信息安全又是否存在风险呢？
+“但是，我们可以防止第二轮效应和通胀预期脱锚。
 
-今天小安就和大家一同明风险、排隐患。
+” “我们不知道明天或后天会发生什么，”Guindos说。
 
-超权限乱象频发 近年来，信息泄露事件屡屡发生，APP过度索取授权是个人信息泄露的重要原因之一。
+“霍尔木兹海峡一会儿关闭，一会儿开放，一会儿又关闭。
 
-国家有关部门调查发现，多款APP存在“未经用户同意，收集、使用用户个人信息”“未提供应用账号注销服务”“未公示用户个人信息收集、使用规则”“强行捆绑推广其他应用软件”“强制索取位置信息”等情况，侵害了个人信息安全。
+他们正在谈判，这将是一个关键因素。
 
-特别是境外间谍情报机关与不法分子对此虎视眈眈，企图利用非法获取的个人信息，超权开启的语音、位置服务等实施违法犯罪活动，对个人隐私乃至国家安全构成威胁。
+它将是决定通胀走向和预期走势的主要因素。
 
-管理授权有妙招 ——严选渠道，慎启弹窗。
+他强调，中东冲突造成的经济影响是巨大的。
 
 ## 相关推荐
 
-- 2026-06-29 12:49 - [ATFX:美国CPI数据发布 美元何去何从](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:43 - [一家外资家电巨头在中国卖场的“最后时刻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:57 - [多家海外华文媒体聚焦广西南宁 记录南宁发展变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:59 - [国家市场监管总局附条件批准腾讯收购喜马拉雅股权案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:57 - [日本：民众集会反对“国家情报会议”设置法案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:32 - [常熟银行收到501笔投诉，薛文坚持“做小做散”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:59 - [商业航天即将迎来“可回收火箭+IPO”密集催化！航空航天ETF华泰柏瑞（563380）基金份额创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:40 - [春光科技业绩变脸又迟发预告 官方解释与财报数据“打架” 股价逆势上涨呈现“妖股”特征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:34 - [特朗普将访华 北京机场高速公路附近挂起中美两国国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:38 - [韩国AI繁荣下的分配之争：“国民分红”构想出炉，三星罢工风暴袭来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:50 - [胖东来：从未在任何网络平台开展直播带货业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:44 - [成都与比利时弗拉芒·布拉邦共庆友城十五载 携手挖掘合作新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:45 - [打卡同色系风景 城市“色彩漫步”成为年轻人新型散步方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 13:05 - [多家A股公司上市后首亏，部分年报披露前业绩“变脸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 13:04 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:58 - [多地楼市新政密集落地 市场积极信号加速释放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:49 - [多国央行预警！Anthropic最新模型让金融系统如临大敌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:56 - [赴亚沙之约 展开放风采——写在第六届亚洲沙滩运动会开幕之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:45 - [寸草不生的百年毒矿渣，居然能提炼出高科技手机芯片？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:59 - [三亚亚沙会开幕在即 主媒体中心迎接媒体记者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 13:03 - [华宝基金红利风向标 | 高股息板块再秀防御力，华宝红利家族全线飘红！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:39 - [《技术经理人执业能力评价白皮书》在穗发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 13:05 - [自然资源部：已建成省级以上绿色矿山5500余家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 13:02 - [宁波男篮队史首次挺进CBA季后赛 续写篮球热土故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 13:04 - [DJI Osmo Mobile 8P上手：分体遥控 一机三用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:46 - [海外台胞在云南看见中医药的“古方新生”](http://www.share.minike.top/Article/details/04804.shtml)
-- 2026-06-29 12:51 - [云南巧家：万亩野生高山杜鹃迎来最佳观赏期](http://www.blog.kurohicncr.top/Article/details/6764794350.shtml)
-- 2026-06-29 12:59 - [日民众集会反对“国家情报会议”设置法案 在野党现场声援](http://www.blog.kurohicncr.top/Article/details/56505.shtml)
-- 2026-06-29 12:41 - [美元受通胀数据影响不大，不太可能改变美联储叙事](http://www.share.kurohicncr.top/Article/details/9139285201.shtml)
-- 2026-06-29 12:33 - [欧盟拟与阿富汗塔利班举行技术会议，磋商遣返移民事宜](http://www.share.minike.top/Article/details/9760719974.shtml)
-- 2026-06-29 12:44 - [习近平同塔吉克斯坦总统拉赫蒙会谈](http://www.blog.minike.top/Article/details/03617591986.shtml)
-- 2026-06-29 13:00 - [争分夺秒！就医途中突发炸胎 多方接力暖心护送](http://www.share.kurohicncr.top/Article/details/655418.shtml)
-- 2026-06-29 12:47 - [云冈石窟部分洞窟昨起临时封闭](http://www.blog.kurohicncr.top/Article/details/63336642615.shtml)
-- 2026-06-29 12:35 - [为中美关系发展打下更稳固基础](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [探访新疆高昌回鹘佛寺遗址](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [湖北当阳：金黄麦浪迎丰收](http://www.share.minike.top/Article/details/84132.shtml)
-- 2026-06-29 12:30 - [最新！伊朗提谈判先决条件！特朗普称“不着急”！英国将强化霍尔木兹海峡军事！国际油价大涨](http://www.blog.minike.top/Article/details/56967.shtml)
-- 2026-06-29 12:37 - [把舵中美关系大方向，习近平主席这样阐述](http://www.share.minike.top/Article/details/6993449.shtml)
-- 2026-06-29 12:36 - [券商再度走强，长城证券冲击涨停，顶流券商ETF华宝（512000）低位连续修复，近4日大举吸金8.42亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [南非极端天气已造成至少10人死亡](http://www.share.minike.top/Article/details/626492157934.shtml)
+- 2026-06-29 12:51 - [A股开盘：超3600只个股飘绿，三大指数集体低开](http://www.share.minike.top/Article/details/8488330416.shtml)
+- 2026-06-29 12:45 - [金岩高岭新材将于5月22日派发末期股息每10股2.27元](http://www.blog.minike.top/Article/details/4851420973.shtml)
+- 2026-06-29 12:52 - [美退伍军人抗议 要求结束对伊朗军事行动](http://www.share.minike.top/Article/details/3826551.shtml)
+- 2026-06-29 13:03 - [宁德时代发布第三代神行超充电池，满电仅需6分钟](http://www.share.minike.top/Article/details/728372439.shtml)
+- 2026-06-29 12:36 - [199元抢万元手机？反诈宣传如何跑赢直播间骗术？](http://www.blog.kurohicncr.top/Article/details/772458.shtml)
+- 2026-06-29 12:54 - [巴基斯坦从沙特阿拉伯获得10亿美元资金](http://www.blog.kurohicncr.top/Article/details/0684489.shtml)
+- 2026-06-29 12:38 - [卫生间摊放茶青 浙江松阳及时处置：全部封存 未流入市场](http://www.share.minike.top/Article/details/29518.shtml)
+- 2026-06-29 12:47 - [丰田向宁德时代印尼工厂投资 120 亿日元，将在厂内建设专用产线](http://www.blog.minike.top/Article/details/610992.shtml)
+- 2026-06-29 12:36 - [用软件脚本“秒抢”医院专家号 上海警方抓获非法倒卖号源10人](http://www.share.minike.top/Article/details/786212046394.shtml)
+- 2026-06-29 12:54 - [晋拓股份拟每10股派息0.77元](http://www.share.kurohicncr.top/Article/details/1860817027.shtml)
+- 2026-06-29 12:53 - [下任美联储主席提名人选能否维护美联储“独立性”遭质疑](http://www.share.minike.top/Article/details/111323.shtml)
+- 2026-06-29 12:46 - [摩根大通上调标普500指数目标位 之前在3月份刚刚下调](http://www.share.minike.top/Article/details/823733797.shtml)
+- 2026-06-29 12:41 - [西安中院公开庭审涉外商标侵权案件 筑牢知识产权司法保护防线](http://www.blog.minike.top/Article/details/009040.shtml)
+- 2026-06-29 12:54 - [奥克斯电气首份年报“变脸”：利润退回两年前、市值蒸发上百亿 “价格屠夫”靠涨价自救？](http://www.share.minike.top/Article/details/9613124165.shtml)
+- 2026-06-29 12:50 - [日媒：日本通过内阁决议正式允许出口杀伤性武器](http://www.blog.minike.top/Article/details/303122675823.shtml)

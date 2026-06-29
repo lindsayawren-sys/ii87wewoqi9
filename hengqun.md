@@ -1,58 +1,57 @@
-# 老将、新秀齐上阵 中国具身智能机器人加速实景应用
+# 经济大省调研行｜消费新动能：看“体验经济”如何创造“沉浸式快乐”
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-中新社上海5月13日电 (记者 郑莹莹)作为人工智能与物理实体融合的重要形态，具身智能正加速实景应用。在上海，商汤科技旗下商汤善惠近日推出烧卖购(SenseMartGo)机器人小店，并落地上海徐汇区、宝山区的多处商旅场景。 该“AI店员”闲时理货、忙时售卖，还能介绍商品、讲笑话，是消费者争相拍照的“机器人小店明星”。 便利店场景具有交易频次高、商品迭代快、环境复杂等特点，对具身
+新华社南京4月21日电(记者邱世杰、杨绍功、张海磊)人间四月，万物向阳，正是出游好时节。记者在江苏多地采访发现，人们越来越愿意为特别的体验埋单，“体验经济”已成为推动文旅消费的新动能。 漫步历史街区，体验古今“穿越感” 行走在徐州市回龙窝历史文化街区，柳琴戏的婉转唱腔、汉乐的悠扬韵律，与青砖黛瓦的古巷完美融合。游客们逛累了还可以到国潮汉风馆品一杯徐州茶，听一曲汉乐。 国潮汉风馆
 
 ## 正文
 
-中新社上海5月13日电 (记者 郑莹莹)作为人工智能与物理实体融合的重要形态，具身智能正加速实景应用。
+新华社南京4月21日电(记者邱世杰、杨绍功、张海磊)人间四月，万物向阳，正是出游好时节。
 
-在上海，商汤科技旗下商汤善惠近日推出烧卖购(SenseMartGo)机器人小店，并落地上海徐汇区、宝山区的多处商旅场景。
+记者在江苏多地采访发现，人们越来越愿意为特别的体验埋单，“体验经济”已成为推动文旅消费的新动能。
 
-该“AI店员”闲时理货、忙时售卖，还能介绍商品、讲笑话，是消费者争相拍照的“机器人小店明星”。
+漫步历史街区，体验古今“穿越感” 行走在徐州市回龙窝历史文化街区，柳琴戏的婉转唱腔、汉乐的悠扬韵律，与青砖黛瓦的古巷完美融合。
 
-便利店场景具有交易频次高、商品迭代快、环境复杂等特点，对具身智能的稳定性、泛化能力与实时决策执行力有高要求。
+游客们逛累了还可以到国潮汉风馆品一杯徐州茶，听一曲汉乐。
 
-商汤科技方面称，自2021年以来，商汤科技完成了动态视频分析、SKU(最小存货单位)大模型研发、零售全场景感知等能力储备，才得以在今年实现了具身智能机器人在线下零售场景的落地应用。
+国潮汉风馆采用“小剧场+”的形式，打造以“品茗观戏、非遗研学、文化交流”为特色的文化艺术空间，塑造“有戏、有茶、有学、有玩”的场馆IP，定位为百姓家门口的“精神粮仓”、历史文化名城的“城市会客厅”。
 
-不仅是上海，据报道，在北京，由银河通用打造的药品智能零售机器人今年也成功当上“药品销售员”。
+踏入馆内，仿佛穿越时空，沉浸于传统文化的海洋中。
 
-它可根据指令找药、抓取打包并放入智能取货柜，是药店的好帮手。
+汉乐雅奏以丝竹之声奏响千年古乐，令人心旷神怡；汉服体验区，精美的服饰、古老的礼仪，让游客们感慨汉文化的博大精深。
 
-业界正翘首期盼具身智能拐点的到来。
+打卡新式乐园，成为热门IP“剧中人” 在沉浸舞台演艺区感受《莲花楼》中雨水悬停、衣袂翩飞的江湖瞬间；在全感剧场里勇闯《唐朝诡事录》中诡谲的长安鬼市探查悬案；在光影互动空间走进《我的阿勒泰》中辽阔美丽的草原……来到扬州的爱奇艺乐园，游客可以秒变热门影视剧的“剧中人”，体验科技感十足的游乐项目，开启个人专属的精彩剧情。
 
 ## 相关推荐
 
-- 2026-06-29 12:32 - [“广西三月三”系列活动走进香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:53 - [M4Markets:白银突破八十美元关口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:56 - [奥特曼出庭作证：马斯克想要“完全掌控”OpenAI并将其传给子女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:55 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:56 - [新疆导游“天山那头有人民”被贴标签 台湾教师：扩交流是解方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:34 - [广电网络（600831）投资者索赔再获得法院立案，向日葵（300111）索赔案再提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:47 - [道达尔能源、康菲石油与卡塔尔能源签署协议 助力叙利亚重返国际能源版图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:41 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:44 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:47 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:51 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:39 - [劳动者杯中国职工篮球系列赛鸣哨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:45 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:52 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 13:03 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:52 - [挪威三月油气产量超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:42 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 13:00 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:43 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:50 - [【理响中国·经视图】以投资于物支撑投资于人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:57 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 13:03 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:46 - [理财规模季末回落超万亿，全年增速或放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:52 - [新疆吐鲁番：青蛙巷文脉绵延 研学赋能葡萄沟文旅新生](http://www.blog.minike.top/Article/details/414002642159.shtml)
-- 2026-06-29 12:30 - [人工智能概念股涨势消退，中东停火协议“命悬一线”](http://www.blog.kurohicncr.top/Article/details/467292407.shtml)
-- 2026-06-29 12:52 - [华尔街通胀焦虑加剧 机构关注美联储下一步如何抉择](http://www.blog.kurohicncr.top/Article/details/0029234.shtml)
-- 2026-06-29 12:52 - [敲诈900多家网店 买家恶意下单2700多次被判刑](http://www.blog.minike.top/Article/details/366902.shtml)
-- 2026-06-29 12:57 - [印度拟调整大宗商品衍生品交易规则，以提振市场流动性](http://www.blog.kurohicncr.top/Article/details/0852610.shtml)
-- 2026-06-29 12:57 - [助力乡村振兴，平安农业无人机公益计划首站落地伊犁](http://www.blog.kurohicncr.top/Article/details/05237850.shtml)
-- 2026-06-29 12:35 - [泡泡玛特跨界卖茶饮？知情人士：POP BAKERY直营门店仍以甜品为主](http://www.share.kurohicncr.top/Article/details/5342643.shtml)
-- 2026-06-29 12:50 - [新疆哈密：光热发电项目年发2亿度清洁电](http://www.blog.minike.top/Article/details/779075141.shtml)
-- 2026-06-29 12:46 - [515投资者保护|富国基金口播轻投教“基金小课堂”：全网播放6000万，助力碎片化投教](http://www.share.minike.top/Article/details/634202322441.shtml)
-- 2026-06-29 12:30 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](http://www.share.kurohicncr.top/Article/details/73361993485.shtml)
-- 2026-06-29 12:47 - [融汇东西方经典爱情传说 实验轻歌剧《阴阳喜帖》将首演](http://www.share.kurohicncr.top/Article/details/817092773410.shtml)
-- 2026-06-29 12:55 - [赣锋锂业(002460.SZ)：注销2022年股票期权激励计划剩余55.125万份期权，因第四个行权期业绩未达标](http://www.share.kurohicncr.top/Article/details/767859.shtml)
-- 2026-06-29 12:55 - [谁在借网络平台给日本社会“投毒”？（环球走笔）](http://www.share.kurohicncr.top/Article/details/808022879.shtml)
-- 2026-06-29 12:56 - [电动化替代速度超预期，中国新能源汽车创新纪录](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.share.kurohicncr.top/Article/details/1361606471.shtml)
+- 2026-06-29 12:38 - [联合健康集团业绩超预期并上调展望](http://www.blog.minike.top/Article/details/21739747705.shtml)
+- 2026-06-29 12:54 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](http://www.blog.kurohicncr.top/Article/details/146620260.shtml)
+- 2026-06-29 13:00 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [学习新语｜山河永念 英雄回家](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:05 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [厦门举办连横逝世九十周年纪念座谈会](http://www.blog.kurohicncr.top/Article/details/6717957505.shtml)
+- 2026-06-29 12:36 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [国内油价，今年首次下调](http://www.blog.kurohicncr.top/Article/details/42506.shtml)
+- 2026-06-29 12:55 - [长江有色：22日铜价小涨 高价货源成交寥寥](http://www.share.minike.top/Article/details/4973768643.shtml)
+- 2026-06-29 12:48 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](http://www.share.kurohicncr.top/Article/details/964908.shtml)
+- 2026-06-29 12:51 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](http://www.blog.minike.top/Article/details/1703654.shtml)
+- 2026-06-29 12:45 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.share.kurohicncr.top/Article/details/96790.shtml)
+- 2026-06-29 12:40 - [重回4100点！A股三大指数午后集体大涨](http://www.blog.minike.top/Article/details/89271.shtml)
+- 2026-06-29 12:48 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.blog.kurohicncr.top/Article/details/0329501675.shtml)

@@ -1,58 +1,59 @@
-# 纳德拉作证：OpenAI当年解雇奥特曼的操作“极其业余”
+# 中华人民共和国和莫桑比克共和国关于构建新时代中莫命运共同体的联合声明
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-微软首席执行官萨提亚·纳德拉周一在马斯克诉OpenAI一案的庭审中作证，直言OpenAI董事会在2023年解雇萨姆·奥特曼的过程中表现“极其业余”，同时他从未收到董事会的事先沟通或合理解释。 “业余水平”：纳德拉抨击董事会沟通缺失 纳德拉在加利福尼亚州奥克兰的联邦法院作证时表示，他对奥特曼被解雇感到“至少是相当惊讶”。作为OpenAI最大的投资者和战略合作伙伴，纳德拉认为董事会
+新华社北京4月21日电中华人民共和国和莫桑比克共和国关于构建新时代中莫命运共同体的联合声明 （2026年4月21日，北京） 应中华人民共和国主席习近平邀请，莫桑比克共和国总统丹尼尔·弗朗西斯科·查波于2026年4月16日至22日对中华人民共和国进行国事访问。 访问期间，两国元首在亲切友好气氛中举行会谈，就新形势下中莫、中非关系以及共同关心的国际和地区问题深入交换意见。中华人民共
 
 ## 正文
 
-微软首席执行官萨提亚·纳德拉周一在马斯克诉OpenAI一案的庭审中作证，直言OpenAI董事会在2023年解雇萨姆·奥特曼的过程中表现“极其业余”，同时他从未收到董事会的事先沟通或合理解释。
+新华社北京4月21日电中华人民共和国和莫桑比克共和国关于构建新时代中莫命运共同体的联合声明 （2026年4月21日，北京） 应中华人民共和国主席习近平邀请，莫桑比克共和国总统丹尼尔·弗朗西斯科·查波于2026年4月16日至22日对中华人民共和国进行国事访问。
 
-“业余水平”：纳德拉抨击董事会沟通缺失 纳德拉在加利福尼亚州奥克兰的联邦法院作证时表示，他对奥特曼被解雇感到“至少是相当惊讶”。
+访问期间，两国元首在亲切友好气氛中举行会谈，就新形势下中莫、中非关系以及共同关心的国际和地区问题深入交换意见。
 
-作为OpenAI最大的投资者和战略合作伙伴，纳德拉认为董事会理应提前与他沟通。
+中华人民共和国国务院总理李强、全国人民代表大会常务委员会委员长赵乐际分别同查波总统会见。
 
-然而，董事会从未主动联系他。
+双方一致认为，中莫传统友谊深厚，历经国际风云变幻考验，历久弥坚。
 
-当他追问解雇原因时，OpenAI方面仅以奥特曼“在与董事会的沟通中没有始终保持坦诚”为由作出回应，始终未能提供具体事件的说明。
+自1975年建交以来，特别是2016年两国建立全面战略合作伙伴关系以来，中莫政治互信持续巩固，务实合作成果丰硕，在国际事务中密切协调配合，成为中非友好和南南合作的典范。
 
-纳德拉在证词中直言：“从我这里看，这完全是业余水平。
+双方一致认为，世界百年变局加速演进，习近平主席提出的构建人类命运共同体、高质量共建“一带一路”、全球发展倡议、全球安全倡议、全球文明倡议和全球治理倡议等重大理念倡议正在显示出越来越强大的影响力、感召力。
 
-”他推测，解雇背后可能存在“嫉妒”或内部沟通问题。
+新形势下，中莫不断巩固和深化双边友好合作，符合两国人民共同期待，有助于推动国际秩序朝着更加公正合理的方向发展。
 
-马斯克诉讼核心：微软是否控制OpenAI？
+为此，双方决定将双边关系提升为新时代中莫命运共同体。
 
 ## 相关推荐
 
-- 2026-06-29 12:40 - [最新，章建平建仓股曝光！牛散天团押注“AI+商业航天”（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:41 - [罕见！保险公司中支总经理任职资格被否，这些“硬门槛”不可碰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:45 - [长江有色：12日氧化铝期价跌1.17% 下游接货情绪一般](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:31 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情 法国确诊首例汉坦病毒感染病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:51 - [（台海观澜）福建赴金门自由行持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:38 - [中东局势推高能源成本，德国4月批发物价涨幅创三年新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:31 - [宁淮城际铁路站前4标完成全部箱梁预制任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:59 - [印度酝酿紧急举措以守护外汇储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:54 - [花旗：调整商品偏好次序首选铜 新首选股包括宁德时代等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:51 - [第二十二届文博会将开幕 聚焦文化产业数智化赋能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:57 - [双向奔赴！两岸媒体人镜头里的和平与相融](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:32 - [知名基金经理，最新调仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:47 - [浙江杭叉控股获批持有温州民商银行9.9%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 13:04 - [江苏省数标委“标准周”活动在扬州启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:52 - [天银机电：公司与SpaceX及Strarlink均没有业务关系，没有直接或间接供货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:39 - [上海浦东国际机场口岸单日入境外籍人员数创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 13:03 - [云南华宁聚焦民族团结 加快构建互嵌式社会结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:45 - [大国重器一起护送英烈回家！歼-20运-20B空中对话让人泪目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 13:03 - [大陆发展快 台湾创意引过来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:40 - [直播海报：国新办就2026年一季度农业农村经济运行情况举行新闻发布会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 13:00 - [辽宁省委书记许昆林到大商所调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:53 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:56 - [远古植物如何挺过2.52亿年前大灭绝？中外科学家最新研究揭秘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 13:04 - [辽宁省开展第57个世界地球日主题宣传活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:49 - [中国长安朱华荣：汽车产业已进入淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:51 - [亚马逊“极速达”再拓版图，30分钟送达席卷美国数十城](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [上海加快开发适老化智能产品](http://www.share.kurohicncr.top/Article/details/653901.shtml)
-- 2026-06-29 12:37 - [伊朗空袭行动期间摩萨德局长到访阿联酋 协助战事协同部署](http://www.blog.kurohicncr.top/Article/details/59779854992.shtml)
-- 2026-06-29 12:51 - [老将、新秀齐上阵 中国具身智能机器人加速实景应用](http://www.share.minike.top/Article/details/21159626403.shtml)
-- 2026-06-29 12:49 - [“中国李乡”广东信宜迎三华李丰收季 跑出乡村振兴“加速度”](http://www.share.kurohicncr.top/Article/details/27603638.shtml)
-- 2026-06-29 12:41 - [数读中国开局新活力｜青年占比超50% 小镇20年长成“青春经济”样本](http://www.share.kurohicncr.top/Article/details/41285799.shtml)
-- 2026-06-29 12:49 - [奖励名额翻倍！货拉拉2026“平凡之光”魅力司机评选开启报名](http://www.share.minike.top/Article/details/383277322.shtml)
-- 2026-06-29 12:49 - [廖岷与英国财政部国际金融事务总司长怀特举行视频通话](http://www.share.minike.top/Article/details/1238428527.shtml)
-- 2026-06-29 12:40 - [美国对伊连打三张牌 油价黄金交易逻辑拆解](http://www.share.minike.top/Article/details/95729.shtml)
-- 2026-06-29 12:40 - [英国政府拟立法改革银行“隔离”制度,以提振企业融资与经济增长](http://www.share.minike.top/Article/details/3195515.shtml)
-- 2026-06-29 12:55 - [“广西三月三”系列活动走进香港](http://www.share.minike.top/Article/details/0006299.shtml)
-- 2026-06-29 12:51 - [M4Markets:白银突破八十美元关口](http://www.blog.kurohicncr.top/Article/details/676917.shtml)
-- 2026-06-29 12:53 - [奥特曼出庭作证：马斯克想要“完全掌控”OpenAI并将其传给子女](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](http://www.share.minike.top/Article/details/67114.shtml)
-- 2026-06-29 12:54 - [新疆导游“天山那头有人民”被贴标签 台湾教师：扩交流是解方](http://www.blog.minike.top/Article/details/1620785323.shtml)
+- 2026-06-29 12:41 - [向优、向新、向绿——江苏制造业企业高质量发展一线微观察](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [全民阅读活动周 各地举办多场活动](http://www.share.kurohicncr.top/Article/details/438313041.shtml)
+- 2026-06-29 12:40 - [日本首相高市早苗向靖国神社献祭品](http://www.blog.minike.top/Article/details/141991925790.shtml)
+- 2026-06-29 13:01 - [经济大省调研行｜消费新动能：看“体验经济”如何创造“沉浸式快乐”](http://www.blog.kurohicncr.top/Article/details/9855733607.shtml)
+- 2026-06-29 12:41 - [美国能源部长：汽油价格可能在一周前已经见顶](http://www.share.kurohicncr.top/Article/details/015501406.shtml)
+- 2026-06-29 12:36 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.blog.minike.top/Article/details/901662816539.shtml)
+- 2026-06-29 12:42 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [国务院印发《关于推进服务业扩能提质的意见》](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.share.kurohicncr.top/Article/details/423427.shtml)
+- 2026-06-29 12:41 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](http://www.blog.kurohicncr.top/Article/details/642598930.shtml)
+- 2026-06-29 12:59 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](http://www.blog.kurohicncr.top/Article/details/0760377484.shtml)
+- 2026-06-29 12:40 - [挪威三月油气产量超预期](http://www.share.kurohicncr.top/Article/details/699597787.shtml)
+- 2026-06-29 12:37 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](https://github.com/lisacumin64-arch)

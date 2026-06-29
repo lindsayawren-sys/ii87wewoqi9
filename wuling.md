@@ -1,59 +1,61 @@
-# 联合航空将恢复飞往委内瑞拉航线
+# 全线爆发！三大龙头，历史新高
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-联合航空曾运营美委航线超 20 年，2017 年 6 月停飞 这家航司于周二表示，在获得政府批准的前提下，将于 8 月 11 日起，恢复休斯顿乔治・布什洲际机场至加拉加斯西蒙・玻利瓦尔国际机场的每日直飞航班。 联合航空此前经营美国至委内瑞拉航线长达 20 余年，后于 2017 年 6 月暂停通航。 就在本次官宣的数周前，美国航空一架客机完成了 2019 年以来美委之间首趟商业直
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今天，上证指数涨0.52%，重新站上4100点；深证成指涨1.3%，创业板指涨1.73%，科创综指上涨1.75%。 在算力权重股大涨带动下，创业板综指（399102）创历史新高，突破2015年6月3日的高点。A股市场成交额25788亿元，较上日放量1522亿元。 算力硬件方向全线爆发，东山精密、长光华芯涨停
 
 ## 正文
 
-联合航空曾运营美委航线超 20 年，2017 年 6 月停飞 这家航司于周二表示，在获得政府批准的前提下，将于 8 月 11 日起，恢复休斯顿乔治・布什洲际机场至加拉加斯西蒙・玻利瓦尔国际机场的每日直飞航班。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-联合航空此前经营美国至委内瑞拉航线长达 20 余年，后于 2017 年 6 月暂停通航。
+今天，上证指数涨0.52%，重新站上4100点；深证成指涨1.3%，创业板指涨1.73%，科创综指上涨1.75%。
 
-就在本次官宣的数周前，美国航空一架客机完成了 2019 年以来美委之间首趟商业直飞航班，此举也被视作特朗普政府快速推动与委内瑞拉关系正常化最直观的标志性事件。
+在算力权重股大涨带动下，创业板综指（399102）创历史新高，突破2015年6月3日的高点。
 
-特朗普政府今年初拿下委内瑞拉强人马杜罗、将其赶下台后，已推出特殊合作机制，一方面吸引美国投资者赴委内瑞拉布局，另一方面巩固两国政府关系。
+A股市场成交额25788亿元，较上日放量1522亿元。
 
-美国交通部长肖恩・达菲表示，联合航空新开航线标志着美委关系再进一步。
+算力硬件方向全线爆发，东山精密、长光华芯涨停，创历史新高，工业富联盘中触及涨停，新易盛、中际旭创均创历史新高。
 
-他称：“随着美委合作扩大石油产能、创造新的经济机遇，这条航线将承担关键作用，方便石油行业从业人员往返委内瑞拉。
+光纤概念反复活跃，永鼎股份涨停，续创历史新高，杭电股份封涨停；算力租赁概念持续走强，协创数据触及“20CM”涨停，宏景科技涨超15%，双双创历史新高；液冷服务器概念回暖，英维克打开跌停板，午后持续上扬，收盘下跌4.38%。
 
-”责任编辑：郭明煜
+亚太股市走强。
+
+日经225指数盘中创历史新高，收盘涨0.4%，报59585.86点，创收盘历史新高。
 
 ## 相关推荐
 
-- 2026-06-29 12:31 - [国元国际：首钢资源给予“买入”评级 目标价3.18港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:51 - [受汽油价格推动，美国4月通胀飙升至 3.8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:40 - [特斯拉前高管创办热泵初创公司 已有数名特斯拉前员工加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:45 - [受中东局势影响 德钢铁巨头下调销售预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:58 - [ATFX:美国CPI数据发布 美元何去何从](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:52 - [一家外资家电巨头在中国卖场的“最后时刻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:45 - [多家海外华文媒体聚焦广西南宁 记录南宁发展变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:57 - [国家市场监管总局附条件批准腾讯收购喜马拉雅股权案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:34 - [日本：民众集会反对“国家情报会议”设置法案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:49 - [常熟银行收到501笔投诉，薛文坚持“做小做散”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:54 - [商业航天即将迎来“可回收火箭+IPO”密集催化！航空航天ETF华泰柏瑞（563380）基金份额创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:55 - [春光科技业绩变脸又迟发预告 官方解释与财报数据“打架” 股价逆势上涨呈现“妖股”特征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:38 - [特朗普将访华 北京机场高速公路附近挂起中美两国国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:38 - [韩国AI繁荣下的分配之争：“国民分红”构想出炉，三星罢工风暴袭来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:57 - [胖东来：从未在任何网络平台开展直播带货业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:48 - [微视频丨山河迎忠魂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 13:04 - [江苏举办养老企业与金融机构对接会 推动金融资源与养老产业精准对接](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:48 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:48 - [在韩志愿军烈士遗骸交接仪式举行 中国驻韩国大使为烈士棺椁覆盖国旗并鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:37 - [多家A股公司上市后首亏，部分年报披露前业绩“变脸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:51 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:49 - [多地楼市新政密集落地 市场积极信号加速释放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 13:00 - [多国央行预警！Anthropic最新模型让金融系统如临大敌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:37 - [赴亚沙之约 展开放风采——写在第六届亚洲沙滩运动会开幕之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:56 - [寸草不生的百年毒矿渣，居然能提炼出高科技手机芯片？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:55 - [三亚亚沙会开幕在即 主媒体中心迎接媒体记者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:48 - [华宝基金红利风向标 | 高股息板块再秀防御力，华宝红利家族全线飘红！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:51 - [《技术经理人执业能力评价白皮书》在穗发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 13:01 - [自然资源部：已建成省级以上绿色矿山5500余家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:45 - [宁波男篮队史首次挺进CBA季后赛 续写篮球热土故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [仅部分支行业务量小幅上升，广州楼市再现“日光盘”未惠及银行，分化格局依旧明显](http://www.blog.minike.top/Article/details/80358016349.shtml)
-- 2026-06-29 12:45 - [黑田东彦：日元汇率跌破160可能性较低，日本经济基本面稳健](http://www.share.kurohicncr.top/Article/details/08872490322.shtml)
-- 2026-06-29 12:32 - [截至5月7日当周美国大豆出口检验量为655294吨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [国产算力爆发，新手怎么布局？一次讲清芯片产业链四只指数](http://www.share.kurohicncr.top/Article/details/4118486.shtml)
-- 2026-06-29 12:30 - [海外台胞在云南看见中医药的“古方新生”](http://www.share.minike.top/Article/details/9222323458.shtml)
-- 2026-06-29 12:38 - [云南巧家：万亩野生高山杜鹃迎来最佳观赏期](http://www.blog.kurohicncr.top/Article/details/84899524901.shtml)
-- 2026-06-29 12:31 - [日民众集会反对“国家情报会议”设置法案 在野党现场声援](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:57 - [美元受通胀数据影响不大，不太可能改变美联储叙事](http://www.blog.kurohicncr.top/Article/details/16955.shtml)
-- 2026-06-29 12:54 - [欧盟拟与阿富汗塔利班举行技术会议，磋商遣返移民事宜](http://www.blog.minike.top/Article/details/349357283722.shtml)
-- 2026-06-29 12:44 - [习近平同塔吉克斯坦总统拉赫蒙会谈](http://www.share.minike.top/Article/details/567563464186.shtml)
-- 2026-06-29 12:55 - [争分夺秒！就医途中突发炸胎 多方接力暖心护送](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [云冈石窟部分洞窟昨起临时封闭](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [为中美关系发展打下更稳固基础](http://www.blog.minike.top/Article/details/561512.shtml)
-- 2026-06-29 12:35 - [探访新疆高昌回鹘佛寺遗址](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [湖北当阳：金黄麦浪迎丰收](http://www.blog.kurohicncr.top/Article/details/98229975.shtml)
+- 2026-06-29 12:53 - [四川2025年高价值发明专利拥有量达7.79万件](http://www.blog.kurohicncr.top/Article/details/700302006.shtml)
+- 2026-06-29 12:43 - [RYOEX:黄金中长期仍具坚实支撑](http://www.share.minike.top/Article/details/09536407.shtml)
+- 2026-06-29 12:46 - [民生调查局丨别被牙膏的“3D炫白”“医研”骗了，那只是商标](http://www.blog.kurohicncr.top/Article/details/696303.shtml)
+- 2026-06-29 12:42 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](http://www.share.kurohicncr.top/Article/details/172021887224.shtml)
+- 2026-06-29 12:57 - [A股开盘：超3600只个股飘绿，三大指数集体低开](http://www.blog.minike.top/Article/details/81817524.shtml)
+- 2026-06-29 12:53 - [金岩高岭新材将于5月22日派发末期股息每10股2.27元](http://www.share.kurohicncr.top/Article/details/549909.shtml)
+- 2026-06-29 12:48 - [美退伍军人抗议 要求结束对伊朗军事行动](http://www.blog.minike.top/Article/details/711460351033.shtml)
+- 2026-06-29 12:51 - [宁德时代发布第三代神行超充电池，满电仅需6分钟](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [199元抢万元手机？反诈宣传如何跑赢直播间骗术？](http://www.blog.minike.top/Article/details/140619423.shtml)
+- 2026-06-29 12:50 - [巴基斯坦从沙特阿拉伯获得10亿美元资金](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [卫生间摊放茶青 浙江松阳及时处置：全部封存 未流入市场](http://www.share.kurohicncr.top/Article/details/170933.shtml)
+- 2026-06-29 12:53 - [丰田向宁德时代印尼工厂投资 120 亿日元，将在厂内建设专用产线](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [用软件脚本“秒抢”医院专家号 上海警方抓获非法倒卖号源10人](http://www.share.kurohicncr.top/Article/details/66117249064.shtml)
+- 2026-06-29 12:52 - [晋拓股份拟每10股派息0.77元](http://www.share.minike.top/Article/details/145855695.shtml)
+- 2026-06-29 12:45 - [下任美联储主席提名人选能否维护美联储“独立性”遭质疑](http://www.share.minike.top/Article/details/306760181525.shtml)

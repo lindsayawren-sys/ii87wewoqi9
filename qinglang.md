@@ -1,53 +1,56 @@
-# 哈尔滨电气早盘涨超4% 国内首台16兆瓦燃气轮机天然气燃气发生器满负荷试车成功
+# “水立方”再迎跳水世界杯总决赛 中国队以老带新、满额参赛
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-哈尔滨电气（01133）早盘涨超4%，截至发稿，股价上涨4.33%，现报25.56港元，成交额7499.95万港元。 近日，哈电汽轮机自主研制的国内首台16兆瓦燃气轮机天然气燃气发生器满负荷试车成功，机组全程运行平稳、燃烧稳定、振动正常、控制系统响应精准、关键热力参数、运行参数全程处于可控区间，各项性能指标均达到设计要求，NOx（@15%O2）排放优于国家标准。 花旗此前指出，
+中新网北京4月21日电(记者 国璇) 2026世界泳联跳水世界杯总决赛(北京)将于5月1日至3日在国家游泳中心“水立方”举行。记者4月21日在赛前新闻发布会上获悉，届时将有来自全球17个国家和地区的90余名顶尖选手参赛，满额参赛的中国跳水队将派出以老带新的阵容。 世界泳联跳水世界杯原计划在2026年举行加拿大蒙特利尔站和墨西哥萨波潘站两场分站赛，由于公共安全风险，原定于3月初举
 
 ## 正文
 
-哈尔滨电气（01133）早盘涨超4%，截至发稿，股价上涨4.33%，现报25.56港元，成交额7499.95万港元。
+中新网北京4月21日电(记者 国璇) 2026世界泳联跳水世界杯总决赛(北京)将于5月1日至3日在国家游泳中心“水立方”举行。
 
-近日，哈电汽轮机自主研制的国内首台16兆瓦燃气轮机天然气燃气发生器满负荷试车成功，机组全程运行平稳、燃烧稳定、振动正常、控制系统响应精准、关键热力参数、运行参数全程处于可控区间，各项性能指标均达到设计要求，NOx（@15%O2）排放优于国家标准。
+记者4月21日在赛前新闻发布会上获悉，届时将有来自全球17个国家和地区的90余名顶尖选手参赛，满额参赛的中国跳水队将派出以老带新的阵容。
 
-花旗此前指出，哈尔滨电气自主研发的16兆瓦燃气轮机预计将于2026年下半年完成测试，其后方可具备商业化条件。
+世界泳联跳水世界杯原计划在2026年举行加拿大蒙特利尔站和墨西哥萨波潘站两场分站赛，由于公共安全风险，原定于3月初举行的墨西哥站被取消。
 
-该行认为，哈尔滨电气需要在国内市场取得一个16兆瓦的示范项目，以收集运行数据并完成维护周期，之后才能向海外销售。
+根据规则，在蒙特利尔站上获得单人项目前12名(每个协会最多2人)、双人及混合团体项目积分前8名的队伍，获得总决赛参赛资格。
 
-责任编辑：卢昱君
+在2月底的蒙特利尔站中，中国队包揽全部9个项目的金牌，获得满额参赛席位。
+
+北京市体育竞赛管理和国际交流中心副主任金志伟介绍说，本届赛事共设男子、女子单人3米板，男子、女子双人3米板，男子、女子单人10米台，男子、女子双人10米台及混合团体9个项目。
+
+5月1日将决出4个双人项目及混合团体的5枚金牌；5月2日将决出男子3米板和女子10米台的金牌；5月3日将进行女子3米板和男子10米台的冠军争夺。
+
+赛制方面，双人及混合团体项目将沿用传统的计分规则，单人项目则继续采用2025年跳水世界杯总决赛引入的淘汰赛制，增强比赛的悬念与观赏性。
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情 法国确诊首例汉坦病毒感染病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:57 - [（台海观澜）福建赴金门自由行持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:30 - [中东局势推高能源成本，德国4月批发物价涨幅创三年新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:54 - [宁淮城际铁路站前4标完成全部箱梁预制任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:30 - [印度酝酿紧急举措以守护外汇储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:57 - [花旗：调整商品偏好次序首选铜 新首选股包括宁德时代等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:41 - [第二十二届文博会将开幕 聚焦文化产业数智化赋能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:49 - [双向奔赴！两岸媒体人镜头里的和平与相融](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:56 - [知名基金经理，最新调仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:32 - [俞浩发女装照回应刘靖康](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:37 - [均胜电子将于6月16日派发末期股息每10股2.057467港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:54 - [美国财长贝森特承诺美日将在外汇领域保持持续且强有力的合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:35 - [AI超级行情引爆散户热情，投机热度创疫情以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:39 - [上海浦东国际机场口岸单日入境外籍人员数创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:47 - [云南华宁聚焦民族团结 加快构建互嵌式社会结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 13:01 - [大国重器一起护送英烈回家！歼-20运-20B空中对话让人泪目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:38 - [大陆发展快 台湾创意引过来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:41 - [直播海报：国新办就2026年一季度农业农村经济运行情况举行新闻发布会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 13:05 - [辽宁省委书记许昆林到大商所调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:45 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:44 - [远古植物如何挺过2.52亿年前大灭绝？中外科学家最新研究揭秘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:44 - [辽宁省开展第57个世界地球日主题宣传活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:51 - [中国长安朱华荣：汽车产业已进入淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [老将、新秀齐上阵 中国具身智能机器人加速实景应用](http://www.blog.kurohicncr.top/Article/details/496266142.shtml)
-- 2026-06-29 12:49 - [“中国李乡”广东信宜迎三华李丰收季 跑出乡村振兴“加速度”](http://www.share.minike.top/Article/details/499067046.shtml)
-- 2026-06-29 12:34 - [数读中国开局新活力｜青年占比超50% 小镇20年长成“青春经济”样本](http://www.share.minike.top/Article/details/3176011128.shtml)
-- 2026-06-29 12:56 - [奖励名额翻倍！货拉拉2026“平凡之光”魅力司机评选开启报名](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [廖岷与英国财政部国际金融事务总司长怀特举行视频通话](http://www.blog.minike.top/Article/details/12076500756.shtml)
-- 2026-06-29 12:57 - [美国对伊连打三张牌 油价黄金交易逻辑拆解](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [英国政府拟立法改革银行“隔离”制度,以提振企业融资与经济增长](http://www.share.kurohicncr.top/Article/details/194355237.shtml)
-- 2026-06-29 12:44 - [“广西三月三”系列活动走进香港](http://www.blog.minike.top/Article/details/610075998611.shtml)
-- 2026-06-29 12:42 - [M4Markets:白银突破八十美元关口](http://www.blog.minike.top/Article/details/91668150.shtml)
-- 2026-06-29 12:59 - [奥特曼出庭作证：马斯克想要“完全掌控”OpenAI并将其传给子女](http://www.blog.minike.top/Article/details/32035.shtml)
-- 2026-06-29 12:48 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [新疆导游“天山那头有人民”被贴标签 台湾教师：扩交流是解方](http://www.share.kurohicncr.top/Article/details/8458798.shtml)
-- 2026-06-29 12:57 - [广电网络（600831）投资者索赔再获得法院立案，向日葵（300111）索赔案再提交立案](http://www.share.minike.top/Article/details/070941916.shtml)
-- 2026-06-29 12:42 - [道达尔能源、康菲石油与卡塔尔能源签署协议 助力叙利亚重返国际能源版图](http://www.blog.kurohicncr.top/Article/details/210484020.shtml)
-- 2026-06-29 12:56 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](http://www.blog.kurohicncr.top/Article/details/7321506425.shtml)
+- 2026-06-29 12:44 - [经济大省调研行｜消费新动能：看“体验经济”如何创造“沉浸式快乐”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [美国能源部长：汽油价格可能在一周前已经见顶](http://www.share.kurohicncr.top/Article/details/732614310727.shtml)
+- 2026-06-29 12:53 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.blog.kurohicncr.top/Article/details/77747.shtml)
+- 2026-06-29 12:45 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](http://www.share.kurohicncr.top/Article/details/04896132729.shtml)
+- 2026-06-29 12:49 - [国务院印发《关于推进服务业扩能提质的意见》](http://www.blog.kurohicncr.top/Article/details/172095428047.shtml)
+- 2026-06-29 12:45 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.share.kurohicncr.top/Article/details/641333007659.shtml)
+- 2026-06-29 12:47 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](http://www.blog.minike.top/Article/details/017861280428.shtml)
+- 2026-06-29 12:54 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](http://www.share.kurohicncr.top/Article/details/14167390529.shtml)
+- 2026-06-29 12:39 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](http://www.blog.kurohicncr.top/Article/details/13773352.shtml)
+- 2026-06-29 12:44 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](http://www.blog.minike.top/Article/details/38057723.shtml)
+- 2026-06-29 12:38 - [挪威三月油气产量超预期](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](http://www.blog.minike.top/Article/details/624065892.shtml)
+- 2026-06-29 12:43 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](http://www.blog.kurohicncr.top/Article/details/190401555690.shtml)
+- 2026-06-29 13:03 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](http://www.blog.kurohicncr.top/Article/details/5935306.shtml)
+- 2026-06-29 12:38 - [【理响中国·经视图】以投资于物支撑投资于人](http://www.blog.minike.top/Article/details/643468781836.shtml)

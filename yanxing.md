@@ -1,57 +1,58 @@
-# 腾讯最新声明：不会开发提供“微信访客功能”
+# 法国一知名药企遭遇“傍名牌”在豫成功维权
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-转自：科技日报 5月11日晚间，“微信状态 访客记录”话题冲上微博热搜，引发大量网友讨论。 微信员工@客村小蒋 5月12日上午回应称，该话题其实有很大的误导性，微信状态并不提供查看访客记录的功能。 这个热搜是因为微信状态最近在很小范围测试两个功能：一个是状态浏览人数展示的功能，发布状态后，在该状态有效期内，可以在右下角看到这条状态的浏览人数，对，只是展示人数。 现在，我们已停止
+中新网郑州4月21日电 (记者 李贵刚)法国一知名药企赛某菲公司在豫遭遇“傍名牌”。河南省高院21日通报称，这宗涉外知识产权纠纷通过诉讼实现成功维权。 通报称，法国赛某菲公司系第747304号“赛某菲”、第7993681号“SANOFI”注册商标的专用权人，该两枚商标核定使用商品均为第5类，包含人用药、兽用药、兽医用制剂等，经过长期使用和推广，已在行业内积累了一定的市场知名度。
 
 ## 正文
 
-转自：科技日报 5月11日晚间，“微信状态 访客记录”话题冲上微博热搜，引发大量网友讨论。
+中新网郑州4月21日电 (记者 李贵刚)法国一知名药企赛某菲公司在豫遭遇“傍名牌”。
 
-微信员工@客村小蒋 5月12日上午回应称，该话题其实有很大的误导性，微信状态并不提供查看访客记录的功能。
+河南省高院21日通报称，这宗涉外知识产权纠纷通过诉讼实现成功维权。
 
-这个热搜是因为微信状态最近在很小范围测试两个功能：一个是状态浏览人数展示的功能，发布状态后，在该状态有效期内，可以在右下角看到这条状态的浏览人数，对，只是展示人数。
+通报称，法国赛某菲公司系第747304号“赛某菲”、第7993681号“SANOFI”注册商标的专用权人，该两枚商标核定使用商品均为第5类，包含人用药、兽用药、兽医用制剂等，经过长期使用和推广，已在行业内积累了一定的市场知名度。
 
-现在，我们已停止状态浏览人数展示的测试了。
+百度网页手机中国网文章“2018年全球制药企业TOP10排名出炉”，显示赛某菲位列其中。
 
-很多功能，我们都会用小范围测试，并根据用户反馈持续优化的方式迭代。
+“傍名牌”的公司是河南省焦作诺某特公司和郑州层某公司。
 
-再次感谢大家的反馈。
+法国赛某菲公司认为，上述两家公司未经法国赛某菲公司许可生产、销售带有与法国赛某菲公司注册商标相同或近似标识的被诉侵权商品，造成了严重的经济损失及商誉损害，请求法院判令上述两家公司停止侵害商标权及不正当竞争行为，并认定“赛某菲”、“SANOFI”商标为驰名商标。
 
-另外小范围测试还有一个特性，是在你的状态页面，会随机从路过的朋友中漂几个发了状态的朋友的头像气泡，点击就能回看他的状态，让都喜欢发状态好友，可以更方便地互动，目前这个能力也已经停止测试。
+法院经审理认为，法国赛某菲公司是第747304号“赛某菲”及第7993681号“SANOFI”注册商标专用权人，其商标专用权依法应受到保护。
 
-随后，腾讯公司公关总监@腾讯张军 转发其微博并评论： 的确，这个小范围测试浏览人数的功能（不具体到个体），被误解了。
+法国赛某菲公司提供的公证封存商品实物可证明，焦作诺某特公司在多款产品包装突出使用了“赛某菲”汉字。
 
 ## 相关推荐
 
-- 2026-06-29 12:52 - [在伊朗冲突存在不确定性之际 日经指数可能下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:32 - [焦煤短期承压的核心逻辑是？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:34 - [欧洲股市下跌，英镑及英国银行股因政治动荡走低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:49 - [5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:43 - [沙特3月下旬曾对伊朗实施报复性打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:50 - [两岸和平统一后台湾精神文化生活如何“更好” 国台办四方面阐释](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:38 - [名创优品发盈喜 预计第一季度利润约12.28亿至12.48亿元同比增加约195%至200%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:42 - [创新的力量：视听传播如何实现“从点到链”的变革？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:39 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:42 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:48 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:44 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:38 - [财政部今日在港发行155亿元人民币国债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:39 - [印尼工商会主席：印尼与中国经济融合愈发重要](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:36 - [OpenAI正洽谈向一家私募股权合资企业最高投资15亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:36 - [中国新闻社参评第36届中国新闻奖创意传播、新闻IP作品初评公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:52 - [热血洒疆场忠魂归故乡 沈阳全城以最高礼遇迎接英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:51 - [感冒流感药品销售疲软 利洁时股价下跌5.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:57 - [连跌10周，猪价反弹了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 13:04 - [华为正式发布智擎动力品牌！余承东：同样100度电 我们能比别人多跑50公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:53 - [财报季丨金融高管战略校准指南！利差筑底、结构重构，银行、保险趋势判断全景图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:40 - [外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:58 - [全年净利润不到6亿 甘肃银行豪掷17亿分红为哪般？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:30 - [特斯拉前高管创办热泵初创公司 已有数名特斯拉前员工加入](http://www.share.minike.top/Article/details/65050327657.shtml)
-- 2026-06-29 12:49 - [受中东局势影响 德钢铁巨头下调销售预期](http://www.blog.minike.top/Article/details/010494445.shtml)
-- 2026-06-29 12:47 - [ATFX:美国CPI数据发布 美元何去何从](http://www.share.minike.top/Article/details/26678.shtml)
-- 2026-06-29 12:33 - [一家外资家电巨头在中国卖场的“最后时刻”](http://www.share.minike.top/Article/details/83271559707.shtml)
-- 2026-06-29 12:47 - [多家海外华文媒体聚焦广西南宁 记录南宁发展变化](http://www.share.kurohicncr.top/Article/details/76004.shtml)
-- 2026-06-29 12:39 - [国家市场监管总局附条件批准腾讯收购喜马拉雅股权案](http://www.share.minike.top/Article/details/9338085.shtml)
-- 2026-06-29 12:58 - [日本：民众集会反对“国家情报会议”设置法案](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [常熟银行收到501笔投诉，薛文坚持“做小做散”](http://www.blog.minike.top/Article/details/1084948.shtml)
-- 2026-06-29 12:56 - [商业航天即将迎来“可回收火箭+IPO”密集催化！航空航天ETF华泰柏瑞（563380）基金份额创历史新高](http://www.share.kurohicncr.top/Article/details/09969.shtml)
-- 2026-06-29 12:40 - [春光科技业绩变脸又迟发预告 官方解释与财报数据“打架” 股价逆势上涨呈现“妖股”特征](http://www.blog.minike.top/Article/details/017295364348.shtml)
-- 2026-06-29 12:50 - [特朗普将访华 北京机场高速公路附近挂起中美两国国旗](http://www.blog.kurohicncr.top/Article/details/6685367.shtml)
-- 2026-06-29 12:54 - [韩国AI繁荣下的分配之争：“国民分红”构想出炉，三星罢工风暴袭来](http://www.share.minike.top/Article/details/8885242.shtml)
-- 2026-06-29 12:55 - [胖东来：从未在任何网络平台开展直播带货业务](http://www.blog.kurohicncr.top/Article/details/7201623.shtml)
-- 2026-06-29 12:30 - [成都与比利时弗拉芒·布拉邦共庆友城十五载 携手挖掘合作新机遇](http://www.blog.kurohicncr.top/Article/details/4431514663.shtml)
-- 2026-06-29 12:33 - [打卡同色系风景 城市“色彩漫步”成为年轻人新型散步方式](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:01 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [在韩志愿军烈士遗骸交接仪式举行 中国驻韩国大使为烈士棺椁覆盖国旗并鞠躬](http://www.blog.minike.top/Article/details/46904.shtml)
+- 2026-06-29 12:37 - [多家A股公司上市后首亏，部分年报披露前业绩“变脸”](http://www.share.minike.top/Article/details/40478.shtml)
+- 2026-06-29 12:43 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](http://www.share.kurohicncr.top/Article/details/012810.shtml)
+- 2026-06-29 12:43 - [多地楼市新政密集落地 市场积极信号加速释放](http://www.blog.minike.top/Article/details/151463251.shtml)
+- 2026-06-29 13:04 - [多国央行预警！Anthropic最新模型让金融系统如临大敌](http://www.blog.minike.top/Article/details/482702.shtml)
+- 2026-06-29 12:51 - [赴亚沙之约 展开放风采——写在第六届亚洲沙滩运动会开幕之际](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [寸草不生的百年毒矿渣，居然能提炼出高科技手机芯片？](http://www.blog.kurohicncr.top/Article/details/77452855633.shtml)
+- 2026-06-29 12:43 - [三亚亚沙会开幕在即 主媒体中心迎接媒体记者](http://www.blog.minike.top/Article/details/96681171.shtml)
+- 2026-06-29 12:37 - [华宝基金红利风向标 | 高股息板块再秀防御力，华宝红利家族全线飘红！](http://www.blog.minike.top/Article/details/2760312.shtml)
+- 2026-06-29 12:57 - [《技术经理人执业能力评价白皮书》在穗发布](http://www.share.minike.top/Article/details/19016170129.shtml)
+- 2026-06-29 13:00 - [自然资源部：已建成省级以上绿色矿山5500余家](http://www.blog.minike.top/Article/details/487535637.shtml)
+- 2026-06-29 13:02 - [宁波男篮队史首次挺进CBA季后赛 续写篮球热土故事](http://www.share.minike.top/Article/details/430101471.shtml)
+- 2026-06-29 12:57 - [DJI Osmo Mobile 8P上手：分体遥控 一机三用](http://www.blog.minike.top/Article/details/6429231.shtml)
+- 2026-06-29 12:40 - [特朗普政府官员抱怨其社交媒体帖子阻碍与伊朗和谈](http://www.blog.minike.top/Article/details/061303306.shtml)

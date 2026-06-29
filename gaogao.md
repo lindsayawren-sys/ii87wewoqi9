@@ -1,56 +1,56 @@
-# 广电网络（600831）投资者索赔再获得法院立案，向日葵（300111）索赔案再提交立案
+# 韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-2026年5月9日，上海久诚律师事务所股票索赔律师许峰代理的广电网络（维权）（600831）投资者索赔案再次获得西安市中级人民法院立案，此前已多次获得法院立案，同步还在推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律师专栏） 2024年10月9日，广电网络公告收到证监会下发的行政处罚决定书》，经查明，广电网络存在以下违法事实： 2022年，广电网络对不符合投资
+韩国央行新任行长申铉松周二承诺，在中东危机持续带来的不确定性加剧的情况下，将继续奉行审慎稳健的货币政策。 申铉松在就职演说中发表了上述讲话，正式开启他为期四年的任期，接替即将卸任的行长李昌镛。 “中东战争后，全球油价上涨同时加剧了通胀上行压力和经济增长下行压力，金融市场波动加剧以及金融失衡风险持续存在，”申铉松表示。 “鉴于通胀和经济增长路径的不确定性，货币政策应谨慎灵活地实施
 
 ## 正文
 
-2026年5月9日，上海久诚律师事务所股票索赔律师许峰代理的广电网络（维权）（600831）投资者索赔案再次获得西安市中级人民法院立案，此前已多次获得法院立案，同步还在推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+韩国央行新任行长申铉松周二承诺，在中东危机持续带来的不确定性加剧的情况下，将继续奉行审慎稳健的货币政策。
 
-（许峰律师专栏） 2024年10月9日，广电网络公告收到证监会下发的行政处罚决定书》，经查明，广电网络存在以下违法事实： 2022年，广电网络对不符合投资收益确认条件的相关项目的债务重组收益予以确认，共涉及白水县雪亮工程、合阳县立体防控体系治安视频监控图像服务安装服务工程，以及社区警务e采通信息平台软件著作权等3个项目。
+申铉松在就职演说中发表了上述讲话，正式开启他为期四年的任期，接替即将卸任的行长李昌镛。
 
-相关事项导致广电网络2022年年报合并财务报表虚增利润总额2352.16万元，占2022年年报披露的经审计利润总额1977.44万元的118.95%。
+“中东战争后，全球油价上涨同时加剧了通胀上行压力和经济增长下行压力，金融市场波动加剧以及金融失衡风险持续存在，”申铉松表示。
 
-广电网络2024年4月16日披露《关于前期会计差错更正的公告》，更正后广电网络2022年年报合并财务报表利润总额由盈转亏。
+“鉴于通胀和经济增长路径的不确定性，货币政策应谨慎灵活地实施，以确保物价和金融市场的稳定，”他补充道。
 
-许峰律师认为，综合以上违法事实，在2023年4月21日到2023年12月26日之间买入广电网络股票，并且在2023年12月26日后卖出或继续持有股票的投资者，目前还可发起索赔。
+申铉松还承诺，将通过重新评估现有政策工具来提高货币政策的有效性，以缓解政策变量之间复杂的权衡取舍，并积极利用市场价格指标来“加强预警能力”。
 
-（广电网络维权入口） 除了广电网络投资者索赔案再次获得法院立案，2026年5月7日，许峰律师代理的向日葵（维权）（300111）投资者索赔案再提交绍兴市中级人民法院立案。
+在本月初的最近一次利率会议上，韩国央行维持基准利率在2.5%不变。
 
-许峰律师代理的向日葵投资者索赔案此前已有获得绍兴市中级人民法院立案，目前正在等待法院的下一步安排，律师团队也还在继续接受其他投资者的索赔委托。
+鉴于自2月底爆发的伊朗冲突已升级为更广泛的地区危机，并震动全球市场和经济，韩国央行采取了谨慎的立场。
 
-2026年4月8日晚，向日葵公告收到浙江证监局出具的《行政处罚决定书》，经查明，当事人存在以下违法事实： 2025年9月22日，向日葵披露《发行股份及支付现金购买资产并募集配套资金暨关联交易预案》（以下简称《预案》），称公司拟通过发行股份及支付现金的方式购买漳州兮璞材料科技有限公司（以下简称兮璞材料）100%股权、浙江贝得药业有限公司40%股权，并募集配套资金，交易预计构成重大资产重组。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 12:32 - [瑞银继续唱多黄金：多重利多因素推动 金价年内仍有望刷新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:44 - [我国牵头制定发布14项天然气领域国际标准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:45 - [5月12日龙虎榜，机构青睐这10股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:37 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:57 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:33 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:45 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:56 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:38 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:42 - [全球首个面向南方国家的教师数字素养提升行动计划发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 13:02 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 13:04 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:50 - [日本一自卫队演习场发生爆炸 致3死1重伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:58 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:54 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:51 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:53 - [人民币兑美元中间价报6.8594，上调54点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 13:04 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 13:04 - [沃什如何推动美联储实现“政策范式转变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:50 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [谁在借网络平台给日本社会“投毒”？（环球走笔）](http://www.blog.kurohicncr.top/Article/details/89723.shtml)
-- 2026-06-29 12:53 - [电动化替代速度超预期，中国新能源汽车创新纪录](http://www.blog.kurohicncr.top/Article/details/6560653648.shtml)
-- 2026-06-29 12:55 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.blog.minike.top/Article/details/54634749.shtml)
-- 2026-06-29 12:49 - [日本北海道发生4.8级地震](http://www.blog.minike.top/Article/details/7429384.shtml)
-- 2026-06-29 12:59 - [沪粤文脉双向奔赴 展示海丝千年风华](http://www.share.minike.top/Article/details/9104323669.shtml)
-- 2026-06-29 12:48 - [“加息噩梦”近了？美联储“昔日鸽派”：通胀走向错误，与关税、石油无关！](http://www.share.kurohicncr.top/Article/details/212248786.shtml)
-- 2026-06-29 12:36 - [腾讯最新声明：不会开发提供“微信访客功能”](http://www.blog.minike.top/Article/details/6410266970.shtml)
-- 2026-06-29 12:31 - [抓住重点 务求实效（人民论坛）](http://www.share.kurohicncr.top/Article/details/09646.shtml)
-- 2026-06-29 12:54 - [美丽中国行｜我的家园，越来越美——美丽中国建设成效观察](http://www.share.kurohicncr.top/Article/details/7868829.shtml)
-- 2026-06-29 12:39 - [eBay拒绝GameStop560亿美元收购要约，称其既缺乏可信度、也毫无吸引力](http://www.blog.minike.top/Article/details/07921.shtml)
-- 2026-06-29 12:52 - [朝“问”健康 慢性病老人泡脚 水温控制在40℃左右](http://www.share.minike.top/Article/details/98591107.shtml)
-- 2026-06-29 12:55 - [研奥股份积极拓展后市场业务，稳步开拓海外市场](http://www.share.kurohicncr.top/Article/details/59717644993.shtml)
-- 2026-06-29 12:51 - [我国成功发射千帆极轨09组卫星](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [在伊朗冲突存在不确定性之际 日经指数可能下跌](http://www.blog.minike.top/Article/details/542825336.shtml)
-- 2026-06-29 12:44 - [焦煤短期承压的核心逻辑是？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.share.kurohicncr.top/Article/details/72958.shtml)
+- 2026-06-29 12:59 - [重回4100点！A股三大指数午后集体大涨](http://www.share.kurohicncr.top/Article/details/54043.shtml)
+- 2026-06-29 12:36 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.blog.kurohicncr.top/Article/details/0899351.shtml)
+- 2026-06-29 13:02 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](http://www.blog.kurohicncr.top/Article/details/4728107.shtml)
+- 2026-06-29 12:41 - [美军称对一艘“涉伊朗”油轮登船检查](http://www.blog.minike.top/Article/details/087761.shtml)
+- 2026-06-29 12:59 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](http://www.blog.kurohicncr.top/Article/details/1407914396.shtml)
+- 2026-06-29 12:39 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [别瞧不起格林基金](http://www.blog.kurohicncr.top/Article/details/6047124.shtml)
+- 2026-06-29 12:39 - [UPS与联邦快递已开始申请部分关税退款](http://www.share.minike.top/Article/details/7747348935.shtml)
+- 2026-06-29 12:58 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](http://www.blog.minike.top/Article/details/17827329577.shtml)
+- 2026-06-29 12:47 - [中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示](http://www.share.minike.top/Article/details/317297437.shtml)
+- 2026-06-29 12:43 - [苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？](http://www.share.kurohicncr.top/Article/details/754871378024.shtml)
+- 2026-06-29 12:53 - [全国首个全民阅读活动周！建行花样守护“城市书香”](http://www.share.kurohicncr.top/Article/details/1910139.shtml)
+- 2026-06-29 12:55 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼](http://www.share.minike.top/Article/details/98697.shtml)
+- 2026-06-29 12:43 - [财政部今日在港发行155亿元人民币国债](http://www.blog.minike.top/Article/details/231972.shtml)

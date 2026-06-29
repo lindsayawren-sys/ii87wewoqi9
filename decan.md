@@ -1,60 +1,46 @@
-# 上海启动滚动式灭蚊 严防蚊媒传染病
+# 特朗普称最终将达成重大协议
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-中新网上海5月13日电 (记者 陈静)上海市爱卫办方面13日披露，上海夏秋季爱国卫生运动正式全面启动，从今年5月中旬起至11月结束。 上海将每隔10天-14天滚动开展一轮全市范围蚊虫集中控制行动，每轮行动不少于3天，通过“环境整治常态化、防制能力进阶版、主体责任再加强、市民热线可监督”四大举措，有效降低因登革热、基孔肯雅热等蚊媒传染病输入导致上海传播流行风险。全上海第一轮集中控
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月21日电美国总统特朗普21日称，美伊最终将达成重大协议，“我们处于强有力的谈判地位，与他们的交涉非常成功”，“封锁行动是成功的”，“没有那么多时间了”。（完）责任编辑：宋雅芳
 
 ## 正文
 
-中新网上海5月13日电 (记者 陈静)上海市爱卫办方面13日披露，上海夏秋季爱国卫生运动正式全面启动，从今年5月中旬起至11月结束。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-上海将每隔10天-14天滚动开展一轮全市范围蚊虫集中控制行动，每轮行动不少于3天，通过“环境整治常态化、防制能力进阶版、主体责任再加强、市民热线可监督”四大举措，有效降低因登革热、基孔肯雅热等蚊媒传染病输入导致上海传播流行风险。
+新华社华盛顿4月21日电美国总统特朗普21日称，美伊最终将达成重大协议，“我们处于强有力的谈判地位，与他们的交涉非常成功”，“封锁行动是成功的”，“没有那么多时间了”。
 
-全上海第一轮集中控制时间定于今年5月18日开始。
-
-近年来，全球范围内蚊媒传染病传播和流行强度显著上升。
-
-去年基孔肯雅热全球多点爆发，今年登革热、基孔肯雅热境外输入引发本地传播扩散风险较往年上升。
-
-据气象部门报告，今年上海入春提前，4月以来平均气温较常年同期偏高，预计5月平均气温高于常年、降水量接近常年至偏多，为蚊虫特别是白纹伊蚊繁殖创造有利条件。
-
-在当日举行的沟通会上，记者了解到，上海将结合《上海市媒介白纹伊蚊预防控制指南(2026年版)》推广应用，常态化开展环境整治与蚊虫集中控制。
-
-同时，将进一步增强社会防制能力与防灭蚊意识，组织动员全社会综合采取环境治理、物理防制、药物消杀、健康科普等多种措施开展蚊虫防制。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 12:40 - [奖励名额翻倍！货拉拉2026“平凡之光”魅力司机评选开启报名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:40 - [廖岷与英国财政部国际金融事务总司长怀特举行视频通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:46 - [美国对伊连打三张牌 油价黄金交易逻辑拆解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:57 - [英国政府拟立法改革银行“隔离”制度,以提振企业融资与经济增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:39 - [“广西三月三”系列活动走进香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:44 - [M4Markets:白银突破八十美元关口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:55 - [奥特曼出庭作证：马斯克想要“完全掌控”OpenAI并将其传给子女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:52 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:59 - [新疆导游“天山那头有人民”被贴标签 台湾教师：扩交流是解方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:49 - [广电网络（600831）投资者索赔再获得法院立案，向日葵（300111）索赔案再提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:40 - [道达尔能源、康菲石油与卡塔尔能源签署协议 助力叙利亚重返国际能源版图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:54 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:34 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:40 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:50 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:57 - [国务院印发《关于推进服务业扩能提质的意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:51 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:42 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:56 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 13:02 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:39 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:47 - [挪威三月油气产量超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:46 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 13:02 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:45 - [塔吉克斯坦总统寄语北大留学生：珍惜在华学习机会](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:48 - [外交部：无论赖清德说什么做什么，都改变不了台湾是中国领土一部分的事实](http://www.blog.minike.top/Article/details/391991.shtml)
-- 2026-06-29 12:34 - [一则传闻！盘面掉头下跌！多空齐发！钢价涨势有变？](http://www.share.minike.top/Article/details/6272900304.shtml)
-- 2026-06-29 12:57 - [多元融合焕新消费 “电影+”让大银幕有大引力](http://www.blog.kurohicncr.top/Article/details/49645949.shtml)
-- 2026-06-29 12:52 - [新疆吐鲁番：青蛙巷文脉绵延 研学赋能葡萄沟文旅新生](http://www.share.minike.top/Article/details/8125349.shtml)
-- 2026-06-29 12:47 - [人工智能概念股涨势消退，中东停火协议“命悬一线”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [华尔街通胀焦虑加剧 机构关注美联储下一步如何抉择](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [敲诈900多家网店 买家恶意下单2700多次被判刑](http://www.share.kurohicncr.top/Article/details/69759.shtml)
-- 2026-06-29 12:35 - [印度拟调整大宗商品衍生品交易规则，以提振市场流动性](http://www.blog.minike.top/Article/details/40021668265.shtml)
-- 2026-06-29 12:41 - [助力乡村振兴，平安农业无人机公益计划首站落地伊犁](http://www.share.kurohicncr.top/Article/details/4067761.shtml)
-- 2026-06-29 12:53 - [泡泡玛特跨界卖茶饮？知情人士：POP BAKERY直营门店仍以甜品为主](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [新疆哈密：光热发电项目年发2亿度清洁电](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [515投资者保护|富国基金口播轻投教“基金小课堂”：全网播放6000万，助力碎片化投教](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [融汇东西方经典爱情传说 实验轻歌剧《阴阳喜帖》将首演](http://www.share.kurohicncr.top/Article/details/939784.shtml)
+- 2026-06-29 12:55 - [海外旅行商甘肃掘金丝路游 便利支付迎全球客](http://www.blog.kurohicncr.top/Article/details/4175978.shtml)
+- 2026-06-29 12:51 - [机械车位闲置，如何盘活改造？](http://www.blog.kurohicncr.top/Article/details/51986.shtml)
+- 2026-06-29 13:00 - [加拿大总理批美贸易政策：加美关系“优势”变“劣势”](http://www.blog.kurohicncr.top/Article/details/120822992.shtml)
+- 2026-06-29 12:55 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.share.kurohicncr.top/Article/details/0097657.shtml)
+- 2026-06-29 12:44 - [联合健康集团业绩超预期并上调展望](http://www.blog.kurohicncr.top/Article/details/887525.shtml)
+- 2026-06-29 12:53 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](http://www.blog.kurohicncr.top/Article/details/998731.shtml)
+- 2026-06-29 12:49 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](http://www.blog.kurohicncr.top/Article/details/23688281551.shtml)
+- 2026-06-29 12:42 - [学习新语｜山河永念 英雄回家](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](http://www.share.kurohicncr.top/Article/details/06979.shtml)
+- 2026-06-29 12:53 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](http://www.share.minike.top/Article/details/980632487.shtml)
+- 2026-06-29 12:51 - [国内油价，今年首次下调](http://www.blog.minike.top/Article/details/422265.shtml)
+- 2026-06-29 12:54 - [长江有色：22日铜价小涨 高价货源成交寥寥](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](http://www.blog.kurohicncr.top/Article/details/453153426554.shtml)
+- 2026-06-29 13:03 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](http://www.share.minike.top/Article/details/803808.shtml)

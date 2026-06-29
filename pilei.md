@@ -1,55 +1,53 @@
-# 欧佩克下调2026年全球石油需求增长预期
+# 旷日持久的冲突或将对铜价构成压力
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-5月13日，石油输出国组织（欧佩克）发布最新月度原油市场报告，下调了2026年全球石油需求增长预期。报告指出，由于中东地区局势持续紧张导致关键航道受阻，全球能源市场不确定性显著增加。 根据最新月报，欧佩克预计今年第二季度全球石油平均需求量为1.0457亿桶/日，较上月预测值减少50万桶/日，这也是该组织连续第二个月下调该季度需求数据。报告强调，地缘冲突已导致全球原油运输咽喉霍尔
+全球多家大型金属交易商警告，若中东冲突长期化并引发经济衰退，铜价可能出现下跌。 以看涨铜价著称的Mercuria公司金属业务主管表示：“市场目前尚未计入长期危机带来的担忧。” 他补充道，若此次危机能快速解决，将提振铜价。铜是制造业和电线生产的关键原料，也被视为全球经济的晴雨表。 伦敦金属交易所基准铜价现约每吨13292美元，该品种曾在1月29日创下每吨13618美元的历史收盘高
 
 ## 正文
 
-5月13日，石油输出国组织（欧佩克）发布最新月度原油市场报告，下调了2026年全球石油需求增长预期。
+全球多家大型金属交易商警告，若中东冲突长期化并引发经济衰退，铜价可能出现下跌。
 
-报告指出，由于中东地区局势持续紧张导致关键航道受阻，全球能源市场不确定性显著增加。
+以看涨铜价著称的Mercuria公司金属业务主管表示：“市场目前尚未计入长期危机带来的担忧。
 
-根据最新月报，欧佩克预计今年第二季度全球石油平均需求量为1.0457亿桶/日，较上月预测值减少50万桶/日，这也是该组织连续第二个月下调该季度需求数据。
+” 他补充道，若此次危机能快速解决，将提振铜价。
 
-报告强调，地缘冲突已导致全球原油运输咽喉霍尔木兹海峡实际上处于关闭状态，这不仅阻断了中东地区每日数百万桶的原油产出，更引发全球燃料价格大幅飙升，严重冲击各国消费者及企业，迫使多国政府采取紧急措施保障能源安全。
+铜是制造业和电线生产的关键原料，也被视为全球经济的晴雨表。
 
-在供应端，由欧佩克成员国与俄罗斯等盟友组成的“欧佩克+”此前曾达成自4月起逐步恢复增产的协议，但受霍尔木兹海峡关闭影响，相关增产计划目前已无法履行。
+伦敦金属交易所基准铜价现约每吨13292美元，该品种曾在1月29日创下每吨13618美元的历史收盘高位。
 
-责任编辑：龙运翔
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 12:55 - [龙泉股份：截至2026年5月8日公司股东人数为23412户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:47 - [联合航空将恢复飞往委内瑞拉航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:36 - [尼日利亚军方称打死至少70名疑似恐怖分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:31 - [欧洲央行管委Nagel：如果伊朗战争威胁到价格稳定 则必须采取行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:33 - [突破800万人次 北京口岸2026年度出入境人员总量再攀新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:53 - [App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:55 - [新疆新鑫矿业遭周传有减持81万股 每股均价2.70港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:30 - [哈萨克斯坦前4个月GDP同比增长3.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:39 - [国元国际：首钢资源给予“买入”评级 目标价3.18港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:30 - [受汽油价格推动，美国4月通胀飙升至 3.8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:53 - [特斯拉前高管创办热泵初创公司 已有数名特斯拉前员工加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:40 - [受中东局势影响 德钢铁巨头下调销售预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:38 - [ATFX:美国CPI数据发布 美元何去何从](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:48 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:50 - [全线爆发！三大龙头，历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:57 - [乌克兰总统泽连斯基称石油输送可恢复 为欧盟贷款铺平道路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:46 - [人民海军成立77周年系列报道之：沧海·初心如磐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 13:04 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 13:00 - [欧洲央行Guindos：在利率问题上需要谨慎并保持冷静](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:38 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:45 - [长安期货侯荃宇：纯碱期价探底回升 基本面弱势未改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:41 - [微视频丨山河迎忠魂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:50 - [江苏举办养老企业与金融机构对接会 推动金融资源与养老产业精准对接](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:36 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:38 - [“二号位”或套现4737万，百亿京北方频遭高管减持](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [德邦证券思考：当“护主心切”演变为“系统性自伤”](http://www.blog.minike.top/Article/details/39298123698.shtml)
-- 2026-06-29 12:31 - [英国首相斯塔默周三将与一位主要对手会面](http://www.blog.minike.top/Article/details/632257207105.shtml)
-- 2026-06-29 12:56 - [光大期货0513热点追踪：橡胶开割季价格不跌反涨，还能看高一线吗？](http://www.blog.minike.top/Article/details/176630.shtml)
-- 2026-06-29 12:43 - [因发放流动资金贷款贷前调查不尽职、贷后管理不到位 一人被禁止从事银行业工作七年](http://www.blog.kurohicncr.top/Article/details/114398.shtml)
-- 2026-06-29 12:48 - [Waymo因积水路段行驶风险召回近3800辆机器人出租车](http://www.share.minike.top/Article/details/782523322.shtml)
-- 2026-06-29 12:54 - [滇藏公路通车50周年：缅怀筑路先烈](http://www.share.minike.top/Article/details/8853791588.shtml)
-- 2026-06-29 12:54 - [四川宝兴蜂桶寨今年首只人工繁育绿尾虹雉孵化出壳](http://www.blog.kurohicncr.top/Article/details/49947190.shtml)
-- 2026-06-29 12:46 - [仅部分支行业务量小幅上升，广州楼市再现“日光盘”未惠及银行，分化格局依旧明显](http://www.share.minike.top/Article/details/94352045.shtml)
-- 2026-06-29 12:47 - [黑田东彦：日元汇率跌破160可能性较低，日本经济基本面稳健](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [截至5月7日当周美国大豆出口检验量为655294吨](http://www.share.kurohicncr.top/Article/details/645631.shtml)
-- 2026-06-29 12:57 - [国产算力爆发，新手怎么布局？一次讲清芯片产业链四只指数](http://www.share.kurohicncr.top/Article/details/4806870378.shtml)
-- 2026-06-29 12:45 - [海外台胞在云南看见中医药的“古方新生”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [云南巧家：万亩野生高山杜鹃迎来最佳观赏期](http://www.share.kurohicncr.top/Article/details/019901.shtml)
-- 2026-06-29 12:36 - [日民众集会反对“国家情报会议”设置法案 在野党现场声援](http://www.share.minike.top/Article/details/745606395.shtml)
+- 2026-06-29 12:49 - [检察机关依法分别对谢红心、王成兵、崔孝栓、黎敦满提起公诉](http://www.share.minike.top/Article/details/1920642018.shtml)
+- 2026-06-29 12:45 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [这种清凉主食热量低，减肥可吃！但这几点要注意](http://www.blog.minike.top/Article/details/4611944619.shtml)
+- 2026-06-29 12:47 - [拍照识字、自动翻译 探索打开古籍的N种方式](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](http://www.blog.minike.top/Article/details/8679133555.shtml)
+- 2026-06-29 12:50 - [钢铁动脉连山海 同心筑梦向未来——中老铁路助力区域发展观察](http://www.blog.minike.top/Article/details/039517129.shtml)
+- 2026-06-29 12:56 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](http://www.blog.minike.top/Article/details/6480520906.shtml)
+- 2026-06-29 12:56 - [广州知识产权国际化布局加速 助力粤港澳三地协同创新](http://www.share.kurohicncr.top/Article/details/08398739.shtml)
+- 2026-06-29 13:05 - [四川2025年高价值发明专利拥有量达7.79万件](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [RYOEX:黄金中长期仍具坚实支撑](http://www.share.minike.top/Article/details/981256123334.shtml)
+- 2026-06-29 12:37 - [民生调查局丨别被牙膏的“3D炫白”“医研”骗了，那只是商标](http://www.blog.kurohicncr.top/Article/details/783831234.shtml)
+- 2026-06-29 12:41 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](http://www.share.kurohicncr.top/Article/details/23333.shtml)
+- 2026-06-29 12:44 - [A股开盘：超3600只个股飘绿，三大指数集体低开](http://www.blog.kurohicncr.top/Article/details/546151498775.shtml)
+- 2026-06-29 12:53 - [金岩高岭新材将于5月22日派发末期股息每10股2.27元](http://www.share.kurohicncr.top/Article/details/90370.shtml)
+- 2026-06-29 12:40 - [美退伍军人抗议 要求结束对伊朗军事行动](https://github.com/lisacumin64-arch)

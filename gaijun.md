@@ -1,57 +1,55 @@
-# 奥特曼出庭作证：马斯克想要“完全掌控”OpenAI并将其传给子女
+# 高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-OpenAI首席执行官萨姆·奥特曼周二出庭作证称，埃隆·马斯克想要“完全掌控”这家 ChatGPT 开发商，甚至说过在他去世后将这家人工智能初创公司传给他的子女。 在与马斯克这场备受瞩目的法律诉讼中，奥特曼向陪审团回忆起近十年前一个“令人毛骨悚然的时刻”。当时马斯克还在协助管理OpenAI，并要求“完全控制”。 奥特曼作证说，在OpenAI的联合创始人讨论马斯克要求获得控股权时
+发布时间：2026年04月22日 15:55 来源：中国新闻网 4月21日和22日，日本首相高市早苗连续向供奉二战甲级战犯的靖国神社供奉“真榊”、“玉串料”等祭祀物。其过往频繁“拜鬼”、否认历史、发表涉台错误言论的行径已引发巨大争议，此次又接连做出错误举动。另有百余日本议员，集体参拜靖国神社。这座臭名昭著的军国主义“招魂所”，究竟是怎样罪大恶极的存在？80秒视频，揭穿靖国神社真
 
 ## 正文
 
-OpenAI首席执行官萨姆·奥特曼周二出庭作证称，埃隆·马斯克想要“完全掌控”这家 ChatGPT 开发商，甚至说过在他去世后将这家人工智能初创公司传给他的子女。
+发布时间：2026年04月22日 15:55 来源：中国新闻网 4月21日和22日，日本首相高市早苗连续向供奉二战甲级战犯的靖国神社供奉“真榊”、“玉串料”等祭祀物。
 
-在与马斯克这场备受瞩目的法律诉讼中，奥特曼向陪审团回忆起近十年前一个“令人毛骨悚然的时刻”。
+其过往频繁“拜鬼”、否认历史、发表涉台错误言论的行径已引发巨大争议，此次又接连做出错误举动。
 
-当时马斯克还在协助管理OpenAI，并要求“完全控制”。
+另有百余日本议员，集体参拜靖国神社。
 
-奥特曼作证说，在OpenAI的联合创始人讨论马斯克要求获得控股权时，有人问马斯克：“如果你拥有控制权，你死后怎么办？
+这座臭名昭著的军国主义“招魂所”，究竟是怎样罪大恶极的存在？
 
-” 据奥特曼说，马斯克回答说：“我还没仔细想过这个问题，但是，你知道，也许应该这样，控制权应该传给我的孩子们。
+80秒视频，揭穿靖国神社真面目。
 
-” 奥特曼告诉由九人组成的陪审团，他对那个计划“感到不安”。
-
-这位首席执行官对马斯克关于继承权的思考的描述，正值马斯克诉奥特曼一案在加州奥克兰联邦法院进入第三周之际。
-
-马斯克已将OpenAI和微软告上法庭，希望证明他们的合作背叛了这家人工智能公司非营利的初衷。
+责任编辑：【孟湘君】
 
 ## 相关推荐
 
-- 2026-06-29 12:42 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:33 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:41 - [劳动者杯中国职工篮球系列赛鸣哨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:35 - [瑞银继续唱多黄金：多重利多因素推动 金价年内仍有望刷新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:38 - [我国牵头制定发布14项天然气领域国际标准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:56 - [5月12日龙虎榜，机构青睐这10股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:35 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:37 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:44 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:55 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:37 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 13:04 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:41 - [理财规模季末回落超万亿，全年增速或放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:58 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:51 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:49 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:47 - [日本一自卫队演习场发生爆炸 致3死1重伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:55 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:55 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:45 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 13:02 - [人民币兑美元中间价报6.8594，上调54点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:44 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 13:06 - [沃什如何推动美联储实现“政策范式转变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:38 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:31 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](http://www.blog.kurohicncr.top/Article/details/997781.shtml)
-- 2026-06-29 12:58 - [融汇东西方经典爱情传说 实验轻歌剧《阴阳喜帖》将首演](http://www.blog.kurohicncr.top/Article/details/212305.shtml)
-- 2026-06-29 12:32 - [赣锋锂业(002460.SZ)：注销2022年股票期权激励计划剩余55.125万份期权，因第四个行权期业绩未达标](http://www.share.minike.top/Article/details/69825775170.shtml)
-- 2026-06-29 12:50 - [谁在借网络平台给日本社会“投毒”？（环球走笔）](http://www.share.minike.top/Article/details/544262450115.shtml)
-- 2026-06-29 12:49 - [电动化替代速度超预期，中国新能源汽车创新纪录](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.share.minike.top/Article/details/416959089034.shtml)
-- 2026-06-29 12:41 - [日本北海道发生4.8级地震](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [沪粤文脉双向奔赴 展示海丝千年风华](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [“加息噩梦”近了？美联储“昔日鸽派”：通胀走向错误，与关税、石油无关！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [腾讯最新声明：不会开发提供“微信访客功能”](http://www.blog.minike.top/Article/details/78813607.shtml)
-- 2026-06-29 12:35 - [抓住重点 务求实效（人民论坛）](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [美丽中国行｜我的家园，越来越美——美丽中国建设成效观察](http://www.blog.kurohicncr.top/Article/details/288127798.shtml)
-- 2026-06-29 12:37 - [eBay拒绝GameStop560亿美元收购要约，称其既缺乏可信度、也毫无吸引力](http://www.blog.minike.top/Article/details/5669524.shtml)
-- 2026-06-29 12:53 - [朝“问”健康 慢性病老人泡脚 水温控制在40℃左右](http://www.share.kurohicncr.top/Article/details/7080843.shtml)
-- 2026-06-29 12:39 - [研奥股份积极拓展后市场业务，稳步开拓海外市场](http://www.share.kurohicncr.top/Article/details/813558.shtml)
+- 2026-06-29 13:02 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](http://www.blog.kurohicncr.top/Article/details/945294.shtml)
+- 2026-06-29 12:59 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](http://www.share.kurohicncr.top/Article/details/519046642736.shtml)
+- 2026-06-29 12:39 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](http://www.blog.minike.top/Article/details/2549527.shtml)
+- 2026-06-29 12:45 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.share.minike.top/Article/details/723849.shtml)
+- 2026-06-29 13:01 - [重回4100点！A股三大指数午后集体大涨](http://www.share.minike.top/Article/details/982507781.shtml)
+- 2026-06-29 12:40 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.share.kurohicncr.top/Article/details/3417667.shtml)
+- 2026-06-29 12:51 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](http://www.share.minike.top/Article/details/48228777348.shtml)
+- 2026-06-29 12:45 - [美军称对一艘“涉伊朗”油轮登船检查](http://www.share.kurohicncr.top/Article/details/3893026589.shtml)
+- 2026-06-29 13:06 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](http://www.share.minike.top/Article/details/761136601.shtml)
+- 2026-06-29 12:52 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.blog.minike.top/Article/details/27636126757.shtml)
+- 2026-06-29 12:48 - [别瞧不起格林基金](http://www.blog.kurohicncr.top/Article/details/1005790.shtml)
+- 2026-06-29 12:40 - [UPS与联邦快递已开始申请部分关税退款](http://www.blog.minike.top/Article/details/701614132.shtml)
+- 2026-06-29 12:59 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](http://www.blog.minike.top/Article/details/2260780.shtml)
+- 2026-06-29 13:04 - [中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？](https://github.com/lisacumin64-arch)

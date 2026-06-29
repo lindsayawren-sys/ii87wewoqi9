@@ -1,57 +1,60 @@
-# 中信建投期货：5月13日黑色系早报
+# 特朗普过去24小时都忙了什么？（2026-04-21）
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-钢材早报：煤焦期价大跌，期钢高位回落 市场信息： 1、 美国总统特朗普将于5月13日至15日对中国进行国事访问，多名商界领袖随行。 2、 美国4月CPI同比上涨3.8%，超出市场预期的3.7%，创2023年5月以来新高；核心CPI同比上涨2.8%，超出预期的2.7%，并创2025年9月以来新高。 3、 鞍钢、本钢、凌钢出台2026年6月份产品价格调整，在5月价格基础上，热轧、酸
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十数据 1． 特朗普将于北京时间21日晚8：30参加CNBC的一档财经节目。 2． “极不可能”延长与伊朗的停火协议——美国总统特朗普表示，他“极不可能”延长与伊朗的停火协议，停火协议将于华盛顿时间周三晚到期。万斯将于周一晚些时候前往巴基斯坦，在协议签署之前，不会开放霍尔木兹海峡，与伊朗会谈对各方都
 
 ## 正文
 
-钢材早报：煤焦期价大跌，期钢高位回落 市场信息： 1、 美国总统特朗普将于5月13日至15日对中国进行国事访问，多名商界领袖随行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-2、 美国4月CPI同比上涨3.8%，超出市场预期的3.7%，创2023年5月以来新高；核心CPI同比上涨2.8%，超出预期的2.7%，并创2025年9月以来新高。
+来源：金十数据 1． 特朗普将于北京时间21日晚8：30参加CNBC的一档财经节目。
 
-3、 鞍钢、本钢、凌钢出台2026年6月份产品价格调整，在5月价格基础上，热轧、酸洗、冷轧、无取向硅钢等产品上调100元/吨。
+2． “极不可能”延长与伊朗的停火协议——美国总统特朗普表示，他“极不可能”延长与伊朗的停火协议，停火协议将于华盛顿时间周三晚到期。
 
-4、 5月4日-10日，10个重点城市新建商品房成交（签约）面积总计132.1万平方米，环比下降16.2%；二手房成交（签约）面积总计217.85万平方米，环比增长10.9%。
+万斯将于周一晚些时候前往巴基斯坦，在协议签署之前，不会开放霍尔木兹海峡，与伊朗会谈对各方都有利。
 
-5、 5月12日，全国主港铁矿石成交58.01万吨，环比增9.9%；237家主流贸易商建筑钢材成交9.19万吨，环比减23.1%。
+特朗普称自己很想亲自参加此次会谈，但认为没有必要这样做。
 
-6、 上周，247家钢厂高炉开工率83.26%，环比上周减少0.10个百分点；钢厂盈利率60.17%，环比上周增加9.09个百分点。
+3． 停火协议若到期，炸弹就会爆炸——据PBS报道，美国总统特朗普周一表示，如果与伊朗的停火协议在周二到期，那么就会有大量炸弹爆炸。
 
-7、 上周，五大钢材品种供应839.83万吨，周环比降15万吨，降幅为1.75%，同比降34.34万吨；五大钢材总库存1646.58万吨，周环比降1.33万吨，降幅为0.08%，周同比增加170.49万吨；五大钢材品种周度表观消费量为841.16万吨，环比降7.5%，周同比降4.02万吨。
+被问及伊朗是否仍会参加将在伊斯兰堡举行的会谈时，特朗普表示，“我不知道。
 
-其中建材消费环比降16.1%，板材消费环比降2.4%。
+我的意思是，他们理应出现。
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [华尔街通胀焦虑加剧 机构关注美联储下一步如何抉择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:38 - [敲诈900多家网店 买家恶意下单2700多次被判刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:38 - [印度拟调整大宗商品衍生品交易规则，以提振市场流动性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:58 - [助力乡村振兴，平安农业无人机公益计划首站落地伊犁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:40 - [泡泡玛特跨界卖茶饮？知情人士：POP BAKERY直营门店仍以甜品为主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:34 - [新疆哈密：光热发电项目年发2亿度清洁电](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:38 - [515投资者保护|富国基金口播轻投教“基金小课堂”：全网播放6000万，助力碎片化投教](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:42 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:34 - [融汇东西方经典爱情传说 实验轻歌剧《阴阳喜帖》将首演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:43 - [赣锋锂业(002460.SZ)：注销2022年股票期权激励计划剩余55.125万份期权，因第四个行权期业绩未达标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:39 - [谁在借网络平台给日本社会“投毒”？（环球走笔）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:50 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:43 - [学习新语｜山河永念 英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:56 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:53 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 13:02 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 13:01 - [国内油价，今年首次下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 13:01 - [长江有色：22日铜价小涨 高价货源成交寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 13:01 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:59 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 13:05 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:51 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:54 - [重回4100点！A股三大指数午后集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:39 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:54 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:31 - [大理大学在洱海蓝藻水华防控研究中取得重要进展](http://www.blog.minike.top/Article/details/2325160.shtml)
-- 2026-06-29 12:32 - [太平洋岛国瑙鲁拟更改国名 下一步将举行全民公投](http://www.blog.kurohicncr.top/Article/details/0673980.shtml)
-- 2026-06-29 12:31 - [300965，重大资产重组，明日复牌](http://www.blog.kurohicncr.top/Article/details/0789798.shtml)
-- 2026-06-29 12:49 - [纽约联储研究：美国信用卡债务回落至1.25万亿美元，但仍呈现K型分化格局](http://www.blog.kurohicncr.top/Article/details/953724954.shtml)
-- 2026-06-29 12:30 - [“海南鲜品”加速海南农产品向高端走、线上走、海外走](http://www.share.kurohicncr.top/Article/details/866569350399.shtml)
-- 2026-06-29 12:59 - [美国总统特朗普抵达北京](http://www.share.kurohicncr.top/Article/details/393826447.shtml)
-- 2026-06-29 12:58 - [欧佩克下调2026年全球石油需求增长预期](http://www.share.minike.top/Article/details/68681322.shtml)
-- 2026-06-29 12:43 - [力量发展午前涨近4% 机构指公司南非煤矿盈利较为可靠](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [金银冲高回落！专家：下半年金银仍上行，白银弹性更大](http://www.blog.kurohicncr.top/Article/details/471695987.shtml)
-- 2026-06-29 12:45 - [ST龙大实控人戴学斌被刑拘，今日开盘跌停](http://www.blog.kurohicncr.top/Article/details/6259723.shtml)
-- 2026-06-29 12:47 - [油价上涨拖累全球股市](http://www.blog.minike.top/Article/details/423894.shtml)
-- 2026-06-29 12:33 - [五月生猪行情横向震荡，中期修复窗口逐步临近](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [四川优化升级无人机“扫码飞” 适飞空域预计超全省面积八成](http://www.blog.minike.top/Article/details/458226110.shtml)
-- 2026-06-29 12:55 - [龙泉股份：截至2026年5月8日公司股东人数为23412户](http://www.blog.kurohicncr.top/Article/details/7545332.shtml)
-- 2026-06-29 12:42 - [联合航空将恢复飞往委内瑞拉航线](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [中天期货:螺纹区间反弹 焦煤继续反弹](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [金针菇概念股，净利润大增超7000%](http://www.share.kurohicncr.top/Article/details/282230128190.shtml)
+- 2026-06-29 12:52 - [方邦股份4月21日龙虎榜数据](http://www.share.kurohicncr.top/Article/details/752011629035.shtml)
+- 2026-06-29 12:40 - [接迎第十三批在韩中国人民志愿军烈士遗骸回国的空军运-20B降落在沈阳桃仙国际机场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](http://www.share.minike.top/Article/details/95522854734.shtml)
+- 2026-06-29 13:01 - [金宏气体：受国际局势和市场供需关系影响，氦气产品价格存在一定波动](http://www.share.kurohicncr.top/Article/details/059891696767.shtml)
+- 2026-06-29 12:46 - [旷日持久的冲突或将对铜价构成压力](http://www.blog.minike.top/Article/details/0724784.shtml)
+- 2026-06-29 12:38 - [“易中天”市值力压贵州茅台！创业板人工智能近1年飙涨202%持续跑赢！高“光”159363放量再创新高！](http://www.share.minike.top/Article/details/06815641.shtml)
+- 2026-06-29 13:03 - [AI光模块市场年增57%！260亿美元机遇爆发！含光量超45%的创业板人工智能ETF华宝159363上探逾2%冲击前高！](http://www.share.minike.top/Article/details/77072.shtml)
+- 2026-06-29 12:54 - [国泰海通：宏观与供需共振 金属板块呈现结构性机会（附股）](http://www.share.minike.top/Article/details/49125312.shtml)
+- 2026-06-29 12:53 - [强降雨致漓江排筏全线封航 桂林海事部门筑牢水上安全防线](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [在洪安边城寻找“翠翠”](http://www.share.kurohicncr.top/Article/details/34811690146.shtml)
+- 2026-06-29 12:39 - [滴滴成为香港引进办重点企业，两地乘客可顺畅使用同一个App](http://www.blog.kurohicncr.top/Article/details/91637996890.shtml)
+- 2026-06-29 12:46 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](http://www.share.kurohicncr.top/Article/details/71551434.shtml)
+- 2026-06-29 13:00 - [全线爆发！三大龙头，历史新高](http://www.share.minike.top/Article/details/160881724482.shtml)

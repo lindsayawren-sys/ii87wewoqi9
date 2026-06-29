@@ -1,56 +1,51 @@
-# 欧洲央行管委Nagel：如果伊朗战争威胁到价格稳定 则必须采取行动
+# 人民海军成立77周年系列报道之：沧海·初心如磐
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-欧洲央行管理委员会成员Joachim Nagel称，在下个月决定是否加息之前，欧洲央行将继续分析经济形势；但如果伊朗战争危及物价稳定，决策者必须采取行动。 德国央行行长Nagel周二在苏黎世表示，欧洲央行在4月的上次会议上讨论了提高借贷成本，现在需要观察中东战乱对通货膨胀和经济增长的影响有多大、多持久。 “我们将在6月再次聚首，届时我们将根据新的数据做出决定。”他在一个小组讨论
+发布时间：2026年04月22日 13:25 来源：中国新闻网 1949年4月23日，江苏泰州白马庙，在渡江战役的隆隆炮声中，人民海军宣告成立。从长江之畔到万里深蓝，从初创起步到五大兵种齐全，从木船小舰到铁甲巨舰，77年风雨兼程，人民海军从近岸防御到远海护卫，从平台作战到体系制胜，一路劈波斩浪、一路向海图强，书写了一部从无到有、从小到大、从弱到强的史诗。今天，让我们穿越历史烟云
 
 ## 正文
 
-欧洲央行管理委员会成员Joachim Nagel称，在下个月决定是否加息之前，欧洲央行将继续分析经济形势；但如果伊朗战争危及物价稳定，决策者必须采取行动。
+发布时间：2026年04月22日 13:25 来源：中国新闻网 1949年4月23日，江苏泰州白马庙，在渡江战役的隆隆炮声中，人民海军宣告成立。
 
-德国央行行长Nagel周二在苏黎世表示，欧洲央行在4月的上次会议上讨论了提高借贷成本，现在需要观察中东战乱对通货膨胀和经济增长的影响有多大、多持久。
+从长江之畔到万里深蓝，从初创起步到五大兵种齐全，从木船小舰到铁甲巨舰，77年风雨兼程，人民海军从近岸防御到远海护卫，从平台作战到体系制胜，一路劈波斩浪、一路向海图强，书写了一部从无到有、从小到大、从弱到强的史诗。
 
-“我们将在6月再次聚首，届时我们将根据新的数据做出决定。
+今天，让我们穿越历史烟云，回望人民海军启航、成长、跨越、奋进的征程。
 
-”他在一个小组讨论中说道，“如果这些影响被证实规模巨大或持续时间长，尤其是有可能动摇长期通胀预期，那么根据我们的职责，我们必须采取行动。
-
-” 战争导致能源成本飙升，推动通胀达到3%，欧洲央行已表示将考虑6月11日提高利率。
-
-大多数经济学家和投资者预测，这次会议将加息0.25个百分点。
-
-欧洲央行管委中较为鹰派之一的Nagel周二表示，货币紧缩是欧洲央行的基本政策之一。
-
-他说：“基准线已经包含了两次政策利率上调，因为这是当时做出预测假设时的市场预期。
+(李纯 程嘉豪 宁鑫 王欢 制作 卢晓娜 素材来源：海政宣传局) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 12:40 - [特斯拉前高管创办热泵初创公司 已有数名特斯拉前员工加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:45 - [受中东局势影响 德钢铁巨头下调销售预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:44 - [ATFX:美国CPI数据发布 美元何去何从](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:37 - [一家外资家电巨头在中国卖场的“最后时刻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:46 - [多家海外华文媒体聚焦广西南宁 记录南宁发展变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:36 - [国家市场监管总局附条件批准腾讯收购喜马拉雅股权案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:51 - [日本：民众集会反对“国家情报会议”设置法案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:35 - [常熟银行收到501笔投诉，薛文坚持“做小做散”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:36 - [商业航天即将迎来“可回收火箭+IPO”密集催化！航空航天ETF华泰柏瑞（563380）基金份额创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:43 - [春光科技业绩变脸又迟发预告 官方解释与财报数据“打架” 股价逆势上涨呈现“妖股”特征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:59 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:50 - [在韩志愿军烈士遗骸交接仪式举行 中国驻韩国大使为烈士棺椁覆盖国旗并鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:42 - [多家A股公司上市后首亏，部分年报披露前业绩“变脸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:53 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:52 - [多地楼市新政密集落地 市场积极信号加速释放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:46 - [多国央行预警！Anthropic最新模型让金融系统如临大敌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:38 - [赴亚沙之约 展开放风采——写在第六届亚洲沙滩运动会开幕之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 13:05 - [寸草不生的百年毒矿渣，居然能提炼出高科技手机芯片？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:50 - [三亚亚沙会开幕在即 主媒体中心迎接媒体记者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:44 - [华宝基金红利风向标 | 高股息板块再秀防御力，华宝红利家族全线飘红！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:50 - [《技术经理人执业能力评价白皮书》在穗发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 13:02 - [自然资源部：已建成省级以上绿色矿山5500余家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 13:00 - [宁波男篮队史首次挺进CBA季后赛 续写篮球热土故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:37 - [截至5月7日当周美国大豆出口检验量为655294吨](http://www.blog.minike.top/Article/details/7457391.shtml)
-- 2026-06-29 12:37 - [国产算力爆发，新手怎么布局？一次讲清芯片产业链四只指数](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [海外台胞在云南看见中医药的“古方新生”](http://www.share.minike.top/Article/details/769149920.shtml)
-- 2026-06-29 12:31 - [云南巧家：万亩野生高山杜鹃迎来最佳观赏期](http://www.blog.kurohicncr.top/Article/details/29627.shtml)
-- 2026-06-29 12:44 - [日民众集会反对“国家情报会议”设置法案 在野党现场声援](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [美元受通胀数据影响不大，不太可能改变美联储叙事](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [欧盟拟与阿富汗塔利班举行技术会议，磋商遣返移民事宜](http://www.blog.kurohicncr.top/Article/details/7160135528.shtml)
-- 2026-06-29 12:58 - [习近平同塔吉克斯坦总统拉赫蒙会谈](http://www.share.minike.top/Article/details/93274490.shtml)
-- 2026-06-29 12:53 - [争分夺秒！就医途中突发炸胎 多方接力暖心护送](http://www.blog.kurohicncr.top/Article/details/87342048304.shtml)
-- 2026-06-29 12:44 - [云冈石窟部分洞窟昨起临时封闭](http://www.blog.minike.top/Article/details/67475875.shtml)
-- 2026-06-29 12:39 - [为中美关系发展打下更稳固基础](http://www.share.minike.top/Article/details/9284450266.shtml)
-- 2026-06-29 12:34 - [探访新疆高昌回鹘佛寺遗址](http://www.blog.minike.top/Article/details/2419857.shtml)
-- 2026-06-29 12:36 - [湖北当阳：金黄麦浪迎丰收](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [最新！伊朗提谈判先决条件！特朗普称“不着急”！英国将强化霍尔木兹海峡军事！国际油价大涨](http://www.blog.kurohicncr.top/Article/details/489124.shtml)
-- 2026-06-29 12:50 - [把舵中美关系大方向，习近平主席这样阐述](http://www.blog.minike.top/Article/details/327210587015.shtml)
+- 2026-06-29 13:01 - [民生调查局丨别被牙膏的“3D炫白”“医研”骗了，那只是商标](http://www.share.minike.top/Article/details/593645697.shtml)
+- 2026-06-29 12:38 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](http://www.share.kurohicncr.top/Article/details/68044352267.shtml)
+- 2026-06-29 12:51 - [A股开盘：超3600只个股飘绿，三大指数集体低开](http://www.blog.kurohicncr.top/Article/details/34777406.shtml)
+- 2026-06-29 12:49 - [金岩高岭新材将于5月22日派发末期股息每10股2.27元](http://www.blog.kurohicncr.top/Article/details/50988529931.shtml)
+- 2026-06-29 13:01 - [美退伍军人抗议 要求结束对伊朗军事行动](http://www.share.minike.top/Article/details/829331748.shtml)
+- 2026-06-29 12:53 - [宁德时代发布第三代神行超充电池，满电仅需6分钟](http://www.blog.minike.top/Article/details/6556092.shtml)
+- 2026-06-29 12:45 - [199元抢万元手机？反诈宣传如何跑赢直播间骗术？](http://www.share.kurohicncr.top/Article/details/62609066.shtml)
+- 2026-06-29 12:40 - [巴基斯坦从沙特阿拉伯获得10亿美元资金](http://www.blog.minike.top/Article/details/08289446122.shtml)
+- 2026-06-29 12:42 - [卫生间摊放茶青 浙江松阳及时处置：全部封存 未流入市场](http://www.blog.kurohicncr.top/Article/details/9137260.shtml)
+- 2026-06-29 12:58 - [丰田向宁德时代印尼工厂投资 120 亿日元，将在厂内建设专用产线](http://www.blog.kurohicncr.top/Article/details/267385.shtml)
+- 2026-06-29 12:58 - [用软件脚本“秒抢”医院专家号 上海警方抓获非法倒卖号源10人](http://www.blog.minike.top/Article/details/793073828480.shtml)
+- 2026-06-29 12:51 - [晋拓股份拟每10股派息0.77元](http://www.blog.kurohicncr.top/Article/details/4499295073.shtml)
+- 2026-06-29 13:00 - [下任美联储主席提名人选能否维护美联储“独立性”遭质疑](http://www.blog.kurohicncr.top/Article/details/25031.shtml)
+- 2026-06-29 12:59 - [摩根大通上调标普500指数目标位 之前在3月份刚刚下调](http://www.share.kurohicncr.top/Article/details/2148696628.shtml)
+- 2026-06-29 12:54 - [西安中院公开庭审涉外商标侵权案件 筑牢知识产权司法保护防线](http://www.blog.minike.top/Article/details/703464164995.shtml)

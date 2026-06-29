@@ -1,57 +1,60 @@
-# 美丽中国行｜我的家园，越来越美——美丽中国建设成效观察
+# UPS与联邦快递已开始申请部分关税退款
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-新华社北京5月11日电 题：我的家园，越来越美——美丽中国建设成效观察 开栏的话： 建设美丽中国，是全面建设社会主义现代化国家的重要目标，更关系着亿万人民群众的获得感幸福感安全感。习近平总书记强调，我们必须以更高站位、更宽视野、更大力度来谋划和推进新征程生态环境保护工作，谱写新时代生态文明建设新篇章。 “十五五”开局之年，美丽中国建设提质扩面、有声有色。新华社即日起推出“美丽中
+联合包裹和联邦快递已开始通过美国政府退税流程申请部分关税退款。此类退款仅适用于依据《国际紧急经济权力法》征收的关税，美国最高法院已于今年2月裁定该法案相关征收行为违宪。 退税流程正式启动 在美国最高法院裁定部分关税违宪后，美国海关与边境保护局于周一正式开放了退税门户，允许企业开始申请退款。该退税流程仅适用于《国际紧急经济权力法》项下征收的关税，而依据其他法律条款征收的关税则依然
 
 ## 正文
 
-新华社北京5月11日电 题：我的家园，越来越美——美丽中国建设成效观察 开栏的话： 建设美丽中国，是全面建设社会主义现代化国家的重要目标，更关系着亿万人民群众的获得感幸福感安全感。
+联合包裹和联邦快递已开始通过美国政府退税流程申请部分关税退款。
 
-习近平总书记强调，我们必须以更高站位、更宽视野、更大力度来谋划和推进新征程生态环境保护工作，谱写新时代生态文明建设新篇章。
+此类退款仅适用于依据《国际紧急经济权力法》征收的关税，美国最高法院已于今年2月裁定该法案相关征收行为违宪。
 
-“十五五”开局之年，美丽中国建设提质扩面、有声有色。
+退税流程正式启动 在美国最高法院裁定部分关税违宪后，美国海关与边境保护局于周一正式开放了退税门户，允许企业开始申请退款。
 
-新华社即日起推出“美丽中国行”系列报道，展现各地践行习近平生态文明思想的生动实践，建设美丽家园取得的突出成效，反映人民群众实实在在的生态环境获得感，讲好中国的绿色发展故事。
+该退税流程仅适用于《国际紧急经济权力法》项下征收的关税，而依据其他法律条款征收的关税则依然有效。
 
-新华社记者 环境就是民生，青山就是美丽，蓝天也是幸福。
+海关将分阶段处理退税申请，第一阶段仅覆盖海关在过去80天内完成清关的货物。
 
-习近平总书记指出，必须牢固树立和践行绿水青山就是金山银山的理念，站在人与自然和谐共生的高度谋划发展。
+两大快递公司代客申请 联合包裹本周表示，对于公司作为登记进口商的所有货物，将代客户向海关申请并取回关税退款，客户无需主动联系联合包裹。
 
-立夏过后，芳菲正盛，草木葱茏。
+不过公司指出，退款可能需要长达三个月才能拨付至联合包裹，之后公司才能向客户发放退款。
 
-记者在采访调研中看到，近年来，各地努力建设望得见山、看得见水、记得住乡愁的美丽中国，让自然生态美景永驻人间。
+联合包裹在声明中表示：“我们始终致力于保障货物运输畅通，并在这一复杂流程中帮助客户充分行使其权利。
 
 ## 相关推荐
 
-- 2026-06-29 12:34 - [欧洲股市下跌，英镑及英国银行股因政治动荡走低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:47 - [5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:50 - [沙特3月下旬曾对伊朗实施报复性打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:50 - [两岸和平统一后台湾精神文化生活如何“更好” 国台办四方面阐释](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:40 - [名创优品发盈喜 预计第一季度利润约12.28亿至12.48亿元同比增加约195%至200%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:43 - [创新的力量：视听传播如何实现“从点到链”的变革？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:56 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:54 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:36 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:37 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:31 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:44 - [印尼工商会主席：印尼与中国经济融合愈发重要](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:49 - [OpenAI正洽谈向一家私募股权合资企业最高投资15亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:52 - [中国新闻社参评第36届中国新闻奖创意传播、新闻IP作品初评公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:36 - [热血洒疆场忠魂归故乡 沈阳全城以最高礼遇迎接英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:41 - [感冒流感药品销售疲软 利洁时股价下跌5.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:39 - [连跌10周，猪价反弹了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:46 - [华为正式发布智擎动力品牌！余承东：同样100度电 我们能比别人多跑50公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:52 - [财报季丨金融高管战略校准指南！利差筑底、结构重构，银行、保险趋势判断全景图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 13:05 - [外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:37 - [全年净利润不到6亿 甘肃银行豪掷17亿分红为哪般？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:41 - [每一帧都很治愈，你读书的样子真好看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:45 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:47 - [中芯国际获南向资金连续3天净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:38 - [中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [ATFX:美国CPI数据发布 美元何去何从](http://www.share.kurohicncr.top/Article/details/81460966303.shtml)
-- 2026-06-29 12:52 - [一家外资家电巨头在中国卖场的“最后时刻”](http://www.blog.kurohicncr.top/Article/details/214075.shtml)
-- 2026-06-29 12:34 - [多家海外华文媒体聚焦广西南宁 记录南宁发展变化](http://www.blog.minike.top/Article/details/666201693.shtml)
-- 2026-06-29 12:41 - [国家市场监管总局附条件批准腾讯收购喜马拉雅股权案](http://www.share.minike.top/Article/details/7483589.shtml)
-- 2026-06-29 12:44 - [日本：民众集会反对“国家情报会议”设置法案](http://www.blog.minike.top/Article/details/62275084046.shtml)
-- 2026-06-29 12:35 - [常熟银行收到501笔投诉，薛文坚持“做小做散”](http://www.share.kurohicncr.top/Article/details/46898256.shtml)
-- 2026-06-29 12:36 - [商业航天即将迎来“可回收火箭+IPO”密集催化！航空航天ETF华泰柏瑞（563380）基金份额创历史新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [春光科技业绩变脸又迟发预告 官方解释与财报数据“打架” 股价逆势上涨呈现“妖股”特征](http://www.share.minike.top/Article/details/3126566426.shtml)
-- 2026-06-29 12:33 - [特朗普将访华 北京机场高速公路附近挂起中美两国国旗](http://www.blog.kurohicncr.top/Article/details/65965.shtml)
-- 2026-06-29 12:38 - [韩国AI繁荣下的分配之争：“国民分红”构想出炉，三星罢工风暴袭来](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [胖东来：从未在任何网络平台开展直播带货业务](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [成都与比利时弗拉芒·布拉邦共庆友城十五载 携手挖掘合作新机遇](http://www.blog.minike.top/Article/details/46783955546.shtml)
-- 2026-06-29 12:31 - [打卡同色系风景 城市“色彩漫步”成为年轻人新型散步方式](http://www.share.kurohicncr.top/Article/details/976396.shtml)
-- 2026-06-29 12:38 - [海外闽籍青年华商三明叙乡情：根在福建，梦连全球](http://www.share.kurohicncr.top/Article/details/18258350360.shtml)
-- 2026-06-29 12:45 - [德乌计划联合研发生产各型无人机](http://www.blog.minike.top/Article/details/4042483876.shtml)
+- 2026-06-29 12:55 - [多家A股公司上市后首亏，部分年报披露前业绩“变脸”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [多地楼市新政密集落地 市场积极信号加速释放](http://www.share.kurohicncr.top/Article/details/6325486.shtml)
+- 2026-06-29 12:52 - [多国央行预警！Anthropic最新模型让金融系统如临大敌](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [赴亚沙之约 展开放风采——写在第六届亚洲沙滩运动会开幕之际](http://www.blog.minike.top/Article/details/46521.shtml)
+- 2026-06-29 13:05 - [寸草不生的百年毒矿渣，居然能提炼出高科技手机芯片？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [三亚亚沙会开幕在即 主媒体中心迎接媒体记者](http://www.share.minike.top/Article/details/473662377.shtml)
+- 2026-06-29 12:43 - [华宝基金红利风向标 | 高股息板块再秀防御力，华宝红利家族全线飘红！](http://www.share.kurohicncr.top/Article/details/552144930083.shtml)
+- 2026-06-29 13:01 - [《技术经理人执业能力评价白皮书》在穗发布](http://www.blog.minike.top/Article/details/3451961.shtml)
+- 2026-06-29 12:48 - [自然资源部：已建成省级以上绿色矿山5500余家](http://www.blog.minike.top/Article/details/7612261087.shtml)
+- 2026-06-29 12:48 - [宁波男篮队史首次挺进CBA季后赛 续写篮球热土故事](http://www.share.minike.top/Article/details/805797.shtml)
+- 2026-06-29 12:56 - [DJI Osmo Mobile 8P上手：分体遥控 一机三用](http://www.share.kurohicncr.top/Article/details/35293730.shtml)
+- 2026-06-29 12:43 - [特朗普政府官员抱怨其社交媒体帖子阻碍与伊朗和谈](http://www.blog.kurohicncr.top/Article/details/90148200.shtml)
+- 2026-06-29 12:47 - [90岁志愿军老兵吹军号迎战友回家，“我的号声还叫你们听一听”](http://www.share.minike.top/Article/details/055384370620.shtml)
+- 2026-06-29 12:43 - [中央气象台：江南华南有较强降水](http://www.blog.minike.top/Article/details/244357461393.shtml)

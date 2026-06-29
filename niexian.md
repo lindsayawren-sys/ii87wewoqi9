@@ -1,58 +1,61 @@
-# 4月银行理财大增2.6万亿！配置上青睐委外公募基金 一季度末规模已高至1.95万亿
+# 源达信息量化策略研究：重要股东增持单因子策略
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-财联社5月12日讯（编辑 王蔚 实习生 张文骏）继一季度规模缩水1.38万亿元之后，银行理财市场在4月迎来强势反弹。华源证券最新测算数据显示，截至2026年4月末，理财规模合计34.5万亿元，较上月末增加2.6万亿元，显著高于近5年（2021-2025年）的4月份平均2.04万亿元的增量。 与此同时，数据显示，4月“股债双牛”行情下，理财产品收益率同步大幅回升，固收类理财当月平
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！分析师：吴起涤 执业登记编号：A0190523020001 研究助理：王娜 执业登记编号：A0190125030006 重要股东增持因子的定义 本文中我们选用“重要股东二级市场交易区间增持市值变动占公司总市值的比例”做为因子搭建策略，计算公式如下：重要股东增持因子= 重要股东二级市场交易区间增持市值 / 公
 
 ## 正文
 
-财联社5月12日讯（编辑 王蔚 实习生 张文骏）继一季度规模缩水1.38万亿元之后，银行理财市场在4月迎来强势反弹。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-华源证券最新测算数据显示，截至2026年4月末，理财规模合计34.5万亿元，较上月末增加2.6万亿元，显著高于近5年（2021-2025年）的4月份平均2.04万亿元的增量。
+分析师：吴起涤 执业登记编号：A0190523020001 研究助理：王娜 执业登记编号：A0190125030006 重要股东增持因子的定义 本文中我们选用“重要股东二级市场交易区间增持市值变动占公司总市值的比例”做为因子搭建策略，计算公式如下：重要股东增持因子= 重要股东二级市场交易区间增持市值 / 公司市值。
 
-与此同时，数据显示，4月“股债双牛”行情下，理财产品收益率同步大幅回升，固收类理财当月平均年化收益率达3.42%，较上月明显改善。
+其中，重要股东二级市场交易区间增持市值变动汇总的是交易所公告和上市公司披露的场内增持行为，具体涵盖以下交易类型：①竞价交易；②大宗交易；③盘后定价交易；④可转债转股。
 
-在规模与收益大幅波动之下，今年以来，理财资金的资产配置结构也正在经历深刻变化，公募基金作为“新宠”受到青睐，一季度末理财产品投向公募基金的资产规模已达1.95万亿元，占总投资资产的5.7%，配置规模和比例均创新高，4月份的配置结构尚未知。
+重要股东增持因子的特点 ①重要股东增持因子在熊市中后期及中小盘风格占优的市场中最为有效。
 
-4月理财规模大增2.6万亿，固收类产品年化收益率回升至3.42% 今年一季度，银行理财规模受到理财收益“打榜”乱象规范、季末冲存款力度较大及3月股市回调导致部分理财净值回撤等影响，较2025年末下降了1.38万亿，降幅超过了2024年及2025年的一季度。
+如2016年价值修复期因子Rank IC高达0.1996。
 
-进入4月后，随着季末考核因素消退，理财市场迎来了强劲的修复行情。
+②重要股东增持因子在中小市值区间表现最优。
 
-华源证券在最新研报中测算，截至2026年4月末，理财规模合计34.5万亿元较上月增加了2.6万亿，显著高于2021-2025年的4月份平均增量值2.04万亿，实现了理财规模超季节性大增。
+因子在市值约60亿至150亿区间Rank IC均值达0.05且正比例高达75%。
 
-理财规模的走势如下图所示： 华源证券进一步分析，由于存款利率较低，2026年理财规模仍有望增长3万亿以上，且由于4月理财业绩较好，预计5月理财规模增长3000亿以上。
+③重要股东增持因子在农林牧渔、建筑装饰、电气设备等行业表现最强。
 
 ## 相关推荐
 
-- 2026-06-29 12:38 - [乙德投资控股遭Liu Chuang减持约1.11亿股 每股均价0.2438港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:58 - [“中华民族共有精神家园建设主题文化活动·河南篇”在古都安阳启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:41 - [今年被罚没已逾2200万元！交通银行为何合规问题不断？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:53 - [好评中国丨“防灾减灾救灾”为人民更靠人民](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:52 - [首届香港具身智能产业峰会暨智元APC2026成功举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:58 - [浙江黄岩话剧《问瓷》登国家大剧院 馆藏陈列走向艺术舞台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:39 - [赖清德散布“民主对抗威权”叙事 国台办：谎话说一千遍还是谎话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:45 - [新西兰拟修法限制企业气候排放责任诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:49 - [“交通安全统筹”等服务不属于车险（2026·05·12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:41 - [涉嫌侵犯隐私及诱导沉迷，美得克萨斯州对奈飞提起诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:34 - [午盘：美股走低科技股领跌 纳指下跌1.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:50 - [纳德拉作证：OpenAI当年解雇奥特曼的操作“极其业余”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:55 - [跨世纪的重逢！抗美援朝老战士用歌声迎战友回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:48 - [金宏气体：公司产品下游应用领域广泛，客户群体较为分散](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:41 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:43 - [伊朗体育部长：若球员安全得到保障将参加美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:36 - [“荣归50”“红鹰”！运-20B、歼-20用特殊呼号唤英烈回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:47 - [首席记者谈首季经济丨“大码头”的经济密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:44 - [印度马恒达科技第四季度营收超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:52 - [外交部：所谓中国“窃取”知识产权完全是子虚乌有](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:37 - [冷藏柜里的高温杀菌乳到底是不是“假牛奶”？记者调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 13:04 - [华能蒙电：一季度归母净利润6.94亿元，同比下滑24.63%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:54 - [香港教大与清华大学合办教育主题论坛 推动AI与教育创新深度融合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 13:05 - [中华人民共和国和莫桑比克共和国关于构建新时代中莫命运共同体的联合声明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:39 - [百事转单嘉士伯，Royal Unibrew股价暴跌逾26%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:59 - [交易员：印度央行可能卖出美元以遏制卢比跌势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:39 - [“水立方”再迎跳水世界杯总决赛 中国队以老带新、满额参赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:49 - [Optum Rx推出透明定价新模式，重塑药房福利管理](http://www.share.kurohicncr.top/Article/details/06474910.shtml)
-- 2026-06-29 12:39 - [法国农办调增2025/26年度谷物出口预期](http://www.blog.kurohicncr.top/Article/details/967415434.shtml)
-- 2026-06-29 12:53 - [习近平会见联合国教科文组织总干事阿纳尼](http://www.share.minike.top/Article/details/383990.shtml)
-- 2026-06-29 12:42 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](http://www.blog.minike.top/Article/details/65015.shtml)
-- 2026-06-29 12:59 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](http://www.share.minike.top/Article/details/68828931.shtml)
-- 2026-06-29 12:34 - [嘴唇发紫就是心血管有淤堵？专家解答](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:48 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](http://www.blog.minike.top/Article/details/3411127471.shtml)
-- 2026-06-29 12:58 - [中国—东盟科技减贫合作交流会在广西南宁开幕](http://www.blog.minike.top/Article/details/3609482.shtml)
-- 2026-06-29 12:44 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](http://www.share.minike.top/Article/details/23357.shtml)
-- 2026-06-29 12:44 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](http://www.share.minike.top/Article/details/2963415.shtml)
-- 2026-06-29 12:35 - [新型“职业闭店人”骗局调查](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](http://www.blog.kurohicncr.top/Article/details/451570.shtml)
-- 2026-06-29 12:51 - [为应对欧盟反垄断调查，Meta宣布将向竞争对手开放WhatsApp接口](http://www.share.kurohicncr.top/Article/details/725268221457.shtml)
-- 2026-06-29 12:45 - [东航7月1日开通成都直航台中航线，国台办回应](http://www.share.kurohicncr.top/Article/details/812603184244.shtml)
-- 2026-06-29 12:52 - [直击！直升机水上绞车救援专项训练现场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [欧洲央行管委卡扎克斯：欧洲央行不急着加息](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [两岸媒体赴桂林 “打卡”“广西三月三”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [哈萨克斯坦驻华大使点赞“China Travel”](http://www.blog.kurohicncr.top/Article/details/22484792661.shtml)
+- 2026-06-29 13:04 - [捷蓝航空被指利用个人数据定价，两党议员联名质询](http://www.blog.kurohicncr.top/Article/details/79019080914.shtml)
+- 2026-06-29 12:40 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](http://www.share.kurohicncr.top/Article/details/2403864.shtml)
+- 2026-06-29 12:51 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](http://www.blog.kurohicncr.top/Article/details/7089679.shtml)
+- 2026-06-29 12:49 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](http://www.share.kurohicncr.top/Article/details/1053411.shtml)
+- 2026-06-29 12:56 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](http://www.share.kurohicncr.top/Article/details/05067623.shtml)
+- 2026-06-29 12:40 - [中方：反对在霍尔木兹海峡问题上的恶意关联和炒作](http://www.share.minike.top/Article/details/518620972.shtml)
+- 2026-06-29 12:53 - [大摩：长和给予增持评级 目标价61港元](http://www.share.minike.top/Article/details/105725977.shtml)
+- 2026-06-29 12:47 - [大众汽车集团被曝有意削减100万辆全球产能](http://www.share.kurohicncr.top/Article/details/03875905760.shtml)
+- 2026-06-29 12:52 - [大庆钻探首台数智化综合录井仪投用 9秒精准捕捉油气信号](http://www.blog.kurohicncr.top/Article/details/463321.shtml)
+- 2026-06-29 13:01 - [美国民主党众议员Cherfilus-McCormick辞职 被指控盗窃资金](http://www.share.kurohicncr.top/Article/details/63300816160.shtml)
+- 2026-06-29 13:05 - [工信部：有序引导算力基础设施建设 构建多层级算力架构](http://www.share.minike.top/Article/details/2116878.shtml)
+- 2026-06-29 12:57 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](http://www.blog.kurohicncr.top/Article/details/5756380503.shtml)

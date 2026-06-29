@@ -1,57 +1,54 @@
-# 甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”
+# 沃什如何推动美联储实现“政策范式转变”
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-中新网兰州5月12日电 (田鹏鹤 石娇艳)12日，甘肃省第二届职业技能大赛新闻发布会举行。据甘肃省人社厅副厅长何永强介绍，本届大赛是该省规格最高、项目最多、规模最大、影响力最广的综合性职业技能赛事，将通过75个竞赛项目广泛选拔高素质技能人才，聚力锻造“陇原工匠”队伍。 技能人才是推动产业升级、实现高质量就业的核心支撑。何永强说，甘肃省委、省政府始终高度重视技能人才工作，不断完善
+沃什此前曾公开表示，他希望在美联储推动 “范式转变”。值得关注的是，他今日在参议员面前是否仍会使用这一表述，或是会缓和其希望推行的改革力度。 需要指出的是，沃什希望在美联储实施的诸多举措，均需获得其新任同僚的批准。 下调利率、缩减资产负债表以及达成财政部 — 美联储协议，均需得到联邦公开市场委员会的同意。而在银行业放松监管方面，沃什则需要获得美联储理事会的批准。责任编辑：郭明煜
 
 ## 正文
 
-中新网兰州5月12日电 (田鹏鹤 石娇艳)12日，甘肃省第二届职业技能大赛新闻发布会举行。
+沃什此前曾公开表示，他希望在美联储推动 “范式转变”。
 
-据甘肃省人社厅副厅长何永强介绍，本届大赛是该省规格最高、项目最多、规模最大、影响力最广的综合性职业技能赛事，将通过75个竞赛项目广泛选拔高素质技能人才，聚力锻造“陇原工匠”队伍。
+值得关注的是，他今日在参议员面前是否仍会使用这一表述，或是会缓和其希望推行的改革力度。
 
-技能人才是推动产业升级、实现高质量就业的核心支撑。
+需要指出的是，沃什希望在美联储实施的诸多举措，均需获得其新任同僚的批准。
 
-何永强说，甘肃省委、省政府始终高度重视技能人才工作，不断完善“招、育、留、用”全链条培养体系，推动“技能甘肃”建设取得显著成效。
+下调利率、缩减资产负债表以及达成财政部 — 美联储协议，均需得到联邦公开市场委员会的同意。
 
-此前，甘肃省首届职业技能大赛选拔的选手在第三届全国职业技能大赛中斩获3枚铜牌、20个优胜奖，实现奖牌“零的突破”，8人入选世赛国家集训队。
+而在银行业放松监管方面，沃什则需要获得美联储理事会的批准。
 
-何永强说，这份亮眼成绩，为第二届大赛的举办奠定坚实基础。
-
-据悉，甘肃省第二届职业技能大赛以“技能照亮前程”为主题，将于今年6月2日至10日举办，采用“集中+分散”办赛模式，设1个集中办赛点和9个分散办赛点。
-
-其中，开幕式将于今年6月2日在甘肃国际会展中心举行。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 12:47 - [国际能源署警示：霍尔木兹海峡供应冲击 复苏需耗时数月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:56 - [GTC泽汇资本:原油溢价回落供需博弈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:53 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:46 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:43 - [中国官方附条件批准腾讯收购喜马拉雅股权案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:50 - [英伟达CEO黄仁勋薪酬下滑27% 源于股票奖励缩水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:33 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:33 - [中信建投期货：5月13日黑色系早报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:53 - [塔吉克斯坦总统寄语北大留学生：珍惜在华学习机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:38 - [外交部：无论赖清德说什么做什么，都改变不了台湾是中国领土一部分的事实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:37 - [一则传闻！盘面掉头下跌！多空齐发！钢价涨势有变？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 13:01 - [三位华人女数学家获2026突破奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:41 - [沃伦：特朗普提名沃什出任美联储主席，意在短期刺激经济以谋取政治私利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:38 - [临夏有约：“蓝色黄河”岸畔寻龙迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:36 - [天弘基金高阳豪掷1771万入股，结构失衡下的利益捆绑疑云](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:37 - [封堵化肥管理漏洞，《肥料登记管理办法》加速修订](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 13:05 - [七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:42 - [接迎英雄回家的运-20B专机进入我国领空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:57 - [特朗普过去24小时都忙了什么？（2026-04-21）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:58 - [海外旅行商甘肃掘金丝路游 便利支付迎全球客](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:38 - [机械车位闲置，如何盘活改造？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:41 - [加拿大总理批美贸易政策：加美关系“优势”变“劣势”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:39 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:37 - [欧洲股市下跌，英镑及英国银行股因政治动荡走低](http://www.share.kurohicncr.top/Article/details/35770620.shtml)
-- 2026-06-29 12:47 - [5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）](http://www.blog.kurohicncr.top/Article/details/59128.shtml)
-- 2026-06-29 12:52 - [沙特3月下旬曾对伊朗实施报复性打击](http://www.blog.minike.top/Article/details/216652273.shtml)
-- 2026-06-29 12:36 - [两岸和平统一后台湾精神文化生活如何“更好” 国台办四方面阐释](http://www.share.kurohicncr.top/Article/details/61892774226.shtml)
-- 2026-06-29 12:53 - [名创优品发盈喜 预计第一季度利润约12.28亿至12.48亿元同比增加约195%至200%](http://www.share.kurohicncr.top/Article/details/034024995.shtml)
-- 2026-06-29 12:30 - [创新的力量：视听传播如何实现“从点到链”的变革？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](http://www.share.kurohicncr.top/Article/details/24565.shtml)
-- 2026-06-29 12:55 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](http://www.blog.minike.top/Article/details/5424211759.shtml)
-- 2026-06-29 12:48 - [美防长赫格塞思就国防预算出席国会听证会](http://www.share.kurohicncr.top/Article/details/7449307.shtml)
-- 2026-06-29 12:44 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](http://www.share.minike.top/Article/details/26289.shtml)
-- 2026-06-29 12:47 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](http://www.blog.kurohicncr.top/Article/details/10236.shtml)
-- 2026-06-29 12:55 - [卢比汇率持续走低，全球第二大黄金市场印度上调金银进口关税](http://www.share.minike.top/Article/details/81642307632.shtml)
-- 2026-06-29 12:38 - [三星与工会奖金谈判破裂 官方深表遗憾](http://www.share.minike.top/Article/details/5971769111.shtml)
-- 2026-06-29 12:54 - [Casa Minerals认股权证行权获43万美元，将用于亚利桑那及BC省勘探项目](http://www.share.kurohicncr.top/Article/details/81416.shtml)
-- 2026-06-29 12:52 - [大理大学在洱海蓝藻水华防控研究中取得重要进展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [印尼工商会主席：印尼与中国经济融合愈发重要](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [OpenAI正洽谈向一家私募股权合资企业最高投资15亿美元](http://www.share.kurohicncr.top/Article/details/41761.shtml)
+- 2026-06-29 13:04 - [中国新闻社参评第36届中国新闻奖创意传播、新闻IP作品初评公示](http://www.share.kurohicncr.top/Article/details/387722541345.shtml)
+- 2026-06-29 13:01 - [热血洒疆场忠魂归故乡 沈阳全城以最高礼遇迎接英雄回家](http://www.share.kurohicncr.top/Article/details/092773161510.shtml)
+- 2026-06-29 12:47 - [感冒流感药品销售疲软 利洁时股价下跌5.9%](http://www.share.kurohicncr.top/Article/details/15525620.shtml)
+- 2026-06-29 12:54 - [连跌10周，猪价反弹了](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:02 - [华为正式发布智擎动力品牌！余承东：同样100度电 我们能比别人多跑50公里](http://www.blog.minike.top/Article/details/6059906838.shtml)
+- 2026-06-29 12:44 - [财报季丨金融高管战略校准指南！利差筑底、结构重构，银行、保险趋势判断全景图](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知](http://www.blog.minike.top/Article/details/6133546.shtml)
+- 2026-06-29 12:48 - [全年净利润不到6亿 甘肃银行豪掷17亿分红为哪般？](http://www.blog.kurohicncr.top/Article/details/0634083.shtml)
+- 2026-06-29 12:47 - [每一帧都很治愈，你读书的样子真好看！](http://www.blog.minike.top/Article/details/279107318.shtml)
+- 2026-06-29 12:57 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](http://www.blog.kurohicncr.top/Article/details/143609147078.shtml)
+- 2026-06-29 12:38 - [中芯国际获南向资金连续3天净买入](http://www.share.kurohicncr.top/Article/details/310160325.shtml)
+- 2026-06-29 12:44 - [中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元](http://www.share.minike.top/Article/details/1380980.shtml)
+- 2026-06-29 12:49 - [中天期货:螺纹区间反弹 焦煤继续反弹](http://www.share.kurohicncr.top/Article/details/62695206.shtml)

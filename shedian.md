@@ -1,61 +1,53 @@
-# 一季度西藏社会消费品零售总额255.83亿元
+# 耀才证券金融盘中涨超9% 正式进入港股通名单
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-增速高出全国平均水平 2.4个百分点 一季度西藏社会消费品零售总额255.83亿元 消费是经济增长的重要引擎，也是折射民生温度、彰显区域发展活力的直观窗口。2026年一季度，国内消费市场整体平稳复苏、稳步回暖，西藏消费市场依托自身基础优势稳步回升，表现尤为亮眼。近日，记者从自治区商务厅获悉，全区社会消费品零售总额达255.83亿元，同比增长4.8%，增速高出全国平均水平2.4个
+耀才证券金融（01428）盘中涨超9%，截至发稿，股价上涨6.87%，现报12.75港元，成交额4.62亿港元。 华源证券此前指出，耀才证券在中国香港本地的客户资源与金融牌照，叠加技术与流量优势，有望形成“互联网科技+财富管理”的差异化竞争优势，中期来看或将推动整个财富管理行业的数字化转型和科技投入。值得注意的是，3月9日，耀才证券金融正式进入港股通名单。责任编辑：卢昱君
 
 ## 正文
 
-增速高出全国平均水平 2.4个百分点 一季度西藏社会消费品零售总额255.83亿元 消费是经济增长的重要引擎，也是折射民生温度、彰显区域发展活力的直观窗口。
+耀才证券金融（01428）盘中涨超9%，截至发稿，股价上涨6.87%，现报12.75港元，成交额4.62亿港元。
 
-2026年一季度，国内消费市场整体平稳复苏、稳步回暖，西藏消费市场依托自身基础优势稳步回升，表现尤为亮眼。
+华源证券此前指出，耀才证券在中国香港本地的客户资源与金融牌照，叠加技术与流量优势，有望形成“互联网科技+财富管理”的差异化竞争优势，中期来看或将推动整个财富管理行业的数字化转型和科技投入。
 
-近日，记者从自治区商务厅获悉，全区社会消费品零售总额达255.83亿元，同比增长4.8%，增速高出全国平均水平2.4个百分点，跻身全国前三，交出了一份高质量发展的“开门红”答卷。
+值得注意的是，3月9日，耀才证券金融正式进入港股通名单。
 
-这份亮眼成绩并非偶然，而是政策精准赋能、文旅深度融合、民生扎实兜底、城乡协同发力的综合结果。
-
-当前，西藏消费市场正稳步优化升级，逐步从基础生活保障向品质多元消费转变，从城区重点拉动向城乡均衡增长拓展，从业态传统单一向多元融合发展升级，烟火气息与民生幸福感持续提升，为全区经济高质量发展积蓄了稳固的内生动力。
-
-增速位居全国前列高原文教消费韧性平稳显现 “我们店铺今年一季度整体业绩稳中有升，女士春季通勤、休闲服饰销量最好。
-
-”在拉萨天海夜市经营服装店的李女士一边整理货架一边介绍，“本地顾客更注重穿搭品质和实用风格，不少进藏游客也愿意选购融入藏式元素的特色服饰。
-
-”高原地区日照充足、昼夜温差大，也带动防晒护肤、轻薄保暖、户外通勤类商品的市场需求稳步上升。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [股海导航_2026年5月13日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:38 - [保时捷控股一季度业绩受挫，敦促大众汽车重组业务模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:59 - [世界期待中美携手多办大事实事好事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:37 - [500亿市值巨头突然直线拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:32 - [获刑十三年！荐股“杀猪盘”被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:48 - [“二号位”或套现4737万，百亿京北方频遭高管减持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:59 - [德邦证券思考：当“护主心切”演变为“系统性自伤”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:34 - [英国首相斯塔默周三将与一位主要对手会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:37 - [光大期货0513热点追踪：橡胶开割季价格不跌反涨，还能看高一线吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:56 - [因发放流动资金贷款贷前调查不尽职、贷后管理不到位 一人被禁止从事银行业工作七年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:41 - [Waymo因积水路段行驶风险召回近3800辆机器人出租车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:37 - [滇藏公路通车50周年：缅怀筑路先烈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:33 - [四川宝兴蜂桶寨今年首只人工繁育绿尾虹雉孵化出壳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:52 - [仅部分支行业务量小幅上升，广州楼市再现“日光盘”未惠及银行，分化格局依旧明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:50 - [黑田东彦：日元汇率跌破160可能性较低，日本经济基本面稳健](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 13:04 - [必和必拓第三财季铁矿石产量增长3%，维持全年产量预期不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 13:01 - [沈阳都市圈汇聚创新力量 集中展示区域高价值专利成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:58 - [长春都市圈打造农产品精深加工集群 锚定千亿元级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:50 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:38 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:54 - [检察机关依法分别对谢红心、王成兵、崔孝栓、黎敦满提起公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 13:05 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 13:05 - [这种清凉主食热量低，减肥可吃！但这几点要注意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:42 - [拍照识字、自动翻译 探索打开古籍的N种方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:59 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:46 - [钢铁动脉连山海 同心筑梦向未来——中老铁路助力区域发展观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:37 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:47 - [广州知识产权国际化布局加速 助力粤港澳三地协同创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:49 - [四川2025年高价值发明专利拥有量达7.79万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:52 - [RYOEX:黄金中长期仍具坚实支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:42 - [4月新能源汽车产销量及出口量均稳定增长](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [MH迈汇:黄金年末望挑战五千关口](http://www.share.kurohicncr.top/Article/details/843623654518.shtml)
-- 2026-06-29 12:59 - [000056，董事会突现新面孔！背靠四川文创企业，相关方回应](http://www.share.minike.top/Article/details/7640327.shtml)
-- 2026-06-29 12:33 - [欧盟就《关键药物法案》达成初步协议 ，旨在强化供应安全与本土制造能力](http://www.blog.minike.top/Article/details/4725451.shtml)
-- 2026-06-29 12:52 - [巴西 3 月零售销售额超预期，创下历史新高](http://www.share.minike.top/Article/details/88817449.shtml)
-- 2026-06-29 12:32 - [中国U17男足获得2026年世少赛参赛资格](http://www.share.kurohicncr.top/Article/details/7001501510.shtml)
-- 2026-06-29 12:38 - [DNV预测：到2060年清洁氢能将增长100倍](http://www.blog.minike.top/Article/details/0871883.shtml)
-- 2026-06-29 12:41 - [“我本来就是中国人” 周锡玮：台湾人都是中国人 多次表态引发全场掌声](http://www.blog.kurohicncr.top/Article/details/99451903230.shtml)
-- 2026-06-29 12:49 - [国家统计局：4月居民消费价格指数同比上涨1.2%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [拜耳一季度经营利润增长9%超预期，农业业务表现强劲](http://www.share.kurohicncr.top/Article/details/0620382391.shtml)
-- 2026-06-29 12:37 - [中华美食在巴西：一炉烧饼出 全是“浙”里情](http://www.blog.minike.top/Article/details/619178289.shtml)
-- 2026-06-29 12:45 - [全球大豆市场参与者对本周中美会晤抱有不同期待](http://www.share.minike.top/Article/details/6043595318.shtml)
-- 2026-06-29 12:33 - [习近平会见文莱王储：欢迎你再次访华 相信这次访问将加深你对中国式现代化的了解](http://www.share.kurohicncr.top/Article/details/13133625.shtml)
-- 2026-06-29 12:35 - [长江有色：12日铸造铝期价上涨0.30% 整体交投维持温和局面](http://www.blog.minike.top/Article/details/8391969.shtml)
-- 2026-06-29 12:31 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [湖南江永优质蔬菜热销粤港澳大湾区](http://www.blog.kurohicncr.top/Article/details/0562050.shtml)
+- 2026-06-29 12:39 - [奥林匹克文献研学中心在天津成立](http://www.blog.minike.top/Article/details/48721.shtml)
+- 2026-06-29 12:51 - [尾盘突发！002342，收盘前4分钟垂直涨停！商业航天，集体爆发！](http://www.blog.kurohicncr.top/Article/details/2666149754.shtml)
+- 2026-06-29 13:02 - [新易盛再创新高，近1年飙涨超890%！重仓光模块龙头“易中天”的创业板人工智能ETF（159363）爆量新高！](http://www.blog.kurohicncr.top/Article/details/3554601.shtml)
+- 2026-06-29 12:36 - [“中国航天日”临近 长春小朋友参观航天展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [刘海星分别会见欧洲议会、莫桑比克客人](http://www.blog.kurohicncr.top/Article/details/6774149163.shtml)
+- 2026-06-29 13:00 - [锚定长期主义，古井贡酒“三品工程”七届深耕，筑牢“发展之根”](http://www.blog.kurohicncr.top/Article/details/761670904728.shtml)
+- 2026-06-29 12:46 - [上期所镍期货及期权引入境外交易者参与交易](http://www.share.minike.top/Article/details/60778913063.shtml)
+- 2026-06-29 12:46 - [国台办批驳赖清德“以和平包装统一”谬论](http://www.share.minike.top/Article/details/934951971.shtml)
+- 2026-06-29 13:05 - [别问，问就是来不及了！马上要去2026金融街智绘春光嘉年华了！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [德国认为结束中东冲突出现“机会窗口”](http://www.share.minike.top/Article/details/418110.shtml)
+- 2026-06-29 12:44 - [合力共为，守护购票公平](http://www.blog.kurohicncr.top/Article/details/995988.shtml)
+- 2026-06-29 12:38 - [ETF日报：地缘冲突风险有所缓和，煤炭板块经历了较为充分的回调，关注煤炭ETF](http://www.blog.minike.top/Article/details/330151.shtml)
+- 2026-06-29 13:03 - [成都诞生一波千万富豪](http://www.blog.minike.top/Article/details/8386248.shtml)

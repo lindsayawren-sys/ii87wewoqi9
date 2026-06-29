@@ -1,60 +1,61 @@
-# 乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设
+# 货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-乌干达财政部周二（12日）宣布，乌政府计划发行首笔主权伊斯兰债券（苏库克），旨在为该国总投资27亿欧元（约合31.7亿美元）的标轨铁路（SGR）项目提供资金支持。目前，相关发行工作已进入后期阶段。 乌财政部通过社交媒体平台发布消息称，此次发行的主权苏库克将覆盖该标轨铁路项目总成本的15%。在其余资金来源中，项目总投资的60%拟由出口信贷机构提供，另外25%则由发展金融机构出资。
+4月21日，由公安部道路交通安全研究中心与中国道路交通安全协会共同主办的2026年道路交通安全创新与合作大会在南京举办，大会聚焦自动驾驶运行安全体系构建、道路交通安全新特征与对策、数智化交管创新实践等议题开展深入交流与成果分享。货拉拉作为互联网货运领域的代表企业，受邀参会并在道路交通安全创新应用技术交流会上发表演讲，系统展示了基于AI技术的货运安全防控创新实践。 作为中国领先的
 
 ## 正文
 
-乌干达财政部周二（12日）宣布，乌政府计划发行首笔主权伊斯兰债券（苏库克），旨在为该国总投资27亿欧元（约合31.7亿美元）的标轨铁路（SGR）项目提供资金支持。
+4月21日，由公安部道路交通安全研究中心与中国道路交通安全协会共同主办的2026年道路交通安全创新与合作大会在南京举办，大会聚焦自动驾驶运行安全体系构建、道路交通安全新特征与对策、数智化交管创新实践等议题开展深入交流与成果分享。
 
-目前，相关发行工作已进入后期阶段。
+货拉拉作为互联网货运领域的代表企业，受邀参会并在道路交通安全创新应用技术交流会上发表演讲，系统展示了基于AI技术的货运安全防控创新实践。
 
-乌财政部通过社交媒体平台发布消息称，此次发行的主权苏库克将覆盖该标轨铁路项目总成本的15%。
+作为中国领先的“互联网+”综合性物流平台，货拉拉业务覆盖同城/跨城货运、搬家、跑腿等多元场景。
 
-在其余资金来源中，项目总投资的60%拟由出口信贷机构提供，另外25%则由发展金融机构出资。
+截至2025年11月，其业务已拓展至全球14个市场、超400个城市，中国内地覆盖363座城市，月活司机达140万、月活用户1600万。
 
-为评估市场需求并推进价格发现进程，由乌干达财政部副秘书帕特里克·奥凯拉普（Patrick Ocailap）率领的代表团正前往肯尼亚、坦桑尼亚等东非国家开展路演。
+随着货运平台的快速发展，在极大地提升配送效率、优化物流资源配置的同时，道路交通安全风险也随之而来，如何运用新一代的信息技术，把安全防控嵌入运输的全流程，实现风险可预测、过程可管控、全程可追溯，已成为货运行业高质量发展必须破解的关键问题。
 
-据悉，代表团成员还包括来自斯坦比克银行集团（Stanbic Bank Group）、乌干达中央银行及铁路项目组的代表。
+货拉拉安全总监池泳在交流会上表示，针对货运行业长期存在的超载超限、违规运输危险品、货厢违规载人等痛点，货拉拉确立了“保障人、车、货更安全”的核心目标，依托AI技术构建了全流程安全防控体系。
 
-此次主权苏库克的发行标志着乌干达在主权融资多元化方面迈出重要一步，将为该国重大基础设施建设提供关键财力保障。
+池泳称，平台通过AI安全防控技术在下单、接单、装货、运输等6个关键环节实施精准监控。
 
-责任编辑：龙运翔
+其中，在用户下单时，AI实时识别并拦截违规需求，从源头把控安全；在司机接单及前往装货地途中，系统通过语义识别订单内的沟通信息，及时发现并干预违规沟通行为；在装货环节，利用图像与文字识别技术杜绝违禁品装载；订单完成后，则通过特征回滚分析优化后续管控策略。
 
 ## 相关推荐
 
-- 2026-06-29 12:59 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:49 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:40 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:36 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:51 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:32 - [全球首个面向南方国家的教师数字素养提升行动计划发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:37 - [打了网红“气血针”，能否“一针提神”？专家提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:34 - [稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:40 - [防汛关键期！感受直升机索滑降训练现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:34 - [戎装缔良缘 相守赴山河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:34 - [中行境外机构人事调整 涉及中东、西欧多家分行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:44 - [国际能源署警示：霍尔木兹海峡供应冲击 复苏需耗时数月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:37 - [GTC泽汇资本:原油溢价回落供需博弈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:41 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:56 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:48 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:47 - [人民币兑美元中间价报6.8594，上调54点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:48 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:59 - [沃什如何推动美联储实现“政策范式转变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:58 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:47 - [阿维塔总裁陈卓回应与深蓝汽车战略协同：不影响赴港上市计划，仍会按照当前节奏推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:38 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:59 - [两粕：美豆上涨提振内盘，低库存支撑菜粕价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 13:00 - [从“大V带货”到“基民买单”：德邦稳盈增长一季度亏21.57亿元，赎回183亿份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:45 - [日本首相高市早苗向靖国神社供奉“玉串料”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 13:04 - [三位华人女数学家获2026突破奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:36 - [沃伦：特朗普提名沃什出任美联储主席，意在短期刺激经济以谋取政治私利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:49 - [临夏有约：“蓝色黄河”岸畔寻龙迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 13:05 - [天弘基金高阳豪掷1771万入股，结构失衡下的利益捆绑疑云](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:36 - [沪粤文脉双向奔赴 展示海丝千年风华](http://www.share.minike.top/Article/details/1625940.shtml)
-- 2026-06-29 12:38 - [“加息噩梦”近了？美联储“昔日鸽派”：通胀走向错误，与关税、石油无关！](http://www.blog.kurohicncr.top/Article/details/8863250.shtml)
-- 2026-06-29 12:58 - [腾讯最新声明：不会开发提供“微信访客功能”](http://www.share.minike.top/Article/details/255313485530.shtml)
-- 2026-06-29 12:47 - [抓住重点 务求实效（人民论坛）](http://www.blog.minike.top/Article/details/322412.shtml)
-- 2026-06-29 12:57 - [美丽中国行｜我的家园，越来越美——美丽中国建设成效观察](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [eBay拒绝GameStop560亿美元收购要约，称其既缺乏可信度、也毫无吸引力](http://www.blog.kurohicncr.top/Article/details/5902292.shtml)
-- 2026-06-29 12:53 - [朝“问”健康 慢性病老人泡脚 水温控制在40℃左右](http://www.blog.kurohicncr.top/Article/details/76917.shtml)
-- 2026-06-29 12:57 - [研奥股份积极拓展后市场业务，稳步开拓海外市场](http://www.share.minike.top/Article/details/49378.shtml)
-- 2026-06-29 12:54 - [我国成功发射千帆极轨09组卫星](http://www.blog.minike.top/Article/details/005374.shtml)
-- 2026-06-29 12:49 - [在伊朗冲突存在不确定性之际 日经指数可能下跌](http://www.share.minike.top/Article/details/22658.shtml)
-- 2026-06-29 12:30 - [焦煤短期承压的核心逻辑是？](http://www.share.kurohicncr.top/Article/details/3341337398.shtml)
-- 2026-06-29 12:54 - [欧洲股市下跌，英镑及英国银行股因政治动荡走低](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）](http://www.share.minike.top/Article/details/115771543635.shtml)
-- 2026-06-29 12:49 - [沙特3月下旬曾对伊朗实施报复性打击](http://www.blog.kurohicncr.top/Article/details/4352676265.shtml)
-- 2026-06-29 12:33 - [两岸和平统一后台湾精神文化生活如何“更好” 国台办四方面阐释](http://www.blog.minike.top/Article/details/7109986.shtml)
+- 2026-06-29 12:56 - [美军称对一艘“涉伊朗”油轮登船检查](http://www.share.minike.top/Article/details/31893555.shtml)
+- 2026-06-29 12:43 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.blog.minike.top/Article/details/1706356493.shtml)
+- 2026-06-29 13:00 - [别瞧不起格林基金](http://www.blog.minike.top/Article/details/5879432.shtml)
+- 2026-06-29 12:51 - [UPS与联邦快递已开始申请部分关税退款](http://www.share.kurohicncr.top/Article/details/207251405.shtml)
+- 2026-06-29 12:48 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](http://www.blog.minike.top/Article/details/33240.shtml)
+- 2026-06-29 12:47 - [中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示](http://www.share.kurohicncr.top/Article/details/92415865000.shtml)
+- 2026-06-29 13:05 - [苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？](http://www.share.kurohicncr.top/Article/details/71183209783.shtml)
+- 2026-06-29 13:05 - [全国首个全民阅读活动周！建行花样守护“城市书香”](http://www.share.minike.top/Article/details/1095440.shtml)
+- 2026-06-29 12:38 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼](http://www.share.minike.top/Article/details/61077.shtml)
+- 2026-06-29 12:52 - [财政部今日在港发行155亿元人民币国债](http://www.share.minike.top/Article/details/8655722.shtml)
+- 2026-06-29 13:00 - [印尼工商会主席：印尼与中国经济融合愈发重要](http://www.blog.minike.top/Article/details/3378776873.shtml)
+- 2026-06-29 13:01 - [OpenAI正洽谈向一家私募股权合资企业最高投资15亿美元](http://www.blog.minike.top/Article/details/8035214.shtml)
+- 2026-06-29 12:57 - [中国新闻社参评第36届中国新闻奖创意传播、新闻IP作品初评公示](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [热血洒疆场忠魂归故乡 沈阳全城以最高礼遇迎接英雄回家](https://github.com/lisacumin64-arch)

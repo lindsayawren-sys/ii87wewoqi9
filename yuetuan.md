@@ -1,60 +1,59 @@
-# 美国对伊连打三张牌 油价黄金交易逻辑拆解
+# 东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-来源：汇通网 汇通财经APP讯——目前，美伊局势正处于看上去极其危险的“冰点”，纸面数据确实不容乐观。 特朗普总统在白宫椭圆形办公室直接将伊朗最新的和平提案斥为“一堆垃圾”。 尽管伊朗方面提出了解除海上封锁、放松制裁以换取霍尔木兹海峡部分控制权的方案，但特朗普坚称那是一份“准备起来不到10分钟”的无意义文件。 随着周日谈判陷入僵局，美伊双方的停火预期愈发脆弱，中东局势从外交拉锯
+中新社兰州4月22日电 题：敦煌古藏文文献“回归”，见证汉藏交融千年史 ——专访西北民族大学海外民族文献研究所所长才让 中新社记者 闫姣 敦煌古藏文文献是现存已知最古老的纸质藏文文献之一，内容涵盖佛教经典、历史著作、契约文书、政事文书、法律条文等，涉及吐蕃历史、政治、经济、文化等诸多领域，是研究吐蕃历史文化的珍贵史料。 由西北民族大学、上海古籍出版社分别与英国国家图书馆、法国国
 
 ## 正文
 
-来源：汇通网 汇通财经APP讯——目前，美伊局势正处于看上去极其危险的“冰点”，纸面数据确实不容乐观。
+中新社兰州4月22日电 题：敦煌古藏文文献“回归”，见证汉藏交融千年史 ——专访西北民族大学海外民族文献研究所所长才让 中新社记者 闫姣 敦煌古藏文文献是现存已知最古老的纸质藏文文献之一，内容涵盖佛教经典、历史著作、契约文书、政事文书、法律条文等，涉及吐蕃历史、政治、经济、文化等诸多领域，是研究吐蕃历史文化的珍贵史料。
 
-特朗普总统在白宫椭圆形办公室直接将伊朗最新的和平提案斥为“一堆垃圾”。
+由西北民族大学、上海古籍出版社分别与英国国家图书馆、法国国家图书馆合作编纂的《英国国家图书馆藏敦煌西域藏文文献》《法国国家图书馆藏敦煌藏文文献》，历经20年已全部整理出版发行，让流散海外的珍贵文献以高清图版形式回归故土。
 
-尽管伊朗方面提出了解除海上封锁、放松制裁以换取霍尔木兹海峡部分控制权的方案，但特朗普坚称那是一份“准备起来不到10分钟”的无意义文件。
+其“回归”意义是什么？
 
-随着周日谈判陷入僵局，美伊双方的停火预期愈发脆弱，中东局势从外交拉锯战正式转入“准战争”状态。
+敦煌藏文文献包含哪些汉藏“三交”(交流交往交融)内容？
 
-但本人观点依然明确，最终目标就是谈，即使最终会有转折也不是现在，目前美国仍然在极力寻找伊朗的软肋，这次封锁伊朗油轮的行为对美国来说吃到了一些甜头，于是美国在重复这个逻辑 寻找“阿喀琉斯之踵”：军事会议与代理人绞杀 在外交陷入死结后，特朗普迅速召集了包括副总统万斯、国务卿鲁比奥、国防部长赫格塞斯在内的“最强鹰派班底”。
+近日，西北民族大学铸牢中华民族共同体意识研究院名誉院长、海外民族文献研究所所长才让教授接受中新社“东西问”专访作出解读。
 
-周一的国安会议核心议题非常明确：讨论针对伊朗的下一步军事行动。
+视频：【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史来源：中国新闻网 现将访谈实录摘要如下： 中新社记者：此次文献的整理出版，在文献定名方面取得了哪些新成果？
 
-美军已圈定伊朗境内25%的关键目标准备实施补漏式打击，与此同时，美国祭出了一套组合拳，试图通过切断“辐射链条”来动摇伊朗根基： 同时美国务院悬赏1500万美元打击伊朗革命卫队的金融网络意图搞清楚伊朗代理人链条：在也门等地，美国通过切断伊朗对胡塞武装等代理人的物资输送，试图拔掉伊朗在中东的“触角”，迫使失去外部屏障的德黑兰回到谈判桌前。
+才让：这批文献形成于7至11世纪，尽管英法收藏机构已有国外学者编写的目录，但敦煌藏文文献大多残缺不全，很多写卷破损严重、字迹模糊、首尾缺失，辨认难度极大，以往的目录普遍存在定名不准确、大量文献没有正式名称等问题。
 
-即使不直接切割这些代理人，也会通过提供瓦解代理人的威胁来促使伊朗完成和谈。
+此次出版，在编目和定名工作上实现了多项重要突破：首次采用藏汉双语定名的体例，极大方便了学界使用和检索；对同一编号内的不同文献分别标注、清晰区分；将以往笼统定为“佛经”的写本，大多考证出了具体经名。
 
 ## 相关推荐
 
-- 2026-06-29 12:52 - [广电网络（600831）投资者索赔再获得法院立案，向日葵（300111）索赔案再提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:57 - [道达尔能源、康菲石油与卡塔尔能源签署协议 助力叙利亚重返国际能源版图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:53 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:34 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:46 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:57 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:49 - [劳动者杯中国职工篮球系列赛鸣哨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:50 - [瑞银继续唱多黄金：多重利多因素推动 金价年内仍有望刷新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:33 - [我国牵头制定发布14项天然气领域国际标准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:52 - [5月12日龙虎榜，机构青睐这10股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:31 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:47 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:49 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:31 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 13:05 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:46 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:44 - [【理响中国·经视图】以投资于物支撑投资于人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:49 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 13:02 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:49 - [理财规模季末回落超万亿，全年增速或放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:44 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:39 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:52 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:45 - [日本一自卫队演习场发生爆炸 致3死1重伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:58 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:38 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:58 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:53 - [助力乡村振兴，平安农业无人机公益计划首站落地伊犁](http://www.share.kurohicncr.top/Article/details/60406.shtml)
-- 2026-06-29 12:37 - [泡泡玛特跨界卖茶饮？知情人士：POP BAKERY直营门店仍以甜品为主](http://www.share.kurohicncr.top/Article/details/62520764.shtml)
-- 2026-06-29 12:40 - [新疆哈密：光热发电项目年发2亿度清洁电](http://www.blog.kurohicncr.top/Article/details/12573749.shtml)
-- 2026-06-29 12:40 - [515投资者保护|富国基金口播轻投教“基金小课堂”：全网播放6000万，助力碎片化投教](http://www.share.kurohicncr.top/Article/details/6180819500.shtml)
-- 2026-06-29 12:41 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](http://www.share.kurohicncr.top/Article/details/3838907128.shtml)
-- 2026-06-29 12:31 - [融汇东西方经典爱情传说 实验轻歌剧《阴阳喜帖》将首演](http://www.share.kurohicncr.top/Article/details/0709134578.shtml)
-- 2026-06-29 12:40 - [赣锋锂业(002460.SZ)：注销2022年股票期权激励计划剩余55.125万份期权，因第四个行权期业绩未达标](http://www.blog.kurohicncr.top/Article/details/2387644.shtml)
-- 2026-06-29 12:40 - [谁在借网络平台给日本社会“投毒”？（环球走笔）](http://www.blog.kurohicncr.top/Article/details/30622470.shtml)
-- 2026-06-29 12:36 - [电动化替代速度超预期，中国新能源汽车创新纪录](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.share.minike.top/Article/details/8386435.shtml)
-- 2026-06-29 12:49 - [日本北海道发生4.8级地震](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [沪粤文脉双向奔赴 展示海丝千年风华](http://www.blog.kurohicncr.top/Article/details/842315.shtml)
-- 2026-06-29 12:51 - [“加息噩梦”近了？美联储“昔日鸽派”：通胀走向错误，与关税、石油无关！](http://www.blog.minike.top/Article/details/40334195.shtml)
-- 2026-06-29 12:40 - [腾讯最新声明：不会开发提供“微信访客功能”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [抓住重点 务求实效（人民论坛）](http://www.blog.kurohicncr.top/Article/details/15326183240.shtml)
+- 2026-06-29 12:55 - [厦门举办连横逝世九十周年纪念座谈会](http://www.blog.minike.top/Article/details/16655627738.shtml)
+- 2026-06-29 12:57 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](http://www.share.minike.top/Article/details/06384909.shtml)
+- 2026-06-29 12:49 - [国内油价，今年首次下调](http://www.share.minike.top/Article/details/954987774.shtml)
+- 2026-06-29 12:42 - [长江有色：22日铜价小涨 高价货源成交寥寥](http://www.share.kurohicncr.top/Article/details/48514897.shtml)
+- 2026-06-29 12:57 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](http://www.blog.kurohicncr.top/Article/details/87933229935.shtml)
+- 2026-06-29 12:43 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](http://www.blog.minike.top/Article/details/031749295.shtml)
+- 2026-06-29 13:04 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [重回4100点！A股三大指数午后集体大涨](http://www.blog.kurohicncr.top/Article/details/2693007936.shtml)
+- 2026-06-29 12:56 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.share.minike.top/Article/details/88364202269.shtml)
+- 2026-06-29 12:48 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](http://www.blog.kurohicncr.top/Article/details/29269.shtml)
+- 2026-06-29 12:57 - [美军称对一艘“涉伊朗”油轮登船检查](http://www.share.minike.top/Article/details/874946.shtml)
+- 2026-06-29 12:52 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](http://www.share.minike.top/Article/details/92261937387.shtml)
+- 2026-06-29 12:39 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.share.kurohicncr.top/Article/details/98101.shtml)
+- 2026-06-29 12:42 - [别瞧不起格林基金](http://www.blog.kurohicncr.top/Article/details/986122.shtml)

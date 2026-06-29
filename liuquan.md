@@ -1,53 +1,57 @@
-# 双向奔赴！两岸媒体人镜头里的和平与相融
+# 远古植物如何挺过2.52亿年前大灭绝？中外科学家最新研究揭秘
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 19:36 来源：中国新闻网 5月12日，第七届两岸媒体人峰会在北京举行。自首届两岸媒体人峰会启幕至今，两岸新闻人以笔墨为舟、以镜头为帆，在海峡两岸搭建起沟通的桥梁。过去一年，当我们用各自的视角记录两岸，哪一段共同记忆，让跨越海峡的连接有了更具体的模样？让我们在交流中，寻找答案。(记者 范思忆 刘子衿 制作 乐小敏) 责任编辑：【刘湃】
+中新网北京4月21日电 (记者 孙自法)约2.52亿年前的二叠纪-三叠纪大灭绝事件，造成了地球历史上最严重的生物多样性丧失，远古植物如何挺过该大灭绝时期而存活下来，在古生物学界一直备受关注。 施普林格·自然旗下专业学术期刊《自然-生态与演化》最新发表一篇中外科学家合作完成的古生物学研究论文称，二叠纪-三叠纪的石松类植物转向一种更灵活、节水效率更高的代谢途径——景天酸代谢(CAM
 
 ## 正文
 
-发布时间：2026年05月12日 19:36 来源：中国新闻网 5月12日，第七届两岸媒体人峰会在北京举行。
+中新网北京4月21日电 (记者 孙自法)约2.52亿年前的二叠纪-三叠纪大灭绝事件，造成了地球历史上最严重的生物多样性丧失，远古植物如何挺过该大灭绝时期而存活下来，在古生物学界一直备受关注。
 
-自首届两岸媒体人峰会启幕至今，两岸新闻人以笔墨为舟、以镜头为帆，在海峡两岸搭建起沟通的桥梁。
+施普林格·自然旗下专业学术期刊《自然-生态与演化》最新发表一篇中外科学家合作完成的古生物学研究论文称，二叠纪-三叠纪的石松类植物转向一种更灵活、节水效率更高的代谢途径——景天酸代谢(CAM)，这种适应机制可能帮助这些植物在早三叠世(2.51亿年-2.46亿年前)的极端环境条件下存活下来。
 
-过去一年，当我们用各自的视角记录两岸，哪一段共同记忆，让跨越海峡的连接有了更具体的模样？
+这项研究由论文共同通讯作者、英国利兹大学徐珍博士和中国地质大学(武汉)喻建新教授联合中外科研同行共同开展，相关成果或能为现代植物未来如何应对严峻的气候变暖情景提供启示。
 
-让我们在交流中，寻找答案。
+合作团队介绍说，二叠纪-三叠纪灭绝事件是由大规模火山喷发引发，导致全球性灾难性变暖、大气二氧化碳浓度升高、大范围海洋缺氧(海水含氧量降低)以及海洋酸化。
 
-(记者 范思忆 刘子衿 制作 乐小敏) 责任编辑：【刘湃】
+随后陆地植被发生了重大变化，曾经覆盖广大区域的森林被以石松类植物(小型原始维管植物)为主导的、结构简单且生物多样性较低的植物群落所取代。
+
+了解这些植物如何存活下来，可能有助于解释陆地生态系统在此次危机后如何恢复。
+
+在本项研究中，合作团队对采自中国西南的285件石松类植物化石以及文献中记载的200件化石进行分析研究，并将它们的特征与现存及化石近亲进行比较。
+
+结果显示，二叠纪-三叠纪的石松类植物与现今的水韭(一种非常小、通常半水生的植物)具有亲缘关系。
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [利好！3800亿巨头，午后直线拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:45 - [47岁资本大佬戴学斌，涉嫌刑事犯罪被拘！旗下蓝润系曾坐拥超千亿元资产，知情人：去年就已有风声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:34 - [Hims & Hers一季度亏损、盈利指引疲软，股价暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:40 - [新疆乌恰：大风吹歪屋顶 民辅警徒手帮民众加固](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:33 - [Optum Rx推出透明定价新模式，重塑药房福利管理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:43 - [法国农办调增2025/26年度谷物出口预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:31 - [习近平会见联合国教科文组织总干事阿纳尼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:54 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:32 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:38 - [嘴唇发紫就是心血管有淤堵？专家解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:47 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:59 - [中国—东盟科技减贫合作交流会在广西南宁开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:35 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:48 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:45 - [政府提前还债从省级延伸至地市，怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:46 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:46 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 13:04 - [欧洲央行管委卡扎克斯：欧洲央行不急着加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:38 - [两岸媒体赴桂林 “打卡”“广西三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:36 - [哈萨克斯坦驻华大使点赞“China Travel”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 13:02 - [捷蓝航空被指利用个人数据定价，两党议员联名质询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:41 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:38 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 13:04 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:57 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](http://www.share.minike.top/Article/details/212432216420.shtml)
-- 2026-06-29 12:36 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](http://www.blog.minike.top/Article/details/525678811258.shtml)
-- 2026-06-29 12:44 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](http://www.blog.kurohicncr.top/Article/details/86124209.shtml)
-- 2026-06-29 12:42 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](http://www.blog.minike.top/Article/details/6804004.shtml)
-- 2026-06-29 12:33 - [劳动者杯中国职工篮球系列赛鸣哨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [瑞银继续唱多黄金：多重利多因素推动 金价年内仍有望刷新高](http://www.blog.minike.top/Article/details/78798.shtml)
-- 2026-06-29 13:00 - [我国牵头制定发布14项天然气领域国际标准](http://www.share.kurohicncr.top/Article/details/29269.shtml)
-- 2026-06-29 12:38 - [5月12日龙虎榜，机构青睐这10股](http://www.blog.minike.top/Article/details/457323678.shtml)
-- 2026-06-29 12:52 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](http://www.share.kurohicncr.top/Article/details/35095204318.shtml)
-- 2026-06-29 12:40 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](http://www.share.kurohicncr.top/Article/details/1604466.shtml)
-- 2026-06-29 12:52 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](http://www.share.minike.top/Article/details/24140079.shtml)
-- 2026-06-29 12:57 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](http://www.share.minike.top/Article/details/931220292.shtml)
-- 2026-06-29 12:32 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](http://www.share.minike.top/Article/details/40624.shtml)
-- 2026-06-29 12:30 - [全球首个面向南方国家的教师数字素养提升行动计划发布](http://www.share.kurohicncr.top/Article/details/7848879.shtml)
+- 2026-06-29 13:04 - [【理响中国·经视图】以投资于物支撑投资于人](http://www.blog.minike.top/Article/details/66778473511.shtml)
+- 2026-06-29 13:01 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](http://www.blog.minike.top/Article/details/41889982.shtml)
+- 2026-06-29 12:37 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](http://www.share.kurohicncr.top/Article/details/05848374.shtml)
+- 2026-06-29 13:04 - [理财规模季末回落超万亿，全年增速或放缓](http://www.share.minike.top/Article/details/67148.shtml)
+- 2026-06-29 12:54 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](http://www.blog.kurohicncr.top/Article/details/1942620.shtml)
+- 2026-06-29 12:51 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](http://www.blog.minike.top/Article/details/313788036.shtml)
+- 2026-06-29 13:05 - [日本一自卫队演习场发生爆炸 致3死1重伤](http://www.share.kurohicncr.top/Article/details/270858258096.shtml)
+- 2026-06-29 12:44 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](http://www.share.minike.top/Article/details/4060216.shtml)
+- 2026-06-29 12:46 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [人民币兑美元中间价报6.8594，上调54点](http://www.blog.kurohicncr.top/Article/details/451780.shtml)
+- 2026-06-29 12:52 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](http://www.blog.minike.top/Article/details/4852107608.shtml)
+- 2026-06-29 12:42 - [沃什如何推动美联储实现“政策范式转变”](http://www.blog.minike.top/Article/details/5625779608.shtml)
+- 2026-06-29 12:41 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](http://www.share.minike.top/Article/details/227174059405.shtml)

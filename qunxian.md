@@ -1,60 +1,59 @@
-# 租充电宝1小时扣149元还被要求自证？专家教你维权
+# 追忆侨领张素久：从容面对挑战 坚韧不拔
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-共享充电宝本应提供便利的服务，然而湖北武汉的吴女士在机场租用充电宝1小时却被扣费149元，当吴女士提出异议后，更是被要求“回现场自证”，这样的要求合理吗？我们来看吴女士的经历。 租1小时却被收3天费用 还被要求回现场自证 2026年4月20日晚，吴女士在武汉天河机场T3航站楼租用了一款名为“小电”的共享充电宝。实际使用约1小时后，她确认已将充电宝归还至机柜插槽。然而4天后，吴女
+中新社北京4月22日电 (韩辉 刘洋 刘超)“我妈妈是一个特别积极向上、特别有爱心、特别努力的人。每次国家有大的事情，她都带领华侨华人积极参与。”4月21日，张素久之子朱一山接受中新社记者采访时如是说。当地时间4月20日，美国著名侨领张素久因病医治无效在南加州与世长辞，享年91岁。张素久是著名爱国将领、被誉为“和平将军”的张治中的小女儿。她曾任清华大学北美教育基金会会长、美国南
 
 ## 正文
 
-共享充电宝本应提供便利的服务，然而湖北武汉的吴女士在机场租用充电宝1小时却被扣费149元，当吴女士提出异议后，更是被要求“回现场自证”，这样的要求合理吗？
+中新社北京4月22日电 (韩辉 刘洋 刘超)“我妈妈是一个特别积极向上、特别有爱心、特别努力的人。
 
-我们来看吴女士的经历。
+每次国家有大的事情，她都带领华侨华人积极参与。
 
-租1小时却被收3天费用 还被要求回现场自证 2026年4月20日晚，吴女士在武汉天河机场T3航站楼租用了一款名为“小电”的共享充电宝。
+”4月21日，张素久之子朱一山接受中新社记者采访时如是说。
 
-实际使用约1小时后，她确认已将充电宝归还至机柜插槽。
+当地时间4月20日，美国著名侨领张素久因病医治无效在南加州与世长辞，享年91岁。
 
-然而4天后，吴女士却收到了一份高达149元的扣费通知，系统订单显示租借时长竟长达3天7小时56分钟。
+张素久是著名爱国将领、被誉为“和平将军”的张治中的小女儿。
 
-面对明显的计费异常，吴女士联系客服要求退款。
+她曾任清华大学北美教育基金会会长、美国南加州华人社团联合会主席等职务。
 
-然而，对方给出的处理方案引发了更大的争议：客服要求吴女士必须亲自返回机场原租借点，拍摄并确认具体归还的卡口二维码及插槽ID，才能进入人工复核程序。
+“现在我们也在做很多社会活动，有张治中基金会，也与上海大学合作成立研究院，这些都与母亲的言传身教密不可分。
 
-对于已经离开机场的消费者而言，这种“现场自证”的要求不仅意味着极高的交通与时间成本，更被指是企业人为设置的维权门槛。
+”在朱一山看来，母亲始终坚韧不拔，“碰到任何困难她都不气馁”。
 
 ## 相关推荐
 
-- 2026-06-29 12:54 - [“中国李乡”广东信宜迎三华李丰收季 跑出乡村振兴“加速度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:55 - [数读中国开局新活力｜青年占比超50% 小镇20年长成“青春经济”样本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:40 - [奖励名额翻倍！货拉拉2026“平凡之光”魅力司机评选开启报名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:38 - [廖岷与英国财政部国际金融事务总司长怀特举行视频通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:32 - [美国对伊连打三张牌 油价黄金交易逻辑拆解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:52 - [英国政府拟立法改革银行“隔离”制度,以提振企业融资与经济增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:42 - [“广西三月三”系列活动走进香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:38 - [M4Markets:白银突破八十美元关口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:36 - [奥特曼出庭作证：马斯克想要“完全掌控”OpenAI并将其传给子女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:53 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:56 - [新疆导游“天山那头有人民”被贴标签 台湾教师：扩交流是解方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:33 - [广电网络（600831）投资者索赔再获得法院立案，向日葵（300111）索赔案再提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:47 - [道达尔能源、康菲石油与卡塔尔能源签署协议 助力叙利亚重返国际能源版图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:58 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 13:03 - [美国能源部长：汽油价格可能在一周前已经见顶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:50 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 13:04 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:54 - [国务院印发《关于推进服务业扩能提质的意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 13:03 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:57 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:59 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:55 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 13:05 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:50 - [挪威三月油气产量超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:54 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:42 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:50 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:43 - [海航6.6万元“顺心卡”背后的金融游戏](http://www.blog.kurohicncr.top/Article/details/786307362.shtml)
-- 2026-06-29 12:44 - [中信建投期货：5月13日黑色系早报](http://www.blog.kurohicncr.top/Article/details/1623695.shtml)
-- 2026-06-29 12:30 - [塔吉克斯坦总统寄语北大留学生：珍惜在华学习机会](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [外交部：无论赖清德说什么做什么，都改变不了台湾是中国领土一部分的事实](http://www.share.kurohicncr.top/Article/details/2369525.shtml)
-- 2026-06-29 12:33 - [一则传闻！盘面掉头下跌！多空齐发！钢价涨势有变？](http://www.blog.minike.top/Article/details/47197.shtml)
-- 2026-06-29 12:47 - [多元融合焕新消费 “电影+”让大银幕有大引力](http://www.blog.minike.top/Article/details/475592.shtml)
-- 2026-06-29 12:45 - [新疆吐鲁番：青蛙巷文脉绵延 研学赋能葡萄沟文旅新生](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [人工智能概念股涨势消退，中东停火协议“命悬一线”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [华尔街通胀焦虑加剧 机构关注美联储下一步如何抉择](http://www.blog.minike.top/Article/details/3000925.shtml)
-- 2026-06-29 12:31 - [敲诈900多家网店 买家恶意下单2700多次被判刑](http://www.share.kurohicncr.top/Article/details/274017.shtml)
-- 2026-06-29 12:44 - [印度拟调整大宗商品衍生品交易规则，以提振市场流动性](http://www.blog.minike.top/Article/details/896623913464.shtml)
-- 2026-06-29 12:36 - [助力乡村振兴，平安农业无人机公益计划首站落地伊犁](http://www.share.minike.top/Article/details/3860531071.shtml)
-- 2026-06-29 12:40 - [泡泡玛特跨界卖茶饮？知情人士：POP BAKERY直营门店仍以甜品为主](http://www.share.kurohicncr.top/Article/details/84004725.shtml)
-- 2026-06-29 12:39 - [新疆哈密：光热发电项目年发2亿度清洁电](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [515投资者保护|富国基金口播轻投教“基金小课堂”：全网播放6000万，助力碎片化投教](http://www.blog.kurohicncr.top/Article/details/6292291932.shtml)
+- 2026-06-29 12:50 - [接迎英雄回家的运-20B专机进入我国领空](http://www.blog.kurohicncr.top/Article/details/376599874.shtml)
+- 2026-06-29 13:03 - [特朗普过去24小时都忙了什么？（2026-04-21）](http://www.share.minike.top/Article/details/9559251.shtml)
+- 2026-06-29 12:41 - [海外旅行商甘肃掘金丝路游 便利支付迎全球客](http://www.share.minike.top/Article/details/290448.shtml)
+- 2026-06-29 12:38 - [机械车位闲置，如何盘活改造？](http://www.blog.minike.top/Article/details/04746.shtml)
+- 2026-06-29 12:45 - [加拿大总理批美贸易政策：加美关系“优势”变“劣势”](http://www.blog.kurohicncr.top/Article/details/03895.shtml)
+- 2026-06-29 12:58 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.share.kurohicncr.top/Article/details/4149833.shtml)
+- 2026-06-29 13:01 - [联合健康集团业绩超预期并上调展望](http://www.blog.kurohicncr.top/Article/details/58969502337.shtml)
+- 2026-06-29 13:01 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](http://www.share.minike.top/Article/details/450959.shtml)
+- 2026-06-29 12:54 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:01 - [学习新语｜山河永念 英雄回家](http://www.blog.minike.top/Article/details/7732294568.shtml)
+- 2026-06-29 12:49 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:03 - [厦门举办连横逝世九十周年纪念座谈会](http://www.share.kurohicncr.top/Article/details/177463751906.shtml)
+- 2026-06-29 12:45 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](http://www.blog.minike.top/Article/details/8659321.shtml)
+- 2026-06-29 12:53 - [国内油价，今年首次下调](http://www.blog.kurohicncr.top/Article/details/680869356082.shtml)
+- 2026-06-29 12:45 - [长江有色：22日铜价小涨 高价货源成交寥寥](http://www.share.kurohicncr.top/Article/details/256584973904.shtml)

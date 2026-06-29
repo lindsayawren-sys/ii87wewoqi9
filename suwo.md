@@ -1,57 +1,61 @@
-# “三顾之城开新局”中央主流媒体看南阳主题宣传活动启动
+# 全年净利润不到6亿 甘肃银行豪掷17亿分红为哪般？
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-中新网南阳5月13日电(王佳宁)5月13日，由中国新闻社河南分社、河南省南阳市委宣传部主办的“三顾之城开新局”中央主流媒体看南阳主题宣传活动在河南南阳启动，采访团将沉浸式探访当地文脉传承、生态保护、产业升级、乡村振兴等发展实景，集中挖掘宣传当地经济社会高质量发展的新成效。 地处伏牛山腹地的南阳，是南水北调中线工程重要水源地、省域副中心城市，拥有汉文化、武侯文化、医圣文化等厚重文
+“甘肃银行大手笔分红方案引发市场关注，不少投资者质疑：分红比赚的还多，后续还稳吗？在去年下半年，甘肃银行曾公告将发行可转债补充资本金，或许这是甘肃银行此次分红的背景。” 近日，甘肃银行分红方案发布后，引发市场关注。根据甘肃银行最新披露的2025年年报，该行去年归属于股东净利润为5.88亿元，而拟分红派息的金额却高达17.78亿元，接近最近3年的利润总和。 在该方案公布后，甘肃银
 
 ## 正文
 
-中新网南阳5月13日电(王佳宁)5月13日，由中国新闻社河南分社、河南省南阳市委宣传部主办的“三顾之城开新局”中央主流媒体看南阳主题宣传活动在河南南阳启动，采访团将沉浸式探访当地文脉传承、生态保护、产业升级、乡村振兴等发展实景，集中挖掘宣传当地经济社会高质量发展的新成效。
+“甘肃银行大手笔分红方案引发市场关注，不少投资者质疑：分红比赚的还多，后续还稳吗？
 
-地处伏牛山腹地的南阳，是南水北调中线工程重要水源地、省域副中心城市，拥有汉文化、武侯文化、医圣文化等厚重文脉及月季、艾草等中医药产业优势资源。
+在去年下半年，甘肃银行曾公告将发行可转债补充资本金，或许这是甘肃银行此次分红的背景。
 
-官方数据显示，2026年一季度，该市GDP超1217亿元，同比增长6.3%，经济运行稳中有进、质效双升。
+” 近日，甘肃银行分红方案发布后，引发市场关注。
 
-在文化传承领域，南阳以“三顾之城”等城市IP为载体，推动楚汉文化、中医药文化等创造性转化、创新性发展。
+根据甘肃银行最新披露的2025年年报，该行去年归属于股东净利润为5.88亿元，而拟分红派息的金额却高达17.78亿元，接近最近3年的利润总和。
 
-近些年，南阳深挖“四圣”文化，打造三国诸葛、医圣仲景等城市新IP，以“文化+沉浸式演艺+特色业态”的创新表达，打造全时段、沉浸式文旅新体验。
+在该方案公布后，甘肃银行长期低迷的股价大幅拉升，3月30日股价盘中一度大涨27.45%，4月14日创下0.34港元/股的阶段性新高，随后几日开始回落。
 
-在生态保护方面，南阳持续推进南水北调中线水源地保护，严守生态红线，使水环境持续向好。
+6年不分红，一朝分红却分出近3年的利润，甘肃银行背后有何考量？
 
-截至目前，南水北调中线工程累计向北调水超776亿立方米，润泽京津冀豫超过1.18亿人。
+01 拟一次分红17亿 甘肃银行前身是白银市商业银行，2011年5月，由白银市商业银行、平凉市商业银行等发起设立甘肃银行，2018年1月，甘肃银行在香港联交所主板挂牌上市。
 
-同时，南阳依托月季、艾草等当地资源，做强特色优势产业、带动民众增收，实现农文旅深度融合。
+去年9月，王锡真辞去该行行长职务，其职务由石海龙接替。
 
 ## 相关推荐
 
-- 2026-06-29 12:57 - [300965，重大资产重组，明日复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:43 - [纽约联储研究：美国信用卡债务回落至1.25万亿美元，但仍呈现K型分化格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:58 - [“海南鲜品”加速海南农产品向高端走、线上走、海外走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:43 - [美国总统特朗普抵达北京](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:39 - [欧佩克下调2026年全球石油需求增长预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:31 - [力量发展午前涨近4% 机构指公司南非煤矿盈利较为可靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:59 - [金银冲高回落！专家：下半年金银仍上行，白银弹性更大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:41 - [ST龙大实控人戴学斌被刑拘，今日开盘跌停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:32 - [油价上涨拖累全球股市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:52 - [五月生猪行情横向震荡，中期修复窗口逐步临近](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:48 - [四川优化升级无人机“扫码飞” 适飞空域预计超全省面积八成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:57 - [方邦股份4月21日龙虎榜数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:44 - [接迎第十三批在韩中国人民志愿军烈士遗骸回国的空军运-20B降落在沈阳桃仙国际机场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:39 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:39 - [金宏气体：受国际局势和市场供需关系影响，氦气产品价格存在一定波动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:58 - [旷日持久的冲突或将对铜价构成压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:48 - [“易中天”市值力压贵州茅台！创业板人工智能近1年飙涨202%持续跑赢！高“光”159363放量再创新高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:49 - [AI光模块市场年增57%！260亿美元机遇爆发！含光量超45%的创业板人工智能ETF华宝159363上探逾2%冲击前高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:39 - [国泰海通：宏观与供需共振 金属板块呈现结构性机会（附股）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:46 - [强降雨致漓江排筏全线封航 桂林海事部门筑牢水上安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:55 - [在洪安边城寻找“翠翠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:37 - [滴滴成为香港引进办重点企业，两地乘客可顺畅使用同一个App](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:46 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:42 - [全线爆发！三大龙头，历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:46 - [乌克兰总统泽连斯基称石油输送可恢复 为欧盟贷款铺平道路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:40 - [人民海军成立77周年系列报道之：沧海·初心如磐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:40 - [习近平会见文莱王储比拉](http://www.share.minike.top/Article/details/8386486.shtml)
-- 2026-06-29 12:34 - [韩国交易所开始在资本市场监测工作中采用AI技术](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [机构预测2026年泰国平均通货膨胀率为3.4%](http://www.blog.minike.top/Article/details/224898.shtml)
-- 2026-06-29 12:42 - [习近平同塔吉克斯坦总统拉赫蒙共同出席合作文件签字仪式](http://www.share.minike.top/Article/details/237429530607.shtml)
-- 2026-06-29 12:50 - [三峡库区水位加快消落 调整航标保畅通](http://www.share.minike.top/Article/details/792522457138.shtml)
-- 2026-06-29 12:58 - [AI盈利兑现+油价回落，美股延续反弹](http://www.share.minike.top/Article/details/43037020971.shtml)
-- 2026-06-29 12:43 - [股海导航_2026年5月13日_沪深股市公告与交易提示](http://www.blog.minike.top/Article/details/99329798978.shtml)
-- 2026-06-29 12:35 - [保时捷控股一季度业绩受挫，敦促大众汽车重组业务模式](http://www.blog.kurohicncr.top/Article/details/50631676.shtml)
-- 2026-06-29 12:30 - [世界期待中美携手多办大事实事好事](http://www.blog.kurohicncr.top/Article/details/201410384.shtml)
-- 2026-06-29 12:36 - [500亿市值巨头突然直线拉升](http://www.blog.kurohicncr.top/Article/details/316508600936.shtml)
-- 2026-06-29 12:46 - [获刑十三年！荐股“杀猪盘”被查](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [“二号位”或套现4737万，百亿京北方频遭高管减持](http://www.share.minike.top/Article/details/4091955.shtml)
-- 2026-06-29 12:36 - [德邦证券思考：当“护主心切”演变为“系统性自伤”](http://www.blog.minike.top/Article/details/78741.shtml)
-- 2026-06-29 12:45 - [英国首相斯塔默周三将与一位主要对手会面](http://www.blog.minike.top/Article/details/1991432.shtml)
-- 2026-06-29 12:33 - [光大期货0513热点追踪：橡胶开割季价格不跌反涨，还能看高一线吗？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [黄金遭遇一个月来最大跌幅，多头式微但支撑犹在](http://www.blog.minike.top/Article/details/410888195.shtml)
+- 2026-06-29 12:44 - [百利天恒4月21日大宗交易成交354.40万元](http://www.share.minike.top/Article/details/623079832176.shtml)
+- 2026-06-29 12:49 - [贵阳银行：2025年实现营业收入129.99亿元，同比下降12.94%](http://www.share.kurohicncr.top/Article/details/858997168.shtml)
+- 2026-06-29 12:59 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [日本原则上将允许杀伤性武器对外出口，外交部：严重关切](http://www.blog.minike.top/Article/details/320824234216.shtml)
+- 2026-06-29 12:41 - [光大期货：4月21日能源化工日报](http://www.share.kurohicncr.top/Article/details/79764521827.shtml)
+- 2026-06-29 12:48 - [必和必拓第三财季铁矿石产量增长3%，维持全年产量预期不变](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [沈阳都市圈汇聚创新力量 集中展示区域高价值专利成果](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [长春都市圈打造农产品精深加工集群 锚定千亿元级](http://www.blog.minike.top/Article/details/293438976469.shtml)
+- 2026-06-29 12:36 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](http://www.share.minike.top/Article/details/524810.shtml)
+- 2026-06-29 12:48 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](http://www.share.minike.top/Article/details/22977814137.shtml)
+- 2026-06-29 12:56 - [检察机关依法分别对谢红心、王成兵、崔孝栓、黎敦满提起公诉](http://www.blog.kurohicncr.top/Article/details/82451713.shtml)
+- 2026-06-29 12:56 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [这种清凉主食热量低，减肥可吃！但这几点要注意](http://www.share.kurohicncr.top/Article/details/0813281743.shtml)
+- 2026-06-29 12:57 - [拍照识字、自动翻译 探索打开古籍的N种方式](http://www.blog.minike.top/Article/details/3764580505.shtml)

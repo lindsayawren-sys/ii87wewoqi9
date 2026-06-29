@@ -1,61 +1,61 @@
-# “三不明”中成药或从医保目录“清退” 专家解读
+# 特斯拉下一代Roadster终于要来了？马斯克称可能在月底发布
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-“三不明”中成药或从医保目录“清退” 对患者有何影响？专家解读 近日，2026年国家基本医疗保险药品目录调整工作方案公开征求意见。在优化和调整方面，方案明确，根据国家药监局发布的《中药注册管理专门规定》，将说明书中禁忌、不良反应、注意事项为尚不明确且未在规定时间内完善的中成药，作为重点考虑调出的品种。“三不明”中成药或将迎来医保目录“清退”，释放出怎样的信号？对患者用药又有多大
+【TechWeb】4月22日消息，据外媒报道，在2017年11月17日发布电动卡车Semi时，特斯拉也一并展示了他们第二代Roadster电动超跑的原型车，但与Semi在2022年的12月份就已开始交付不同，Roadster不仅还未开始交付，甚至还未正式发布。不过从外媒最新的报道来看，原型车亮相已8年的特斯拉第二代Roadster，距离正式发布已经不远了，CEO马斯克已表示可能
 
 ## 正文
 
-“三不明”中成药或从医保目录“清退” 对患者有何影响？
+【TechWeb】4月22日消息，据外媒报道，在2017年11月17日发布电动卡车Semi时，特斯拉也一并展示了他们第二代Roadster电动超跑的原型车，但与Semi在2022年的12月份就已开始交付不同，Roadster不仅还未开始交付，甚至还未正式发布。
 
-专家解读 近日，2026年国家基本医疗保险药品目录调整工作方案公开征求意见。
+不过从外媒最新的报道来看，原型车亮相已8年的特斯拉第二代Roadster，距离正式发布已经不远了，CEO马斯克已表示可能在本月底发布。
 
-在优化和调整方面，方案明确，根据国家药监局发布的《中药注册管理专门规定》，将说明书中禁忌、不良反应、注意事项为尚不明确且未在规定时间内完善的中成药，作为重点考虑调出的品种。
+马斯克是在社交媒体上与粉丝互动时，透露第二代的Roadster电动超跑可能在月底发布的。
 
-“三不明”中成药或将迎来医保目录“清退”，释放出怎样的信号？
+从特斯拉方面此前公布的消息来看，他们新一代的Roadster超跑性能不俗，配备200 kWh的电池，续航里程接近1000公里，百公里加速时间为2.1秒，最高时速超过400公里。
 
-对患者用药又有多大影响？
+性能不俗的特斯拉Roadster，也有高昂的售价，普通版售价为20万美元，预订需要支付50000美元订金，1000辆的创始人系列的售价为25万美元，在预订时需要全额支付。
 
-在本次医保目录药品的调出重点考虑方面，国家医保局参照了国家药监局于2023年发布的《中药注册管理专门规定》。
+在国内市场，预订是需要支付33.2万元的订金。
 
-该《规定》明确，自当年7月1日起，中药说明书禁忌、不良反应、注意事项中任何一项，满3年后申请药品再注册时仍标注为“尚不明确”的，依法不予再注册。
+但至于特斯拉新一代的Roadster电动超跑最终会在何时发布，要在他们正式宣布时或正式发布时，才会揭晓。
 
-在华中科技大学同济医学院药品政策与管理研究中心主任陈昊看来，早年中成药审批侧重传统经验，缺乏足够的临床数据支撑，而本次医保目录调整规则的变化，正是对此前行业监管政策的有效衔接。
+（海蓝）
 
 ## 相关推荐
 
-- 2026-06-29 12:40 - [习近平会见联合国教科文组织总干事阿纳尼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:39 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:52 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:47 - [嘴唇发紫就是心血管有淤堵？专家解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:41 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:42 - [中国—东盟科技减贫合作交流会在广西南宁开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:36 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:43 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:52 - [新型“职业闭店人”骗局调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:32 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:42 - [为应对欧盟反垄断调查，Meta宣布将向竞争对手开放WhatsApp接口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:45 - [东航7月1日开通成都直航台中航线，国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:50 - [直击！直升机水上绞车救援专项训练现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:30 - [租充电宝1小时扣149元还被要求自证？专家教你维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:31 - [斯沃琪集团股东大会否决激进投资者董事席位提案,创始家族维持控股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:55 - [哈萨克斯坦驻华大使点赞“China Travel”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:58 - [捷蓝航空被指利用个人数据定价，两党议员联名质询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:56 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:39 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:46 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:48 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:37 - [中方：反对在霍尔木兹海峡问题上的恶意关联和炒作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:57 - [大摩：长和给予增持评级 目标价61港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:43 - [大众汽车集团被曝有意削减100万辆全球产能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:55 - [大庆钻探首台数智化综合录井仪投用 9秒精准捕捉油气信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:36 - [美国民主党众议员Cherfilus-McCormick辞职 被指控盗窃资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:55 - [工信部：有序引导算力基础设施建设 构建多层级算力架构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 13:05 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:39 - [追忆侨领张素久：从容面对挑战 坚韧不拔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:54 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:56 - [我国牵头制定发布14项天然气领域国际标准](http://www.blog.minike.top/Article/details/000919.shtml)
-- 2026-06-29 12:46 - [5月12日龙虎榜，机构青睐这10股](http://www.share.minike.top/Article/details/411231098.shtml)
-- 2026-06-29 12:58 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](http://www.share.kurohicncr.top/Article/details/709001052.shtml)
-- 2026-06-29 12:43 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](http://www.blog.minike.top/Article/details/1154460.shtml)
-- 2026-06-29 12:31 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](http://www.blog.minike.top/Article/details/90602697.shtml)
-- 2026-06-29 12:35 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [全球首个面向南方国家的教师数字素养提升行动计划发布](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [打了网红“气血针”，能否“一针提神”？专家提醒](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具](http://www.share.kurohicncr.top/Article/details/63205.shtml)
-- 2026-06-29 12:48 - [防汛关键期！感受直升机索滑降训练现场](http://www.share.minike.top/Article/details/157134111548.shtml)
-- 2026-06-29 12:57 - [戎装缔良缘 相守赴山河](http://www.share.minike.top/Article/details/201262534882.shtml)
-- 2026-06-29 12:49 - [中行境外机构人事调整 涉及中东、西欧多家分行](http://www.blog.kurohicncr.top/Article/details/598986757323.shtml)
-- 2026-06-29 12:49 - [国际能源署警示：霍尔木兹海峡供应冲击 复苏需耗时数月](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:03 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [日本一自卫队演习场发生爆炸 致3死1重伤](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](http://www.share.kurohicncr.top/Article/details/25391733050.shtml)
+- 2026-06-29 13:02 - [另类师徒携手追凶 《黑夜告白》定档](http://www.share.minike.top/Article/details/031526899.shtml)
+- 2026-06-29 12:56 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [人民币兑美元中间价报6.8594，上调54点](http://www.share.kurohicncr.top/Article/details/652664331.shtml)
+- 2026-06-29 12:58 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](http://www.blog.minike.top/Article/details/84345583824.shtml)
+- 2026-06-29 13:05 - [沃什如何推动美联储实现“政策范式转变”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](http://www.share.minike.top/Article/details/716625396.shtml)
+- 2026-06-29 12:59 - [阿维塔总裁陈卓回应与深蓝汽车战略协同：不影响赴港上市计划，仍会按照当前节奏推进](http://www.blog.minike.top/Article/details/23924.shtml)
+- 2026-06-29 13:03 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [两粕：美豆上涨提振内盘，低库存支撑菜粕价格](http://www.share.kurohicncr.top/Article/details/4721254019.shtml)
+- 2026-06-29 12:45 - [从“大V带货”到“基民买单”：德邦稳盈增长一季度亏21.57亿元，赎回183亿份](http://www.share.kurohicncr.top/Article/details/0982362.shtml)
+- 2026-06-29 12:52 - [日本首相高市早苗向靖国神社供奉“玉串料”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [三位华人女数学家获2026突破奖](https://github.com/lisacumin64-arch)

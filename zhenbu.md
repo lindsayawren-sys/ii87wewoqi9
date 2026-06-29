@@ -1,56 +1,55 @@
-# Optum Rx推出透明定价新模式，重塑药房福利管理
+# 欧洲央行管委卡扎克斯：欧洲央行不急着加息
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-联合健康集团旗下Optum Rx宣布推出一项全新的药房护理模式，从根本上改变药房福利的定价和交付方式。新模式以透明的费用为基础，面向所有Optum Rx的药房福利管理客户开放。 彻底告别传统定价模式 新模式下，Optum Rx将采用每月按会员人数计算的固定费用结构，该费用与制造商标价或处方量完全脱钩，从而消除了“价差定价”等传统做法。每位客户都可以完全透明地了解Optum Rx
+欧洲央行管理委员会委员马丁斯・卡扎克斯在接受媒体采访时称，目前没有紧急加息的必要，现行经济数据尚不足以支撑加息操作，当前基准利率为 2%。卡扎克斯表示：“我们仍有充足时间收集数据、研判后续政策走向。”他指出，当前通胀预期总体可控，且截至目前，能源价格上涨对经济体其他领域产生的连锁影响较为有限。他补充道，国际油价已从中东冲突后的高位回落，欧洲天然气价格也远低于 2022 年的水平
 
 ## 正文
 
-联合健康集团旗下Optum Rx宣布推出一项全新的药房护理模式，从根本上改变药房福利的定价和交付方式。
+欧洲央行管理委员会委员马丁斯・卡扎克斯在接受媒体采访时称，目前没有紧急加息的必要，现行经济数据尚不足以支撑加息操作，当前基准利率为 2%。
 
-新模式以透明的费用为基础，面向所有Optum Rx的药房福利管理客户开放。
+卡扎克斯表示：“我们仍有充足时间收集数据、研判后续政策走向。
 
-彻底告别传统定价模式 新模式下，Optum Rx将采用每月按会员人数计算的固定费用结构，该费用与制造商标价或处方量完全脱钩，从而消除了“价差定价”等传统做法。
+”他指出，当前通胀预期总体可控，且截至目前，能源价格上涨对经济体其他领域产生的连锁影响较为有限。
 
-每位客户都可以完全透明地了解Optum Rx的各项费用，包括其集团采购组织相关的费用，药企支付的所有款项也将明确披露。
+他补充道，国际油价已从中东冲突后的高位回落，欧洲天然气价格也远低于 2022 年的水平。
 
-到2027年底，集团采购将全面过渡为固定服务费模式。
+卡扎克斯称，当前利率水平恰到好处，既不会刺激经济增长，也不会对经济增速形成抑制。
 
-同步推出消费者数字比价工具 与此同时，Optum还推出了两款帮助消费者在购药前比价的数字工具：“Shop MyScript”可在处方开具后即时通知患者，提供药品定价、药房选择和配送方式的实时信息；“Price Wise”则显示完整的费用明细——包括药品价格和明确定义的服务费，消费者可以不使用医保福利直接支付全价，无需担心结账时出现意外费用。
-
-行业压力推动改革 近年来，药房福利管理行业长期因定价不透明、回扣机制复杂而饱受批评。
-
-此次Optum Rx的改革被视为对行业痼疾的正面回应。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 12:56 - [中国—东盟科技减贫合作交流会在广西南宁开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:33 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:46 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:53 - [新型“职业闭店人”骗局调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:38 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:44 - [为应对欧盟反垄断调查，Meta宣布将向竞争对手开放WhatsApp接口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:42 - [东航7月1日开通成都直航台中航线，国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:56 - [直击！直升机水上绞车救援专项训练现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:46 - [租充电宝1小时扣149元还被要求自证？专家教你维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:51 - [斯沃琪集团股东大会否决激进投资者董事席位提案,创始家族维持控股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 13:03 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:48 - [中方：反对在霍尔木兹海峡问题上的恶意关联和炒作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:38 - [大摩：长和给予增持评级 目标价61港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:58 - [大众汽车集团被曝有意削减100万辆全球产能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:57 - [大庆钻探首台数智化综合录井仪投用 9秒精准捕捉油气信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:44 - [美国民主党众议员Cherfilus-McCormick辞职 被指控盗窃资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 13:04 - [工信部：有序引导算力基础设施建设 构建多层级算力架构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:37 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:47 - [追忆侨领张素久：从容面对挑战 坚韧不拔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 13:00 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:42 - [特朗普称最终将达成重大协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:51 - [向优、向新、向绿——江苏制造业企业高质量发展一线微观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 13:00 - [全民阅读活动周 各地举办多场活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:30 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](http://www.blog.minike.top/Article/details/64089756050.shtml)
-- 2026-06-29 12:45 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](http://www.blog.kurohicncr.top/Article/details/633634068.shtml)
-- 2026-06-29 12:37 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](http://www.share.minike.top/Article/details/547644801.shtml)
-- 2026-06-29 12:32 - [全球首个面向南方国家的教师数字素养提升行动计划发布](http://www.share.minike.top/Article/details/4005672.shtml)
-- 2026-06-29 12:52 - [打了网红“气血针”，能否“一针提神”？专家提醒](http://www.share.kurohicncr.top/Article/details/68487.shtml)
-- 2026-06-29 12:35 - [稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具](http://www.share.minike.top/Article/details/999000211073.shtml)
-- 2026-06-29 12:57 - [防汛关键期！感受直升机索滑降训练现场](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [戎装缔良缘 相守赴山河](http://www.share.minike.top/Article/details/671844172.shtml)
-- 2026-06-29 12:55 - [中行境外机构人事调整 涉及中东、西欧多家分行](http://www.share.minike.top/Article/details/3792327703.shtml)
-- 2026-06-29 12:43 - [国际能源署警示：霍尔木兹海峡供应冲击 复苏需耗时数月](http://www.share.minike.top/Article/details/018019009538.shtml)
-- 2026-06-29 12:43 - [GTC泽汇资本:原油溢价回落供需博弈](http://www.blog.kurohicncr.top/Article/details/508668234404.shtml)
-- 2026-06-29 12:50 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](http://www.blog.minike.top/Article/details/396527067.shtml)
-- 2026-06-29 12:36 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](http://www.share.minike.top/Article/details/70969350.shtml)
-- 2026-06-29 12:52 - [中国官方附条件批准腾讯收购喜马拉雅股权案](http://www.blog.kurohicncr.top/Article/details/59132096.shtml)
-- 2026-06-29 12:40 - [英伟达CEO黄仁勋薪酬下滑27% 源于股票奖励缩水](http://www.blog.kurohicncr.top/Article/details/604126088.shtml)
+- 2026-06-29 12:57 - [人民币兑美元中间价报6.8594，上调54点](http://www.share.minike.top/Article/details/056156.shtml)
+- 2026-06-29 12:54 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](http://www.blog.kurohicncr.top/Article/details/2987905651.shtml)
+- 2026-06-29 12:38 - [沃什如何推动美联储实现“政策范式转变”](http://www.share.kurohicncr.top/Article/details/23325.shtml)
+- 2026-06-29 13:01 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](http://www.blog.kurohicncr.top/Article/details/30974.shtml)
+- 2026-06-29 12:37 - [阿维塔总裁陈卓回应与深蓝汽车战略协同：不影响赴港上市计划，仍会按照当前节奏推进](http://www.share.kurohicncr.top/Article/details/514992110300.shtml)
+- 2026-06-29 12:46 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [两粕：美豆上涨提振内盘，低库存支撑菜粕价格](http://www.share.kurohicncr.top/Article/details/79449259505.shtml)
+- 2026-06-29 12:43 - [从“大V带货”到“基民买单”：德邦稳盈增长一季度亏21.57亿元，赎回183亿份](http://www.blog.kurohicncr.top/Article/details/188902789925.shtml)
+- 2026-06-29 12:37 - [日本首相高市早苗向靖国神社供奉“玉串料”](http://www.share.kurohicncr.top/Article/details/04652113.shtml)
+- 2026-06-29 12:45 - [三位华人女数学家获2026突破奖](http://www.blog.minike.top/Article/details/11167.shtml)
+- 2026-06-29 12:47 - [沃伦：特朗普提名沃什出任美联储主席，意在短期刺激经济以谋取政治私利](http://www.share.minike.top/Article/details/856788582.shtml)
+- 2026-06-29 12:59 - [临夏有约：“蓝色黄河”岸畔寻龙迹](http://www.blog.kurohicncr.top/Article/details/47450632636.shtml)
+- 2026-06-29 13:05 - [天弘基金高阳豪掷1771万入股，结构失衡下的利益捆绑疑云](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [封堵化肥管理漏洞，《肥料登记管理办法》加速修订](http://www.blog.kurohicncr.top/Article/details/11043125894.shtml)
+- 2026-06-29 12:44 - [七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压](https://github.com/lisacumin64-arch)

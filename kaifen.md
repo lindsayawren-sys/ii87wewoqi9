@@ -1,56 +1,57 @@
-# Hims & Hers一季度亏损、盈利指引疲软，股价暴跌16%
+# 友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 核心要点 数字医疗企业Hims & Hers（Hims & Hers）因一季度业绩不及预期，盘前股价大幅下挫。 公司一季度净亏损 9200 万美元，去年同期为 5000 万美元。 公司近期与诺和诺德达成合作，将在平台销售其品牌减肥药。 远程医疗企业Hims & Hers公布一季度亏损且全年盈利指引疲软后，周二早盘股价大幅跳水。 这家数字医疗
+界面新闻记者 | 何柳颖 界面新闻编辑 | 王姝 近日，友邦保险控股有限公司（下称“友邦保险”，01299.HK）发布公告称，将于2026年5月22日举行股东周年大会，同时包括顾敏在内的6名独立非执行董事将进入重选流程。 界面新闻记者留意到，微众银行董事长、微众科技董事长顾敏于2026年2月5日获委任为友邦保险的独立非执行董事，任期约为3年。同时自2026年4月1日起，顾敏获委
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 核心要点 数字医疗企业Hims & Hers（Hims & Hers）因一季度业绩不及预期，盘前股价大幅下挫。
+界面新闻记者 | 何柳颖 界面新闻编辑 | 王姝 近日，友邦保险控股有限公司（下称“友邦保险”，01299.HK）发布公告称，将于2026年5月22日举行股东周年大会，同时包括顾敏在内的6名独立非执行董事将进入重选流程。
 
-公司一季度净亏损 9200 万美元，去年同期为 5000 万美元。
+界面新闻记者留意到，微众银行董事长、微众科技董事长顾敏于2026年2月5日获委任为友邦保险的独立非执行董事，任期约为3年。
 
-公司近期与诺和诺德达成合作，将在平台销售其品牌减肥药。
+同时自2026年4月1日起，顾敏获委任为友邦保险新设的科技、营运及数据委员会主席。
 
-远程医疗企业Hims & Hers公布一季度亏损且全年盈利指引疲软后，周二早盘股价大幅跳水。
+据了解，该委员会主席的年度袍金为每年65000美元（约合人民币44.3万元），与其他董事委员会的袍金一致。
 
-这家数字医疗企业于周一发布一季报，净亏损 9200 万美元，上年同期约亏损 5000 万美元；调整后息税折旧摊销前利润为 4400 万美元，低于去年同期的 9100 万美元。
+接近微众银行人士告诉界面新闻记者，顾敏受邀担任友邦集团独立非执行董事，该任职不影响在微众的正常履职。
 
-与此同时，公司营收同比增长 4%，达 6.08 亿美元；每用户月均营收为 80 美元，较去年的 85 美元有所下滑。
+友邦保险公告显示，鉴于科技在集团业务运作中的角色日益重要，董事会已批准成立科技、营运及数据委员会，以支持董事会就集团于相关领域的策略、管治及执行方面，提供更专注及更高效的监督。
 
-Hims & Hers预计第二季度营收区间为 6.8 亿至 7 亿美元，全年营收最高可达 30 亿美元。
+根据公告，该委员会主要关注范畴应包括现有及新兴科技、数码应用、旨在推动数码转型的举措、人工智能的使用及其对集团的潜在影响、集团网络安全计划的范围和成效，以及相关监管发展。
 
-公司预测二季度调整后息税折旧摊销前利润最高为 5500 万美元，全年最高可达 3.5 亿美元。
+对于顾敏在友邦保险的履职，招联首席经济学家董希淼向界面新闻记者分析称，友邦保险引入数字银行背景的顾敏进入董事会参与战略决策，可能是想借助其数字银行丰富经验，加速自身科技转型，尤其是在人工智能应用、数据驱动经营和运营效率提升等领域，以更好地应对市场竞争。
 
 ## 相关推荐
 
-- 2026-06-29 12:55 - [嘴唇发紫就是心血管有淤堵？专家解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:39 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:39 - [中国—东盟科技减贫合作交流会在广西南宁开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:48 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:37 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:38 - [新型“职业闭店人”骗局调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:54 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:40 - [为应对欧盟反垄断调查，Meta宣布将向竞争对手开放WhatsApp接口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:51 - [东航7月1日开通成都直航台中航线，国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:39 - [直击！直升机水上绞车救援专项训练现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 13:02 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:59 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:49 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 13:05 - [中方：反对在霍尔木兹海峡问题上的恶意关联和炒作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:49 - [大摩：长和给予增持评级 目标价61港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 13:04 - [大众汽车集团被曝有意削减100万辆全球产能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:46 - [大庆钻探首台数智化综合录井仪投用 9秒精准捕捉油气信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:36 - [美国民主党众议员Cherfilus-McCormick辞职 被指控盗窃资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:44 - [工信部：有序引导算力基础设施建设 构建多层级算力架构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 13:03 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:39 - [追忆侨领张素久：从容面对挑战 坚韧不拔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](http://www.blog.kurohicncr.top/Article/details/5717698.shtml)
-- 2026-06-29 12:55 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](http://www.blog.minike.top/Article/details/7323985222.shtml)
-- 2026-06-29 12:42 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](http://www.share.kurohicncr.top/Article/details/14897105.shtml)
-- 2026-06-29 12:44 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [全球首个面向南方国家的教师数字素养提升行动计划发布](http://www.blog.kurohicncr.top/Article/details/1260889579.shtml)
-- 2026-06-29 12:48 - [打了网红“气血针”，能否“一针提神”？专家提醒](http://www.blog.minike.top/Article/details/47155.shtml)
-- 2026-06-29 12:36 - [稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具](http://www.blog.kurohicncr.top/Article/details/068538501.shtml)
-- 2026-06-29 12:53 - [防汛关键期！感受直升机索滑降训练现场](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:48 - [戎装缔良缘 相守赴山河](http://www.blog.minike.top/Article/details/23385797139.shtml)
-- 2026-06-29 12:42 - [中行境外机构人事调整 涉及中东、西欧多家分行](http://www.share.minike.top/Article/details/29369268.shtml)
-- 2026-06-29 12:56 - [国际能源署警示：霍尔木兹海峡供应冲击 复苏需耗时数月](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [GTC泽汇资本:原油溢价回落供需博弈](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](http://www.blog.minike.top/Article/details/22016759263.shtml)
-- 2026-06-29 12:37 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](http://www.share.kurohicncr.top/Article/details/5803302.shtml)
+- 2026-06-29 12:48 - [另类师徒携手追凶 《黑夜告白》定档](http://www.share.kurohicncr.top/Article/details/32997986.shtml)
+- 2026-06-29 12:52 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](http://www.share.minike.top/Article/details/511644546.shtml)
+- 2026-06-29 12:54 - [人民币兑美元中间价报6.8594，上调54点](http://www.share.kurohicncr.top/Article/details/41080.shtml)
+- 2026-06-29 13:05 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](http://www.share.minike.top/Article/details/90789768.shtml)
+- 2026-06-29 13:02 - [沃什如何推动美联储实现“政策范式转变”](http://www.blog.kurohicncr.top/Article/details/16311.shtml)
+- 2026-06-29 12:52 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](http://www.share.kurohicncr.top/Article/details/4779305203.shtml)
+- 2026-06-29 12:45 - [阿维塔总裁陈卓回应与深蓝汽车战略协同：不影响赴港上市计划，仍会按照当前节奏推进](http://www.share.minike.top/Article/details/129958711008.shtml)
+- 2026-06-29 12:41 - [春播春管进行时——各地农业高质量发展一线观察](http://www.blog.kurohicncr.top/Article/details/1126383617.shtml)
+- 2026-06-29 13:02 - [两粕：美豆上涨提振内盘，低库存支撑菜粕价格](http://www.share.kurohicncr.top/Article/details/76356041.shtml)
+- 2026-06-29 13:02 - [从“大V带货”到“基民买单”：德邦稳盈增长一季度亏21.57亿元，赎回183亿份](http://www.share.minike.top/Article/details/568663463.shtml)
+- 2026-06-29 12:43 - [日本首相高市早苗向靖国神社供奉“玉串料”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [三位华人女数学家获2026突破奖](http://www.share.minike.top/Article/details/243279.shtml)
+- 2026-06-29 12:47 - [沃伦：特朗普提名沃什出任美联储主席，意在短期刺激经济以谋取政治私利](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [临夏有约：“蓝色黄河”岸畔寻龙迹](http://www.share.kurohicncr.top/Article/details/72331.shtml)
+- 2026-06-29 12:56 - [天弘基金高阳豪掷1771万入股，结构失衡下的利益捆绑疑云](http://www.share.minike.top/Article/details/935881349156.shtml)

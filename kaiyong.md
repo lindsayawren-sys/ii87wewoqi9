@@ -1,56 +1,56 @@
-# 中行境外机构人事调整 涉及中东、西欧多家分行
+# 日本首相高市早苗向靖国神社供奉“玉串料”
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-近日，中国银行发布2026年一季度报，报告期内实现营业收入1788.46亿元，同比上升8.44%；归母净利润566.31亿元，同比上升4.17%。截至一季度末，中行资产总额39.59万亿元，较上年末增长3.22%。 人事方面，近期中银香港管理层再次变动，中东、西欧的多家分行行长也出现调整。 刘畅，提任中银香港财务总监。 刘畅，纽约市立大学工商管理硕士，美国注册会计师。2000年
+中新社东京4月22日电(记者 朱晨曦)据日本媒体报道，日本首相高市早苗22日向靖国神社供奉“玉串料”(祭祀费)。 日本靖国神社21日至23日举行例行春季大祭。22日上午，日本经济财政政策担当大臣城内实参拜供奉有二战甲级战犯的靖国神社，这是高市早苗内阁大臣首次参拜。 此外，126名来自日本跨党派国会议员联盟“大家一起参拜靖国神社”的成员当日集体参拜了靖国神社。 靖国神社位于东京千
 
 ## 正文
 
-近日，中国银行发布2026年一季度报，报告期内实现营业收入1788.46亿元，同比上升8.44%；归母净利润566.31亿元，同比上升4.17%。
+中新社东京4月22日电(记者 朱晨曦)据日本媒体报道，日本首相高市早苗22日向靖国神社供奉“玉串料”(祭祀费)。
 
-截至一季度末，中行资产总额39.59万亿元，较上年末增长3.22%。
+日本靖国神社21日至23日举行例行春季大祭。
 
-人事方面，近期中银香港管理层再次变动，中东、西欧的多家分行行长也出现调整。
+22日上午，日本经济财政政策担当大臣城内实参拜供奉有二战甲级战犯的靖国神社，这是高市早苗内阁大臣首次参拜。
 
-刘畅，提任中银香港财务总监。
+此外，126名来自日本跨党派国会议员联盟“大家一起参拜靖国神社”的成员当日集体参拜了靖国神社。
 
-刘畅，纽约市立大学工商管理硕士，美国注册会计师。
+靖国神社位于东京千代田区，神社内供奉有包括东条英机在内的14名二战甲级战犯。
 
-2000年加入中国银行，曾任职于总行财务管理部及纽约分行会计部，熟悉总行及境内外机构的经营管理情况。
+长期以来，日本部分政客、国会议员坚持参拜靖国神社，遭到日本国内众多爱好和平人士和国际社会的强烈反对。
 
-2016年1月起历任中银香港财务管理部不同岗位，包括管理报告及分析处主管、企业规划及预算处主管、副总经理、总经理，亦曾代管司库工作。
-
-鹿特丹分行行长王燕，拟任重庆分行副行长；曾任中行新加坡分行行长助理、副行长。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:39 - [中信建投期货：5月13日黑色系早报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:59 - [塔吉克斯坦总统寄语北大留学生：珍惜在华学习机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:42 - [外交部：无论赖清德说什么做什么，都改变不了台湾是中国领土一部分的事实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:55 - [一则传闻！盘面掉头下跌！多空齐发！钢价涨势有变？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:50 - [多元融合焕新消费 “电影+”让大银幕有大引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:37 - [新疆吐鲁番：青蛙巷文脉绵延 研学赋能葡萄沟文旅新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:33 - [人工智能概念股涨势消退，中东停火协议“命悬一线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:42 - [华尔街通胀焦虑加剧 机构关注美联储下一步如何抉择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:51 - [敲诈900多家网店 买家恶意下单2700多次被判刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:41 - [接迎英雄回家的运-20B专机进入我国领空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:51 - [特朗普过去24小时都忙了什么？（2026-04-21）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 13:03 - [海外旅行商甘肃掘金丝路游 便利支付迎全球客](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:42 - [机械车位闲置，如何盘活改造？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:47 - [加拿大总理批美贸易政策：加美关系“优势”变“劣势”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:48 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:56 - [联合健康集团业绩超预期并上调展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:59 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:54 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:48 - [学习新语｜山河永念 英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:42 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 13:01 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](http://www.share.minike.top/Article/details/95441.shtml)
-- 2026-06-29 12:33 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](http://www.blog.minike.top/Article/details/31822.shtml)
-- 2026-06-29 12:43 - [美防长赫格塞思就国防预算出席国会听证会](http://www.blog.minike.top/Article/details/56567005.shtml)
-- 2026-06-29 12:51 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](http://www.share.minike.top/Article/details/99778.shtml)
-- 2026-06-29 12:37 - [卢比汇率持续走低，全球第二大黄金市场印度上调金银进口关税](http://www.share.kurohicncr.top/Article/details/647498149.shtml)
-- 2026-06-29 12:49 - [三星与工会奖金谈判破裂 官方深表遗憾](http://www.blog.minike.top/Article/details/402942.shtml)
-- 2026-06-29 12:44 - [Casa Minerals认股权证行权获43万美元，将用于亚利桑那及BC省勘探项目](http://www.share.minike.top/Article/details/6809054212.shtml)
-- 2026-06-29 12:45 - [大理大学在洱海蓝藻水华防控研究中取得重要进展](http://www.blog.minike.top/Article/details/57578875007.shtml)
-- 2026-06-29 12:42 - [太平洋岛国瑙鲁拟更改国名 下一步将举行全民公投](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [300965，重大资产重组，明日复牌](http://www.share.minike.top/Article/details/784698838.shtml)
-- 2026-06-29 12:57 - [纽约联储研究：美国信用卡债务回落至1.25万亿美元，但仍呈现K型分化格局](http://www.share.minike.top/Article/details/680096.shtml)
-- 2026-06-29 12:43 - [“海南鲜品”加速海南农产品向高端走、线上走、海外走](http://www.share.minike.top/Article/details/47173.shtml)
-- 2026-06-29 12:34 - [美国总统特朗普抵达北京](http://www.share.minike.top/Article/details/9150697072.shtml)
-- 2026-06-29 12:50 - [欧佩克下调2026年全球石油需求增长预期](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [华为正式发布智擎动力品牌！余承东：同样100度电 我们能比别人多跑50公里](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:02 - [财报季丨金融高管战略校准指南！利差筑底、结构重构，银行、保险趋势判断全景图](http://www.share.minike.top/Article/details/7215118404.shtml)
+- 2026-06-29 13:05 - [外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知](http://www.share.kurohicncr.top/Article/details/80803849269.shtml)
+- 2026-06-29 12:51 - [全年净利润不到6亿 甘肃银行豪掷17亿分红为哪般？](http://www.blog.minike.top/Article/details/32249431.shtml)
+- 2026-06-29 12:54 - [每一帧都很治愈，你读书的样子真好看！](http://www.blog.kurohicncr.top/Article/details/643984247.shtml)
+- 2026-06-29 12:58 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](http://www.blog.minike.top/Article/details/17077.shtml)
+- 2026-06-29 12:37 - [中芯国际获南向资金连续3天净买入](http://www.blog.kurohicncr.top/Article/details/3099737553.shtml)
+- 2026-06-29 12:52 - [中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元](http://www.blog.minike.top/Article/details/0552931.shtml)
+- 2026-06-29 12:43 - [中天期货:螺纹区间反弹 焦煤继续反弹](http://www.share.kurohicncr.top/Article/details/310581846955.shtml)
+- 2026-06-29 12:39 - [金针菇概念股，净利润大增超7000%](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [方邦股份4月21日龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/25445180.shtml)
+- 2026-06-29 12:54 - [接迎第十三批在韩中国人民志愿军烈士遗骸回国的空军运-20B降落在沈阳桃仙国际机场](http://www.blog.minike.top/Article/details/124288.shtml)
+- 2026-06-29 12:55 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](http://www.share.minike.top/Article/details/0467703279.shtml)
+- 2026-06-29 12:49 - [金宏气体：受国际局势和市场供需关系影响，氦气产品价格存在一定波动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [旷日持久的冲突或将对铜价构成压力](http://www.share.minike.top/Article/details/409282.shtml)

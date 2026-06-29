@@ -1,61 +1,47 @@
-# 中国—东盟科技减贫合作交流会在广西南宁开幕
+# 我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-【东盟专线】中国—东盟科技减贫合作交流会在广西南宁开幕 中新社南宁5月12日电 (记者 杨陈)中国—东盟科技减贫合作交流会12日在广西南宁开幕。为期三天的交流活动采用线上线下相结合的方式，为中国与东盟国家搭建科技减贫合作平台。 活动吸引了140多名来自柬埔寨、印度尼西亚、老挝、马来西亚、缅甸、泰国、越南、东帝汶等东盟国家，以及中国多省区相关部门管理人员、高校及科研机构科技人员、
+发布时间：2026年04月22日 09:32 来源：中国新闻网 责任编辑：【韦俊龙】
 
 ## 正文
 
-【东盟专线】中国—东盟科技减贫合作交流会在广西南宁开幕 中新社南宁5月12日电 (记者 杨陈)中国—东盟科技减贫合作交流会12日在广西南宁开幕。
-
-为期三天的交流活动采用线上线下相结合的方式，为中国与东盟国家搭建科技减贫合作平台。
-
-活动吸引了140多名来自柬埔寨、印度尼西亚、老挝、马来西亚、缅甸、泰国、越南、东帝汶等东盟国家，以及中国多省区相关部门管理人员、高校及科研机构科技人员、农业企业负责人参会。
-
-活动通过研讨交流、成果推介、培训学习、实地调研等形式，开展双多边经验交流、成果共享与务实合作，推动“一带一路”科技减贫专项合作计划在东盟国家落地实施。
-
-其间，广西乡村振兴外资项目发展中心主任邓妙宏作《中国脱贫攻坚的成就与经验》专题报告，系统展示中国脱贫攻坚取得的巨大成就和为全球减贫事业贡献的中国智慧、中国方案，以及科技减贫在其中发挥的重要支撑作用和典型经验。
-
-线下参会代表将参观位于南宁的葡萄科研与试验示范基地、现代智慧渔业创新示范基地、蓝莓无土栽培产业基地，现场考察交流科技创新有效赋能减贫产业发展的实际做法与成效。
-
-此次活动由中国农村技术开发中心主办，广西东盟技术转移中心承办。
-
-活动组织单位还聚焦东盟国家农业产业发展需求，遴选汇编了粮油作物、园艺林木、畜禽养殖、植物保护和生态环境、农机装备与农产品加工五个类别的140余项科技减贫先进适用技术成果，并就其中的10项技术成果进行推介。
+发布时间：2026年04月22日 09:32 来源：中国新闻网 责任编辑：【韦俊龙】
 
 ## 相关推荐
 
-- 2026-06-29 12:57 - [直击！直升机水上绞车救援专项训练现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:37 - [租充电宝1小时扣149元还被要求自证？专家教你维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:50 - [斯沃琪集团股东大会否决激进投资者董事席位提案,创始家族维持控股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:36 - [上海启动滚动式灭蚊 严防蚊媒传染病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:31 - [亚马逊“极速达”再拓版图，30分钟送达席卷美国数十城](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:47 - [上海加快开发适老化智能产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:46 - [伊朗空袭行动期间摩萨德局长到访阿联酋 协助战事协同部署](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:43 - [老将、新秀齐上阵 中国具身智能机器人加速实景应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:46 - [“中国李乡”广东信宜迎三华李丰收季 跑出乡村振兴“加速度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:45 - [数读中国开局新活力｜青年占比超50% 小镇20年长成“青春经济”样本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:47 - [奖励名额翻倍！货拉拉2026“平凡之光”魅力司机评选开启报名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:35 - [廖岷与英国财政部国际金融事务总司长怀特举行视频通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:53 - [美国对伊连打三张牌 油价黄金交易逻辑拆解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:32 - [英国政府拟立法改革银行“隔离”制度,以提振企业融资与经济增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:36 - [“广西三月三”系列活动走进香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:42 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:45 - [追忆侨领张素久：从容面对挑战 坚韧不拔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:41 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:45 - [特朗普称最终将达成重大协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:47 - [向优、向新、向绿——江苏制造业企业高质量发展一线微观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:51 - [全民阅读活动周 各地举办多场活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 13:01 - [日本首相高市早苗向靖国神社献祭品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:48 - [经济大省调研行｜消费新动能：看“体验经济”如何创造“沉浸式快乐”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:44 - [美国能源部长：汽油价格可能在一周前已经见顶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:58 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:54 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:57 - [国务院印发《关于推进服务业扩能提质的意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:48 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:53 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:36 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:38 - [戎装缔良缘 相守赴山河](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [中行境外机构人事调整 涉及中东、西欧多家分行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [国际能源署警示：霍尔木兹海峡供应冲击 复苏需耗时数月](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [GTC泽汇资本:原油溢价回落供需博弈](http://www.blog.kurohicncr.top/Article/details/25377070715.shtml)
-- 2026-06-29 12:31 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](http://www.blog.minike.top/Article/details/970209456637.shtml)
-- 2026-06-29 12:46 - [中国官方附条件批准腾讯收购喜马拉雅股权案](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [英伟达CEO黄仁勋薪酬下滑27% 源于股票奖励缩水](http://www.blog.minike.top/Article/details/99451385.shtml)
-- 2026-06-29 12:30 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [中信建投期货：5月13日黑色系早报](http://www.share.minike.top/Article/details/622708911.shtml)
-- 2026-06-29 12:47 - [塔吉克斯坦总统寄语北大留学生：珍惜在华学习机会](http://www.share.minike.top/Article/details/845305.shtml)
-- 2026-06-29 12:52 - [外交部：无论赖清德说什么做什么，都改变不了台湾是中国领土一部分的事实](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [一则传闻！盘面掉头下跌！多空齐发！钢价涨势有变？](http://www.share.kurohicncr.top/Article/details/584857.shtml)
-- 2026-06-29 12:39 - [多元融合焕新消费 “电影+”让大银幕有大引力](http://www.blog.minike.top/Article/details/75062192968.shtml)
-- 2026-06-29 12:45 - [新疆吐鲁番：青蛙巷文脉绵延 研学赋能葡萄沟文旅新生](http://www.share.minike.top/Article/details/549663750.shtml)
+- 2026-06-29 12:49 - [从“大V带货”到“基民买单”：德邦稳盈增长一季度亏21.57亿元，赎回183亿份](http://www.share.minike.top/Article/details/31814.shtml)
+- 2026-06-29 12:36 - [日本首相高市早苗向靖国神社供奉“玉串料”](http://www.share.kurohicncr.top/Article/details/2962610782.shtml)
+- 2026-06-29 12:41 - [三位华人女数学家获2026突破奖](http://www.blog.minike.top/Article/details/82834.shtml)
+- 2026-06-29 12:39 - [沃伦：特朗普提名沃什出任美联储主席，意在短期刺激经济以谋取政治私利](http://www.share.minike.top/Article/details/70985351.shtml)
+- 2026-06-29 12:54 - [临夏有约：“蓝色黄河”岸畔寻龙迹](http://www.share.kurohicncr.top/Article/details/8880877.shtml)
+- 2026-06-29 12:51 - [天弘基金高阳豪掷1771万入股，结构失衡下的利益捆绑疑云](http://www.share.minike.top/Article/details/817296007.shtml)
+- 2026-06-29 12:38 - [封堵化肥管理漏洞，《肥料登记管理办法》加速修订](http://www.share.kurohicncr.top/Article/details/572203261609.shtml)
+- 2026-06-29 12:46 - [七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [接迎英雄回家的运-20B专机进入我国领空](http://www.blog.minike.top/Article/details/90402272250.shtml)
+- 2026-06-29 12:58 - [特朗普过去24小时都忙了什么？（2026-04-21）](http://www.blog.minike.top/Article/details/72876.shtml)
+- 2026-06-29 12:38 - [海外旅行商甘肃掘金丝路游 便利支付迎全球客](http://www.blog.minike.top/Article/details/9904171.shtml)
+- 2026-06-29 12:44 - [机械车位闲置，如何盘活改造？](http://www.share.minike.top/Article/details/17886.shtml)
+- 2026-06-29 12:57 - [加拿大总理批美贸易政策：加美关系“优势”变“劣势”](http://www.share.minike.top/Article/details/41444.shtml)
+- 2026-06-29 13:04 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [联合健康集团业绩超预期并上调展望](http://www.share.kurohicncr.top/Article/details/8907965.shtml)

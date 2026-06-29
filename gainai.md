@@ -1,58 +1,51 @@
-# 快递进村打通“最后一公里” 福建三明客货邮融合惠及万家
+# 商汤-W授出合共2.38亿份受限制股份单位
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-中新网三明5月13日电 (雷朝良 郑丽萍)“如今快递直接送到村部，出门走几分钟就能取件，太方便了！”近日，福建省三明市尤溪县下畲村村民小琴接到网购包裹送达的通知，准备前往村部取件。 过去取快递要从村里骑车到乡里，来回大半天，现在家门口就能拿到。这份便利，正是三明市推进“客货邮”融合发展、实施快递进村工程带来的民生红利。 快递进村，不仅打通了群众消费的“最后一公里”，也让村里的特
+商汤-W（00020）发布公告，于2026年4月21日，本公司根据本公司董事会于 2022年6月 20日采纳的本公司受限制股份单位计划（并根据日期为2024年6月26日的股东决议案修订）（2022年受限制股份单位计划）向下列合资格参与者（承授人）授出合共2.38亿份受限制股份单位。2.38亿份受限制股份单位向雇员参与者（即本集团成员公司的雇员）授出。责任编辑：卢昱君
 
 ## 正文
 
-中新网三明5月13日电 (雷朝良 郑丽萍)“如今快递直接送到村部，出门走几分钟就能取件，太方便了！
+商汤-W（00020）发布公告，于2026年4月21日，本公司根据本公司董事会于 2022年6月 20日采纳的本公司受限制股份单位计划（并根据日期为2024年6月26日的股东决议案修订）（2022年受限制股份单位计划）向下列合资格参与者（承授人）授出合共2.38亿份受限制股份单位。
 
-”近日，福建省三明市尤溪县下畲村村民小琴接到网购包裹送达的通知，准备前往村部取件。
+2.38亿份受限制股份单位向雇员参与者（即本集团成员公司的雇员）授出。
 
-过去取快递要从村里骑车到乡里，来回大半天，现在家门口就能拿到。
-
-这份便利，正是三明市推进“客货邮”融合发展、实施快递进村工程带来的民生红利。
-
-快递进村，不仅打通了群众消费的“最后一公里”，也让村里的特色农产品有了高效的外销渠道，为乡村振兴注入新活力。
-
-在永安小陶镇新寨村客货邮服务点，每天快递量达五六百件，春节高峰时突破1000件。
-
-村民不再需要往返7公里到集镇取件，实现了“网购自由”。
-
-70多岁的陈水根老人住在服务点对面，子女从城区寄来的食品、日用品足不出村就能领取。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:37 - [好评中国丨“防灾减灾救灾”为人民更靠人民](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:31 - [首届香港具身智能产业峰会暨智元APC2026成功举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:31 - [浙江黄岩话剧《问瓷》登国家大剧院 馆藏陈列走向艺术舞台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:52 - [赖清德散布“民主对抗威权”叙事 国台办：谎话说一千遍还是谎话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:50 - [新西兰拟修法限制企业气候排放责任诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 13:00 - [“交通安全统筹”等服务不属于车险（2026·05·12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:37 - [涉嫌侵犯隐私及诱导沉迷，美得克萨斯州对奈飞提起诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:47 - [午盘：美股走低科技股领跌 纳指下跌1.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:35 - [纳德拉作证：OpenAI当年解雇奥特曼的操作“极其业余”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:36 - [会计差错更正！ST龙韵更正定期报告，符合条件股民可登记索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:49 - [美国众议院议员就华纳兄弟收购案质询派拉蒙CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:36 - [哈尔滨电气早盘涨超4% 国内首台16兆瓦燃气轮机天然气燃气发生器满负荷试车成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:49 - [伊朗体育部长：若球员安全得到保障将参加美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 13:03 - [“荣归50”“红鹰”！运-20B、歼-20用特殊呼号唤英烈回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 13:04 - [首席记者谈首季经济丨“大码头”的经济密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:39 - [印度马恒达科技第四季度营收超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:54 - [外交部：所谓中国“窃取”知识产权完全是子虚乌有](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:47 - [冷藏柜里的高温杀菌乳到底是不是“假牛奶”？记者调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:57 - [华能蒙电：一季度归母净利润6.94亿元，同比下滑24.63%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:46 - [香港教大与清华大学合办教育主题论坛 推动AI与教育创新深度融合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:56 - [中华人民共和国和莫桑比克共和国关于构建新时代中莫命运共同体的联合声明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:43 - [百事转单嘉士伯，Royal Unibrew股价暴跌逾26%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:56 - [交易员：印度央行可能卖出美元以遏制卢比跌势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 13:02 - [“水立方”再迎跳水世界杯总决赛 中国队以老带新、满额参赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:43 - [建滔积层板午前涨超5% PCB价值量持续跃升公司近期发布涨价函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 13:02 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:40 - [酒价内参4月21日价格发布：青花汾20保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](http://www.share.kurohicncr.top/Article/details/68764638752.shtml)
-- 2026-06-29 12:43 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [嘴唇发紫就是心血管有淤堵？专家解答](http://www.share.minike.top/Article/details/53933551945.shtml)
-- 2026-06-29 12:51 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](http://www.share.minike.top/Article/details/22105.shtml)
-- 2026-06-29 12:49 - [中国—东盟科技减贫合作交流会在广西南宁开幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](http://www.blog.kurohicncr.top/Article/details/79486417609.shtml)
-- 2026-06-29 12:31 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](http://www.share.minike.top/Article/details/7085106669.shtml)
-- 2026-06-29 12:59 - [新型“职业闭店人”骗局调查](http://www.blog.kurohicncr.top/Article/details/86238732111.shtml)
-- 2026-06-29 12:41 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [为应对欧盟反垄断调查，Meta宣布将向竞争对手开放WhatsApp接口](http://www.blog.minike.top/Article/details/2078070.shtml)
-- 2026-06-29 12:41 - [东航7月1日开通成都直航台中航线，国台办回应](http://www.blog.kurohicncr.top/Article/details/13711184.shtml)
-- 2026-06-29 12:58 - [直击！直升机水上绞车救援专项训练现场](http://www.share.kurohicncr.top/Article/details/431498.shtml)
-- 2026-06-29 12:31 - [租充电宝1小时扣149元还被要求自证？专家教你维权](http://www.share.kurohicncr.top/Article/details/1490174.shtml)
-- 2026-06-29 12:49 - [斯沃琪集团股东大会否决激进投资者董事席位提案,创始家族维持控股权](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [上海启动滚动式灭蚊 严防蚊媒传染病](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [捷蓝航空被指利用个人数据定价，两党议员联名质询](http://www.blog.kurohicncr.top/Article/details/97907.shtml)
+- 2026-06-29 12:55 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](http://www.blog.minike.top/Article/details/935081201.shtml)
+- 2026-06-29 12:40 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](http://www.blog.minike.top/Article/details/88807977392.shtml)
+- 2026-06-29 13:03 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](http://www.share.minike.top/Article/details/71831013.shtml)
+- 2026-06-29 12:45 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](http://www.share.minike.top/Article/details/403739146.shtml)
+- 2026-06-29 12:45 - [中方：反对在霍尔木兹海峡问题上的恶意关联和炒作](http://www.share.minike.top/Article/details/04323234.shtml)
+- 2026-06-29 12:49 - [大摩：长和给予增持评级 目标价61港元](http://www.share.kurohicncr.top/Article/details/12146671.shtml)
+- 2026-06-29 13:04 - [大众汽车集团被曝有意削减100万辆全球产能](http://www.share.kurohicncr.top/Article/details/89247939136.shtml)
+- 2026-06-29 13:00 - [大庆钻探首台数智化综合录井仪投用 9秒精准捕捉油气信号](http://www.blog.minike.top/Article/details/181706846.shtml)
+- 2026-06-29 12:46 - [美国民主党众议员Cherfilus-McCormick辞职 被指控盗窃资金](http://www.blog.kurohicncr.top/Article/details/613368.shtml)
+- 2026-06-29 12:46 - [工信部：有序引导算力基础设施建设 构建多层级算力架构](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:03 - [追忆侨领张素久：从容面对挑战 坚韧不拔](http://www.blog.kurohicncr.top/Article/details/96538915.shtml)
+- 2026-06-29 13:03 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](http://www.blog.kurohicncr.top/Article/details/151224400573.shtml)
+- 2026-06-29 12:49 - [特朗普称最终将达成重大协议](http://www.blog.minike.top/Article/details/9754303225.shtml)

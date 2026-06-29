@@ -1,59 +1,49 @@
-# Casa Minerals认股权证行权获43万美元，将用于亚利桑那及BC省勘探项目
+# 中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-Casa Minerals Inc．周二宣布，2026年迄今已通过行使约445万份普通股认购权证获得总收益432，777.30美元。这些权证是作为公司2025年4月和2026年2月完成的非经纪私募发行的一部分而发行的，每份权证可按行权价认购一股公司普通股。 资金用途：优先投向核心矿区2026年钻探 公司表示，所得净收益将用于推进2026年在亚利桑那州的Congress金矿项目和
+4月21日，中国卫星(600118.SH)发布公告显示，公司2026年第一季度实现营业收入6.09亿元，较上年同期增长37.89%；归属于上市公司股东的净利润则为亏损4269.02万元。对于业绩变动，公告解释原因系“本报告期营业收入虽有所增加，但营业成本、期间费用、计提的资产减值损失较上年同期均有所增加，且其他收益中本期确认的增值税加计抵减额较上年同期减少。”（央广财经）（文章
 
 ## 正文
 
-Casa Minerals Inc．周二宣布，2026年迄今已通过行使约445万份普通股认购权证获得总收益432，777.30美元。
+4月21日，中国卫星(600118.SH)发布公告显示，公司2026年第一季度实现营业收入6.09亿元，较上年同期增长37.89%；归属于上市公司股东的净利润则为亏损4269.02万元。
 
-这些权证是作为公司2025年4月和2026年2月完成的非经纪私募发行的一部分而发行的，每份权证可按行权价认购一股公司普通股。
+对于业绩变动，公告解释原因系“本报告期营业收入虽有所增加，但营业成本、期间费用、计提的资产减值损失较上年同期均有所增加，且其他收益中本期确认的增值税加计抵减额较上年同期减少。
 
-资金用途：优先投向核心矿区2026年钻探 公司表示，所得净收益将用于推进2026年在亚利桑那州的Congress金矿项目和不列颠哥伦比亚省的Arsenault铜金银项目的勘探计划，以及一般营运资金。
-
-Casa Minerals总裁兼首席执行官Farshad Shirvani表示：“我们衷心感谢权证持有人的持续支持。
-
-这笔新增资本显著增强了我们的资产负债表，使我们能够在我们核心项目上为2026年积极的钻探和勘探季做好准备。
-
-” 项目背景与未来展望 Casa Minerals专注于北美地区金银铜及战略矿产的勘探。
-
-公司持有亚利桑那州历史悠久的Congress金矿90%的权益，同时拥有多个位于BC省的项目。
-
-近期，公司还从Congress金矿项目获得了大量历史钻探数据库，已完成桌面技术研究并划定了三个优先勘探区，为即将到来的钻探季做好了准备。
+”（央广财经）（文章来源：央广财经）
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [欧佩克下调2026年全球石油需求增长预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:51 - [力量发展午前涨近4% 机构指公司南非煤矿盈利较为可靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:34 - [金银冲高回落！专家：下半年金银仍上行，白银弹性更大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:36 - [ST龙大实控人戴学斌被刑拘，今日开盘跌停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:45 - [油价上涨拖累全球股市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:51 - [五月生猪行情横向震荡，中期修复窗口逐步临近](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:40 - [四川优化升级无人机“扫码飞” 适飞空域预计超全省面积八成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:57 - [龙泉股份：截至2026年5月8日公司股东人数为23412户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:58 - [联合航空将恢复飞往委内瑞拉航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:44 - [尼日利亚军方称打死至少70名疑似恐怖分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:35 - [欧洲央行管委Nagel：如果伊朗战争威胁到价格稳定 则必须采取行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:30 - [突破800万人次 北京口岸2026年度出入境人员总量再攀新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:55 - [App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 13:06 - [旷日持久的冲突或将对铜价构成压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:56 - [“易中天”市值力压贵州茅台！创业板人工智能近1年飙涨202%持续跑赢！高“光”159363放量再创新高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:57 - [AI光模块市场年增57%！260亿美元机遇爆发！含光量超45%的创业板人工智能ETF华宝159363上探逾2%冲击前高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:44 - [国泰海通：宏观与供需共振 金属板块呈现结构性机会（附股）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:42 - [强降雨致漓江排筏全线封航 桂林海事部门筑牢水上安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:47 - [在洪安边城寻找“翠翠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 13:04 - [滴滴成为香港引进办重点企业，两地乘客可顺畅使用同一个App](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 13:02 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:57 - [全线爆发！三大龙头，历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:52 - [乌克兰总统泽连斯基称石油输送可恢复 为欧盟贷款铺平道路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 13:00 - [人民海军成立77周年系列报道之：沧海·初心如磐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:52 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:41 - [欧洲央行Guindos：在利率问题上需要谨慎并保持冷静](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:33 - [三峡库区水位加快消落 调整航标保畅通](http://www.share.kurohicncr.top/Article/details/166306178602.shtml)
-- 2026-06-29 12:48 - [AI盈利兑现+油价回落，美股延续反弹](http://www.share.kurohicncr.top/Article/details/563468.shtml)
-- 2026-06-29 12:39 - [股海导航_2026年5月13日_沪深股市公告与交易提示](http://www.blog.minike.top/Article/details/851501807133.shtml)
-- 2026-06-29 12:51 - [保时捷控股一季度业绩受挫，敦促大众汽车重组业务模式](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [世界期待中美携手多办大事实事好事](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [500亿市值巨头突然直线拉升](http://www.blog.kurohicncr.top/Article/details/1142110.shtml)
-- 2026-06-29 12:39 - [获刑十三年！荐股“杀猪盘”被查](http://www.blog.minike.top/Article/details/505693736.shtml)
-- 2026-06-29 12:57 - [“二号位”或套现4737万，百亿京北方频遭高管减持](http://www.share.minike.top/Article/details/178520991591.shtml)
-- 2026-06-29 12:45 - [德邦证券思考：当“护主心切”演变为“系统性自伤”](http://www.share.kurohicncr.top/Article/details/9177034347.shtml)
-- 2026-06-29 12:56 - [英国首相斯塔默周三将与一位主要对手会面](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [光大期货0513热点追踪：橡胶开割季价格不跌反涨，还能看高一线吗？](http://www.blog.minike.top/Article/details/268835014.shtml)
-- 2026-06-29 12:54 - [因发放流动资金贷款贷前调查不尽职、贷后管理不到位 一人被禁止从事银行业工作七年](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [Waymo因积水路段行驶风险召回近3800辆机器人出租车](http://www.blog.minike.top/Article/details/801016.shtml)
-- 2026-06-29 12:42 - [滇藏公路通车50周年：缅怀筑路先烈](http://www.share.minike.top/Article/details/55463.shtml)
-- 2026-06-29 12:43 - [四川宝兴蜂桶寨今年首只人工繁育绿尾虹雉孵化出壳](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [日本原则上将允许杀伤性武器对外出口，外交部：严重关切](http://www.blog.minike.top/Article/details/09771199.shtml)
+- 2026-06-29 12:45 - [光大期货：4月21日能源化工日报](http://www.blog.minike.top/Article/details/04280.shtml)
+- 2026-06-29 12:37 - [必和必拓第三财季铁矿石产量增长3%，维持全年产量预期不变](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [沈阳都市圈汇聚创新力量 集中展示区域高价值专利成果](http://www.share.minike.top/Article/details/4777511770.shtml)
+- 2026-06-29 12:54 - [长春都市圈打造农产品精深加工集群 锚定千亿元级](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](http://www.blog.kurohicncr.top/Article/details/321984691993.shtml)
+- 2026-06-29 12:41 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [检察机关依法分别对谢红心、王成兵、崔孝栓、黎敦满提起公诉](http://www.blog.minike.top/Article/details/8965740105.shtml)
+- 2026-06-29 12:54 - [日本通过内阁决议正式允许出口杀伤性武器](http://www.blog.kurohicncr.top/Article/details/6703180850.shtml)
+- 2026-06-29 12:49 - [这种清凉主食热量低，减肥可吃！但这几点要注意](http://www.share.kurohicncr.top/Article/details/883998.shtml)
+- 2026-06-29 13:04 - [拍照识字、自动翻译 探索打开古籍的N种方式](http://www.blog.minike.top/Article/details/9570503.shtml)
+- 2026-06-29 12:56 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](http://www.share.kurohicncr.top/Article/details/350711034.shtml)
+- 2026-06-29 13:00 - [钢铁动脉连山海 同心筑梦向未来——中老铁路助力区域发展观察](http://www.blog.kurohicncr.top/Article/details/1657473643.shtml)
+- 2026-06-29 13:02 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [广州知识产权国际化布局加速 助力粤港澳三地协同创新](http://www.share.minike.top/Article/details/85357.shtml)

@@ -1,50 +1,61 @@
-# 名创优品发盈喜 预计第一季度利润约12.28亿至12.48亿元同比增加约195%至200%
+# 感冒流感药品销售疲软 利洁时股价下跌5.9%
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-名创优品（09896）发布公告，基于对截至2026年3月31日止季度的未经审计综合管理账目的初步审阅及评估，预计集团将录得（i）收入约人民币56.78亿元至人民币57.28亿元，同比增加约28%至29%；（ii）经营利润约人民币15.11亿元至人民币15.31亿元，同比增加约113%至116%；及（iii）期内利润约人民币12.28亿元至人民币12.48亿元，同比增加约195%
+专题：聚焦美股2026年第一季度财报 欧美感冒流感季症状较轻导致欧洲净收入下滑 受欧美感冒流感季症状较轻影响，利洁时集团在欧洲与北美地区销售表现不佳，公司股价随之走低。 这家英国快消品巨头旗下拥有 Mucinex 感冒药、杜蕾斯避孕套及来苏尔消毒液等品牌，其公布的一季度净收入为 32.5 亿英镑（43.9 亿美元），去年同期为 36.8 亿英镑。 公司汇总的分析师预期为：一季度
 
 ## 正文
 
-名创优品（09896）发布公告，基于对截至2026年3月31日止季度的未经审计综合管理账目的初步审阅及评估，预计集团将录得（i）收入约人民币56.78亿元至人民币57.28亿元，同比增加约28%至29%；（ii）经营利润约人民币15.11亿元至人民币15.31亿元，同比增加约113%至116%；及（iii）期内利润约人民币12.28亿元至人民币12.48亿元，同比增加约195%至200%。
+专题：聚焦美股2026年第一季度财报 欧美感冒流感季症状较轻导致欧洲净收入下滑 受欧美感冒流感季症状较轻影响，利洁时集团在欧洲与北美地区销售表现不佳，公司股价随之走低。
 
-2026年第一季度经营利润增加，主要由于对一间有限合伙企业投资的公允价值变动，产生未变现及按市值计价的收益人民币8.7亿元至人民币8.8亿元，主要归因于其于人工智能行业进行的首次公开发售前的早期战略性投资，惟部分被以下因素所抵销：（i）与去年同期相比，与TOP TOY有关的以权益结算的股份支付开支增加；以及（ii）净汇兑亏损，而去年同期则录得净汇兑收益。
+这家英国快消品巨头旗下拥有 Mucinex 感冒药、杜蕾斯避孕套及来苏尔消毒液等品牌，其公布的一季度净收入为 32.5 亿英镑（43.9 亿美元），去年同期为 36.8 亿英镑。
 
-公司预计将录得（i）剔除汇兑损益的经调整经营利润约人民币8.29亿元至人民币8.49亿元，同比增加约13%至16%；及（ii）剔除汇兑损益的经调整净利润约人民币6.24亿元至人民币6.44亿元，同比增加约7%至10%。
+公司汇总的分析师预期为：一季度净收入 31.9 亿英镑，可比口径增长 1.6%。
 
-责任编辑：卢昱君
+伦敦早盘交易中，该公司股价下跌 5.9%。
+
+利洁时表示，因感冒流感季表现疲软，欧洲地区净收入出现下滑；公司此前已预警该地区业绩将持续面临挑战。
+
+本季度欧洲可比净收入下降 4.2%，集团非处方药业务可比销售额录得双位数跌幅。
+
+伯恩斯坦分析师在致客户报告中写道：“过去数月管理层已多次提示感冒流感品类表现疲软，但市场似乎仍低估了此次压力的程度。
+
+” 不过，集团整体可比净收入仍增长 0.6%，其中新兴市场大幅增长 7.6%。
 
 ## 相关推荐
 
-- 2026-06-29 12:49 - [卢比汇率持续走低，全球第二大黄金市场印度上调金银进口关税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:31 - [三星与工会奖金谈判破裂 官方深表遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:56 - [Casa Minerals认股权证行权获43万美元，将用于亚利桑那及BC省勘探项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:39 - [大理大学在洱海蓝藻水华防控研究中取得重要进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:34 - [太平洋岛国瑙鲁拟更改国名 下一步将举行全民公投](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:37 - [300965，重大资产重组，明日复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:50 - [纽约联储研究：美国信用卡债务回落至1.25万亿美元，但仍呈现K型分化格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:42 - [“海南鲜品”加速海南农产品向高端走、线上走、海外走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:58 - [美国总统特朗普抵达北京](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:41 - [欧佩克下调2026年全球石油需求增长预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:45 - [力量发展午前涨近4% 机构指公司南非煤矿盈利较为可靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:35 - [金银冲高回落！专家：下半年金银仍上行，白银弹性更大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:47 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:39 - [中芯国际获南向资金连续3天净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:48 - [中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:39 - [中天期货:螺纹区间反弹 焦煤继续反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 13:01 - [金针菇概念股，净利润大增超7000%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:48 - [方邦股份4月21日龙虎榜数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:52 - [接迎第十三批在韩中国人民志愿军烈士遗骸回国的空军运-20B降落在沈阳桃仙国际机场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:37 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:45 - [金宏气体：受国际局势和市场供需关系影响，氦气产品价格存在一定波动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:41 - [旷日持久的冲突或将对铜价构成压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:38 - [“易中天”市值力压贵州茅台！创业板人工智能近1年飙涨202%持续跑赢！高“光”159363放量再创新高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:45 - [AI光模块市场年增57%！260亿美元机遇爆发！含光量超45%的创业板人工智能ETF华宝159363上探逾2%冲击前高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:51 - [国泰海通：宏观与供需共振 金属板块呈现结构性机会（附股）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:56 - [强降雨致漓江排筏全线封航 桂林海事部门筑牢水上安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:50 - [在洪安边城寻找“翠翠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:42 - [成都与比利时弗拉芒·布拉邦共庆友城十五载 携手挖掘合作新机遇](http://www.share.kurohicncr.top/Article/details/118055660467.shtml)
-- 2026-06-29 12:58 - [打卡同色系风景 城市“色彩漫步”成为年轻人新型散步方式](http://www.share.kurohicncr.top/Article/details/809412070306.shtml)
-- 2026-06-29 12:51 - [海外闽籍青年华商三明叙乡情：根在福建，梦连全球](http://www.blog.minike.top/Article/details/2657431.shtml)
-- 2026-06-29 12:31 - [德乌计划联合研发生产各型无人机](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [一季度西藏社会消费品零售总额255.83亿元](http://www.share.minike.top/Article/details/47848378.shtml)
-- 2026-06-29 12:57 - [习近平会见文莱王储比拉](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [韩国交易所开始在资本市场监测工作中采用AI技术](http://www.share.minike.top/Article/details/58466845585.shtml)
-- 2026-06-29 12:37 - [机构预测2026年泰国平均通货膨胀率为3.4%](http://www.blog.kurohicncr.top/Article/details/535562701.shtml)
-- 2026-06-29 12:54 - [习近平同塔吉克斯坦总统拉赫蒙共同出席合作文件签字仪式](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [三峡库区水位加快消落 调整航标保畅通](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [AI盈利兑现+油价回落，美股延续反弹](http://www.blog.minike.top/Article/details/4243966062.shtml)
-- 2026-06-29 12:37 - [股海导航_2026年5月13日_沪深股市公告与交易提示](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [保时捷控股一季度业绩受挫，敦促大众汽车重组业务模式](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [世界期待中美携手多办大事实事好事](http://www.share.minike.top/Article/details/15293.shtml)
-- 2026-06-29 12:35 - [500亿市值巨头突然直线拉升](http://www.share.minike.top/Article/details/173141921.shtml)
+- 2026-06-29 12:45 - [DJI Osmo Mobile 8P上手：分体遥控 一机三用](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [特朗普政府官员抱怨其社交媒体帖子阻碍与伊朗和谈](http://www.blog.minike.top/Article/details/969645213995.shtml)
+- 2026-06-29 12:51 - [90岁志愿军老兵吹军号迎战友回家，“我的号声还叫你们听一听”](http://www.blog.kurohicncr.top/Article/details/94207117719.shtml)
+- 2026-06-29 12:42 - [中央气象台：江南华南有较强降水](http://www.blog.kurohicncr.top/Article/details/961667553.shtml)
+- 2026-06-29 12:55 - [耀才证券金融盘中涨超9% 正式进入港股通名单](http://www.blog.minike.top/Article/details/395933679706.shtml)
+- 2026-06-29 12:41 - [黄金遭遇一个月来最大跌幅，多头式微但支撑犹在](http://www.share.kurohicncr.top/Article/details/1674605.shtml)
+- 2026-06-29 12:58 - [百利天恒4月21日大宗交易成交354.40万元](http://www.blog.minike.top/Article/details/255484.shtml)
+- 2026-06-29 12:47 - [贵阳银行：2025年实现营业收入129.99亿元，同比下降12.94%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](http://www.share.minike.top/Article/details/047592148128.shtml)
+- 2026-06-29 12:51 - [日本原则上将允许杀伤性武器对外出口，外交部：严重关切](http://www.blog.kurohicncr.top/Article/details/87753.shtml)
+- 2026-06-29 12:43 - [光大期货：4月21日能源化工日报](http://www.blog.minike.top/Article/details/51650.shtml)
+- 2026-06-29 12:43 - [必和必拓第三财季铁矿石产量增长3%，维持全年产量预期不变](http://www.share.kurohicncr.top/Article/details/44207040.shtml)
+- 2026-06-29 13:04 - [沈阳都市圈汇聚创新力量 集中展示区域高价值专利成果](http://www.blog.minike.top/Article/details/90478609.shtml)
+- 2026-06-29 13:04 - [长春都市圈打造农产品精深加工集群 锚定千亿元级](http://www.share.minike.top/Article/details/791052.shtml)
+- 2026-06-29 12:42 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](http://www.blog.kurohicncr.top/Article/details/34240233508.shtml)

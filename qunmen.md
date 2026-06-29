@@ -1,56 +1,57 @@
-# 汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰
+# 年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-来源：华尔街见闻 美国能源部周一宣布本轮拍卖共授出5330万桶，买家包括Trafigura、Marathon Petroleum及埃克森美孚，将于6至8月分批入市。本次拍卖规模创SPR历史第二高，是IEA牵头开展的降低全球油价行动的一部分。目前美国汽油均价已突破每加仑4.50美元，创2022年7月以来最高水平。 美国正以近乎创纪录的速度动用战略石油储备，以应对伊朗战争引发的油价
+据媒体报道，截至4月20日，2026年内全国已有72家村镇银行完成退出或注销程序，较去年同期的27家显著增加。这一现象反映出中国中小金融机构改革进入加速阶段，村镇银行正经历深刻的结构性调整。改革浪潮加速推进今年以来，重庆、四川、湖南等多地的村镇银行陆续退出市场。以交通银行为例，其旗下仅存的村镇银行已于近期完成注销，成为又一家实现村镇银行数量“清零”的国有大行。民生银行、上海浦东
 
 ## 正文
 
-来源：华尔街见闻 美国能源部周一宣布本轮拍卖共授出5330万桶，买家包括Trafigura、Marathon Petroleum及埃克森美孚，将于6至8月分批入市。
+据媒体报道，截至4月20日，2026年内全国已有72家村镇银行完成退出或注销程序，较去年同期的27家显著增加。
 
-本次拍卖规模创SPR历史第二高，是IEA牵头开展的降低全球油价行动的一部分。
+这一现象反映出中国中小金融机构改革进入加速阶段，村镇银行正经历深刻的结构性调整。
 
-目前美国汽油均价已突破每加仑4.50美元，创2022年7月以来最高水平。
+改革浪潮加速推进今年以来，重庆、四川、湖南等多地的村镇银行陆续退出市场。
 
-美国正以近乎创纪录的速度动用战略石油储备，以应对伊朗战争引发的油价飙升及随之而来的汽油价格压力。
+以交通银行为例，其旗下仅存的村镇银行已于近期完成注销，成为又一家实现村镇银行数量“清零”的国有大行。
 
-5月11日周一，美国能源部宣布，本轮战略石油储备（SPR）拍卖共授出5330万桶原油，买家涵盖石油交易商Trafigura Group、美国炼油商Marathon Petroleum Corp及埃克森美孚等企业。
+民生银行、上海浦东发展银行等股份制银行也在加速整合旗下村镇银行。
 
-本轮释放将于6月至8月间分批入市，恰逢美国夏季驾车出行旺季、汽油需求攀升之际。
+多重因素驱动退出潮国家金融监督管理总局在2026年监管工作会议中明确提出“有力有序有效推进中小金融机构风险化解”，为村镇银行的改革提供了明确的政策导向。
 
-目前美国普通汽油均价已突破每加仑4.50美元，为2022年7月以来首次触及这一水平。
+从市场层面看，村镇银行普遍面临规模小、抗风险能力弱的问题。
 
-与此同时，特朗普周一表示将寻求暂停每加仑18.4美分的联邦汽油税，“直至时机合适为止”。
+随着大型金融机构持续下沉服务网络，农村金融市场竞争加剧，进一步挤压了村镇银行的生存空间。
 
 ## 相关推荐
 
-- 2026-06-29 12:31 - [防汛关键期！感受直升机索滑降训练现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:50 - [戎装缔良缘 相守赴山河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:51 - [中行境外机构人事调整 涉及中东、西欧多家分行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 13:00 - [国际能源署警示：霍尔木兹海峡供应冲击 复苏需耗时数月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:40 - [GTC泽汇资本:原油溢价回落供需博弈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:56 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:57 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:49 - [中国官方附条件批准腾讯收购喜马拉雅股权案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:45 - [英伟达CEO黄仁勋薪酬下滑27% 源于股票奖励缩水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:32 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:47 - [两粕：美豆上涨提振内盘，低库存支撑菜粕价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:56 - [从“大V带货”到“基民买单”：德邦稳盈增长一季度亏21.57亿元，赎回183亿份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:50 - [日本首相高市早苗向靖国神社供奉“玉串料”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:43 - [三位华人女数学家获2026突破奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:43 - [沃伦：特朗普提名沃什出任美联储主席，意在短期刺激经济以谋取政治私利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:37 - [临夏有约：“蓝色黄河”岸畔寻龙迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:39 - [天弘基金高阳豪掷1771万入股，结构失衡下的利益捆绑疑云](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:49 - [封堵化肥管理漏洞，《肥料登记管理办法》加速修订](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:45 - [七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:53 - [接迎英雄回家的运-20B专机进入我国领空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:43 - [特朗普过去24小时都忙了什么？（2026-04-21）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [我国成功发射千帆极轨09组卫星](http://www.blog.minike.top/Article/details/28512528.shtml)
-- 2026-06-29 12:46 - [在伊朗冲突存在不确定性之际 日经指数可能下跌](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [焦煤短期承压的核心逻辑是？](http://www.share.kurohicncr.top/Article/details/45453.shtml)
-- 2026-06-29 12:48 - [欧洲股市下跌，英镑及英国银行股因政治动荡走低](http://www.blog.minike.top/Article/details/070997838300.shtml)
-- 2026-06-29 12:41 - [5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）](http://www.blog.minike.top/Article/details/2979137165.shtml)
-- 2026-06-29 12:41 - [沙特3月下旬曾对伊朗实施报复性打击](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:57 - [两岸和平统一后台湾精神文化生活如何“更好” 国台办四方面阐释](http://www.blog.minike.top/Article/details/57426119.shtml)
-- 2026-06-29 12:52 - [名创优品发盈喜 预计第一季度利润约12.28亿至12.48亿元同比增加约195%至200%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [创新的力量：视听传播如何实现“从点到链”的变革？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](http://www.share.minike.top/Article/details/73675797500.shtml)
-- 2026-06-29 12:50 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [美防长赫格塞思就国防预算出席国会听证会](http://www.blog.kurohicncr.top/Article/details/70170643.shtml)
-- 2026-06-29 12:45 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](http://www.share.kurohicncr.top/Article/details/01347.shtml)
-- 2026-06-29 12:32 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](http://www.share.kurohicncr.top/Article/details/245120937.shtml)
-- 2026-06-29 12:51 - [卢比汇率持续走低，全球第二大黄金市场印度上调金银进口关税](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [全国首个全民阅读活动周！建行花样守护“城市书香”](http://www.blog.kurohicncr.top/Article/details/22607.shtml)
+- 2026-06-29 13:05 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [财政部今日在港发行155亿元人民币国债](http://www.share.minike.top/Article/details/07818313.shtml)
+- 2026-06-29 12:53 - [印尼工商会主席：印尼与中国经济融合愈发重要](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [OpenAI正洽谈向一家私募股权合资企业最高投资15亿美元](http://www.share.kurohicncr.top/Article/details/58001124903.shtml)
+- 2026-06-29 13:01 - [中国新闻社参评第36届中国新闻奖创意传播、新闻IP作品初评公示](http://www.blog.minike.top/Article/details/223670341.shtml)
+- 2026-06-29 12:40 - [热血洒疆场忠魂归故乡 沈阳全城以最高礼遇迎接英雄回家](http://www.blog.minike.top/Article/details/703671886.shtml)
+- 2026-06-29 13:02 - [感冒流感药品销售疲软 利洁时股价下跌5.9%](http://www.share.minike.top/Article/details/08070.shtml)
+- 2026-06-29 12:49 - [连跌10周，猪价反弹了](http://www.blog.minike.top/Article/details/879948951615.shtml)
+- 2026-06-29 12:45 - [华为正式发布智擎动力品牌！余承东：同样100度电 我们能比别人多跑50公里](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [财报季丨金融高管战略校准指南！利差筑底、结构重构，银行、保险趋势判断全景图](http://www.share.minike.top/Article/details/01707389575.shtml)
+- 2026-06-29 13:03 - [外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [全年净利润不到6亿 甘肃银行豪掷17亿分红为哪般？](http://www.blog.minike.top/Article/details/97264036191.shtml)
+- 2026-06-29 12:42 - [每一帧都很治愈，你读书的样子真好看！](http://www.blog.kurohicncr.top/Article/details/42296847668.shtml)
+- 2026-06-29 12:44 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](http://www.share.minike.top/Article/details/55798943.shtml)

@@ -1,59 +1,60 @@
-# AI超级行情引爆散户热情，投机热度创疫情以来新高
+# 特朗普称政府“或许”应救助陷入困境的精神航空
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-官方数据确认：交易员的看涨激进度已达到新冠疫情封锁期以来的最高水平 —— 当时民众居家持有救济金，押注全球经济反弹。 芝加哥期权交易所（Cboe）报告显示，散户正大举买入该交易所 “瑰丽十股”（Mag 10，即 “瑰丽七股”+ 超威半导体（AMD）、帕兰蒂尔（Palantir）、博通（Broadcom））的看涨期权，近 10 日交易量创 2021 年以来峰值。新开期权仓位中，5
+核心要点 美国总统唐纳德・特朗普周二表示，联邦政府可以救助陷入困境的精神航空，这家廉价航空公司目前正面临被清算的可能性。 特朗普在 CNBC《Squawk Box》节目中称：“我不反对并购。比如，我非常希望有人能收购精神航空。你知道，精神航空现在处境艰难…… 或许联邦政府应该出手帮它一把。” 据知情人士透露，精神航空近日已向特朗普政府寻求政府援助。这一请求最先由航空新闻刊物《T
 
 ## 正文
 
-官方数据确认：交易员的看涨激进度已达到新冠疫情封锁期以来的最高水平 —— 当时民众居家持有救济金，押注全球经济反弹。
+核心要点 美国总统唐纳德・特朗普周二表示，联邦政府可以救助陷入困境的精神航空，这家廉价航空公司目前正面临被清算的可能性。
 
-芝加哥期权交易所（Cboe）报告显示，散户正大举买入该交易所 “瑰丽十股”（Mag 10，即 “瑰丽七股”+ 超威半导体（AMD）、帕兰蒂尔（Palantir）、博通（Broadcom））的看涨期权，近 10 日交易量创 2021 年以来峰值。
+特朗普在 CNBC《Squawk Box》节目中称：“我不反对并购。
 
-新开期权仓位中，52% 为买入看涨期权，仅 17% 为卖出看涨期权。
+比如，我非常希望有人能收购精神航空。
 
-芝加哥期权交易所衍生品市场情报主管徐曼迪（Mandy Xu）在电话会议中表示：“对冲者已放弃抵抗。
+你知道，精神航空现在处境艰难…… 或许联邦政府应该出手帮它一把。
 
-当前市场主线非常清晰：投资者纷纷通过买入看涨期权，追赶市场上涨行情。
+” 据知情人士透露，精神航空近日已向特朗普政府寻求政府援助。
 
-” 这与一个月前的市场情绪形成180 度大反转：当时芝加哥期权交易所看涨期权买入指标低 15 个点，投资者还深陷地缘政治冲突与原油价格波动的担忧中。
+这一请求最先由航空新闻刊物《The Air Current》报道。
 
-而如今乐观情绪高涨，与今年科技股罕见暴涨背景下市场投机热情回升的各项数据相符。
+该航空公司于去年 8 月申请破产保护，这是其不到一年内的第二次破产，此后便一直苦苦挣扎，难以稳定经营。
 
-据国家指数公司（Nations Indexes）30 日看涨期权指数（CallDex）数据，纳斯达克 100 指数虚值看涨期权（价外一个标准差）价格创 52 周新高，接近三年纪录。
+精神航空原本计划在出售更多飞机并将业务重心收缩至几个核心城市后，于 2026 年年中摆脱破产困境。
 
 ## 相关推荐
 
-- 2026-06-29 12:50 - [法国农办调增2025/26年度谷物出口预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:35 - [习近平会见联合国教科文组织总干事阿纳尼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:36 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:31 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:32 - [嘴唇发紫就是心血管有淤堵？专家解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:45 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:48 - [中国—东盟科技减贫合作交流会在广西南宁开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:49 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:43 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:39 - [新型“职业闭店人”骗局调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:51 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:30 - [为应对欧盟反垄断调查，Meta宣布将向竞争对手开放WhatsApp接口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:30 - [东航7月1日开通成都直航台中航线，国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 13:05 - [两岸媒体赴桂林 “打卡”“广西三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:59 - [哈萨克斯坦驻华大使点赞“China Travel”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:38 - [捷蓝航空被指利用个人数据定价，两党议员联名质询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:54 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:43 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:55 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 13:01 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 13:05 - [中方：反对在霍尔木兹海峡问题上的恶意关联和炒作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:50 - [大摩：长和给予增持评级 目标价61港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:52 - [大众汽车集团被曝有意削减100万辆全球产能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:45 - [大庆钻探首台数智化综合录井仪投用 9秒精准捕捉油气信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:37 - [美国民主党众议员Cherfilus-McCormick辞职 被指控盗窃资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:41 - [工信部：有序引导算力基础设施建设 构建多层级算力架构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:39 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:00 - [瑞银继续唱多黄金：多重利多因素推动 金价年内仍有望刷新高](http://www.share.minike.top/Article/details/8353625.shtml)
-- 2026-06-29 12:34 - [我国牵头制定发布14项天然气领域国际标准](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [5月12日龙虎榜，机构青睐这10股](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](http://www.blog.kurohicncr.top/Article/details/06220.shtml)
-- 2026-06-29 12:41 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](http://www.blog.minike.top/Article/details/4930888.shtml)
-- 2026-06-29 12:49 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](http://www.blog.kurohicncr.top/Article/details/39559.shtml)
-- 2026-06-29 12:40 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](http://www.blog.kurohicncr.top/Article/details/100561672384.shtml)
-- 2026-06-29 12:35 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](http://www.share.minike.top/Article/details/0207695155.shtml)
-- 2026-06-29 12:56 - [全球首个面向南方国家的教师数字素养提升行动计划发布](http://www.share.kurohicncr.top/Article/details/9024586248.shtml)
-- 2026-06-29 12:46 - [打了网红“气血针”，能否“一针提神”？专家提醒](http://www.blog.minike.top/Article/details/29319972.shtml)
-- 2026-06-29 12:54 - [稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具](http://www.blog.kurohicncr.top/Article/details/525049.shtml)
-- 2026-06-29 12:44 - [防汛关键期！感受直升机索滑降训练现场](http://www.blog.minike.top/Article/details/290716960621.shtml)
-- 2026-06-29 12:32 - [戎装缔良缘 相守赴山河](http://www.share.minike.top/Article/details/891720.shtml)
-- 2026-06-29 12:31 - [中行境外机构人事调整 涉及中东、西欧多家分行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](http://www.share.minike.top/Article/details/919706640.shtml)
+- 2026-06-29 13:02 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](http://www.share.kurohicncr.top/Article/details/43479612.shtml)
+- 2026-06-29 12:44 - [日本一自卫队演习场发生爆炸 致3死1重伤](http://www.blog.kurohicncr.top/Article/details/3123902.shtml)
+- 2026-06-29 12:50 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [另类师徒携手追凶 《黑夜告白》定档](http://www.share.minike.top/Article/details/224730372756.shtml)
+- 2026-06-29 12:53 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](http://www.share.minike.top/Article/details/56921268161.shtml)
+- 2026-06-29 13:01 - [人民币兑美元中间价报6.8594，上调54点](http://www.share.kurohicncr.top/Article/details/14553687.shtml)
+- 2026-06-29 13:04 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](http://www.blog.minike.top/Article/details/3409261819.shtml)
+- 2026-06-29 12:56 - [沃什如何推动美联储实现“政策范式转变”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](http://www.share.kurohicncr.top/Article/details/4552097123.shtml)
+- 2026-06-29 12:59 - [阿维塔总裁陈卓回应与深蓝汽车战略协同：不影响赴港上市计划，仍会按照当前节奏推进](http://www.blog.kurohicncr.top/Article/details/537586080762.shtml)
+- 2026-06-29 13:03 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [两粕：美豆上涨提振内盘，低库存支撑菜粕价格](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [从“大V带货”到“基民买单”：德邦稳盈增长一季度亏21.57亿元，赎回183亿份](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [日本首相高市早苗向靖国神社供奉“玉串料”](http://www.share.minike.top/Article/details/3717460.shtml)

@@ -1,56 +1,58 @@
-# 新西兰拟修法限制企业气候排放责任诉讼
+# 外交部：所谓中国“窃取”知识产权完全是子虚乌有
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-5月12日，新西兰政府宣布将修订现行气候法律，旨在明确禁止法院在私人诉讼中裁定企业需对温室气体排放造成的气候变化损害承担法律责任。 新西兰司法部长保罗·戈德史密斯（Paul Goldsmith）表示，政府将对《2002年气候变化应对法》进行修正。该修正案将适用于当前及未来所有的法律程序，包括目前正处于高等法院审理阶段的、针对恒天然集团（Fonterra）等六家主要排放企业的诉讼
+4月22日，外交部发言人郭嘉昆主持例行记者会。有记者问，4月26日是世界知识产权日，本周也是全国知识产权宣传周。近年来，中国在人工智能、量子科技、载人航天等新兴领域不断取得突破，“中国创造”的热度正在赶超“中国制造”。但仍有个别国家质疑中国在关键领域存在侵犯知识产权、“窃取”尖端技术的行为，并以此为由出台各类针对中国的禁令。发言人对此有何评论？ 郭嘉昆表示，保护知识产权就是保护
 
 ## 正文
 
-5月12日，新西兰政府宣布将修订现行气候法律，旨在明确禁止法院在私人诉讼中裁定企业需对温室气体排放造成的气候变化损害承担法律责任。
+4月22日，外交部发言人郭嘉昆主持例行记者会。
 
-新西兰司法部长保罗·戈德史密斯（Paul Goldsmith）表示，政府将对《2002年气候变化应对法》进行修正。
+有记者问，4月26日是世界知识产权日，本周也是全国知识产权宣传周。
 
-该修正案将适用于当前及未来所有的法律程序，包括目前正处于高等法院审理阶段的、针对恒天然集团（Fonterra）等六家主要排放企业的诉讼案件。
+近年来，中国在人工智能、量子科技、载人航天等新兴领域不断取得突破，“中国创造”的热度正在赶超“中国制造”。
 
-该案原计划于明年开庭，原告诉称相关企业的排放行为对其土地权益及文化权利造成了损害。
+但仍有个别国家质疑中国在关键领域存在侵犯知识产权、“窃取”尖端技术的行为，并以此为由出台各类针对中国的禁令。
 
-戈德史密斯强调，此类法律诉讼正在削弱商业信心与投资意愿。
+发言人对此有何评论？
 
-他指出，应对气候变化应当通过议会框架、排放权交易体系（ETS）以及既有的气候立法进行管理。
+郭嘉昆表示，保护知识产权就是保护创新，为高质量发展保驾护航。
 
-戈德史密斯重申，“法院并非解决气候变化损害索赔的适当场所”，并认为传统侵权法并不适用于处理环境、经济与社会高度交织的复杂议题。
+中国已经成为世界知识产权大国，国际专利申请量多年排名第一。
 
-新西兰政府同时明确，此次法律修订不会改变政府在气候立法下的既定职责，也不会豁免企业在排放权交易体系下应尽的义务。
+中国不仅是“世界工厂”，也在成长为“全球创新实验室”。
 
 ## 相关推荐
 
-- 2026-06-29 12:42 - [哈尔滨电气早盘涨超4% 国内首台16兆瓦燃气轮机天然气燃气发生器满负荷试车成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:47 - [时政新闻眼丨一天三场会晤，习近平同外方领导人谈了什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:49 - [AI算力点燃“芯”火，信创指数近一月涨超两成！华宝基金信创ETF（562030）近3日连续吸金！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:38 - [长江有色：供紧叠加科技需求大爆发助振 13日铜价或大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:33 - [最新，章建平建仓股曝光！牛散天团押注“AI+商业航天”（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:46 - [罕见！保险公司中支总经理任职资格被否，这些“硬门槛”不可碰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:53 - [长江有色：12日氧化铝期价跌1.17% 下游接货情绪一般](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:48 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情 法国确诊首例汉坦病毒感染病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:37 - [（台海观澜）福建赴金门自由行持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:57 - [中东局势推高能源成本，德国4月批发物价涨幅创三年新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:53 - [“水立方”再迎跳水世界杯总决赛 中国队以老带新、满额参赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:51 - [建滔积层板午前涨超5% PCB价值量持续跃升公司近期发布涨价函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:51 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:36 - [酒价内参4月21日价格发布：青花汾20保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 13:05 - [浙江杭叉控股获批持有温州民商银行9.9%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:44 - [江苏省数标委“标准周”活动在扬州启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:43 - [天银机电：公司与SpaceX及Strarlink均没有业务关系，没有直接或间接供货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:45 - [上海浦东国际机场口岸单日入境外籍人员数创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 13:04 - [云南华宁聚焦民族团结 加快构建互嵌式社会结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:53 - [大国重器一起护送英烈回家！歼-20运-20B空中对话让人泪目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:52 - [大陆发展快 台湾创意引过来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:56 - [直播海报：国新办就2026年一季度农业农村经济运行情况举行新闻发布会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:59 - [直击！直升机水上绞车救援专项训练现场](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [租充电宝1小时扣149元还被要求自证？专家教你维权](http://www.share.minike.top/Article/details/38672264502.shtml)
-- 2026-06-29 12:44 - [斯沃琪集团股东大会否决激进投资者董事席位提案,创始家族维持控股权](http://www.blog.minike.top/Article/details/6662403032.shtml)
-- 2026-06-29 12:42 - [上海启动滚动式灭蚊 严防蚊媒传染病](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [亚马逊“极速达”再拓版图，30分钟送达席卷美国数十城](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [上海加快开发适老化智能产品](http://www.share.kurohicncr.top/Article/details/234901.shtml)
-- 2026-06-29 12:47 - [伊朗空袭行动期间摩萨德局长到访阿联酋 协助战事协同部署](http://www.blog.kurohicncr.top/Article/details/25427462974.shtml)
-- 2026-06-29 12:54 - [老将、新秀齐上阵 中国具身智能机器人加速实景应用](http://www.blog.minike.top/Article/details/848258.shtml)
-- 2026-06-29 12:43 - [“中国李乡”广东信宜迎三华李丰收季 跑出乡村振兴“加速度”](http://www.share.kurohicncr.top/Article/details/759414785082.shtml)
-- 2026-06-29 12:58 - [数读中国开局新活力｜青年占比超50% 小镇20年长成“青春经济”样本](http://www.blog.kurohicncr.top/Article/details/598268604.shtml)
-- 2026-06-29 12:37 - [奖励名额翻倍！货拉拉2026“平凡之光”魅力司机评选开启报名](http://www.share.minike.top/Article/details/336750821369.shtml)
-- 2026-06-29 12:49 - [廖岷与英国财政部国际金融事务总司长怀特举行视频通话](http://www.share.kurohicncr.top/Article/details/35137.shtml)
-- 2026-06-29 12:56 - [美国对伊连打三张牌 油价黄金交易逻辑拆解](http://www.share.kurohicncr.top/Article/details/6500560814.shtml)
-- 2026-06-29 12:43 - [英国政府拟立法改革银行“隔离”制度,以提振企业融资与经济增长](http://www.share.kurohicncr.top/Article/details/64669929.shtml)
-- 2026-06-29 12:35 - [“广西三月三”系列活动走进香港](http://www.blog.minike.top/Article/details/610762867571.shtml)
+- 2026-06-29 12:38 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [追忆侨领张素久：从容面对挑战 坚韧不拔](http://www.blog.kurohicncr.top/Article/details/08913674034.shtml)
+- 2026-06-29 12:54 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](http://www.blog.minike.top/Article/details/066228.shtml)
+- 2026-06-29 12:53 - [特朗普称最终将达成重大协议](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [向优、向新、向绿——江苏制造业企业高质量发展一线微观察](http://www.blog.kurohicncr.top/Article/details/2916303.shtml)
+- 2026-06-29 13:03 - [全民阅读活动周 各地举办多场活动](http://www.share.minike.top/Article/details/49564408948.shtml)
+- 2026-06-29 12:49 - [日本首相高市早苗向靖国神社献祭品](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [经济大省调研行｜消费新动能：看“体验经济”如何创造“沉浸式快乐”](http://www.blog.kurohicncr.top/Article/details/2561305.shtml)
+- 2026-06-29 12:42 - [美国能源部长：汽油价格可能在一周前已经见顶](http://www.share.kurohicncr.top/Article/details/26339.shtml)
+- 2026-06-29 12:55 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.share.kurohicncr.top/Article/details/121148961593.shtml)
+- 2026-06-29 12:38 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](http://www.share.minike.top/Article/details/536838668.shtml)
+- 2026-06-29 12:48 - [国务院印发《关于推进服务业扩能提质的意见》](http://www.share.kurohicncr.top/Article/details/67991776.shtml)
+- 2026-06-29 12:46 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.share.minike.top/Article/details/692527578.shtml)
+- 2026-06-29 12:48 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](http://www.blog.kurohicncr.top/Article/details/779918.shtml)
+- 2026-06-29 13:00 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](http://www.blog.minike.top/Article/details/234595595450.shtml)

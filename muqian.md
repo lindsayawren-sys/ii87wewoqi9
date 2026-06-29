@@ -1,58 +1,58 @@
-# 2026年一季度海南省数字经济产业贷款同比增长49.9%
+# 另类师徒携手追凶 《黑夜告白》定档
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-中新网海口5月13日电 (记者 王晓斌)5月13日，中国人民银行海南省分行召开新闻发布会，介绍2026年一季度海南省金融运行情况。截至3月末，全省本外币各项存款余额16094亿元，同比增长6.6%；全省本外币各项贷款余额14880亿元，同比增长14.3%，增速高于全国平均水平8.7个百分点。其中信贷方面，3月末，全省科技型企业贷款同比增长10.1%；数字经济产业贷款同比增长49
+中新网北京4月21日电 (记者 高凯)21日，由陈祉希任总监制，潘粤明任艺术总监，王之执导的悬案追凶剧《黑夜告白》官宣定档4月26日。 《黑夜告白》从一起“离奇失踪事件”拉开序幕，1997年，一对父女在元龙里小区神秘消失，将资深警察何远航(潘粤明 饰)与新晋警员冉方旭(王鹤棣 饰)卷入其中，两人从针锋相对到渐生默契，误以为查明失踪真相，却在后来的18年间陆续发现新的线索、遇到相
 
 ## 正文
 
-中新网海口5月13日电 (记者 王晓斌)5月13日，中国人民银行海南省分行召开新闻发布会，介绍2026年一季度海南省金融运行情况。
+中新网北京4月21日电 (记者 高凯)21日，由陈祉希任总监制，潘粤明任艺术总监，王之执导的悬案追凶剧《黑夜告白》官宣定档4月26日。
 
-截至3月末，全省本外币各项存款余额16094亿元，同比增长6.6%；全省本外币各项贷款余额14880亿元，同比增长14.3%，增速高于全国平均水平8.7个百分点。
+《黑夜告白》从一起“离奇失踪事件”拉开序幕，1997年，一对父女在元龙里小区神秘消失，将资深警察何远航(潘粤明 饰)与新晋警员冉方旭(王鹤棣 饰)卷入其中，两人从针锋相对到渐生默契，误以为查明失踪真相，却在后来的18年间陆续发现新的线索、遇到相关案件再次发生。
 
-其中信贷方面，3月末，全省科技型企业贷款同比增长10.1%；数字经济产业贷款同比增长49.9%。
+随着调查的深入，曾经查明的结论被完全推翻，三代刑警在漫长追索中拼尽全力，以坚韧和信念驱散层层阴影，一步步逼近真相的核心。
 
-在适度宽松的货币政策推动下，海南省金融总量保持平稳较快增长，信贷结构持续优化。
+《黑夜告白》中，潘粤明与王鹤棣搭档出演师徒颇为引人关注，二人从针锋相对、互不相让到彼此信任，形成具张力的人物关系。
 
-3月末，普惠小微贷款余额1340亿元，同比增长7.9%；个人消费贷款(不含住房贷款)同比增长11.3%，增速较去年同期提高3.7个百分点；个人住房贷款余额同比增长8.8%，增速较上年同期提高3.9个百分点。
+同时，集结了任敏、姜珮瑶、赵虎、江奇霖等演员，意在群像铺展。
 
-企业融资成本保持低位运行，新发放企业贷款加权平均利率为2.85%。
+据了解，该剧以悬疑为引，融入轻喜、都市猎奇等多重元素。
 
-在金融“五篇大文章”中，数字经济与绿色金融表现亮眼。
+围绕元龙里大楼展开的“都市怪谈”，离奇失踪的复杂案件，呈现出值得探寻的诡秘意味，与此同时，充满烟火气的师徒探案日常，营造出紧张与松弛交替的叙事节奏。
 
-3月末，海南省数字经济产业贷款同比增速接近50%，反映出自贸港在游戏出海、跨境电商等数字核心产业领域的金融支持力度持续加大。
+该剧定档当天首发的“要来楼”版预告，在一首让人毛骨悚然的童谣中展开，离奇失踪的父女让元龙里十八楼的怪谈更显神秘，而在谜题丛生的案件推进中亦插入轻巧逗趣梗点，强化了剧集惊险与轻喜交织的独特气质。
 
 ## 相关推荐
 
-- 2026-06-29 12:38 - [稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:58 - [防汛关键期！感受直升机索滑降训练现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:38 - [戎装缔良缘 相守赴山河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:50 - [中行境外机构人事调整 涉及中东、西欧多家分行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:55 - [国际能源署警示：霍尔木兹海峡供应冲击 复苏需耗时数月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:56 - [GTC泽汇资本:原油溢价回落供需博弈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:35 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:55 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:38 - [中国官方附条件批准腾讯收购喜马拉雅股权案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:40 - [英伟达CEO黄仁勋薪酬下滑27% 源于股票奖励缩水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:41 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:36 - [中信建投期货：5月13日黑色系早报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 13:01 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:45 - [两粕：美豆上涨提振内盘，低库存支撑菜粕价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:58 - [从“大V带货”到“基民买单”：德邦稳盈增长一季度亏21.57亿元，赎回183亿份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 13:02 - [日本首相高市早苗向靖国神社供奉“玉串料”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:54 - [三位华人女数学家获2026突破奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:58 - [沃伦：特朗普提名沃什出任美联储主席，意在短期刺激经济以谋取政治私利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:47 - [临夏有约：“蓝色黄河”岸畔寻龙迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:48 - [天弘基金高阳豪掷1771万入股，结构失衡下的利益捆绑疑云](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:38 - [封堵化肥管理漏洞，《肥料登记管理办法》加速修订](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:50 - [七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:43 - [接迎英雄回家的运-20B专机进入我国领空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:54 - [特朗普过去24小时都忙了什么？（2026-04-21）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:34 - [研奥股份积极拓展后市场业务，稳步开拓海外市场](http://www.blog.minike.top/Article/details/750034.shtml)
-- 2026-06-29 12:47 - [我国成功发射千帆极轨09组卫星](http://www.share.kurohicncr.top/Article/details/9982301589.shtml)
-- 2026-06-29 12:58 - [在伊朗冲突存在不确定性之际 日经指数可能下跌](http://www.share.kurohicncr.top/Article/details/757846435.shtml)
-- 2026-06-29 12:47 - [焦煤短期承压的核心逻辑是？](http://www.blog.kurohicncr.top/Article/details/3503594.shtml)
-- 2026-06-29 12:37 - [欧洲股市下跌，英镑及英国银行股因政治动荡走低](http://www.share.minike.top/Article/details/1458222.shtml)
-- 2026-06-29 12:57 - [5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）](http://www.share.minike.top/Article/details/82492759538.shtml)
-- 2026-06-29 12:38 - [沙特3月下旬曾对伊朗实施报复性打击](http://www.blog.kurohicncr.top/Article/details/307012279603.shtml)
-- 2026-06-29 12:46 - [两岸和平统一后台湾精神文化生活如何“更好” 国台办四方面阐释](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [名创优品发盈喜 预计第一季度利润约12.28亿至12.48亿元同比增加约195%至200%](http://www.share.minike.top/Article/details/497023.shtml)
-- 2026-06-29 12:32 - [创新的力量：视听传播如何实现“从点到链”的变革？](http://www.share.kurohicncr.top/Article/details/25733.shtml)
-- 2026-06-29 12:52 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](http://www.share.minike.top/Article/details/49382092060.shtml)
-- 2026-06-29 12:58 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [美防长赫格塞思就国防预算出席国会听证会](http://www.share.kurohicncr.top/Article/details/094956.shtml)
-- 2026-06-29 12:56 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](http://www.blog.minike.top/Article/details/244566048254.shtml)
-- 2026-06-29 12:42 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](http://www.blog.minike.top/Article/details/963258559.shtml)
+- 2026-06-29 12:37 - [苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？](http://www.share.kurohicncr.top/Article/details/6313358.shtml)
+- 2026-06-29 12:36 - [全国首个全民阅读活动周！建行花样守护“城市书香”](http://www.blog.kurohicncr.top/Article/details/690227738.shtml)
+- 2026-06-29 13:03 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼](http://www.blog.minike.top/Article/details/411135.shtml)
+- 2026-06-29 12:46 - [财政部今日在港发行155亿元人民币国债](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [印尼工商会主席：印尼与中国经济融合愈发重要](http://www.blog.kurohicncr.top/Article/details/97165811675.shtml)
+- 2026-06-29 12:52 - [OpenAI正洽谈向一家私募股权合资企业最高投资15亿美元](http://www.share.minike.top/Article/details/174612920422.shtml)
+- 2026-06-29 12:44 - [中国新闻社参评第36届中国新闻奖创意传播、新闻IP作品初评公示](http://www.blog.kurohicncr.top/Article/details/25054086123.shtml)
+- 2026-06-29 12:46 - [热血洒疆场忠魂归故乡 沈阳全城以最高礼遇迎接英雄回家](http://www.blog.kurohicncr.top/Article/details/1259842.shtml)
+- 2026-06-29 12:54 - [感冒流感药品销售疲软 利洁时股价下跌5.9%](http://www.blog.kurohicncr.top/Article/details/9181905.shtml)
+- 2026-06-29 12:54 - [连跌10周，猪价反弹了](http://www.share.minike.top/Article/details/98638.shtml)
+- 2026-06-29 12:47 - [华为正式发布智擎动力品牌！余承东：同样100度电 我们能比别人多跑50公里](http://www.share.kurohicncr.top/Article/details/61996572.shtml)
+- 2026-06-29 12:44 - [财报季丨金融高管战略校准指南！利差筑底、结构重构，银行、保险趋势判断全景图](http://www.share.kurohicncr.top/Article/details/07167508.shtml)
+- 2026-06-29 12:56 - [外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知](http://www.blog.kurohicncr.top/Article/details/10194.shtml)
+- 2026-06-29 12:52 - [全年净利润不到6亿 甘肃银行豪掷17亿分红为哪般？](http://www.blog.minike.top/Article/details/57033079.shtml)
+- 2026-06-29 12:43 - [每一帧都很治愈，你读书的样子真好看！](http://www.share.kurohicncr.top/Article/details/535063071.shtml)

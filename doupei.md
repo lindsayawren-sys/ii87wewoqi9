@@ -1,54 +1,56 @@
-# 英国政府拟立法改革银行“隔离”制度,以提振企业融资与经济增长
+# 日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-5月13日，英国政府在公布的新一届议会立法优先事项文件中明确提出，将通过制定《加强金融服务法案》（Enhancing Financial Services Bill），对现行的银行“零售业务隔离”（Ring-fencing）制度进行关键性改革。此举旨在优化金融监管环境，释放更多资金支持英国企业发展，特别是改善中小企业的融资准入。 英国财政部在文件中指出，通过对隔离制度的针对性修
+海外网4月22日电 日本政府4月21日通过内阁决议，完成了对“防卫装备转移三原则”及其运用指南的修改，原则上允许杀伤性武器对外出口。《京都新闻》日前发表题为《杀伤性武器出口为介入战争铺路》的社论文章，表示日本正在重蹈历史覆辙，仅凭政府的意志强行为武器出口“松绑”。“日本制造的武器可能夺走他国人民的生命，这一情况正在成为现实。”文章认为，日本政府放宽武器出口限制，将从根本上改变日
 
 ## 正文
 
-5月13日，英国政府在公布的新一届议会立法优先事项文件中明确提出，将通过制定《加强金融服务法案》（Enhancing Financial Services Bill），对现行的银行“零售业务隔离”（Ring-fencing）制度进行关键性改革。
+海外网4月22日电 日本政府4月21日通过内阁决议，完成了对“防卫装备转移三原则”及其运用指南的修改，原则上允许杀伤性武器对外出口。
 
-此举旨在优化金融监管环境，释放更多资金支持英国企业发展，特别是改善中小企业的融资准入。
+《京都新闻》日前发表题为《杀伤性武器出口为介入战争铺路》的社论文章，表示日本正在重蹈历史覆辙，仅凭政府的意志强行为武器出口“松绑”。
 
-英国财政部在文件中指出，通过对隔离制度的针对性修订，将有效提升中小企业贷款市场的竞争性，帮助其更便捷地获得融资支持。
+“日本制造的武器可能夺走他国人民的生命，这一情况正在成为现实。
 
-英国财政大臣蕾切尔·里夫斯（Rachel Reeves）此前曾多次承诺，将对该制度实施“实质性”改革，作为政府削减行政束缚、推动经济增长的核心举措之一。
+”文章认为，日本政府放宽武器出口限制，将从根本上改变日本作为和平国家的性质。
 
-责任编辑：龙运翔
+日本现行宪法于1947年施行，其第九条规定日本“永远放弃以国权发动的战争、武力威胁或武力行使作为解决国际争端的手段”。
+
+日本政府此次以安保环境日益严峻作为说辞，但对于可能加剧军备竞赛、助长冲突的风险却闭口不谈。
+
+4月19日，数万名日本民众在日本国会周围举行大型抗议集会，对高市早苗政府解禁武器出口、修改和平宪法等扩军危险动向表示坚决反对和抗议。
+
+人们高呼“不要战争”“不要杀戮”。
 
 ## 相关推荐
 
-- 2026-06-29 12:34 - [道达尔能源、康菲石油与卡塔尔能源签署协议 助力叙利亚重返国际能源版图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:57 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:44 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:34 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:47 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:49 - [劳动者杯中国职工篮球系列赛鸣哨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:53 - [瑞银继续唱多黄金：多重利多因素推动 金价年内仍有望刷新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:34 - [我国牵头制定发布14项天然气领域国际标准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:43 - [5月12日龙虎榜，机构青睐这10股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:53 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:38 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:34 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:45 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:47 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 13:02 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:50 - [【理响中国·经视图】以投资于物支撑投资于人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:53 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:40 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:58 - [理财规模季末回落超万亿，全年增速或放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:58 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:59 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:48 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:47 - [日本一自卫队演习场发生爆炸 致3死1重伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:49 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:51 - [泡泡玛特跨界卖茶饮？知情人士：POP BAKERY直营门店仍以甜品为主](http://www.blog.minike.top/Article/details/967622.shtml)
-- 2026-06-29 12:55 - [新疆哈密：光热发电项目年发2亿度清洁电](http://www.blog.minike.top/Article/details/83660539274.shtml)
-- 2026-06-29 12:43 - [515投资者保护|富国基金口播轻投教“基金小课堂”：全网播放6000万，助力碎片化投教](http://www.share.minike.top/Article/details/18428873.shtml)
-- 2026-06-29 12:37 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](http://www.share.minike.top/Article/details/83652098161.shtml)
-- 2026-06-29 12:37 - [融汇东西方经典爱情传说 实验轻歌剧《阴阳喜帖》将首演](http://www.blog.kurohicncr.top/Article/details/2839175.shtml)
-- 2026-06-29 12:56 - [赣锋锂业(002460.SZ)：注销2022年股票期权激励计划剩余55.125万份期权，因第四个行权期业绩未达标](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [谁在借网络平台给日本社会“投毒”？（环球走笔）](http://www.blog.minike.top/Article/details/4046006104.shtml)
-- 2026-06-29 12:30 - [电动化替代速度超预期，中国新能源汽车创新纪录](http://www.share.minike.top/Article/details/110348908.shtml)
-- 2026-06-29 12:51 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.share.kurohicncr.top/Article/details/118772336180.shtml)
-- 2026-06-29 12:44 - [日本北海道发生4.8级地震](http://www.share.minike.top/Article/details/40565336715.shtml)
-- 2026-06-29 12:41 - [沪粤文脉双向奔赴 展示海丝千年风华](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [“加息噩梦”近了？美联储“昔日鸽派”：通胀走向错误，与关税、石油无关！](http://www.share.kurohicncr.top/Article/details/6544513339.shtml)
-- 2026-06-29 12:51 - [腾讯最新声明：不会开发提供“微信访客功能”](http://www.blog.kurohicncr.top/Article/details/0790402.shtml)
-- 2026-06-29 12:56 - [抓住重点 务求实效（人民论坛）](http://www.share.minike.top/Article/details/025586376.shtml)
-- 2026-06-29 12:31 - [美丽中国行｜我的家园，越来越美——美丽中国建设成效观察](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [国内油价，今年首次下调](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [长江有色：22日铜价小涨 高价货源成交寥寥](http://www.blog.minike.top/Article/details/57509639.shtml)
+- 2026-06-29 12:39 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](http://www.blog.kurohicncr.top/Article/details/54287.shtml)
+- 2026-06-29 12:55 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](http://www.share.minike.top/Article/details/12544412927.shtml)
+- 2026-06-29 12:54 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](http://www.share.kurohicncr.top/Article/details/53640.shtml)
+- 2026-06-29 12:37 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.share.kurohicncr.top/Article/details/136522635225.shtml)
+- 2026-06-29 12:39 - [重回4100点！A股三大指数午后集体大涨](http://www.blog.minike.top/Article/details/97630618988.shtml)
+- 2026-06-29 13:02 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](http://www.blog.kurohicncr.top/Article/details/137844099.shtml)
+- 2026-06-29 12:46 - [美军称对一艘“涉伊朗”油轮登船检查](http://www.share.kurohicncr.top/Article/details/66956350590.shtml)
+- 2026-06-29 12:54 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](http://www.blog.minike.top/Article/details/40826566.shtml)
+- 2026-06-29 12:50 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.share.minike.top/Article/details/872455544.shtml)
+- 2026-06-29 12:45 - [别瞧不起格林基金](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [UPS与联邦快递已开始申请部分关税退款](http://www.blog.kurohicncr.top/Article/details/97108993.shtml)

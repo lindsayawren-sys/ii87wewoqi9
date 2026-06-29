@@ -1,58 +1,57 @@
-# 新疆哈密：光热发电项目年发2亿度清洁电
+# 国内油价，今年首次下调
 
-> 更新时间：2026-06-29 13:00:05 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-中新网新疆哈密5月12日电 (袁鹏冲)在新疆哈密市伊吾县淖毛湖镇的戈壁之上，中国能建哈密熔盐塔式5万千瓦光热发电项目熠熠生辉。 作为我国首批、新疆唯一国家光热示范项目，这座投资约16亿元、占地6000亩的“超级镜子电站”2017年10月开工，2021年完成并网、试运行及验收，2022年4月正式进入运营期。本期装机容量50兆瓦，年发电量约2亿度。 “石榴花开 籽籽同心”铸牢中华民
+据央视新闻报道，记者今天从国家发展改革委了解到，4月21日24时国内成品油调价窗口将开启。据国家发展改革委价格监测中心监测，本轮成品油调价周期内（4月7日24时——4月21日24时），国际油价震荡下降。 4月21日24时起，国内汽、柴油零售价格每吨分别下调555元、530元，全国平均来看：折合升价92号汽油、95号汽油、0号柴油分别下调0.44元、0.46元、0.45元。本轮调
 
 ## 正文
 
-中新网新疆哈密5月12日电 (袁鹏冲)在新疆哈密市伊吾县淖毛湖镇的戈壁之上，中国能建哈密熔盐塔式5万千瓦光热发电项目熠熠生辉。
+据央视新闻报道，记者今天从国家发展改革委了解到，4月21日24时国内成品油调价窗口将开启。
 
-作为我国首批、新疆唯一国家光热示范项目，这座投资约16亿元、占地6000亩的“超级镜子电站”2017年10月开工，2021年完成并网、试运行及验收，2022年4月正式进入运营期。
+据国家发展改革委价格监测中心监测，本轮成品油调价周期内（4月7日24时——4月21日24时），国际油价震荡下降。
 
-本期装机容量50兆瓦，年发电量约2亿度。
+4月21日24时起，国内汽、柴油零售价格每吨分别下调555元、530元，全国平均来看：折合升价92号汽油、95号汽油、0号柴油分别下调0.44元、0.46元、0.45元。
 
-“石榴花开 籽籽同心”铸牢中华民族共同体意识网络主题活动11日走进该光热发电项目现场。
+本轮调价为年内第八次调价窗口，也是今年以来的首次下调。
 
-记者了解到，技术创新是项目核心亮点。
+用92号汽油加满50升油箱将少花22元。
 
-该项目聚光集热系统由14500面巨蜥式五边形定日镜组成，单面镜面积48.5平方米，可实时追踪太阳轨迹，将光能反射至220米高的吸热塔转化为热能，搭配13小时储热系统，实现24小时连续稳定供电。
+目前，霍尔木兹海峡航运依然受阻，美国与伊朗第二轮谈判前景不明。
 
-项目兼具生态与发展价值，运行期间无固体垃圾产生，助力优化能源结构、替代常规化石能源，契合国家环保政策与“双碳”战略。
+“消息面不确定性较高，市场波动较大，后续需跟踪美伊言论及二次谈判进程，短期油价大概率维持宽幅震荡。
 
-同时，它深度激活当地太阳能资源，助力西部大开发与共建“一带一路”建设，更为我国大容量光热发电积累宝贵设计、运营经验。
+目前国内原油变化率处于负值深位局面难以改变。
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:50 - [日本北海道发生4.8级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:39 - [沪粤文脉双向奔赴 展示海丝千年风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:40 - [“加息噩梦”近了？美联储“昔日鸽派”：通胀走向错误，与关税、石油无关！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:48 - [腾讯最新声明：不会开发提供“微信访客功能”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:59 - [抓住重点 务求实效（人民论坛）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:49 - [美丽中国行｜我的家园，越来越美——美丽中国建设成效观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:35 - [eBay拒绝GameStop560亿美元收购要约，称其既缺乏可信度、也毫无吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:45 - [朝“问”健康 慢性病老人泡脚 水温控制在40℃左右](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:55 - [研奥股份积极拓展后市场业务，稳步开拓海外市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:47 - [我国成功发射千帆极轨09组卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:35 - [在伊朗冲突存在不确定性之际 日经指数可能下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:38 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:38 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 13:00 - [美军称对一艘“涉伊朗”油轮登船检查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:44 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:40 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:46 - [别瞧不起格林基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:37 - [UPS与联邦快递已开始申请部分关税退款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:57 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:55 - [中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:40 - [苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 13:00 - [全国首个全民阅读活动周！建行花样守护“城市书香”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:54 - [四川优化升级无人机“扫码飞” 适飞空域预计超全省面积八成](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [龙泉股份：截至2026年5月8日公司股东人数为23412户](http://www.blog.minike.top/Article/details/0797935937.shtml)
-- 2026-06-29 12:52 - [联合航空将恢复飞往委内瑞拉航线](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [尼日利亚军方称打死至少70名疑似恐怖分子](http://www.blog.minike.top/Article/details/1259555429.shtml)
-- 2026-06-29 12:34 - [欧洲央行管委Nagel：如果伊朗战争威胁到价格稳定 则必须采取行动](http://www.share.minike.top/Article/details/52785659514.shtml)
-- 2026-06-29 12:41 - [突破800万人次 北京口岸2026年度出入境人员总量再攀新高](http://www.share.kurohicncr.top/Article/details/87995.shtml)
-- 2026-06-29 12:44 - [App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [新疆新鑫矿业遭周传有减持81万股 每股均价2.70港元](http://www.blog.minike.top/Article/details/00427124813.shtml)
-- 2026-06-29 12:30 - [哈萨克斯坦前4个月GDP同比增长3.6%](http://www.share.minike.top/Article/details/40530.shtml)
-- 2026-06-29 12:53 - [国元国际：首钢资源给予“买入”评级 目标价3.18港元](http://www.share.minike.top/Article/details/276866504807.shtml)
-- 2026-06-29 12:56 - [受汽油价格推动，美国4月通胀飙升至 3.8%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [特斯拉前高管创办热泵初创公司 已有数名特斯拉前员工加入](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [受中东局势影响 德钢铁巨头下调销售预期](http://www.blog.kurohicncr.top/Article/details/8381666332.shtml)
-- 2026-06-29 12:45 - [ATFX:美国CPI数据发布 美元何去何从](http://www.share.kurohicncr.top/Article/details/776602818.shtml)
-- 2026-06-29 12:41 - [一家外资家电巨头在中国卖场的“最后时刻”](http://www.blog.kurohicncr.top/Article/details/17303313686.shtml)
+- 2026-06-29 12:43 - [滴滴成为香港引进办重点企业，两地乘客可顺畅使用同一个App](http://www.share.minike.top/Article/details/40685.shtml)
+- 2026-06-29 12:38 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](http://www.share.minike.top/Article/details/5550256.shtml)
+- 2026-06-29 12:59 - [全线爆发！三大龙头，历史新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [乌克兰总统泽连斯基称石油输送可恢复 为欧盟贷款铺平道路](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.share.minike.top/Article/details/6654229.shtml)
+- 2026-06-29 13:02 - [外国游客打卡西藏拉萨布达拉宫广场](http://www.blog.minike.top/Article/details/233304317238.shtml)
+- 2026-06-29 12:59 - [欧洲央行Guindos：在利率问题上需要谨慎并保持冷静](http://www.blog.minike.top/Article/details/50863695.shtml)
+- 2026-06-29 13:04 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](http://www.share.minike.top/Article/details/237060.shtml)
+- 2026-06-29 13:02 - [长安期货侯荃宇：纯碱期价探底回升 基本面弱势未改](http://www.blog.kurohicncr.top/Article/details/397405.shtml)
+- 2026-06-29 12:48 - [微视频丨山河迎忠魂](http://www.blog.minike.top/Article/details/8805956239.shtml)
+- 2026-06-29 12:56 - [江苏举办养老企业与金融机构对接会 推动金融资源与养老产业精准对接](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [四川累计外送电量突破2万亿千瓦时](http://www.share.minike.top/Article/details/333357853.shtml)
+- 2026-06-29 12:51 - [在韩志愿军烈士遗骸交接仪式举行 中国驻韩国大使为烈士棺椁覆盖国旗并鞠躬](http://www.blog.minike.top/Article/details/12398804852.shtml)
+- 2026-06-29 12:54 - [多家A股公司上市后首亏，部分年报披露前业绩“变脸”](http://www.blog.kurohicncr.top/Article/details/8030673.shtml)
+- 2026-06-29 12:44 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](http://www.blog.minike.top/Article/details/41120801.shtml)

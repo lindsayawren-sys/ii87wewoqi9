@@ -1,50 +1,59 @@
-# 俞浩发女装照回应刘靖康
+# 中国长安朱华荣：汽车产业已进入淘汰赛
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！封图来源|@俞浩-爱送黄金 5月12日，追觅科技创始人兼CEO俞浩在社交媒体发文：“听说某知名科技新贵喜欢看美女，来，满足你！”并附上一张影石创新科技股份有限公司创始人兼董事长‌刘靖康的朋友圈截图，以及一张俞浩自己女性化的AI图片及多段AI视频。 此前报道—— 近日，影石CEO刘靖康在朋友圈发文称：为什么我
+4月21日，“中国长安汽车集团全球战略发布会”举行，主题为：创新创业 智启长安。中国长安汽车集团有限公司党委书记、董事长朱华荣谈到，中国长安现在这个多能源的这种企业，中国长安汽车在现阶段多能源技术路线上的优势非常明显，将有力助推中国品牌全球化发展。 他指出，当前汽车产业已经进入淘汰赛，马太效应空前加剧。“我坚信，未来三到五年，全球汽车产业的竞争格局将会重新形成。单一企业很难独自
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月21日，“中国长安汽车集团全球战略发布会”举行，主题为：创新创业 智启长安。
 
-封图来源|@俞浩-爱送黄金 5月12日，追觅科技创始人兼CEO俞浩在社交媒体发文：“听说某知名科技新贵喜欢看美女，来，满足你！
+中国长安汽车集团有限公司党委书记、董事长朱华荣谈到，中国长安现在这个多能源的这种企业，中国长安汽车在现阶段多能源技术路线上的优势非常明显，将有力助推中国品牌全球化发展。
 
-”并附上一张影石创新科技股份有限公司创始人兼董事长‌刘靖康的朋友圈截图，以及一张俞浩自己女性化的AI图片及多段AI视频。
+他指出，当前汽车产业已经进入淘汰赛，马太效应空前加剧。
 
-此前报道—— 近日，影石CEO刘靖康在朋友圈发文称：为什么我现在在任何一个视频平台都能看到那个男人，明明不是美女CEO，为什么要天天刷屏。
+“我坚信，未来三到五年，全球汽车产业的竞争格局将会重新形成。
 
-责任编辑：杨赐
+单一企业很难独自承担在智驾、芯片、能源等领域巨额的研发投入，汽车企业如果仅仅依靠造车、卖车这一持续了百年的传统模式，很难实现高质量发展。
+
+” 因此，朱华荣认为，汽车产业必须打破边界，跨界融合，携手产业内外的科技合作伙伴，共同建设开放、共赢、可持续的合作生态，实现从“制造”向“生态”的跃迁。
+
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+
+责任编辑：李昂
 
 ## 相关推荐
 
-- 2026-06-29 12:49 - [Hims & Hers一季度亏损、盈利指引疲软，股价暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:46 - [新疆乌恰：大风吹歪屋顶 民辅警徒手帮民众加固](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:37 - [Optum Rx推出透明定价新模式，重塑药房福利管理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:41 - [法国农办调增2025/26年度谷物出口预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:32 - [习近平会见联合国教科文组织总干事阿纳尼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:47 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:37 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:51 - [嘴唇发紫就是心血管有淤堵？专家解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:47 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:53 - [中国—东盟科技减贫合作交流会在广西南宁开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:37 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:59 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:50 - [欧洲央行管委卡扎克斯：欧洲央行不急着加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:51 - [两岸媒体赴桂林 “打卡”“广西三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 13:00 - [哈萨克斯坦驻华大使点赞“China Travel”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:48 - [捷蓝航空被指利用个人数据定价，两党议员联名质询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:42 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:52 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 13:04 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:49 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 13:01 - [中方：反对在霍尔木兹海峡问题上的恶意关联和炒作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:59 - [大摩：长和给予增持评级 目标价61港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 13:04 - [大众汽车集团被曝有意削减100万辆全球产能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:34 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](http://www.share.kurohicncr.top/Article/details/918235482011.shtml)
-- 2026-06-29 12:57 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](http://www.share.minike.top/Article/details/441050253304.shtml)
-- 2026-06-29 12:48 - [劳动者杯中国职工篮球系列赛鸣哨](http://www.blog.minike.top/Article/details/1789468837.shtml)
-- 2026-06-29 12:42 - [瑞银继续唱多黄金：多重利多因素推动 金价年内仍有望刷新高](http://www.blog.minike.top/Article/details/409535.shtml)
-- 2026-06-29 12:42 - [我国牵头制定发布14项天然气领域国际标准](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [5月12日龙虎榜，机构青睐这10股](http://www.share.minike.top/Article/details/731603857.shtml)
-- 2026-06-29 12:44 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](http://www.share.minike.top/Article/details/87056004.shtml)
-- 2026-06-29 12:41 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](http://www.blog.kurohicncr.top/Article/details/970162870.shtml)
-- 2026-06-29 12:59 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](http://www.share.kurohicncr.top/Article/details/39225562.shtml)
-- 2026-06-29 12:42 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](http://www.blog.kurohicncr.top/Article/details/2529411.shtml)
-- 2026-06-29 12:56 - [全球首个面向南方国家的教师数字素养提升行动计划发布](http://www.share.minike.top/Article/details/5465084131.shtml)
-- 2026-06-29 12:42 - [打了网红“气血针”，能否“一针提神”？专家提醒](http://www.share.minike.top/Article/details/058115.shtml)
-- 2026-06-29 12:41 - [稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具](http://www.blog.minike.top/Article/details/978014.shtml)
+- 2026-06-29 13:04 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](http://www.blog.kurohicncr.top/Article/details/082553.shtml)
+- 2026-06-29 12:42 - [理财规模季末回落超万亿，全年增速或放缓](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](http://www.blog.kurohicncr.top/Article/details/2066544108.shtml)
+- 2026-06-29 13:01 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](http://www.blog.minike.top/Article/details/9858704061.shtml)
+- 2026-06-29 12:46 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](http://www.blog.minike.top/Article/details/6295115.shtml)
+- 2026-06-29 12:47 - [日本一自卫队演习场发生爆炸 致3死1重伤](http://www.blog.kurohicncr.top/Article/details/94254625113.shtml)
+- 2026-06-29 12:45 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](http://www.share.minike.top/Article/details/77321.shtml)
+- 2026-06-29 12:54 - [另类师徒携手追凶 《黑夜告白》定档](http://www.share.minike.top/Article/details/358573929657.shtml)
+- 2026-06-29 12:55 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](http://www.blog.minike.top/Article/details/37152616.shtml)
+- 2026-06-29 12:46 - [人民币兑美元中间价报6.8594，上调54点](http://www.blog.minike.top/Article/details/422580619666.shtml)
+- 2026-06-29 12:38 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](http://www.blog.minike.top/Article/details/41669709561.shtml)
+- 2026-06-29 13:02 - [沃什如何推动美联储实现“政策范式转变”](http://www.blog.minike.top/Article/details/646024020.shtml)
+- 2026-06-29 12:59 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](http://www.share.minike.top/Article/details/71880960.shtml)
+- 2026-06-29 12:54 - [阿维塔总裁陈卓回应与深蓝汽车战略协同：不影响赴港上市计划，仍会按照当前节奏推进](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [春播春管进行时——各地农业高质量发展一线观察](http://www.share.minike.top/Article/details/639472.shtml)

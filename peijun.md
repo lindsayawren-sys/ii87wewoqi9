@@ -1,58 +1,59 @@
-# 多元融合焕新消费 “电影+”让大银幕有大引力
+# 中通快递盘中涨超4% 小摩此前上调公司目标价至225港元
 
-> 更新时间：2026-06-29 13:00:04 UTC+8
+> 更新时间：2026-06-29 13:06:05 UTC+8
 
 ## 摘要
 
-据票房平台数据，截至12日，2026年电影票房已超140亿元。 今年以来，不同体量、不同题材的中外影片登陆中国电影市场，叠加中国电影经济促进年的带动效应，“电影+”正在释放越来越强的活力。 多种风格齐聚银幕 2026年电影票房超140亿元今年以来，中国电影类型呈现出鲜明的多样化格局——从竞技、谍战到武侠、科幻，多种风格齐聚银幕。从春节档的《飞驰人生3》以经典IP续写“骄人”战绩
+中通快递（02057）盘中涨超4%，截至发稿，股价上涨2.59%，现报202.40港元，成交额1.87亿港元。 摩根大通近期研报指出，将中通快递目标价由197港元上调至225港元，评级“增持”，并引入2028年预测，预期预测期内每股盈利年复合增长率达13%。该行表示，反内卷政策正减少价格竞争，允许中通提升效率、投资技术及提高行业进入门槛。中通2026年业务量增长指引为10%至1
 
 ## 正文
 
-据票房平台数据，截至12日，2026年电影票房已超140亿元。
+中通快递（02057）盘中涨超4%，截至发稿，股价上涨2.59%，现报202.40港元，成交额1.87亿港元。
 
-今年以来，不同体量、不同题材的中外影片登陆中国电影市场，叠加中国电影经济促进年的带动效应，“电影+”正在释放越来越强的活力。
+摩根大通近期研报指出，将中通快递目标价由197港元上调至225港元，评级“增持”，并引入2028年预测，预期预测期内每股盈利年复合增长率达13%。
 
-多种风格齐聚银幕 2026年电影票房超140亿元今年以来，中国电影类型呈现出鲜明的多样化格局——从竞技、谍战到武侠、科幻，多种风格齐聚银幕。
+该行表示，反内卷政策正减少价格竞争，允许中通提升效率、投资技术及提高行业进入门槛。
 
-从春节档的《飞驰人生3》以经典IP续写“骄人”战绩，以震撼视听彰显大片视效，收获亮眼票房成绩；到清明档影片《我，许可》以真挚情感和轻松幽默的叙事，在档期过后持续发挥长尾效应，成为4月份票房冠军；再到“五一”档的《给阿嬷的情书》以细腻的情感叙事、浓厚的地域文化底蕴打动观众，再次证明中小成本现实主义题材影片，只要扎根生活、聚焦情感，就能收获市场和观众的认可——这些优质影片为不同年龄层与家庭观众提供了更为丰富的选择。
+中通2026年业务量增长指引为10%至13%，高于行业的8%预测，此受惠于市占率提升、定价环境更理性及利润率扩张。
 
-在刚刚结束的“五一”档，观影人次达2084.19万，放映场次为237.6万场，同比增长分别为10.23%和2%，显示出影片单场放映的上座率在不断提升，彰显了活跃的中国电影市场吸引力越来越大。
+国泰海通证券表示，2026年行业“反内卷”的力度与持续性都有望超预期，有效缓和了行业竞争压力，促使行业价格水平逐渐回升，后续盈利能力也有望持续恢复。
 
-“电影+”融合升级 惠民举措焕新消费 在“2026电影经济促进年”的带动下，“电影+”的消费模式正将银幕热度转化为实体经济的增量。
+在电商经营高成本、暖冬等因素造成的行业增速下行的态势下，继续看好持续优化业务结构，构建差异化竞争壁垒以及海外业务增长迅速的快递龙头。
 
-在国家电影局推动下，今年以来，各地推出形式多样的惠民观影补贴，据统计，今年“五一”档平均票价36.3元，同比下降8%，创下近四年同期最低。
-
-截至“五一”档，相关金融机构与票务平台已累计核销优惠补贴超3.5亿元。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:33 - [泡泡玛特跨界卖茶饮？知情人士：POP BAKERY直营门店仍以甜品为主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:42 - [新疆哈密：光热发电项目年发2亿度清洁电](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:54 - [515投资者保护|富国基金口播轻投教“基金小课堂”：全网播放6000万，助力碎片化投教](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:30 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:36 - [融汇东西方经典爱情传说 实验轻歌剧《阴阳喜帖》将首演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:44 - [赣锋锂业(002460.SZ)：注销2022年股票期权激励计划剩余55.125万份期权，因第四个行权期业绩未达标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:41 - [谁在借网络平台给日本社会“投毒”？（环球走笔）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:43 - [电动化替代速度超预期，中国新能源汽车创新纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:38 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:53 - [日本北海道发生4.8级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:32 - [沪粤文脉双向奔赴 展示海丝千年风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:53 - [“加息噩梦”近了？美联储“昔日鸽派”：通胀走向错误，与关税、石油无关！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:48 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:45 - [国内油价，今年首次下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:36 - [长江有色：22日铜价小涨 高价货源成交寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:59 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 13:05 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 13:00 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:56 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:42 - [重回4100点！A股三大指数午后集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:45 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 13:05 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:41 - [美军称对一艘“涉伊朗”油轮登船检查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:36 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:55 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:45 - [别瞧不起格林基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:53 - [UPS与联邦快递已开始申请部分关税退款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:54 - [“海南鲜品”加速海南农产品向高端走、线上走、海外走](http://www.blog.minike.top/Article/details/509554.shtml)
-- 2026-06-29 12:31 - [美国总统特朗普抵达北京](http://www.blog.kurohicncr.top/Article/details/63622565.shtml)
-- 2026-06-29 12:35 - [欧佩克下调2026年全球石油需求增长预期](http://www.share.minike.top/Article/details/8262955.shtml)
-- 2026-06-29 12:46 - [力量发展午前涨近4% 机构指公司南非煤矿盈利较为可靠](http://www.blog.kurohicncr.top/Article/details/342619.shtml)
-- 2026-06-29 12:31 - [金银冲高回落！专家：下半年金银仍上行，白银弹性更大](http://www.blog.kurohicncr.top/Article/details/96405735092.shtml)
-- 2026-06-29 12:30 - [ST龙大实控人戴学斌被刑拘，今日开盘跌停](http://www.blog.minike.top/Article/details/0600935032.shtml)
-- 2026-06-29 12:35 - [油价上涨拖累全球股市](http://www.share.kurohicncr.top/Article/details/098369664.shtml)
-- 2026-06-29 12:30 - [五月生猪行情横向震荡，中期修复窗口逐步临近](http://www.share.kurohicncr.top/Article/details/8725251534.shtml)
-- 2026-06-29 12:59 - [四川优化升级无人机“扫码飞” 适飞空域预计超全省面积八成](http://www.blog.minike.top/Article/details/586028300281.shtml)
-- 2026-06-29 12:43 - [龙泉股份：截至2026年5月8日公司股东人数为23412户](http://www.share.kurohicncr.top/Article/details/1779660213.shtml)
-- 2026-06-29 12:56 - [联合航空将恢复飞往委内瑞拉航线](http://www.blog.minike.top/Article/details/59305192.shtml)
-- 2026-06-29 12:47 - [尼日利亚军方称打死至少70名疑似恐怖分子](http://www.blog.kurohicncr.top/Article/details/97452.shtml)
-- 2026-06-29 12:35 - [欧洲央行管委Nagel：如果伊朗战争威胁到价格稳定 则必须采取行动](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [突破800万人次 北京口岸2026年度出入境人员总量再攀新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报](http://www.share.kurohicncr.top/Article/details/67550.shtml)
+- 2026-06-29 12:43 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](http://www.share.kurohicncr.top/Article/details/2555729.shtml)
+- 2026-06-29 12:54 - [金宏气体：受国际局势和市场供需关系影响，氦气产品价格存在一定波动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [旷日持久的冲突或将对铜价构成压力](http://www.blog.minike.top/Article/details/3727906359.shtml)
+- 2026-06-29 12:48 - [“易中天”市值力压贵州茅台！创业板人工智能近1年飙涨202%持续跑赢！高“光”159363放量再创新高！](http://www.share.kurohicncr.top/Article/details/39615664646.shtml)
+- 2026-06-29 12:44 - [AI光模块市场年增57%！260亿美元机遇爆发！含光量超45%的创业板人工智能ETF华宝159363上探逾2%冲击前高！](http://www.blog.minike.top/Article/details/554879.shtml)
+- 2026-06-29 13:05 - [国泰海通：宏观与供需共振 金属板块呈现结构性机会（附股）](http://www.blog.minike.top/Article/details/858285452.shtml)
+- 2026-06-29 12:50 - [强降雨致漓江排筏全线封航 桂林海事部门筑牢水上安全防线](http://www.share.kurohicncr.top/Article/details/15827736691.shtml)
+- 2026-06-29 12:42 - [在洪安边城寻找“翠翠”](http://www.share.kurohicncr.top/Article/details/574414.shtml)
+- 2026-06-29 12:45 - [滴滴成为香港引进办重点企业，两地乘客可顺畅使用同一个App](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](http://www.share.minike.top/Article/details/61797816834.shtml)
+- 2026-06-29 13:01 - [全线爆发！三大龙头，历史新高](http://www.blog.kurohicncr.top/Article/details/88342677.shtml)
+- 2026-06-29 12:54 - [乌克兰总统泽连斯基称石油输送可恢复 为欧盟贷款铺平道路](http://www.share.kurohicncr.top/Article/details/53569.shtml)
+- 2026-06-29 12:47 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.blog.kurohicncr.top/Article/details/48002382.shtml)
+- 2026-06-29 13:01 - [外国游客打卡西藏拉萨布达拉宫广场](http://www.blog.minike.top/Article/details/96453.shtml)
+- 2026-06-29 12:47 - [欧洲央行Guindos：在利率问题上需要谨慎并保持冷静](http://www.share.kurohicncr.top/Article/details/25709535820.shtml)
