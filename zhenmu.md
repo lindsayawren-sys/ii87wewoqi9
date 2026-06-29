@@ -1,56 +1,46 @@
-# 机器面穿上“手擀”马甲，克明食品致歉难掩主业萎缩之痛
+# 江苏：不误农时抢晴收获 小麦陆续收割
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 近日，克明食品（002661.SZ）在其官方微博发布了一则“致歉声明”，就“手擀”商标相关问题向消费者公开致歉，宣布即日起全面停止生产、销售带有“手擀”相关表述的产品，并同步启动产品包装及宣传物料的整改。 就在此前一天，央视《法治在线》栏目曝出克明食品将“手擀”二字注册为商标用于机器制面的包
+发布时间：2026年06月01日 15:43 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-来源：证券之星 近日，克明食品（002661.SZ）在其官方微博发布了一则“致歉声明”，就“手擀”商标相关问题向消费者公开致歉，宣布即日起全面停止生产、销售带有“手擀”相关表述的产品，并同步启动产品包装及宣传物料的整改。
-
-就在此前一天，央视《法治在线》栏目曝出克明食品将“手擀”二字注册为商标用于机器制面的包装上，搭配“就像儿时妈妈做的手擀面”的广告语和醒目的擀面杖图案，易误导消费者将该款产品与传统手工工艺产品联系在一起。
-
-证券之星注意到，公司道歉当天，“陈克明食品道歉”词条一度冲上微博热搜第一。
-
-而在喧闹的舆情背后，这家“挂面第一股”正面临着远比一纸道歉声明更为严峻的考验。
-
-01． 手擀商标非手擀 天眼查查询显示，早在2020年2月，克明食品申请注册了两个名称为“陈克明手擀”的商标，但前述商标均在2025年10月24日被依职权宣告无效，即商标局在未接到任何单位或个人申请的前提下，主动对已经注册的商标作出宣告无效的行政决定。
-
-但令人意外的是，商标被宣告无效后，相关产品仍在线下渠道持续销售。
-
-并且，克明食品服务热线工作人员回复称，“手擀”大宽挂面是机器制造，是参照手感揉面的工艺成型，还原手擀面的口感。
+发布时间：2026年06月01日 15:43 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 14:27 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 14:36 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 14:26 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 14:31 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 14:18 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 14:26 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 14:23 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 14:47 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 14:21 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 14:31 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 14:49 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 14:47 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 14:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 14:47 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 14:37 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 14:53 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 14:42 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 14:31 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 14:29 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 14:44 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 14:34 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 14:35 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 14:43 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 14:41 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [上班主打一个薪尽自然凉](https://www.share.minike.top/Article/details/347027797.shtml)
-- 2026-06-29 14:21 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/9997562.shtml)
-- 2026-06-29 14:18 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/71834818.shtml)
-- 2026-06-29 14:27 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/836021.shtml)
-- 2026-06-29 14:29 - [起风了](http://www.blog.minike.top/Article/details/9910306178.shtml)
-- 2026-06-29 14:42 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/6624449173.shtml)
-- 2026-06-29 14:44 - [中餐厅南北饮食差异](http://www.blog.kurohicncr.top/Article/details/8751940.shtml)
-- 2026-06-29 14:40 - [美国近12万名科技员工被解雇](http://www.share.minike.top/Article/details/41553816760.shtml)
-- 2026-06-29 14:22 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/86021472.shtml)
-- 2026-06-29 14:27 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/3020482854.shtml)
-- 2026-06-29 14:44 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/83437689825.shtml)
-- 2026-06-29 14:34 - [NBA交易](http://www.blog.minike.top/Article/details/7816319.shtml)
-- 2026-06-29 14:46 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/1036173961.shtml)
-- 2026-06-29 14:29 - [詹俊预测德国大胜巴拉圭](http://www.share.kurohicncr.top/Article/details/1378945669.shtml)
-- 2026-06-29 14:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/38374526201.shtml)
+- 2026-06-29 14:43 - [上班主打一个薪尽自然凉](http://www.blog.minike.top/Article/details/120517.shtml)
+- 2026-06-29 14:35 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/8757145.shtml)
+- 2026-06-29 14:36 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/9565378202.shtml)
+- 2026-06-29 14:24 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/9200490.shtml)
+- 2026-06-29 14:40 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/92758936.shtml)
+- 2026-06-29 14:39 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/9734166527.shtml)
+- 2026-06-29 14:53 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/699363151.shtml)
+- 2026-06-29 14:37 - [龟梨和也田中美奈实结婚](https://www.share.minike.top/Article/details/246886553.shtml)
+- 2026-06-29 14:27 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/93304651.shtml)
+- 2026-06-29 14:40 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/940360776909.shtml)
+- 2026-06-29 14:25 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/871656917.shtml)
+- 2026-06-29 14:26 - [民进党为什么拼命抹黑统战](https://www.share.minike.top/Article/details/07658521484.shtml)
+- 2026-06-29 14:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/34777256.shtml)
+- 2026-06-29 14:42 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/06845678.shtml)
+- 2026-06-29 14:41 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/965718206.shtml)

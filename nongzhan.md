@@ -1,53 +1,60 @@
-# 易通讯集团拟折让约3.87%配售最多5912万股配售股份
+# *ST太和连续8个跌停告别A股，投资者索赔切莫错过
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-易通讯集团（08031）发并公告，于2026年6月1日，本公司与配售代理订立了配售协议，本公司已委任配售代理，待配售事项的先决条件达成后，以竭诚基准按每股配售股份0.298港元的价格配售最多5912万股配售股份予不少于六名独立承配人。 每股配售股份0.298港元的配售价较：于配售协议日期，联交所所报收市价每股股份0.310港元折让约3.87%；及于紧接配售协议日期前最后五个股份
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月29日，*ST太和（维权）发布公告称，公司收到上海证券交易所作出的终止上市决定。连续8个跌停的阴霾尚未散尽，曾经的“水生态修复第一股”最终还是未能逃脱退市的命运。 因2025年度净利润为负且营收低于3亿元，内部控制被出具否定意见审计报告，触及终止上市条件。公司股票将于2026年6月8日进入退市整理期，交易期限为15
 
 ## 正文
 
-易通讯集团（08031）发并公告，于2026年6月1日，本公司与配售代理订立了配售协议，本公司已委任配售代理，待配售事项的先决条件达成后，以竭诚基准按每股配售股份0.298港元的价格配售最多5912万股配售股份予不少于六名独立承配人。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月29日，*ST太和（维权）发布公告称，公司收到上海证券交易所作出的终止上市决定。
 
-每股配售股份0.298港元的配售价较：于配售协议日期，联交所所报收市价每股股份0.310港元折让约3.87%；及于紧接配售协议日期前最后五个股份交易日，联交所所报平均收市价每股股份0.351港元折让约15.10%。
+连续8个跌停的阴霾尚未散尽，曾经的“水生态修复第一股”最终还是未能逃脱退市的命运。
 
-假设配售股份获全面配售，最高配售股份数目5912万股占本公司于本公布日期已发行股本2.956亿股股份约20.00%，以及本公司经发行最高配售股份数目5912万股扩大的已发行股本约16.67%。
+因2025年度净利润为负且营收低于3亿元，内部控制被出具否定意见审计报告，触及终止上市条件。
 
-本公司拟定将所得款项净额当中约40%，即约685万港元的款项，用于升级系统基础设施及软件开发，所得款项净额当中约40%的款项，用于开发珠宝、贵金属及奢侈品领域的新业务，而余下的20%所得款项净额用作本集团的一般营运资金。
+公司股票将于2026年6月8日进入退市整理期，交易期限为15个交易日，预计最后交易日为6月29日。
 
-责任编辑：卢昱君
+退市整理期届满后5个交易日内摘牌，股票将转入全国中小企业股份转让系统。
+
+而该公司刚于2026年4月20日发布公告称，公司收到中国证监会送达的《立案告知书》。
+
+由于公司存在涉嫌信息披露违法违规行为，证监会已决定对其立案。
+
+收到立案告知书的同日，上海证监局出具的行政监管措施决定书揭开了更多细节，公司在2026年3月20日披露的回复公告中，明确声称相关工程项目不存在提前确认收入的情形，但监管核查发现该表述存在虚假记载。
 
 ## 相关推荐
 
-- 2026-06-29 14:45 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 14:19 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-29 14:24 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 14:46 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 14:34 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 14:33 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 14:34 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 14:41 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 14:37 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 14:19 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 14:27 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 14:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 14:44 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 14:42 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 14:46 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 14:35 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 14:48 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 14:47 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 14:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 14:33 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 14:53 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 14:49 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 14:40 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 14:31 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 14:48 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 14:47 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 14:39 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:18 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/4325111.shtml)
-- 2026-06-29 14:39 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/1674616.shtml)
-- 2026-06-29 14:27 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.minike.top/Article/details/44972510968.shtml)
-- 2026-06-29 14:40 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/42234.shtml)
-- 2026-06-29 14:45 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/069356.shtml)
-- 2026-06-29 14:24 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/695666473.shtml)
-- 2026-06-29 14:33 - [A股](https://www.share.minike.top/Article/details/46585.shtml)
-- 2026-06-29 14:35 - [俄军新型无人机战力如何](https://www.blog.minike.top/Article/details/7668913.shtml)
-- 2026-06-29 14:25 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/58185821.shtml)
-- 2026-06-29 14:42 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.minike.top/Article/details/9595010385.shtml)
-- 2026-06-29 14:28 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/9262016.shtml)
-- 2026-06-29 14:19 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/19334.shtml)
-- 2026-06-29 14:18 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/01245.shtml)
-- 2026-06-29 14:39 - [明星大侦探第四季](http://www.share.minike.top/Article/details/09792183447.shtml)
-- 2026-06-29 14:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/36136.shtml)
+- 2026-06-29 14:27 - [王楚钦周启豪爆分](https://www.share.minike.top/Article/details/099983180.shtml)
+- 2026-06-29 14:51 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/7078085763.shtml)
+- 2026-06-29 14:51 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/77367061351.shtml)
+- 2026-06-29 14:40 - [退休化学教授帮医药研发人员制毒](http://www.blog.kurohicncr.top/Article/details/94700534768.shtml)
+- 2026-06-29 14:37 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/988780.shtml)
+- 2026-06-29 14:47 - [媒体：网络测评不能只剩“生意”](http://www.blog.kurohicncr.top/Article/details/0226310.shtml)
+- 2026-06-29 14:25 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.minike.top/Article/details/8829000038.shtml)
+- 2026-06-29 14:27 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/8095503.shtml)
+- 2026-06-29 14:50 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/2428972.shtml)
+- 2026-06-29 14:51 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/18361701715.shtml)
+- 2026-06-29 14:41 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/04472231466.shtml)
+- 2026-06-29 14:45 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/20750.shtml)
+- 2026-06-29 14:44 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/598676196.shtml)
+- 2026-06-29 14:26 - [中国避暑神器在欧洲卖爆了](http://www.share.kurohicncr.top/Article/details/858857556.shtml)
+- 2026-06-29 14:51 - [绘画区你赢了](https://www.share.minike.top/Article/details/306928685861.shtml)

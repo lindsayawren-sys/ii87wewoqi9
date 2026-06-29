@@ -1,51 +1,59 @@
-# 墨西哥总统辛鲍姆升级对美措辞 指责美极右翼干涉内政
+# 国家卫健委：目前已有3000多家医疗机构建成儿童友好医院
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中新网6月2日电 据路透社报道，当地时间6月1日，墨西哥总统辛鲍姆升级对美措辞，指责美国极右翼势力正与墨西哥国内团体一起攻击墨政府。 据报道，这番话是在周末的一场集会后发表的，当时辛鲍姆谴责了美国政府机构和商业利益集团涉嫌进行的干预。 辛鲍姆表示，“我认为是美国的一些极右翼势力出于分歧，想要与墨西哥保持糟糕关系。” 不过辛鲍姆同时表示，她不认为这些攻击是由美国总统特朗普所策划的
+国家卫生健康委今天举行新闻发布会，介绍社区基层儿科服务能力有关情况。现实中，有许多群众担心社区基层服务能力不足，又担心大医院病人多、看病体验不好。针对这些问题，国家卫生健康委近年来推出了多项务实举措，努力打造“平时就近方便、急时高效顺畅”的儿童医疗服务模式。第一，做强基层服务。结合医疗卫生强基工程、“儿科与精神卫生服务年”行动等工作，推动优质医疗资源扩容下沉。目前全国超90%的
 
 ## 正文
 
-中新网6月2日电 据路透社报道，当地时间6月1日，墨西哥总统辛鲍姆升级对美措辞，指责美国极右翼势力正与墨西哥国内团体一起攻击墨政府。
+国家卫生健康委今天举行新闻发布会，介绍社区基层儿科服务能力有关情况。
 
-据报道，这番话是在周末的一场集会后发表的，当时辛鲍姆谴责了美国政府机构和商业利益集团涉嫌进行的干预。
+现实中，有许多群众担心社区基层服务能力不足，又担心大医院病人多、看病体验不好。
 
-辛鲍姆表示，“我认为是美国的一些极右翼势力出于分歧，想要与墨西哥保持糟糕关系。
+针对这些问题，国家卫生健康委近年来推出了多项务实举措，努力打造“平时就近方便、急时高效顺畅”的儿童医疗服务模式。
 
-” 不过辛鲍姆同时表示，她不认为这些攻击是由美国总统特朗普所策划的。
+第一，做强基层服务。
 
-报道指出，自特朗普开始第二任期以来，美墨两国关系持续紧张，特别是双方在关税和移民政策方面的争端进一步加剧了两国关系的紧张状态。
+结合医疗卫生强基工程、“儿科与精神卫生服务年”行动等工作，推动优质医疗资源扩容下沉。
+
+目前全国超90%的乡镇卫生院和社区卫生服务中心能提供儿科服务，98%的行政村卫生室纳入基本医保定点机构，今年还将新增1000家基层机构提供儿科服务，让家长们在社区、乡镇就能解决孩子发热、咳嗽、腹泻等常见问题。
+
+加快构建基层首诊、双向转诊、上下联动的分级诊疗格局，推动儿科医生常态化下沉帮扶，提升基层规范化诊疗水平。
+
+所以，儿童常见的感冒发烧问题，家长可以就近到社区就诊，不仅省时省力，而且医保的报销比例更高，也便于家庭医生团队为孩子提供持续的健康管理服务。
 
 ## 相关推荐
 
-- 2026-06-29 14:47 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 14:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 14:19 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 14:33 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 14:28 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 14:44 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 14:41 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 14:34 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 14:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 14:18 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 14:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 14:40 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 14:52 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 14:46 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 14:27 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 14:29 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 14:38 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 14:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 14:37 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 14:46 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 14:53 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 14:50 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 14:37 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 14:41 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:30 - [巴西德国15次闯进世界杯淘汰赛](https://www.blog.kurohicncr.top/Article/details/3921286090.shtml)
-- 2026-06-29 14:34 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/23012184030.shtml)
-- 2026-06-29 14:28 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.kurohicncr.top/Article/details/3313461.shtml)
-- 2026-06-29 14:31 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/5909859.shtml)
-- 2026-06-29 14:40 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/66267.shtml)
-- 2026-06-29 14:26 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/030387.shtml)
-- 2026-06-29 14:19 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.minike.top/Article/details/0296312977.shtml)
-- 2026-06-29 14:34 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/790086635225.shtml)
-- 2026-06-29 14:42 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/141697.shtml)
-- 2026-06-29 14:38 - [小娘惹](http://www.share.minike.top/Article/details/4079261.shtml)
-- 2026-06-29 14:24 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/60670.shtml)
-- 2026-06-29 14:43 - [5万块的威力](https://www.share.minike.top/Article/details/4558824131.shtml)
-- 2026-06-29 14:29 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/881062480289.shtml)
-- 2026-06-29 14:43 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/855916.shtml)
-- 2026-06-29 14:20 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/68889341566.shtml)
+- 2026-06-29 14:29 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/671220158854.shtml)
+- 2026-06-29 14:39 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/8853382468.shtml)
+- 2026-06-29 14:45 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/888146.shtml)
+- 2026-06-29 14:43 - [AG 钟意](https://www.blog.kurohicncr.top/Article/details/75441.shtml)
+- 2026-06-29 14:53 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/214978696.shtml)
+- 2026-06-29 14:45 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/7224745.shtml)
+- 2026-06-29 14:46 - [起风了](https://www.share.minike.top/Article/details/423492.shtml)
+- 2026-06-29 14:53 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/918689.shtml)
+- 2026-06-29 14:40 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/786230989190.shtml)
+- 2026-06-29 14:46 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/06809418746.shtml)
+- 2026-06-29 14:35 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/557533219097.shtml)
+- 2026-06-29 14:29 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/3940543.shtml)
+- 2026-06-29 14:29 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.minike.top/Article/details/332994.shtml)
+- 2026-06-29 14:48 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/04024.shtml)
+- 2026-06-29 14:32 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/10779376988.shtml)

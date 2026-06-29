@@ -1,59 +1,56 @@
-# 英伟达携手宇树科技打造人形机器人平台
+# 财经早报：特朗普称美伊或于一周内达成协议，宇树科技科创板IPO73天过会丨2026年6月2日
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-核心要点 英伟达周一宣布，已选定中国人形机器人厂商宇树科技合作推出首款面向全球科研人员的机器人系统，斯坦福大学、苏黎世联邦理工学院等机构均为目标客户。 这套系统以宇树科技身高近 1.8 米的H2 人形机器人为载体，搭载英伟达Jetson Thor硬件平台，内置先进的布莱克韦尔架构图形处理器，可在设备端实现人工智能运算。 官方公告显示，整套测试设备还预装了英伟达面向人形机器人的
+【重磅】全球迎来“芯片牛”！别再错过，立即开户跟进>> 【头条要闻】 伊朗暂停通过中间人同美国对话，计划彻底封锁霍尔木兹海峡 1日，据央视新闻报道，伊朗方面有消息称，鉴于以色列在黎巴嫩的持续军事行动，并考虑到黎巴嫩停火是伊美停火的先决条件之一，伊朗谈判团队暂停通过中间人同美国的对话和文本交换。 此前在5月31日，以色列总理内塔尼亚胡下令扩大在黎军事行动，同时寻求美国支持打击贝鲁
 
 ## 正文
 
-核心要点 英伟达周一宣布，已选定中国人形机器人厂商宇树科技合作推出首款面向全球科研人员的机器人系统，斯坦福大学、苏黎世联邦理工学院等机构均为目标客户。
+【重磅】全球迎来“芯片牛”！
 
-这套系统以宇树科技身高近 1.8 米的H2 人形机器人为载体，搭载英伟达Jetson Thor硬件平台，内置先进的布莱克韦尔架构图形处理器，可在设备端实现人工智能运算。
+别再错过，立即开户跟进>> 【头条要闻】 伊朗暂停通过中间人同美国对话，计划彻底封锁霍尔木兹海峡 1日，据央视新闻报道，伊朗方面有消息称，鉴于以色列在黎巴嫩的持续军事行动，并考虑到黎巴嫩停火是伊美停火的先决条件之一，伊朗谈判团队暂停通过中间人同美国的对话和文本交换。
 
-官方公告显示，整套测试设备还预装了英伟达面向人形机器人的 AI 模型Isaac GR00T以及仿真系统。
+此前在5月31日，以色列总理内塔尼亚胡下令扩大在黎军事行动，同时寻求美国支持打击贝鲁特等地，并已就此与美方沟通。
 
-机器人的机械手部由新加坡企业 Sharpa 提供。
+以色列国防军地面部队已在黎巴嫩南部博福特岭和萨卢基干河地区展开军事行动。
 
-据创投数据平台 PitchBook 信息，启明创投是宇树科技的投资方之一。
+以军称，其已夺取黎南部战略要地博福特城堡。
 
-英伟达首席执行官黄仁勋预判，物理人工智能市场规模有望达到数万亿美元。
+特朗普称尚未收到伊朗关于暂停谈判的消息 总台记者当地时间6月1日获悉，美国总统特朗普表示，关于伊朗问题，他尚未收到伊朗方面暂停谈判的消息。
 
-他在上个月对投资者表示，未来五年机器人行业将迎来高速增长。
+当地时间1日，伊朗方面有消息称，鉴于以色列在黎巴嫩的持续军事行动，并考虑到黎巴嫩停火是伊美停火的先决条件之一，伊朗谈判团队暂停通过中间人同美国的对话和文本交换。
 
-黄仁勋当日在台北的主题演讲中介绍：“今天我们正式推出英伟达 Isaac Root 参考款人形机器人，整机完成高度集成。
+特朗普称美伊或于一周内达成协议 延长停火并重开霍尔木兹海峡 当地时间6月1日，美国总统特朗普表示，他预计将在“未来一周内”与伊朗达成协议，延长当前停火安排并重新开放霍尔木兹海峡。
 
 ## 相关推荐
 
-- 2026-06-29 14:29 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 14:24 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 14:46 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 14:25 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 14:25 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 14:27 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 14:25 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 14:46 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 14:21 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 14:24 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 14:33 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 14:36 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 14:30 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 14:44 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 14:35 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 14:34 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 14:41 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 14:52 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 14:25 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 14:53 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 14:52 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 14:37 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 14:48 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:41 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/17141742524.shtml)
-- 2026-06-29 14:18 - [周深双眼皮贴又掉了](http://www.blog.kurohicncr.top/Article/details/911872.shtml)
-- 2026-06-29 14:41 - [佛得角到底在哪个“角”](http://www.share.minike.top/Article/details/083628604.shtml)
-- 2026-06-29 14:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/90641.shtml)
-- 2026-06-29 14:46 - [斛珠夫人](https://www.blog.minike.top/Article/details/9726217894.shtml)
-- 2026-06-29 14:38 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/5677101.shtml)
-- 2026-06-29 14:46 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/060169771907.shtml)
-- 2026-06-29 14:44 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/043692.shtml)
-- 2026-06-29 14:42 - [韩国队启程回国众将回避镜头](https://www.share.kurohicncr.top/Article/details/54833236.shtml)
-- 2026-06-29 14:34 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/14826226251.shtml)
-- 2026-06-29 14:24 - [下飞机后，我做了个很蠢的决定......](https://www.share.minike.top/Article/details/291123638.shtml)
-- 2026-06-29 14:41 - [A股](https://www.blog.minike.top/Article/details/942381006.shtml)
-- 2026-06-29 14:43 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/72888876.shtml)
-- 2026-06-29 14:41 - [和阿根廷球员家属一起看球](https://www.share.minike.top/Article/details/38758.shtml)
-- 2026-06-29 14:19 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/55384347.shtml)
+- 2026-06-29 14:49 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/4568861143.shtml)
+- 2026-06-29 14:43 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/59386634.shtml)
+- 2026-06-29 14:41 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.kurohicncr.top/Article/details/64554012973.shtml)
+- 2026-06-29 14:47 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/707279.shtml)
+- 2026-06-29 14:34 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/18286484.shtml)
+- 2026-06-29 14:30 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/005724195.shtml)
+- 2026-06-29 14:25 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/85912854021.shtml)
+- 2026-06-29 14:43 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/321253321.shtml)
+- 2026-06-29 14:29 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/528785024.shtml)
+- 2026-06-29 14:32 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/59816669.shtml)
+- 2026-06-29 14:52 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/306961.shtml)
+- 2026-06-29 14:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/161677.shtml)
+- 2026-06-29 14:40 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/545623738.shtml)
+- 2026-06-29 14:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/818842789861.shtml)
+- 2026-06-29 14:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/7565285.shtml)

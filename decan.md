@@ -1,59 +1,60 @@
-# 堪比台风！东北内蒙古多地遭遇强风局地达14级 为何大风这么强?
+# 光大期货：6月2日矿钢煤焦日报
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中国天气网讯 昨天(5月31日)，东北、内蒙古多地出现强对流天气，局地风力达14级，威力堪比台风，大风卷起沙尘，哈尔滨等地还出现沙尘暴天气。预计今明天，东北及内蒙古多地仍有强对流天气，或再迎强风，为何近期东北等地的大风天气如此强劲？ 昨天，受东北冷涡影响，东北地区、内蒙古出现明显强对流天气，内蒙古东北部、黑龙江中西部、吉林中西部、辽宁中西部等地部分地区出现8至10级雷暴大风或冰
+螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面震荡上涨，截止日盘螺纹2610合约收盘价格为3177元/吨，较上一交易日收盘价格上涨19元/吨，涨幅为0.6%，持仓减少1.97万手。现货价格小幅上涨，成交回升，唐山地区迁安普方坯价格上涨10元/吨至3030元/吨，杭州市场中天螺纹价格上涨10元/吨至3240元/吨，全国建材成交量
 
 ## 正文
 
-中国天气网讯 昨天(5月31日)，东北、内蒙古多地出现强对流天气，局地风力达14级，威力堪比台风，大风卷起沙尘，哈尔滨等地还出现沙尘暴天气。
+螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面震荡上涨，截止日盘螺纹2610合约收盘价格为3177元/吨，较上一交易日收盘价格上涨19元/吨，涨幅为0.6%，持仓减少1.97万手。
 
-预计今明天，东北及内蒙古多地仍有强对流天气，或再迎强风，为何近期东北等地的大风天气如此强劲？
+现货价格小幅上涨，成交回升，唐山地区迁安普方坯价格上涨10元/吨至3030元/吨，杭州市场中天螺纹价格上涨10元/吨至3240元/吨，全国建材成交量11.95万吨。
 
-昨天，受东北冷涡影响，东北地区、内蒙古出现明显强对流天气，内蒙古东北部、黑龙江中西部、吉林中西部、辽宁中西部等地部分地区出现8至10级雷暴大风或冰雹。
+据钢银数据，本周全国建材库存下降1.88%至554.87万吨，热卷库存下降5.15%至235.09万吨，库存维持较明显下降趋势。
 
-其中，黑龙江哈尔滨、绥化、齐齐哈尔、大庆、黑河南部等局地出现11至12级阵风，绥化、哈尔滨局地出现13级阵风，最大为海伦市祥富44.3米/秒(14级)，威力堪比台风！
+国务院日前印发《城市更新“十五五”规划》，指出构建可持续的城市建设运营投融资体系，允许通过地方政府专项债券支持符合条件的城市更新项目建设，支持用作项目资本金。
 
-强力大风卷起沙尘，导致内蒙古东南部和吉林西部一带出现沙尘，并向东北方向蔓延，哈尔滨局地出现沙尘暴，18时前后，PM10浓度暴涨，沙尘墙高达数十米，铺天盖地，期间还有雷鸣阵阵。
+上周末国务院安委会召开全国安全生产视频会议，山西省也开专题会议部署煤矿安全专项整治，煤矿安监形势再次趋严，煤焦价格明显上涨，对钢材走势形成较强成本支撑。
 
-为何大风如此强劲？
+预计短期螺纹盘面窄幅整理运行为主。
 
-中国天气网首席气象分析师信欣解释，昨天，高空冷涡和地面气旋东移影响内蒙古东部和东北地区，并在这一带地区形成锋面系统。
+铁矿石： （柳浠，从业资格号：F03087689；交易咨询资格号：Z0019538） 昨日铁矿石期货主力合约i2609价格继续震荡，收于781元/吨，较前一个交易日收盘价下跌2.5元/吨，跌幅为0.3%，成交22.53万手，减仓0.53万手。
 
-在锋面前后，冷暖差异非常大，昨天下午黑龙江多地先经历了锋前增温，其中哈尔滨出现少见高温天气，之后冷空气和近地面气旋携带大风登场，冷暖对撞之下，出现雷电大风等强对流天气。
+港口现货主流品种市场价格，现青岛港PB粉60.8%752跌1，超特粉603跌5。
 
 ## 相关推荐
 
-- 2026-06-29 14:32 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 14:40 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 14:34 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 14:35 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 14:23 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 14:35 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 14:33 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 14:46 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 14:28 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 14:20 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 14:25 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 14:48 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 14:30 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 14:39 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 14:44 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 14:40 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 14:27 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 14:37 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 14:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 14:41 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 14:25 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 14:49 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 14:37 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 14:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 14:50 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 14:40 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 14:36 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:27 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/4525938947.shtml)
-- 2026-06-29 14:31 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/190382657.shtml)
-- 2026-06-29 14:38 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/95937.shtml)
-- 2026-06-29 14:38 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/442793181087.shtml)
-- 2026-06-29 14:45 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/00423971.shtml)
-- 2026-06-29 14:21 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/48380513819.shtml)
-- 2026-06-29 14:47 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/52435831.shtml)
-- 2026-06-29 14:27 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/01829.shtml)
-- 2026-06-29 14:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/08428.shtml)
-- 2026-06-29 14:33 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/41758.shtml)
-- 2026-06-29 14:46 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/53642581.shtml)
-- 2026-06-29 14:34 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/12388979.shtml)
-- 2026-06-29 14:45 - [流金岁月](http://www.blog.minike.top/Article/details/01072.shtml)
-- 2026-06-29 14:20 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/6869025496.shtml)
-- 2026-06-29 14:45 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/6877115166.shtml)
+- 2026-06-29 14:40 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/98934922.shtml)
+- 2026-06-29 14:29 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/31649762.shtml)
+- 2026-06-29 14:31 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/7530324294.shtml)
+- 2026-06-29 14:27 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/85873.shtml)
+- 2026-06-29 14:42 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.kurohicncr.top/Article/details/50405011569.shtml)
+- 2026-06-29 14:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/44621885.shtml)
+- 2026-06-29 14:38 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/767445.shtml)
+- 2026-06-29 14:30 - [Mrbeast的30天不吃饭挑战](http://www.blog.minike.top/Article/details/8175814.shtml)
+- 2026-06-29 14:39 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/26086800.shtml)
+- 2026-06-29 14:48 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/55026.shtml)
+- 2026-06-29 14:45 - [复盘曾沛慈浪姐夺冠之路](https://www.share.minike.top/Article/details/64258868816.shtml)
+- 2026-06-29 14:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/932158568348.shtml)
+- 2026-06-29 14:34 - [迈巴赫提车第二天发现大灯起雾](http://www.share.minike.top/Article/details/56538729610.shtml)
+- 2026-06-29 14:46 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/51283742.shtml)
+- 2026-06-29 14:48 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/062934866.shtml)

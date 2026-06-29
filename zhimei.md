@@ -1,58 +1,53 @@
-# 观点综述：AI热将浇灭沃什快速降息的希望 亚洲科技股超级周期未见顶
+# 一艘货船在波斯湾遭袭并发生爆炸
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-Apollo首席经济学家称AI热潮将浇灭美联储新任主席沃什快速降息的希望。纽约联储研究显示，比起人工智能，远程办公对年轻毕业生求职影响更大。法国巴黎银行表示亚洲科技股超级周期远未见顶。 Apollo首席经济学家称AI热潮将浇灭美联储新任主席沃什快速降息的希望 Apollo Global Management Inc．首席经济学家Torsten Slok表示，人工智能基础设施建设
+新华社伦敦6月1日电(记者高文成)英国海上贸易行动办公室6月1日通报说，一艘货船在波斯湾靠近伊拉克南部海域航行时被不明投射物击中并发生剧烈爆炸。 据通报，这艘货船当时正在波斯湾航行，其右舷被不明投射物击中，随后发生剧烈爆炸。目前尚未发现该事件造成环境污染或其他环境影响。通报未说明遭袭船只名称、国籍及船员伤亡情况。 通报所附图片显示，事发海域距伊拉克南部乌姆盖斯尔港东南约40海里
 
 ## 正文
 
-Apollo首席经济学家称AI热潮将浇灭美联储新任主席沃什快速降息的希望。
+新华社伦敦6月1日电(记者高文成)英国海上贸易行动办公室6月1日通报说，一艘货船在波斯湾靠近伊拉克南部海域航行时被不明投射物击中并发生剧烈爆炸。
 
-纽约联储研究显示，比起人工智能，远程办公对年轻毕业生求职影响更大。
+据通报，这艘货船当时正在波斯湾航行，其右舷被不明投射物击中，随后发生剧烈爆炸。
 
-法国巴黎银行表示亚洲科技股超级周期远未见顶。
+目前尚未发现该事件造成环境污染或其他环境影响。
 
-Apollo首席经济学家称AI热潮将浇灭美联储新任主席沃什快速降息的希望 Apollo Global Management Inc．首席经济学家Torsten Slok表示，人工智能基础设施建设在初期将推高通胀，这将使新任美联储主席凯文·沃什无法以他此前所暗示的可能的速度那样迅速降息。
+通报未说明遭袭船只名称、国籍及船员伤亡情况。
 
-Slok周一在节目Surveillance上表示：“我们可能还得再等一段时间，因为在初期，AI热潮肯定会推升通胀。
-
-”他说，从半导体价格、能源价格和劳动力成本来看，价格压力风险“非常明确”。
-
-纽约联储研究：比起人工智能 远程办公对年轻毕业生求职影响更大 纽约联储银行的一项研究显示，相较于人工智能的普及，远程办公的兴起更能解释近期年轻大学毕业生失业率上升的原因。
-
-纽约联储经济学家Natalia Emanuel等研究人员周一在纽约联储官网发布的博客文章中表示，29岁以下拥有大学学历劳动者的失业率较疫情前水平上升，其中约64%可归因于居家办公趋势。
+通报所附图片显示，事发海域距伊拉克南部乌姆盖斯尔港东南约40海里，靠近伊拉克和科威特近海交界区域，是连接伊拉克港口与波斯湾主航道的重要航运水域。
 
 ## 相关推荐
 
-- 2026-06-29 14:25 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 14:42 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 14:28 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 14:20 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 14:46 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 14:45 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 14:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 14:21 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 14:18 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 14:44 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 14:30 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 14:42 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 14:32 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 14:42 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 14:49 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 14:40 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 14:34 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 14:29 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 14:24 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 14:38 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 14:46 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 14:41 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 14:29 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 14:29 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 14:42 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:31 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/888781136.shtml)
-- 2026-06-29 14:26 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/07041.shtml)
-- 2026-06-29 14:24 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/9372638486.shtml)
-- 2026-06-29 14:24 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.minike.top/Article/details/72970810.shtml)
-- 2026-06-29 14:47 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.kurohicncr.top/Article/details/708457658314.shtml)
-- 2026-06-29 14:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/153832244680.shtml)
-- 2026-06-29 14:20 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/0159524183.shtml)
-- 2026-06-29 14:23 - [马斯克也站到了光里](https://www.blog.kurohicncr.top/Article/details/774692.shtml)
-- 2026-06-29 14:18 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/6359926984.shtml)
-- 2026-06-29 14:43 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/833220954.shtml)
-- 2026-06-29 14:38 - [普京称考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/6493849667.shtml)
-- 2026-06-29 14:35 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/277300.shtml)
-- 2026-06-29 14:44 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.share.kurohicncr.top/Article/details/42712437.shtml)
-- 2026-06-29 14:43 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/0445322.shtml)
-- 2026-06-29 14:45 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/14011847.shtml)
+- 2026-06-29 14:29 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/036232620752.shtml)
+- 2026-06-29 14:30 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/403783737976.shtml)
+- 2026-06-29 14:24 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/324225372463.shtml)
+- 2026-06-29 14:40 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/7351434936.shtml)
+- 2026-06-29 14:35 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/34511387.shtml)
+- 2026-06-29 14:45 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/754227.shtml)
+- 2026-06-29 14:31 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/04792492.shtml)
+- 2026-06-29 14:46 - [天道](https://www.blog.minike.top/Article/details/721160065583.shtml)
+- 2026-06-29 14:48 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/173221.shtml)
+- 2026-06-29 14:52 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/1705107.shtml)
+- 2026-06-29 14:41 - [TOP 无畏契约](https://www.share.kurohicncr.top/Article/details/675427034.shtml)
+- 2026-06-29 14:30 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/27724662166.shtml)
+- 2026-06-29 14:24 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/1006202.shtml)
+- 2026-06-29 14:39 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/4648501.shtml)
+- 2026-06-29 14:38 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/293425047635.shtml)

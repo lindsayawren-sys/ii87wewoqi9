@@ -1,56 +1,59 @@
-# 氟化工、锂电猛攻，华宝基金化工ETF（516020）盘中涨超1%！机构高呼盈利底部或现
+# 日本考虑于2027年4月实施为期两年消费税调降措施
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-化工板块今日（6月1日）吹响反攻号角！反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速拉升，盘中场内价格最高涨幅达到1.27%，截至发稿，涨0.92%。 成份股方面，氟化工、锂电、合成树脂等板块部分个股涨幅居前。截至发稿，巨化股份涨超7%，圣泉集团涨超6%，联泓新科、三美股份、星源材质等亦涨幅居前。 长江证券表示，《“十五五”规划纲要》提出“建设强大国内市场，加快
+媒体引述一位匿名政府高官报导表示，日本正考虑从明年4月起，对食品销售适用的8%税率实施为期两年的减税措施。 报道表示，这样的时程将使首相高市早苗的政府能在预定2027年4月举行的地方选举前推动减税政策。 为避免调整收银系统识别零税率所需的漫长时间，消费税税率可能降至1%，而非最初计划的0%。首相官邸暂未对此置评。 日本目前对食品征收8%消费税、对其他商品和服务征收10%的税率。
 
 ## 正文
 
-化工板块今日（6月1日）吹响反攻号角！
+媒体引述一位匿名政府高官报导表示，日本正考虑从明年4月起，对食品销售适用的8%税率实施为期两年的减税措施。
 
-反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速拉升，盘中场内价格最高涨幅达到1.27%，截至发稿，涨0.92%。
+报道表示，这样的时程将使首相高市早苗的政府能在预定2027年4月举行的地方选举前推动减税政策。
 
-成份股方面，氟化工、锂电、合成树脂等板块部分个股涨幅居前。
+为避免调整收银系统识别零税率所需的漫长时间，消费税税率可能降至1%，而非最初计划的0%。
 
-截至发稿，巨化股份涨超7%，圣泉集团涨超6%，联泓新科、三美股份、星源材质等亦涨幅居前。
+首相官邸暂未对此置评。
 
-长江证券表示，《“十五五”规划纲要》提出“建设强大国内市场，加快构建新发展格局”，目标中提到“居民消费率明显提高，内需拉动经济增长主动力作用持续增强等”。
+日本目前对食品征收8%消费税、对其他商品和服务征收10%的税率。
 
-部分存量市场替换需求有望带动上游化工品消费：消费建材需求发生质变，目前住宅翻新需求占比接近 50%，预计未来有望达到近 70%，消费建材上游化工品如树脂、颜料等需求有望得到存量翻新的拉动。
+这些税收是因应人口快速老龄化而上升的社会福利支出的重要资金来源。
 
-展望后市，长江证券表示，看好中国化工行业全球化崛起，建议聚焦优质龙头无论从单一产品角度，还是从总量角度论证，我国化工品均有着不菲的直接或间接出口占比，我国化工品供应主要对应全球消费，预计全球化工品需求有望稳中向好。
+高市早苗今年1月承诺，将取消食品销售的8%消费税，为期两年，以帮助家庭缓解生活成本上涨带来的压力。
 
-中银证券指出，考虑到本轮行业扩产已近尾声，“双碳”、“反内卷”等措施有望催化行业盈利底部修复，同时新材料受益于下游需求的快速发展，有望开启新一轮高成长，长期来看化工产业链全球市占率与竞争力持续提升。
+该计划的具体细节将在朝野政党会议中进一步讨论。
 
 ## 相关推荐
 
-- 2026-06-29 14:28 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 14:29 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 14:47 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 14:31 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 14:29 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 14:39 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 14:24 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 14:33 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 14:28 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 14:37 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 14:39 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 14:34 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 14:25 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 14:32 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 14:38 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 14:44 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 14:38 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 14:46 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 14:26 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 14:31 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 14:52 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 14:29 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 14:40 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:38 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/135758296001.shtml)
-- 2026-06-29 14:46 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/126067266.shtml)
-- 2026-06-29 14:34 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/72415.shtml)
-- 2026-06-29 14:38 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/01685043684.shtml)
-- 2026-06-29 14:45 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/50211797622.shtml)
-- 2026-06-29 14:27 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/40121092082.shtml)
-- 2026-06-29 14:38 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/225256.shtml)
-- 2026-06-29 14:20 - [青春环游记第三季](https://www.share.minike.top/Article/details/5923980821.shtml)
-- 2026-06-29 14:45 - [乔家的儿女](http://www.share.minike.top/Article/details/29571560620.shtml)
-- 2026-06-29 14:42 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/6965436043.shtml)
-- 2026-06-29 14:25 - [人民日报评“AI脸看腻了”](https://www.blog.minike.top/Article/details/6399410.shtml)
-- 2026-06-29 14:46 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/52081007.shtml)
-- 2026-06-29 14:41 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/1352328.shtml)
-- 2026-06-29 14:46 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/1537415.shtml)
-- 2026-06-29 14:33 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/0515816246.shtml)
+- 2026-06-29 14:25 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/88681382722.shtml)
+- 2026-06-29 14:50 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/24834241.shtml)
+- 2026-06-29 14:51 - [薛之谦演唱会](https://www.blog.minike.top/Article/details/4039948.shtml)
+- 2026-06-29 14:41 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/12373.shtml)
+- 2026-06-29 14:25 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.kurohicncr.top/Article/details/8746785977.shtml)
+- 2026-06-29 14:31 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/040600823.shtml)
+- 2026-06-29 14:36 - [送你一朵小红花](https://www.blog.minike.top/Article/details/11485374304.shtml)
+- 2026-06-29 14:43 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/009043631932.shtml)
+- 2026-06-29 14:39 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/80608425.shtml)
+- 2026-06-29 14:25 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/9630548607.shtml)
+- 2026-06-29 14:47 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.kurohicncr.top/Article/details/23347913034.shtml)
+- 2026-06-29 14:30 - [高考志愿今起开始填报](http://www.blog.minike.top/Article/details/19786006443.shtml)
+- 2026-06-29 14:27 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/93176972.shtml)
+- 2026-06-29 14:49 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.minike.top/Article/details/738900049.shtml)
+- 2026-06-29 14:39 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/04221021.shtml)

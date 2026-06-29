@@ -1,59 +1,60 @@
-# 日系车销量大跌背后，车主们都在担心什么
+# 高德CEO郭宁：把新加坡“反正好玩”的承诺，用扫街榜落到每一家好店里
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-最近“日系车溃败”这个话题登上了微博热搜，引发了大量讨论。数据显示，日系车在中国市场的份额持续下滑，多个曾经畅销的品牌销量腰斩。对于已经买了日系车的车主来说，担心的不只是面子问题——保值率下降、配件供应、售后服务保障，这些都是实实在在的焦虑。 汽车作为一种大宗消费品，从买车的那一刻起，消费者就可能面临各种各样的问题。新车交付时发现瑕疵、4S店强制捆绑销售保险和装潢、维修时使用非
+近日，高德地图与新加坡旅游局在北京签署战略合作备忘录，将共建首个海外国家旅游局共建的扫街榜，并把高德飞行街景技术首次带向海外。新加坡旅游局局长欧燕媚与高德CEO郭宁出席签约仪式。 中国旅游研究院《中国出境旅游发展年度报告(2025—2026)》指出，自由行已成为中国出境游的主流选择。游客更倾向于深度探索、融入本地社区生活，而非追逐打卡点。 郭宁在签约现场表示：“信息过剩的时代，
 
 ## 正文
 
-最近“日系车溃败”这个话题登上了微博热搜，引发了大量讨论。
+近日，高德地图与新加坡旅游局在北京签署战略合作备忘录，将共建首个海外国家旅游局共建的扫街榜，并把高德飞行街景技术首次带向海外。
 
-数据显示，日系车在中国市场的份额持续下滑，多个曾经畅销的品牌销量腰斩。
+新加坡旅游局局长欧燕媚与高德CEO郭宁出席签约仪式。
 
-对于已经买了日系车的车主来说，担心的不只是面子问题——保值率下降、配件供应、售后服务保障，这些都是实实在在的焦虑。
+中国旅游研究院《中国出境旅游发展年度报告(2025—2026)》指出，自由行已成为中国出境游的主流选择。
 
-汽车作为一种大宗消费品，从买车的那一刻起，消费者就可能面临各种各样的问题。
+游客更倾向于深度探索、融入本地社区生活，而非追逐打卡点。
 
-新车交付时发现瑕疵、4S店强制捆绑销售保险和装潢、维修时使用非原厂配件却不告知、厂家召回通知不到位……这些问题在汽车投诉中屡见不鲜。
+郭宁在签约现场表示：“信息过剩的时代，游客最稀缺的其实不是攻略，而是信任。
 
-而当日系车品牌在中国市场收缩的时候，现有车主的担忧更加具体：以后还能不能方便地找到维修点？
+”在他看来，纵使线上内容眼花缭乱，游客依然难以确定哪个景点值得去、哪条街藏着本地人才知道的好味道。
 
-零配件会不会断供或者涨价严重？
+决定游客选择的，不再是“谁的声音更大、更多”，而是“谁更值得信赖”。
 
-二手车的残值会不会进一步缩水？
+研发高德扫街榜的核心理念，就是“真实”。
 
 ## 相关推荐
 
-- 2026-06-29 14:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 14:20 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 14:43 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 14:27 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 14:32 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 14:44 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 14:38 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 14:41 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 14:30 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 14:25 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 14:19 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 14:35 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 14:45 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 14:51 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 14:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 14:47 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 14:25 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 14:53 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 14:31 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 14:41 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 14:40 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 14:51 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 14:50 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 14:38 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 14:48 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 14:29 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 14:51 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:37 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/55473.shtml)
-- 2026-06-29 14:44 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/0534467.shtml)
-- 2026-06-29 14:29 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/4634713548.shtml)
-- 2026-06-29 14:42 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.minike.top/Article/details/182751675069.shtml)
-- 2026-06-29 14:27 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/794055.shtml)
-- 2026-06-29 14:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/2639776464.shtml)
-- 2026-06-29 14:33 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.kurohicncr.top/Article/details/439080333096.shtml)
-- 2026-06-29 14:46 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/53863635.shtml)
-- 2026-06-29 14:24 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/6313902680.shtml)
-- 2026-06-29 14:28 - [李在明称韩国足协任命了无能之人](http://www.share.kurohicncr.top/Article/details/445553012.shtml)
-- 2026-06-29 14:33 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/118305065436.shtml)
-- 2026-06-29 14:22 - [媒体评恋与深空争议](http://www.blog.minike.top/Article/details/0334984982.shtml)
-- 2026-06-29 14:39 - [NBA交易](https://www.share.minike.top/Article/details/2584287006.shtml)
-- 2026-06-29 14:44 - [周杰伦演唱会真的好多人啊](http://www.blog.minike.top/Article/details/759842689557.shtml)
-- 2026-06-29 14:40 - [一生一世](https://www.share.minike.top/Article/details/008453.shtml)
+- 2026-06-29 14:40 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/8560261681.shtml)
+- 2026-06-29 14:47 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/08226216080.shtml)
+- 2026-06-29 14:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/1149110167.shtml)
+- 2026-06-29 14:42 - [扬名立万](https://www.share.minike.top/Article/details/436005.shtml)
+- 2026-06-29 14:27 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.kurohicncr.top/Article/details/3564096129.shtml)
+- 2026-06-29 14:28 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/333043669.shtml)
+- 2026-06-29 14:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/110552466.shtml)
+- 2026-06-29 14:42 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/55629600.shtml)
+- 2026-06-29 14:47 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/12553171951.shtml)
+- 2026-06-29 14:29 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/0249071.shtml)
+- 2026-06-29 14:32 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/05670.shtml)
+- 2026-06-29 14:32 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/818077450922.shtml)
+- 2026-06-29 14:28 - [T1对战KC](https://www.blog.minike.top/Article/details/71368772.shtml)
+- 2026-06-29 14:41 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/9532073.shtml)
+- 2026-06-29 14:34 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/9742753148.shtml)

@@ -1,60 +1,61 @@
-# 国联民生证券孔蓉：中国AI公司隐含“Token出海”重估空间，存储已进入超级周期
+# 洋河产品韩国上市推荐会举行 绵柔酒香架起中韩合作新桥梁
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-继SpaceX、OpenAI等万亿级IPO引发全球关注后，中国本土科技资产也在近期迎来密集催化：智谱、Minimax等大模型公司股价表现抢眼，长鑫存储、长江存储即将登陆A股。投资者普遍关心：中国AI公司的估值逻辑与海外有何不同？存储产业的景气度能持续多久？ 6月2日，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，就上述问题给出了系统解读。她认为，中国大模
+专题：中韩企业可持续发展交流会 5月26日至28日，由新浪财经与洋河股份联合主办、中国国际商会协办的“可持续全球领导者大会海外专场”在韩国首尔举行。作为系列活动之一，洋河产品韩国上市推荐会于26日晚举办，中韩经贸、酒水行业及餐饮文化领域代表出席。 南京贸易（株）代表理事Yoo Hosung、全球报告倡议组织（GRI）前董事吕建中、洋河股份代表分别致辞。 Yoo Hosung表示
 
 ## 正文
 
-继SpaceX、OpenAI等万亿级IPO引发全球关注后，中国本土科技资产也在近期迎来密集催化：智谱、Minimax等大模型公司股价表现抢眼，长鑫存储、长江存储即将登陆A股。
+专题：中韩企业可持续发展交流会 5月26日至28日，由新浪财经与洋河股份联合主办、中国国际商会协办的“可持续全球领导者大会海外专场”在韩国首尔举行。
 
-投资者普遍关心：中国AI公司的估值逻辑与海外有何不同？
+作为系列活动之一，洋河产品韩国上市推荐会于26日晚举办，中韩经贸、酒水行业及餐饮文化领域代表出席。
 
-存储产业的景气度能持续多久？
+南京贸易（株）代表理事Yoo Hosung、全球报告倡议组织（GRI）前董事吕建中、洋河股份代表分别致辞。
 
-6月2日，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，就上述问题给出了系统解读。
+Yoo Hosung表示，洋河进入韩国市场已有十年，通过持续市场拓展，目前已进入国际航空免税渠道，并获得韩国演艺界及主流人群认可。
 
-她认为，中国大模型公司一出生就是“全球化公司”，Token出海的潜力尚未被市场充分定价；而存储产业正进入AI驱动的“超级周期”，长鑫、长存的上市将是中国硬科技实力的重要标志。
+他强调品牌发展离不开文化共享，未来将继续推动中韩经贸与文化交流。
 
-视频直播>> 智谱、Minimax上市后股价表现强劲，而同期部分海外大模型公司估值承压。
+吕建中指出，洋河是诞生于绿水青山、在绿色发展中成长的民族企业，始终怀揣为人民美好生活而酿造的使命，积极践行ESG理念，以大生态观坚持长期主义，以大生命观与伙伴共生，以大生产观与时代同行。
 
-孔蓉指出，这背后既有交易面因素，也有更深层的估值逻辑差异。
+他期望洋河以此次战略合作为新起点，拓宽国际版图，以醇香美酒拉近各国人民情谊，推动文化互通与商贸交流。
 
-交易层面，她坦言：“智谱和Minimax的流通盘相对较小，比较少的资金就能撬动股价表现。
+活动现场，两项战略合作签约顺利完成：一是韩国中餐文化交流协会与韩国南京贸易（株）签署战略合作协议；二是在韩中国白酒协会、韩国南京贸易（株）与江苏洋河酒厂股份有限公司签署三方深度战略合作协议。
 
 ## 相关推荐
 
-- 2026-06-29 14:23 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 14:18 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 14:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 14:39 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 14:30 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 14:42 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 14:27 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 14:47 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 14:38 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 14:31 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 14:35 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 14:18 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-29 14:42 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 14:39 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 14:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 14:30 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 14:30 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 14:43 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 14:40 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 14:52 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 14:35 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 14:27 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 14:44 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 14:45 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 14:27 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 14:30 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 14:49 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 14:41 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 14:41 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:26 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/042461016.shtml)
-- 2026-06-29 14:36 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/434106292078.shtml)
-- 2026-06-29 14:33 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/004501.shtml)
-- 2026-06-29 14:39 - [比亚迪为什么卖得越多市值越低](https://www.blog.minike.top/Article/details/33739.shtml)
-- 2026-06-29 14:45 - [李连杰回应网传不管前妻俩女儿](https://www.share.kurohicncr.top/Article/details/24829.shtml)
-- 2026-06-29 14:40 - [血糖高的人能吃西瓜吗](https://www.share.kurohicncr.top/Article/details/7155836.shtml)
-- 2026-06-29 14:41 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/27324217991.shtml)
-- 2026-06-29 14:33 - [异世界一点都不好玩！](http://www.share.kurohicncr.top/Article/details/08084.shtml)
-- 2026-06-29 14:39 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/8553371.shtml)
-- 2026-06-29 14:47 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/4665370139.shtml)
-- 2026-06-29 14:30 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/9932333.shtml)
-- 2026-06-29 14:47 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/5809691105.shtml)
-- 2026-06-29 14:35 - [美伊同意停止互袭](https://www.share.minike.top/Article/details/743323.shtml)
-- 2026-06-29 14:31 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/5338968868.shtml)
-- 2026-06-29 14:32 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/40159123865.shtml)
+- 2026-06-29 14:28 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.kurohicncr.top/Article/details/9493216021.shtml)
+- 2026-06-29 14:25 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/64455929800.shtml)
+- 2026-06-29 14:47 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/6870413.shtml)
+- 2026-06-29 14:39 - [东部机场集团新增釜山航线](http://www.blog.minike.top/Article/details/3496856709.shtml)
+- 2026-06-29 14:48 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/344880345030.shtml)
+- 2026-06-29 14:24 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/971441.shtml)
+- 2026-06-29 14:27 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/219748.shtml)
+- 2026-06-29 14:48 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/340957.shtml)
+- 2026-06-29 14:42 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/724063125.shtml)
+- 2026-06-29 14:43 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/078366523270.shtml)
+- 2026-06-29 14:28 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/3809428609.shtml)
+- 2026-06-29 14:50 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/632747771287.shtml)
+- 2026-06-29 14:34 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/57085.shtml)
+- 2026-06-29 14:43 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/06754.shtml)
+- 2026-06-29 14:37 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/4243025.shtml)

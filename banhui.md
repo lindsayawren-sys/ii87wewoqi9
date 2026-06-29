@@ -1,60 +1,58 @@
-# 受中东冲突和干旱天气影响，澳大利亚小麦产量或创三年最低
+# AI乐观情绪对冲中东地缘忧虑，全球股市反弹
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-澳大利亚政府周二表示，由于化肥成本高企以及部分地区干旱，澳大利亚即将到来的小麦收成将是三年来最低的，这将导致种植面积减少和产量下降。 澳大利亚是小麦和其他农作物的主要出口国。产量下降将减少全球供应，从而推高价格。由于美国农作物歉收，上个月澳大利亚小麦价格已达到两年来的最高水平。 澳大利亚农业与资源经济科学局（ABARES）在其季度作物报告中指出，澳大利亚今年晚些时候的小麦产量预
+受人工智能板块利好提振，全球股市周二全线走高：AI 企业 Anthropic 启动赴美上市进程点燃行业做多热情；与此同时，市场对美伊达成和谈的预期升温，国际原油、美债收益率同步下行。 美国总统特朗普表态美伊谈判仍在推进，布伦特原油期货跌幅超 1%，报价 94 美元 / 桶，回吐前一交易日的大幅涨幅。 此前有消息称伊朗方面暂停与美国的间接停战谈判，这场已持续三个月的冲突缓和进程再
 
 ## 正文
 
-澳大利亚政府周二表示，由于化肥成本高企以及部分地区干旱，澳大利亚即将到来的小麦收成将是三年来最低的，这将导致种植面积减少和产量下降。
+受人工智能板块利好提振，全球股市周二全线走高：AI 企业 Anthropic 启动赴美上市进程点燃行业做多热情；与此同时，市场对美伊达成和谈的预期升温，国际原油、美债收益率同步下行。
 
-澳大利亚是小麦和其他农作物的主要出口国。
+美国总统特朗普表态美伊谈判仍在推进，布伦特原油期货跌幅超 1%，报价 94 美元 / 桶，回吐前一交易日的大幅涨幅。
 
-产量下降将减少全球供应，从而推高价格。
+此前有消息称伊朗方面暂停与美国的间接停战谈判，这场已持续三个月的冲突缓和进程再生变数、停火前景脆弱，令投资者始终保持谨慎。
 
-由于美国农作物歉收，上个月澳大利亚小麦价格已达到两年来的最高水平。
+欧洲早盘，斯托克 600 指数上涨近 0.8%，意法半导体上调业绩预期带动欧洲科技板块走强。
 
-澳大利亚农业与资源经济科学局（ABARES）在其季度作物报告中指出，澳大利亚今年晚些时候的小麦产量预计将达到2670万吨。
+AI 投资热潮 人工智能企业 Anthropic 周一官宣，已向美国 SEC 秘密递交 IPO 申请，在备受关注的 AI 巨头上市赛跑中领先竞品 OpenAI。
 
-数据显示，这将比上个种植季减少约900万吨，比过去五个种植季的平均产量减少约800万吨。
+谷歌母公司字母表计划募资 800 亿美元股权资金，加码 AI 基建投入。
 
-自伊朗冲突导致海湾国家断供以来，化肥价格飙升。
+投资机构 AJ Bell 投资总监拉斯・穆尔德点评：“这直观体现 AI 军备竞赛所需资金体量巨大，科技企业从坐拥充沛自由现金流，转向奔赴资本市场募资扩产，行业格局已发生重大转变。
 
-澳大利亚农业资源经济局表示，高价化肥可能导致农民减少施肥，从而降低作物产量潜力。
+” 宏观数据层面，美国供应管理协会（ISM）周一公布：5 月美国制造业 PMI 升至 54.0，较 4 月 52.7 显著抬升，优于市场预期、创下四年新高。
 
 ## 相关推荐
 
-- 2026-06-29 14:23 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 14:43 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 14:25 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 14:25 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 14:45 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 14:36 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 14:37 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 14:36 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 14:27 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 14:38 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 14:35 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 14:36 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 14:40 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 14:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 14:35 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 14:37 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 14:36 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 14:49 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 14:45 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 14:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 14:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 14:28 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 14:43 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 14:42 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 14:34 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 14:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:26 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/60342445142.shtml)
-- 2026-06-29 14:29 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/5953806.shtml)
-- 2026-06-29 14:28 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/96236775098.shtml)
-- 2026-06-29 14:40 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/7557499.shtml)
-- 2026-06-29 14:32 - [爱很美味](http://www.share.kurohicncr.top/Article/details/4258720630.shtml)
-- 2026-06-29 14:42 - [新一代影后杨紫](https://www.share.minike.top/Article/details/676409723916.shtml)
-- 2026-06-29 14:45 - [崔韩率还以为韩娱来新人了](http://www.share.minike.top/Article/details/836949.shtml)
-- 2026-06-29 14:39 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/446326.shtml)
-- 2026-06-29 14:23 - [沙丘](http://www.blog.minike.top/Article/details/249629.shtml)
-- 2026-06-29 14:38 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/59152488861.shtml)
-- 2026-06-29 14:35 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.kurohicncr.top/Article/details/1574531.shtml)
-- 2026-06-29 14:26 - [汪东城回应45岁婚约](http://www.blog.minike.top/Article/details/453695637657.shtml)
-- 2026-06-29 14:41 - [小娘惹](http://www.share.kurohicncr.top/Article/details/012776.shtml)
-- 2026-06-29 14:26 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.kurohicncr.top/Article/details/329735369.shtml)
-- 2026-06-29 14:47 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/42875.shtml)
+- 2026-06-29 14:31 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/89313557.shtml)
+- 2026-06-29 14:50 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/25679.shtml)
+- 2026-06-29 14:30 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.minike.top/Article/details/168710778710.shtml)
+- 2026-06-29 14:39 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/1388147.shtml)
+- 2026-06-29 14:43 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/43379650277.shtml)
+- 2026-06-29 14:27 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/65217.shtml)
+- 2026-06-29 14:52 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/16490716.shtml)
+- 2026-06-29 14:36 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/685754.shtml)
+- 2026-06-29 14:24 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/3471074606.shtml)
+- 2026-06-29 14:49 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/166713.shtml)
+- 2026-06-29 14:41 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/71568897.shtml)
+- 2026-06-29 14:27 - [大疆7月15日起涨价？公司回应](http://www.blog.minike.top/Article/details/07338.shtml)
+- 2026-06-29 14:31 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.kurohicncr.top/Article/details/741117229.shtml)
+- 2026-06-29 14:40 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/29654283.shtml)
+- 2026-06-29 14:37 - [AG 宫斗](http://www.blog.minike.top/Article/details/0928581399.shtml)

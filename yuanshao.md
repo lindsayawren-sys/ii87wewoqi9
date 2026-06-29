@@ -1,46 +1,56 @@
-# 全国首家网上离境退税商店在北京落地
+# “潮风客韵”旅游计次票上线 粤东地区旅客享便捷
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 13:17 来源：央视新闻 责任编辑：【王祎】
+中新网深圳6月1日电 (索有为 马鑫宇 蒋杰豪)深圳铁路部门1日发布消息称，为满足旅客多样化出行需求，铁路部门当日正式推出“潮风客韵”旅游计次票新型票制产品，该票制支持旅客在指定发到站间自由选择行程。 该票制涵盖广州、广州东、广州新塘、广州南、深圳北、潮汕、饶平、汕头、揭阳、普宁、汕尾、陆丰、梅州西、龙川西、河源东、惠州北共16个车站。相比于普通购票，此票制可享受一定的折扣，为
 
 ## 正文
 
-发布时间：2026年06月02日 13:17 来源：央视新闻 责任编辑：【王祎】
+中新网深圳6月1日电 (索有为 马鑫宇 蒋杰豪)深圳铁路部门1日发布消息称，为满足旅客多样化出行需求，铁路部门当日正式推出“潮风客韵”旅游计次票新型票制产品，该票制支持旅客在指定发到站间自由选择行程。
+
+该票制涵盖广州、广州东、广州新塘、广州南、深圳北、潮汕、饶平、汕头、揭阳、普宁、汕尾、陆丰、梅州西、龙川西、河源东、惠州北共16个车站。
+
+相比于普通购票，此票制可享受一定的折扣，为粤东地区旅客出行提供了更加实惠和便捷的选择。
+
+据了解，“潮风客韵”旅游计次票是铁路部门推出的新型票制产品，用户可根据实际需求选择2至10段行程，每段行程为单次、单向、指定席别使用。
+
+需注意的是，如仅选择2段行程时，不可选择相同区间的往返行程。
+
+旅客购买后，可通过席位预约和直接刷证两种方式乘车，产品有效期为自首次乘车之日起15天。
+
+在购买规则方面，旅客可通过12306网站或“铁路12306”手机App实名购买，仅向已通过身份信息核验的注册用户开放，注册用户可为本人及账户下已核验的乘车人购买。
+
+同一乘车人可同时购买多个产品。
 
 ## 相关推荐
 
-- 2026-06-29 14:44 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 14:30 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 14:33 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 14:48 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 14:26 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 14:47 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 14:40 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 14:21 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 14:37 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 14:18 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 14:34 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 14:46 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 14:45 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 14:39 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 14:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 14:27 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 14:47 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 14:34 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 14:26 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 14:51 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 14:48 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 14:46 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 14:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 14:45 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:44 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/026308726.shtml)
-- 2026-06-29 14:42 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/8082108947.shtml)
-- 2026-06-29 14:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/435636.shtml)
-- 2026-06-29 14:45 - [乔家的儿女](https://www.blog.minike.top/Article/details/9262275.shtml)
-- 2026-06-29 14:36 - [韩国记者：解码“合肥模式”](http://www.share.minike.top/Article/details/38498.shtml)
-- 2026-06-29 14:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/1504554.shtml)
-- 2026-06-29 14:19 - [薛之谦演唱会](https://www.blog.kurohicncr.top/Article/details/2762040.shtml)
-- 2026-06-29 14:39 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/008813721.shtml)
-- 2026-06-29 14:38 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/55193.shtml)
-- 2026-06-29 14:34 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/349849257284.shtml)
-- 2026-06-29 14:22 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/8932683271.shtml)
-- 2026-06-29 14:44 - [新一代影后杨紫](http://www.blog.minike.top/Article/details/7044040962.shtml)
-- 2026-06-29 14:25 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/433189.shtml)
-- 2026-06-29 14:28 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/074129.shtml)
-- 2026-06-29 14:33 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/78535609.shtml)
+- 2026-06-29 14:47 - [爱情有烟火你是知道我爱看什么的](http://www.share.kurohicncr.top/Article/details/09443.shtml)
+- 2026-06-29 14:26 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/50908.shtml)
+- 2026-06-29 14:40 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/558761825.shtml)
+- 2026-06-29 14:52 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/07910480880.shtml)
+- 2026-06-29 14:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/61512451653.shtml)
+- 2026-06-29 14:28 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/550408820.shtml)
+- 2026-06-29 14:50 - [极限挑战第一季](https://www.blog.minike.top/Article/details/8317767038.shtml)
+- 2026-06-29 14:40 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/35371154845.shtml)
+- 2026-06-29 14:29 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/45761.shtml)
+- 2026-06-29 14:45 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/942128.shtml)
+- 2026-06-29 14:45 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/08188.shtml)
+- 2026-06-29 14:45 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/488264.shtml)
+- 2026-06-29 14:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/55653372319.shtml)
+- 2026-06-29 14:41 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/4745109.shtml)
+- 2026-06-29 14:46 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/136670475.shtml)

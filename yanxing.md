@@ -1,60 +1,60 @@
-# 从“AI吞噬”到“AI赋能”，港股AI应用狂飙！美图公司猛拉26%，华宝基金港股互联网ETF（513770）大涨3.23%
+# 国宝云集、规模空前 马王堆汉墓文物大展7月将登陆上海
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-6月1日，港股迎来反弹，互联网板块久违再度成为上涨主力。AI应用方向飙升，美图公司大涨26%，金蝶国际涨超19%，迈富时、中国儒意、金山软件两位数上涨；互联网龙头方面，美团-W绩前涨超6%，腾讯控股、小米集团-W涨超2%，阿里巴巴-W涨超1%。 聚焦港股AI核心工具，重仓互联网龙头的港股互联网ETF华宝（513770）单边向上，场内价格大涨3.23%，向上收复日线，全天实时成交
+中新网上海6月2日电 (记者 王笈)记者2日从新闻发布会上获悉，“千金之家——马王堆汉墓的生活美学及养成”国宝艺术大展将于7月3日至10月7日在上海美术馆重磅亮相，是马王堆50余年考古研究史上规模最大、等级规格最高的一次省外展出。 本次大展甄选195件(套)、共计472件展品，一级文物31件(套)，系统梳理马王堆汉墓辛追夫人等汉代贵族的生活风貌，深度呈现其生活美学与精神涵养的发
 
 ## 正文
 
-6月1日，港股迎来反弹，互联网板块久违再度成为上涨主力。
+中新网上海6月2日电 (记者 王笈)记者2日从新闻发布会上获悉，“千金之家——马王堆汉墓的生活美学及养成”国宝艺术大展将于7月3日至10月7日在上海美术馆重磅亮相，是马王堆50余年考古研究史上规模最大、等级规格最高的一次省外展出。
 
-AI应用方向飙升，美图公司大涨26%，金蝶国际涨超19%，迈富时、中国儒意、金山软件两位数上涨；互联网龙头方面，美团-W绩前涨超6%，腾讯控股、小米集团-W涨超2%，阿里巴巴-W涨超1%。
+本次大展甄选195件(套)、共计472件展品，一级文物31件(套)，系统梳理马王堆汉墓辛追夫人等汉代贵族的生活风貌，深度呈现其生活美学与精神涵养的发展脉络。
 
-聚焦港股AI核心工具，重仓互联网龙头的港股互联网ETF华宝（513770）单边向上，场内价格大涨3.23%，向上收复日线，全天实时成交额8.99亿元，环比放量超2亿元。
+展览实现三大历史性“首次”：马王堆一号墓T形帛画和马王堆三号墓T形帛画两幅母子T形帛画首次同期外展；对鸟菱形纹绮地“乘云绣”坐垫首次展出；菱形纹绮“安乐如意长寿无极”文字丝绵袍残片和油彩双层长方形漆妆奁首次外展。
 
-一方面是以芯片半导体为代表的硬科技集体回调，另一方面，AI应用方向强势反攻，行情风向现转变信号。
+同期展出的原件文物数量庞大、分量十足。
 
-上周（5月25日-5月29日）美股软件股大幅上涨，Snowflake单周上涨48.4%，Okta上涨33.6%，其最新业绩及指引大超预期，此前市场担心的“AI颠覆软件”被强势业绩证伪，市场开始重新审视软件应用行业，尤其是与AI深度绑定的企业。
+云纹漆具杯盒设计精妙，收纳稳固、兼顾便携，尽显汉代成熟漆艺；金银色火焰纹印花纱是迄今所见最早的三版套印印花丝织品，彰显汉代高超丝织工艺；马王堆一号汉墓出土的印花敷彩纱，是首次发现的最早的印花和彩绘相结合的高级丝织品，也是最早的“画衣”实物…… 湖南省博物馆二级研究馆员、马王堆研究院院长喻燕姣表示，马王堆汉墓发掘至今已逾50年，依然“常研常新”，本次来到上海展出是马王堆出省外展史上规模最大、等级最高的一次。
 
-国金证券表示，受“AI吞噬论”主导的极度悲观预期影响，此前软件应用的抛售情绪已经过度，恐慌情绪开始消退，市场将出现反转。
+“我期待汉代生活智慧走出学术论文与博物馆，被更多人看见、理解，让这场大展成为当代观众与汉代文明一场跨越两千年的深度对话与心灵共振。
 
-市场开始重新定义AI对软件行业的赋能价值，软件板块迎估值修复。
+” 上海美术馆党委书记、执行馆长王一川表示，本次大展以创新形式活化珍贵文物内涵，呈现全感官沉浸体验，让观众跨越时空，感受两千年前汉代贵族的生活美学与精神世界。
 
-* 此外，《深圳市国民经济和社会发展第十五个五年规划纲要》近日发布，其中提出，实施数字化转型行动，推动制造业数字化改造全覆盖，大力发展基于开源鸿蒙操作系统和第五代精简指令集（RISC-V）芯片构建的嵌入式软件、基础软件模组，打造一批工业互联网应用示范场景。
+“展期内，我馆将以‘艺术之美’与‘生活之美’双线并行打造公教矩阵，特别推出名家讲座、艺术体验工坊、世界文明互鉴教学课、多层级专业讲解等，全面解读马王堆的艺术文化密码与汉代生活美学，让观众在艺术中达成心灵疗愈。
 
 ## 相关推荐
 
-- 2026-06-29 14:36 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 14:45 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 14:19 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 14:34 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 14:46 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 14:39 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 14:35 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 14:44 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 14:27 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 14:20 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 14:47 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 14:32 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 14:42 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 14:18 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 14:24 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 14:49 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 14:28 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 14:51 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 14:53 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 14:36 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 14:52 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 14:51 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 14:44 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 14:30 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 14:24 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 14:35 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 14:53 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 14:37 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:29 - [普京称考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/114466611.shtml)
-- 2026-06-29 14:24 - [四川宜宾地震致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/113341.shtml)
-- 2026-06-29 14:37 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/178408989.shtml)
-- 2026-06-29 14:27 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/274614425.shtml)
-- 2026-06-29 14:44 - [媒体：网络测评不能只剩“生意”](https://www.share.minike.top/Article/details/5588471166.shtml)
-- 2026-06-29 14:19 - [TLAW vs DCG MSI](https://www.share.kurohicncr.top/Article/details/43413.shtml)
-- 2026-06-29 14:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/6371897.shtml)
-- 2026-06-29 14:27 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/33872.shtml)
-- 2026-06-29 14:25 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/2807049679.shtml)
-- 2026-06-29 14:44 - [第一炉香](http://www.share.kurohicncr.top/Article/details/3840480425.shtml)
-- 2026-06-29 14:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/348646001397.shtml)
-- 2026-06-29 14:22 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/8651623.shtml)
-- 2026-06-29 14:25 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/93692074278.shtml)
-- 2026-06-29 14:37 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/960948.shtml)
-- 2026-06-29 14:37 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/3894570.shtml)
+- 2026-06-29 14:26 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/83502844771.shtml)
+- 2026-06-29 14:32 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/047123.shtml)
+- 2026-06-29 14:39 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/95683396.shtml)
+- 2026-06-29 14:34 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.kurohicncr.top/Article/details/6616317.shtml)
+- 2026-06-29 14:24 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/2776132.shtml)
+- 2026-06-29 14:29 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/2227983712.shtml)
+- 2026-06-29 14:27 - [高考公平需要延伸到志愿填报这一环](http://www.blog.kurohicncr.top/Article/details/40145.shtml)
+- 2026-06-29 14:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/6980097759.shtml)
+- 2026-06-29 14:43 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/92254950423.shtml)
+- 2026-06-29 14:50 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/85410651831.shtml)
+- 2026-06-29 14:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/591524794923.shtml)
+- 2026-06-29 14:41 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/668211617.shtml)
+- 2026-06-29 14:34 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/099297637169.shtml)
+- 2026-06-29 14:46 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/829583910.shtml)
+- 2026-06-29 14:38 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/0042405651.shtml)

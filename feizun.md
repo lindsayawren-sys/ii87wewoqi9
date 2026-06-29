@@ -1,51 +1,59 @@
-# 消息人士称以军扩大在黎军事行动系与美协调进行
+# 中国国际动漫节再设“香港馆” 16家香港企业携原创IP参展
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-当地时间6月1日，总台记者获悉，消息人士称，以色列扩大在黎巴嫩的军事行动是与美国协调进行的。 此外，一位以色列官员表示，以军将对黎巴嫩贝鲁特“达希耶”地区发动空袭的决定是与美国协调后做出的。这位官员宣称，美国国务卿鲁比奥一直在推动黎以停火，但真主党并未“配合”，导致美国不再反对以色列空袭真主党在贝鲁特的据点。(总台记者 赵兵)
+中新网香港6月2日电(记者 张祥毅)香港数码娱乐协会2日在香港举行记者招待会表示，该协会将以“潮游动漫”为主题，于6月17日至21日在杭州举办的第二十二届中国国际动漫节设立“香港馆”。16家来自动漫、游戏及潮玩等领域的香港企业将携近20个IP(知识产权)参展，并以角色扮演、游戏试玩、漫画大师速画等形式，全面推广香港动画、漫画、游戏及潮玩的创意和实力。 香港数码娱乐协会主席彭子杰
 
 ## 正文
 
-当地时间6月1日，总台记者获悉，消息人士称，以色列扩大在黎巴嫩的军事行动是与美国协调进行的。
+中新网香港6月2日电(记者 张祥毅)香港数码娱乐协会2日在香港举行记者招待会表示，该协会将以“潮游动漫”为主题，于6月17日至21日在杭州举办的第二十二届中国国际动漫节设立“香港馆”。
 
-此外，一位以色列官员表示，以军将对黎巴嫩贝鲁特“达希耶”地区发动空袭的决定是与美国协调后做出的。
+16家来自动漫、游戏及潮玩等领域的香港企业将携近20个IP(知识产权)参展，并以角色扮演、游戏试玩、漫画大师速画等形式，全面推广香港动画、漫画、游戏及潮玩的创意和实力。
 
-这位官员宣称，美国国务卿鲁比奥一直在推动黎以停火，但真主党并未“配合”，导致美国不再反对以色列空袭真主党在贝鲁特的据点。
+香港数码娱乐协会主席彭子杰表示，经历两届的锻炼，今年着力以设计原创性、品质、以及商业认受性三大准则挑选出16家即将到杭州参展的企业，务求以质量并重的方式，展现香港数码娱乐产业的最高水准。
 
-(总台记者 赵兵)
+香港行声制作有限公司IP主理人李诗婷向记者表示，这是公司第三次参加中国国际动漫节，她认为内地生产与供应链齐全，香港具备联通世界的贸易优势和拥有汇聚东西方文化的品牌特色，相信可以一起携手做好潮玩IP出海。
+
+继中国国际动漫节后，今年在广州举行的中国国际漫画节动漫游戏展也将设立“香港馆”。
+
+16家香港数码娱乐企业，将通过以创意成果交易和人才推介为主要内容的动漫产业平台，深化粤港澳大湾区融合，推动与区内同行及潜在业务伙伴加强交流与合作。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 14:39 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 14:28 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 14:36 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 14:29 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 14:26 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 14:43 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 14:22 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 14:35 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 14:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 14:41 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 14:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 14:36 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 14:38 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 14:25 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 14:49 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 14:29 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 14:31 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 14:52 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 14:36 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 14:39 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 14:46 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 14:51 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 14:48 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 14:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 14:36 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 14:33 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 14:31 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/0756662719.shtml)
-- 2026-06-29 14:21 - [周生如故](http://www.share.kurohicncr.top/Article/details/7644151385.shtml)
-- 2026-06-29 14:24 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/9013473690.shtml)
-- 2026-06-29 14:29 - [唐艺昕女儿接唐艺昕回家](http://www.blog.minike.top/Article/details/08042190379.shtml)
-- 2026-06-29 14:42 - [唐艺昕女儿接唐艺昕回家](http://www.share.kurohicncr.top/Article/details/403905935.shtml)
-- 2026-06-29 14:38 - [民进党为什么拼命抹黑统战](https://www.share.minike.top/Article/details/91421480961.shtml)
-- 2026-06-29 14:30 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/99232736638.shtml)
-- 2026-06-29 14:38 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/1112083.shtml)
-- 2026-06-29 14:38 - [俄称继续推进 乌称打击俄军设施](http://www.blog.kurohicncr.top/Article/details/3663339885.shtml)
-- 2026-06-29 14:20 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/81291097.shtml)
-- 2026-06-29 14:21 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/891491371.shtml)
-- 2026-06-29 14:35 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/3613923.shtml)
-- 2026-06-29 14:28 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.kurohicncr.top/Article/details/710285212582.shtml)
-- 2026-06-29 14:44 - [沙特足协主席发布声明主动请辞](http://www.share.minike.top/Article/details/30071453198.shtml)
-- 2026-06-29 14:46 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.minike.top/Article/details/53234.shtml)
+- 2026-06-29 14:30 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/67038735.shtml)
+- 2026-06-29 14:45 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/231307.shtml)
+- 2026-06-29 14:43 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/25143031.shtml)
+- 2026-06-29 14:40 - [实习期把公司领导开除了](http://www.blog.kurohicncr.top/Article/details/55685590.shtml)
+- 2026-06-29 14:32 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/78267076118.shtml)
+- 2026-06-29 14:42 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/06666474323.shtml)
+- 2026-06-29 14:53 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/209195142524.shtml)
+- 2026-06-29 14:27 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/98060.shtml)
+- 2026-06-29 14:46 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/34435110.shtml)
+- 2026-06-29 14:25 - [Mrbeast的30天不吃饭挑战](https://www.share.minike.top/Article/details/6632117.shtml)
+- 2026-06-29 14:49 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/97074175.shtml)
+- 2026-06-29 14:35 - [辽宁葫芦岛一居民楼突发爆炸](http://www.blog.minike.top/Article/details/474444603.shtml)
+- 2026-06-29 14:34 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/58990694.shtml)
+- 2026-06-29 14:31 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/013071.shtml)
+- 2026-06-29 14:44 - [周生如故](http://www.blog.minike.top/Article/details/888882.shtml)

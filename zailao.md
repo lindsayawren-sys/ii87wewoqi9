@@ -1,59 +1,57 @@
-# 高溢价导致对价格敏感客户流失 花旗大幅下调老铺黄金目标价至700港元
+# 宇树科技IPO过会，人形机器人第一股来了？
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-文章来源：财闻 老铺黄金持续加强门店布局，包括5月底在澳门巴黎人开设新店，以及在杭州大厦及上海新天地调整门店位置或进行翻新。 6月2日，花旗发表报告指，老铺黄金5月销售额预计将受节日促销带动而超过4月，但观察到天猫618活动至今的表现较预期弱，可能是由于高溢价导致对价格敏感的客户流失。由于2月涨价后金价走软，老铺黄金相对于传统金饰商的溢价已超过55%，高于2024年前约30%及
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！三次登台央视春晚，宇树机器人连续攻克翻桌跑酷、弹射空翻和器械操控等多项“高难动作”。从春晚出圈到产业先锋再到IPO上会，宇树科技凭什么？ 6月1日，宇树科技顺利过会，距离科创板IPO只差临门一脚。从3月20日IPO申请获受理到这一天，全程只用了73天，创下A股近两年最快“过会”纪录，也大概率成为“人形机器人
 
 ## 正文
 
-文章来源：财闻 老铺黄金持续加强门店布局，包括5月底在澳门巴黎人开设新店，以及在杭州大厦及上海新天地调整门店位置或进行翻新。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-6月2日，花旗发表报告指，老铺黄金5月销售额预计将受节日促销带动而超过4月，但观察到天猫618活动至今的表现较预期弱，可能是由于高溢价导致对价格敏感的客户流失。
+三次登台央视春晚，宇树机器人连续攻克翻桌跑酷、弹射空翻和器械操控等多项“高难动作”。
 
-由于2月涨价后金价走软，老铺黄金相对于传统金饰商的溢价已超过55%，高于2024年前约30%及2025年约10%的水平。
+从春晚出圈到产业先锋再到IPO上会，宇树科技凭什么？
 
-该行相信，随着价格敏感客户暂时退出，现有客户更多是认可品牌品质、设计与服务的忠实客户，这将使未来销售与金价的相关性降低，有助于提高盈利的可预测性。
+6月1日，宇树科技顺利过会，距离科创板IPO只差临门一脚。
 
-此外，老铺黄金持续加强门店布局，包括5月底在澳门巴黎人开设新店，以及在杭州大厦及上海新天地调整门店位置或进行翻新。
+从3月20日IPO申请获受理到这一天，全程只用了73天，创下A股近两年最快“过会”纪录，也大概率成为“人形机器人第一股”。
 
-考虑到在线销售预期下调，花旗将老铺黄金2026财年收入预测下调6%至377亿元，但受惠于毛利率预测提升，净利润预测维持在82.6亿元不变。
+按照首发募资比例计算，宇树科技IPO时的估值或超过420亿元。
 
-对于2027至2028财年，为反映价格敏感客户流失后的年化表现，该行将两年收入预测降29%至30%，纯利预测降27%至28%。
+那我们今天就来聊聊宇树科技这家公司，以及具身智能这个注定要改变世界的万亿赛道，到底长什么样？
 
-基于预测2027财年市盈率15倍，该行将老铺黄金目标价由1162港元大幅下调至700港元，维持“买入”评级。
+我们先来看看，宇树科技为什么能这么快就上会？
 
 ## 相关推荐
 
-- 2026-06-29 14:45 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 14:26 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 14:26 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 14:27 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 14:21 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 14:45 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 14:29 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 14:38 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 14:22 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 14:35 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 14:18 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 14:23 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 14:23 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 14:49 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 14:26 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 14:52 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 14:53 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 14:27 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 14:39 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 14:34 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 14:34 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 14:48 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 14:53 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 14:46 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:43 - [一见倾心](https://www.share.minike.top/Article/details/24846.shtml)
-- 2026-06-29 14:44 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/89920259.shtml)
-- 2026-06-29 14:35 - [异世界一点都不好玩！](https://www.blog.kurohicncr.top/Article/details/69705.shtml)
-- 2026-06-29 14:30 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/356968218.shtml)
-- 2026-06-29 14:38 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/283574.shtml)
-- 2026-06-29 14:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/879028161815.shtml)
-- 2026-06-29 14:34 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/529624631.shtml)
-- 2026-06-29 14:38 - [把古诗里的动作换成加班](https://www.share.minike.top/Article/details/132605488934.shtml)
-- 2026-06-29 14:34 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/271619343125.shtml)
-- 2026-06-29 14:34 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/155647885.shtml)
-- 2026-06-29 14:23 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/028091312202.shtml)
-- 2026-06-29 14:39 - [赵露思爸爸拍vlog翻车了](https://www.share.minike.top/Article/details/58860727171.shtml)
-- 2026-06-29 14:43 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/06752307.shtml)
-- 2026-06-29 14:40 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/176482.shtml)
-- 2026-06-29 14:39 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/942356911.shtml)
+- 2026-06-29 14:29 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.minike.top/Article/details/177284663273.shtml)
+- 2026-06-29 14:41 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/339381394.shtml)
+- 2026-06-29 14:25 - [爱情有烟火你是知道我爱看什么的](http://www.share.minike.top/Article/details/23351.shtml)
+- 2026-06-29 14:28 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/74573948.shtml)
+- 2026-06-29 14:26 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.minike.top/Article/details/622925.shtml)
+- 2026-06-29 14:48 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/0865418.shtml)
+- 2026-06-29 14:32 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/537103.shtml)
+- 2026-06-29 14:38 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/0405947484.shtml)
+- 2026-06-29 14:38 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/712326499461.shtml)
+- 2026-06-29 14:50 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/8998637.shtml)
+- 2026-06-29 14:33 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/08908235.shtml)
+- 2026-06-29 14:33 - [当我回母校教书](https://www.share.minike.top/Article/details/88774.shtml)
+- 2026-06-29 14:34 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/54479.shtml)
+- 2026-06-29 14:36 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/98126521946.shtml)
+- 2026-06-29 14:46 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/560179.shtml)

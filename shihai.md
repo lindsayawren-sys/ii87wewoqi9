@@ -1,58 +1,59 @@
-# 美股芯片股大分化，ARM狂飙11%，高通大跌9%，英伟达涨超4%，宣布杀入PC芯片市场
+# 6月2日热门中概股多数上涨 台积电涨4.21%，理想汽车跌3.13%
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-记者丨林健民 北京时间6月1日晚，美股三大指数集体低开，标普500指数跌0.16%，道指跌0.38%，纳指跌0.11%。 截至发稿，IBM、微软、ARM、惠普分别涨7%、3%、11%、1.2%，美股芯片股走势分化，英特尔跌超5%，AMD跌超4%，高通大跌9%。英伟达股价大涨超4%，英伟达联手微软打造新一代AI PC，今年秋季正面挑战苹果与英特尔。 美股存储股普涨，美光科技涨近6
+6月2日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收高1.47%。 上涨个股（按市值从高到低）：台积电涨4.21%，阿里巴巴涨0.94%，拼多多涨3.32%，网易涨0.37%，联电涨3.18%，京东涨0.90%，中华电信涨3.21%，携程涨1.81%，贝壳涨3.52%，中通涨1.28%，小鹏汽车涨4.38%，腾讯音乐涨3.25%，蔚来涨6.70%，中国新城农村涨5.34
 
 ## 正文
 
-记者丨林健民 北京时间6月1日晚，美股三大指数集体低开，标普500指数跌0.16%，道指跌0.38%，纳指跌0.11%。
+6月2日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收高1.47%。
 
-截至发稿，IBM、微软、ARM、惠普分别涨7%、3%、11%、1.2%，美股芯片股走势分化，英特尔跌超5%，AMD跌超4%，高通大跌9%。
+上涨个股（按市值从高到低）：台积电涨4.21%，阿里巴巴涨0.94%，拼多多涨3.32%，网易涨0.37%，联电涨3.18%，京东涨0.90%，中华电信涨3.21%，携程涨1.81%，贝壳涨3.52%，中通涨1.28%，小鹏汽车涨4.38%，腾讯音乐涨3.25%，蔚来涨6.70%，中国新城农村涨5.34%，满帮涨2.32%，新东方涨2.80%，哔哩哔哩涨6.00%，万国数据涨0.17%，唯品会涨2.10%，BOSS直聘涨3.46%，亚朵集团涨2.01%，小马智行涨7.58%，名创优品涨4.47%，金山云涨8.55%，奇景光电涨6.51%，微牛涨3.12%，欢聚涨1.38%。
 
-英伟达股价大涨超4%，英伟达联手微软打造新一代AI PC，今年秋季正面挑战苹果与英特尔。
+下跌个股（按市值从高到低）：日月光半导体跌0.46%，百度跌2.15%，理想汽车跌3.13%，富途控股跌1.13%，华住酒店集团跌1.16%，慧荣科技跌3.19%，WSP控股跌1.40%。
 
-美股存储股普涨，美光科技涨近6%，闪迪涨超4%。
+美股周一收高，三大股指均创历史新高。
 
-英伟达连续放大招 英伟达杀入PC芯片市场，A股受益股曝光 据《证券时报》6月1日报道，在GTC Taipei2026大会上，全球AI芯片巨头英伟达正式宣布进军个人电脑处理器市场，发力电脑通用计算芯片市场。
+英伟达宣布进军PC处理器业务，引发芯片市场格局剧变。
 
-在当天的演讲中，黄仁勋表示，此次携手微软打造的N1X处理器，将率先应用于微软、戴尔、惠普、华硕、联想、微星六大品牌的全新Windows笔记本及台式机产品，预计2026年秋季正式上市。
+伊朗宣布暂停与美国的信息交流，以抗议以色列的罪行并且报复美国一再违反停火协议。
 
-英伟达官方透露，后续将陆续推出30余款笔记本、10款台式机搭载这款全新芯片。
+道指涨46.42点，涨幅为0.09%，报51078.88点；纳指涨114.19点，涨幅为0.42%，报27086.81点；标普500指数涨19.91点，涨幅为0.26%，报7599.97点。
 
-受消息影响，6月1日，A股AI PC概念狂飙，雷神科技（920190.BJ）大涨30%，慧为智能（920876.BJ）涨近30%，软通动力（301236.SZ）、英力股份（300956.SZ）20cm涨停，千亿巨头华勤技术（603296.SH）10cm涨停。
+领涨中概股列表： 领跌中概股列表： （截图来自新浪财经APP 行情-美股-中概股热门板块）下载新浪财经APP责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 14:23 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 14:44 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 14:19 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 14:35 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 14:21 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 14:22 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 14:29 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 14:24 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 14:27 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 14:21 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 14:42 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 14:42 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 14:25 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 14:43 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 14:41 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 14:27 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 14:47 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 14:36 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 14:46 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 14:48 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 14:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 14:40 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 14:43 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 14:52 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 14:46 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:42 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/56152827.shtml)
-- 2026-06-29 14:19 - [沙丘](http://www.share.minike.top/Article/details/447830.shtml)
-- 2026-06-29 14:19 - [异世界一点都不好玩！](https://www.blog.kurohicncr.top/Article/details/806962639513.shtml)
-- 2026-06-29 14:21 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/64958617.shtml)
-- 2026-06-29 14:42 - [韩媒破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/33517.shtml)
-- 2026-06-29 14:21 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/875512.shtml)
-- 2026-06-29 14:18 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/2194941861.shtml)
-- 2026-06-29 14:47 - [智界V9成为高端圈层共同选择](http://www.share.kurohicncr.top/Article/details/457540.shtml)
-- 2026-06-29 14:35 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/78171651.shtml)
-- 2026-06-29 14:28 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/78064.shtml)
-- 2026-06-29 14:36 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/198324.shtml)
-- 2026-06-29 14:22 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/2961411950.shtml)
-- 2026-06-29 14:23 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.kurohicncr.top/Article/details/05636839168.shtml)
-- 2026-06-29 14:40 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/1425982672.shtml)
-- 2026-06-29 14:42 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/5615143.shtml)
+- 2026-06-29 14:34 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/45289.shtml)
+- 2026-06-29 14:51 - [王楚钦首轮赢下国乒德比](http://www.share.minike.top/Article/details/9528059237.shtml)
+- 2026-06-29 14:29 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/45819910.shtml)
+- 2026-06-29 14:25 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/5821927.shtml)
+- 2026-06-29 14:27 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/134457.shtml)
+- 2026-06-29 14:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/776746310215.shtml)
+- 2026-06-29 14:37 - [媒体评恋与深空争议](https://www.share.minike.top/Article/details/991751316031.shtml)
+- 2026-06-29 14:33 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/63600931.shtml)
+- 2026-06-29 14:36 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/2761740156.shtml)
+- 2026-06-29 14:39 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/31637839741.shtml)
+- 2026-06-29 14:30 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/874008977195.shtml)
+- 2026-06-29 14:54 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/6395624.shtml)
+- 2026-06-29 14:36 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/00510303308.shtml)
+- 2026-06-29 14:28 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.kurohicncr.top/Article/details/09934.shtml)
+- 2026-06-29 14:35 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/305384034102.shtml)

@@ -1,60 +1,61 @@
-# MLB CUP青少年棒球系列赛深圳站收官
+# 西北首家Apple Store要来了？
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中新网深圳6月1日电 (记者 索有为)2025-2026 MLB CUP青少年棒球系列赛·深圳 GBL联盟体验赛5月31日收官。 本次赛事为期两日，于5月30日至31日在深圳两大赛场同步进行，22支来自深圳及周边城市的青少年队伍轮番登场，总计完成55场激烈对决。 赛场之上，少年健儿们不畏高温、全力冲刺，挥棒、跑垒、防守一气呵成；场边教练运筹帷幄、临场指挥，观众呐喊助威声连绵不绝
+每经记者|张文瑜 每经编辑|贺娟娟 西安传闻已久的Apple Store，这次可能真的要来了。 6月1日，陕西政务服务网显示，名称为“西安万象城购物中心苹果店室内装修及幕墙改造工程”的项目正在进行申报。 该项目建设单位为苹果电子产品商贸（北京）有限公司，即苹果在中国大陆的官方运营主体，建设地址位于西安市曲江新区西安万象城购物中心一层，项目类型为一般社会投资装饰装修类项目。 目前
 
 ## 正文
 
-中新网深圳6月1日电 (记者 索有为)2025-2026 MLB CUP青少年棒球系列赛·深圳 GBL联盟体验赛5月31日收官。
+每经记者|张文瑜 每经编辑|贺娟娟 西安传闻已久的Apple Store，这次可能真的要来了。
 
-本次赛事为期两日，于5月30日至31日在深圳两大赛场同步进行，22支来自深圳及周边城市的青少年队伍轮番登场，总计完成55场激烈对决。
+6月1日，陕西政务服务网显示，名称为“西安万象城购物中心苹果店室内装修及幕墙改造工程”的项目正在进行申报。
 
-赛场之上，少年健儿们不畏高温、全力冲刺，挥棒、跑垒、防守一气呵成；场边教练运筹帷幄、临场指挥，观众呐喊助威声连绵不绝。
+该项目建设单位为苹果电子产品商贸（北京）有限公司，即苹果在中国大陆的官方运营主体，建设地址位于西安市曲江新区西安万象城购物中心一层，项目类型为一般社会投资装饰装修类项目。
 
-紧张激烈的比拼氛围与朝气蓬勃的运动气息交织，为全体观众呈现了一场精彩纷呈的青少年棒球盛宴。
+目前，在万象城地标“生命之树”附近，确实有一处大型围挡门店处于施工状态。
 
-经过小组赛、淘汰赛、决赛多轮严苛比拼，U8、U10、U12三大组别最终排名全部揭晓，各支优胜队伍站上荣誉舞台。
+《每日经济新闻》记者向曲江住建局求证，对方表示万象城确实要开一家苹果店，目前正在办理施工许可。
 
-在U8组别比赛中，明德碧海学校队获得冠军，深中南创B队获得亚军，红岭华富队获得季军。
+“但具体是否为直营店，我们不好辨认，许多信息涉及保密，不便对外透露。
 
-在U10组别比赛中，航镁精英队获得冠军，深中南创队获得亚军，香港蓝谍U10少棒队获得季军。
+” 种种迹象表明，西北区域或迎来首家Apple Store！
 
-在U12组别比赛中，东莞龙腾队获得冠军，航镁精英A队获得亚军，香港红鸟U12少棒队获得季军。
+西安万象城于2024年12月开业，彼时坊间就已传出Apple Store可能落地的消息。
 
 ## 相关推荐
 
-- 2026-06-29 14:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 14:43 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 14:32 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 14:44 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 14:24 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 14:20 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 14:30 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 14:43 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 14:18 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 14:22 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 14:42 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 14:22 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 14:38 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 14:46 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 14:45 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 14:36 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 14:28 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 14:53 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 14:49 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 14:24 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 14:25 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 14:49 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 14:48 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 14:36 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 14:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 14:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 14:41 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 14:33 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 14:34 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:23 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/23140.shtml)
-- 2026-06-29 14:44 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/3096519.shtml)
-- 2026-06-29 14:27 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/208575078.shtml)
-- 2026-06-29 14:30 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/418993.shtml)
-- 2026-06-29 14:35 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/16445211953.shtml)
-- 2026-06-29 14:19 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/3849158.shtml)
-- 2026-06-29 14:29 - [森保一：日本队要亲手改写历史](https://www.share.minike.top/Article/details/184659905.shtml)
-- 2026-06-29 14:20 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/805574.shtml)
-- 2026-06-29 14:36 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/7777614.shtml)
-- 2026-06-29 14:21 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.kurohicncr.top/Article/details/5079827862.shtml)
-- 2026-06-29 14:28 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/73368916.shtml)
-- 2026-06-29 14:33 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/78617935.shtml)
-- 2026-06-29 14:42 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/9085201246.shtml)
-- 2026-06-29 14:46 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/29411398.shtml)
-- 2026-06-29 14:21 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/45727.shtml)
+- 2026-06-29 14:40 - [强⁶](http://www.share.minike.top/Article/details/19454.shtml)
+- 2026-06-29 14:49 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/592248.shtml)
+- 2026-06-29 14:40 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/61987559307.shtml)
+- 2026-06-29 14:30 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/587270.shtml)
+- 2026-06-29 14:27 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/382067851945.shtml)
+- 2026-06-29 14:34 - [海军舰艇编队将赴香港](http://www.blog.minike.top/Article/details/88961254992.shtml)
+- 2026-06-29 14:38 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/1742534.shtml)
+- 2026-06-29 14:44 - [张真源解读相思锁](https://www.share.kurohicncr.top/Article/details/340621572924.shtml)
+- 2026-06-29 14:28 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.kurohicncr.top/Article/details/80661894.shtml)
+- 2026-06-29 14:30 - [实习期把公司领导开除了](https://www.blog.minike.top/Article/details/4546919334.shtml)
+- 2026-06-29 14:32 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/7063062.shtml)
+- 2026-06-29 14:48 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/121927.shtml)
+- 2026-06-29 14:41 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/82287039829.shtml)
+- 2026-06-29 14:40 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/556852796131.shtml)
+- 2026-06-29 14:27 - [湖北钟祥市委书记张勇拟任新职](http://www.share.kurohicncr.top/Article/details/05003317073.shtml)

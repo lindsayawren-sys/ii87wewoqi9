@@ -1,56 +1,58 @@
-# 山西煤矿整顿对炼焦精煤供应的影响知多少
+# IBM宣布投入超100亿美元布局量子计算
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-来源：煤炭资源网 5月下旬山西长治发生的煤矿事故导致该省炼焦煤产区迎来了普遍的停产整顿，导致炼焦煤价格出现快速上涨。诚然市场反应不排除情绪的影响，但也可以在一定程度上看出，山西炼焦煤供应在全国的影响。 如果说这一论断之前只是业内的普遍共识，那么中国煤炭资源网独家数据则可以实现“用数据说话”。 数据显示，2026年4月份，山西炼焦精煤供应量为1796.28万吨，同比下降3.38%
+IBM今日宣布，计划在未来五年内向量子计算领域投入超过100亿美元。投资将用于研发、资本支出、规模化制造、生态合作及并购交易，全面加速IBM量子计算路线图，目标在2029年推出全球首台大规模容错量子计算机，并夯实美国在量子计算领域的领先地位。 该投资基于行业内最完备的量子技术基础，包括全球规模最大的量子计算机集群、应用最广泛的量子软件，以及由340余家机构组成、已投入实际业务运
 
 ## 正文
 
-来源：煤炭资源网 5月下旬山西长治发生的煤矿事故导致该省炼焦煤产区迎来了普遍的停产整顿，导致炼焦煤价格出现快速上涨。
+IBM今日宣布，计划在未来五年内向量子计算领域投入超过100亿美元。
 
-诚然市场反应不排除情绪的影响，但也可以在一定程度上看出，山西炼焦煤供应在全国的影响。
+投资将用于研发、资本支出、规模化制造、生态合作及并购交易，全面加速IBM量子计算路线图，目标在2029年推出全球首台大规模容错量子计算机，并夯实美国在量子计算领域的领先地位。
 
-如果说这一论断之前只是业内的普遍共识，那么中国煤炭资源网独家数据则可以实现“用数据说话”。
+该投资基于行业内最完备的量子技术基础，包括全球规模最大的量子计算机集群、应用最广泛的量子软件，以及由340余家机构组成、已投入实际业务运行的客户与合作伙伴网络。
 
-数据显示，2026年4月份，山西炼焦精煤供应量为1796.28万吨，同比下降3.38%，环比下降5.43%，占全国总供应量的46%，以绝对优势位居全国首位。
+本轮投资将为该技术基础注入下一阶段发展动力，推动IBM从当前商用量子计算机，迈向容错级规模化系统。
 
-而第二位的山东，2026年4月份，焦精煤供应量仅为340.35万吨，占全国总供应量的9%，远低于山西省。
+IBM董事长兼首席执行官表示：“量子时代并非未来，而是已经到来。
 
-可见山西省供应量在全国的影响力之大。
+全球各地的客户、合作伙伴与用户正借助IBM量子计算机，完成数年前无法实现的工作。
 
-从历史数据来看，山西省焦精煤供应量与全国总供应量的走势是一致的。
+量子计算带来的发现速度正快速提升，这笔投资将支撑我们推出下一代量子硬件、软件与制造能力。
 
-2024年前4月，受“三超”和隐蔽工作面专项整治以及在供需关系缓和后政府计划产量的下降，山西省原煤产量下降较为明显。
+”责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 14:38 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 14:40 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 14:43 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 14:41 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 14:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 14:35 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 14:47 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 14:33 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 14:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 14:22 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 14:40 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 14:29 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 14:41 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 14:49 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 14:25 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 14:47 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 14:28 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 14:26 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 14:42 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 14:30 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 14:38 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 14:52 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:35 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/697267515.shtml)
-- 2026-06-29 14:32 - [美人鱼](http://www.share.minike.top/Article/details/1347407.shtml)
-- 2026-06-29 14:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/65802872178.shtml)
-- 2026-06-29 14:31 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/42923139.shtml)
-- 2026-06-29 14:39 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/85262420740.shtml)
-- 2026-06-29 14:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/79880222.shtml)
-- 2026-06-29 14:42 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/777417.shtml)
-- 2026-06-29 14:35 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/16204014.shtml)
-- 2026-06-29 14:41 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/592242.shtml)
-- 2026-06-29 14:30 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/458079.shtml)
-- 2026-06-29 14:39 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/3843699.shtml)
-- 2026-06-29 14:28 - [中国战机大片上新](http://www.blog.minike.top/Article/details/648651148228.shtml)
-- 2026-06-29 14:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/0293129159.shtml)
-- 2026-06-29 14:33 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/0356668.shtml)
-- 2026-06-29 14:24 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/15490.shtml)
+- 2026-06-29 14:31 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/9987195946.shtml)
+- 2026-06-29 14:47 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/7068508245.shtml)
+- 2026-06-29 14:49 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.minike.top/Article/details/79002495846.shtml)
+- 2026-06-29 14:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/529021603836.shtml)
+- 2026-06-29 14:39 - [AG冠军五人组轮换](http://www.blog.kurohicncr.top/Article/details/55128511485.shtml)
+- 2026-06-29 14:32 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/47935083124.shtml)
+- 2026-06-29 14:51 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/1476056.shtml)
+- 2026-06-29 14:29 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/796378525204.shtml)
+- 2026-06-29 14:43 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/1466953.shtml)
+- 2026-06-29 14:46 - [一见倾心](http://www.share.minike.top/Article/details/1886104318.shtml)
+- 2026-06-29 14:39 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/476066.shtml)
+- 2026-06-29 14:28 - [和阿根廷球员家属一起看球](http://www.blog.minike.top/Article/details/3034623.shtml)
+- 2026-06-29 14:29 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/0250531430.shtml)
+- 2026-06-29 14:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/074793833.shtml)
+- 2026-06-29 14:37 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/036251.shtml)

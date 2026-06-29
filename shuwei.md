@@ -1,45 +1,52 @@
-# 中央气象台 今早继续发布强对流天气蓝色预警
+# 重庆对11个区县启动水旱灾害防御Ⅳ级应急响应
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 10:46 来源：央视新闻 责任编辑：【王祎】
+中新网重庆6月2日电 (记者 刘相琳)记者2日从重庆市水利局获悉，为应对较强降雨天气过程，该局决定对11个区县启动水旱灾害防御Ⅳ级应急响应。 根据气象部门预测，预计2日夜间到3日上午，重庆市有一次较强降雨天气过程，中西部偏南和东南部地区中到大雨，部分地区暴雨(50至90毫米)，个别乡镇大暴雨(120至150毫米)，最大小时雨量40至60毫米。 据重庆市水文监测总站预测，2日20
 
 ## 正文
 
-发布时间：2026年06月02日 10:46 来源：央视新闻 责任编辑：【王祎】
+中新网重庆6月2日电 (记者 刘相琳)记者2日从重庆市水利局获悉，为应对较强降雨天气过程，该局决定对11个区县启动水旱灾害防御Ⅳ级应急响应。
+
+根据气象部门预测，预计2日夜间到3日上午，重庆市有一次较强降雨天气过程，中西部偏南和东南部地区中到大雨，部分地区暴雨(50至90毫米)，个别乡镇大暴雨(120至150毫米)，最大小时雨量40至60毫米。
+
+据重庆市水文监测总站预测，2日20时至3日20时，11个区县部分中小河流有涨水风险，其中黔江区、綦江区、南川区、酉阳县、彭水县、万盛经开区风险高，江津区、秀山县风险较高，涪陵区、巴南区、武隆区有一定风险。
+
+以上区县部分乡镇有小流域山洪灾害风险。
+
+根据有关规定并经会商研判，重庆市水利局决定自2日18时起，针对黔江区、涪陵区、巴南区、江津区、南川区、綦江区、武隆区、秀山县、酉阳县、彭水县、万盛经开区等地启动水旱灾害防御Ⅳ级应急响应，要求相关区县水行政主管部门及局有关处室、单位高度重视，切实做好各项防范应对工作。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:21 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 14:45 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 14:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 14:35 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 14:29 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 14:34 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 14:34 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 14:22 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 14:20 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 14:40 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 14:26 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 14:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 14:40 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 14:45 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 14:53 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 14:30 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 14:31 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 14:39 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 14:44 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 14:24 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 14:40 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 14:34 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 14:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:27 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/3817151.shtml)
-- 2026-06-29 14:40 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.kurohicncr.top/Article/details/9433929067.shtml)
-- 2026-06-29 14:46 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/551032.shtml)
-- 2026-06-29 14:23 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/2919232.shtml)
-- 2026-06-29 14:40 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/75458052167.shtml)
-- 2026-06-29 14:22 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.kurohicncr.top/Article/details/1891994686.shtml)
-- 2026-06-29 14:42 - [南部战区位南海海域进行例行巡航](http://www.share.kurohicncr.top/Article/details/32457898.shtml)
-- 2026-06-29 14:26 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/0679351.shtml)
-- 2026-06-29 14:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/83515546268.shtml)
-- 2026-06-29 14:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/056675143.shtml)
-- 2026-06-29 14:45 - [小娘惹](http://www.share.minike.top/Article/details/11508213482.shtml)
-- 2026-06-29 14:30 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/1226486909.shtml)
-- 2026-06-29 14:42 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.kurohicncr.top/Article/details/48226800.shtml)
-- 2026-06-29 14:30 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/75864628158.shtml)
-- 2026-06-29 14:29 - [42岁郭碧婷纯素颜状态](http://www.share.minike.top/Article/details/7064431249.shtml)
+- 2026-06-29 14:29 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/54582443.shtml)
+- 2026-06-29 14:32 - [媒体：高考后消费应量力而行适度有度](https://www.share.minike.top/Article/details/409227890304.shtml)
+- 2026-06-29 14:39 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/3235868710.shtml)
+- 2026-06-29 14:45 - [教育部发布高考志愿填报预警](http://www.blog.minike.top/Article/details/66345631204.shtml)
+- 2026-06-29 14:49 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/242431293898.shtml)
+- 2026-06-29 14:26 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/182286720.shtml)
+- 2026-06-29 14:31 - [内马尔能上场15分钟](http://www.blog.minike.top/Article/details/99452.shtml)
+- 2026-06-29 14:47 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/971317510936.shtml)
+- 2026-06-29 14:41 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/71007464753.shtml)
+- 2026-06-29 14:41 - [王楚钦3比0周启豪](http://www.share.minike.top/Article/details/8362789.shtml)
+- 2026-06-29 14:43 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/1487328.shtml)
+- 2026-06-29 14:30 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/369163.shtml)
+- 2026-06-29 14:41 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.share.minike.top/Article/details/95996587.shtml)
+- 2026-06-29 14:46 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/708142335147.shtml)
+- 2026-06-29 14:44 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/463088997581.shtml)

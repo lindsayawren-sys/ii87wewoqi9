@@ -1,58 +1,48 @@
-# 新款Windows PC芯片提振英伟达与Arm股价盘前上涨 高通和AMD走低
+# 山东烟台：果园来了个新家伙 专门给苹果“穿衣服”
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-英伟达在盘前交易中上涨1.9%，此前该公司宣布将携一款新产品进军个人电脑处理器市场，将Arm架构中央处理器与Blackwell代图形处理器集成。受此消息带动，Arm股价上涨7.5%，高通下跌3.6%。 市场认为，英伟达的新芯片可能会加剧与高通骁龙系列产品的竞争。目前骁龙系列产品被广泛应用于Windows AI PC。 英特尔下跌1.8%，AMD下跌1.7%。 这两家公司凭借x8
+发布时间：2026年06月02日 13:51 来源：中国新闻网 近日，山东烟台，由山东渤聚通云计算有限公司联合东南大学研发的苹果幼果套袋机器人，进入果园开展实地测试。烟台是中国苹果主产区之一，长期面临套袋环节用工难、成本高、标准化程度低的产业痛点。这款机器人融合了计算机视觉与智能机械技术，有望为果农破解“套袋难”问题。(姜鹏飞 制作 刘昊） 责任编辑：【罗攀】
 
 ## 正文
 
-英伟达在盘前交易中上涨1.9%，此前该公司宣布将携一款新产品进军个人电脑处理器市场，将Arm架构中央处理器与Blackwell代图形处理器集成。
+发布时间：2026年06月02日 13:51 来源：中国新闻网 近日，山东烟台，由山东渤聚通云计算有限公司联合东南大学研发的苹果幼果套袋机器人，进入果园开展实地测试。
 
-受此消息带动，Arm股价上涨7.5%，高通下跌3.6%。
+烟台是中国苹果主产区之一，长期面临套袋环节用工难、成本高、标准化程度低的产业痛点。
 
-市场认为，英伟达的新芯片可能会加剧与高通骁龙系列产品的竞争。
+这款机器人融合了计算机视觉与智能机械技术，有望为果农破解“套袋难”问题。
 
-目前骁龙系列产品被广泛应用于Windows AI PC。
-
-英特尔下跌1.8%，AMD下跌1.7%。
-
-这两家公司凭借x86架构长期占据笔记本电脑和台式机CPU市场的绝大部分份额。
-
-除苹果Mac产品线之外，大多数个人电脑都采用英特尔或AMD的处理器。
-
-PC厂商则延续近期涨势，戴尔上涨2.9%，慧与公司上涨6.9%。
+(姜鹏飞 制作 刘昊） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 14:34 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 14:30 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 14:27 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 14:33 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 14:35 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 14:20 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 14:25 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 14:43 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 14:40 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 14:30 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 14:44 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 14:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 14:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 14:32 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 14:44 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 14:36 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 14:32 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 14:30 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 14:45 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 14:34 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 14:45 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 14:53 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/518596387.shtml)
-- 2026-06-29 14:20 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/64956.shtml)
-- 2026-06-29 14:31 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/815068.shtml)
-- 2026-06-29 14:41 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/20699386.shtml)
-- 2026-06-29 14:37 - [《贺子珍》](http://www.blog.minike.top/Article/details/267504934.shtml)
-- 2026-06-29 14:18 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/211397.shtml)
-- 2026-06-29 14:35 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/9134808.shtml)
-- 2026-06-29 14:44 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/639406123072.shtml)
-- 2026-06-29 14:37 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/9814439.shtml)
-- 2026-06-29 14:39 - [佛得角到底在哪个“角”](https://www.share.kurohicncr.top/Article/details/6682176.shtml)
-- 2026-06-29 14:27 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/0263976443.shtml)
-- 2026-06-29 14:25 - [金牌调解](http://www.blog.minike.top/Article/details/41580.shtml)
-- 2026-06-29 14:45 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/5102081528.shtml)
-- 2026-06-29 14:24 - [双高胎](https://www.share.kurohicncr.top/Article/details/45065238041.shtml)
-- 2026-06-29 14:20 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.minike.top/Article/details/4806449208.shtml)
+- 2026-06-29 14:42 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/098955233.shtml)
+- 2026-06-29 14:39 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/04914704.shtml)
+- 2026-06-29 14:37 - [三都主：淘汰赛我会支持日本](http://www.share.minike.top/Article/details/609109691.shtml)
+- 2026-06-29 14:44 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.minike.top/Article/details/0987061615.shtml)
+- 2026-06-29 14:24 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/767164945.shtml)
+- 2026-06-29 14:44 - [异世界一点都不好玩！](http://www.share.minike.top/Article/details/84759.shtml)
+- 2026-06-29 14:29 - [流金岁月](https://www.share.minike.top/Article/details/21540015.shtml)
+- 2026-06-29 14:37 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/612601910.shtml)
+- 2026-06-29 14:28 - [Agent带来token消耗爆炸](http://www.blog.minike.top/Article/details/5143208.shtml)
+- 2026-06-29 14:51 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/8661870.shtml)
+- 2026-06-29 14:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/4387179651.shtml)
+- 2026-06-29 14:25 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/5940219858.shtml)
+- 2026-06-29 14:51 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/350939.shtml)
+- 2026-06-29 14:44 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/70492197.shtml)
+- 2026-06-29 14:26 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/01981457.shtml)

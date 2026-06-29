@@ -1,59 +1,61 @@
-# 尼泊尔5月国际游客同比增长约19%
+# 华泰期货：安全监管全面强化，焦煤昨日盘中触及涨停
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中新社加德满都6月2日电 (记者 崔楠)尼泊尔旅游委6月1日公布的最新数据显示，2026年5月，尼泊尔共接待国际游客102626人次，同比增长约19%。 数据显示，印度继续为尼泊尔最大客源国，5月共有逾4万人次印度游客到访尼泊尔，占当月国际游客总量近四成。中国游客11514人次，位居第二；美国游客9001人次，位列第三。孟加拉国、英国分列第四、第五位。 印度游客赴尼数量同比、环
+市场分析 期现货方面：昨日双焦期货领涨黑色，焦煤盘中触及涨停，原料市场情绪继续偏强，各地区煤价纷纷涨价，沁源煤矿事故推动山西全面强化安全监管，当地煤矿虽陆续复产，但复产程度远弱于预期，焦煤供应缺口持续存在。焦炭已启动第五轮涨价，每吨上调50-55元。 供需与逻辑：焦炭方面，上周铁水产量持续升高，钢厂对于原料采购积极性较强，加上成本端支持较强，短期焦炭供需结构持续偏紧。本次山西煤
 
 ## 正文
 
-中新社加德满都6月2日电 (记者 崔楠)尼泊尔旅游委6月1日公布的最新数据显示，2026年5月，尼泊尔共接待国际游客102626人次，同比增长约19%。
+市场分析 期现货方面：昨日双焦期货领涨黑色，焦煤盘中触及涨停，原料市场情绪继续偏强，各地区煤价纷纷涨价，沁源煤矿事故推动山西全面强化安全监管，当地煤矿虽陆续复产，但复产程度远弱于预期，焦煤供应缺口持续存在。
 
-数据显示，印度继续为尼泊尔最大客源国，5月共有逾4万人次印度游客到访尼泊尔，占当月国际游客总量近四成。
+焦炭已启动第五轮涨价，每吨上调50-55元。
 
-中国游客11514人次，位居第二；美国游客9001人次，位列第三。
+供需与逻辑：焦炭方面，上周铁水产量持续升高，钢厂对于原料采购积极性较强，加上成本端支持较强，短期焦炭供需结构持续偏紧。
 
-孟加拉国、英国分列第四、第五位。
+本次山西煤矿事故带来持续性影响，区域安全整治加码，高瓦斯、煤与瓦斯突出矿井与民营中小煤矿成为监管重点，行业生产端约束加剧。
 
-印度游客赴尼数量同比、环比均明显攀升。
+焦煤短期供给量将受制于安监强度与整治周期，中长期供给格局则由表外产能清理进度主导。
 
-尼泊尔旅游部门数据显示，今年5月共有40782人次印度游客到访尼泊尔，较2025年5月的28160人次同比增长约44.8%；较今年4月的25196人次环比增长亦超过六成。
+综合判断，焦煤焦炭市场短期供需格局趋紧，市场预计延续偏强运行。
 
-近期，印度多地持续高温。
+焦煤方面：震荡 焦炭方面：震荡 跨品种：无 跨期：无 期现：无 期权：无 风险 宏观政策、钢厂利润、焦化利润、煤炭供给、基差风险等。
 
-尼泊尔旅游业者认为，除春季徒步、登山旅游旺季等传统因素外，毗邻印度且气候相对凉爽的尼泊尔高海拔地区，亦吸引部分印度游客入境避暑。
+投资咨询业务资格： 证监许可【2011】1289号 免责声明： 本报告基于本公司认为可靠的、已公开的信息编制，但本公司对该等信息的准确性及完整性不作任何保证。
 
 ## 相关推荐
 
-- 2026-06-29 14:25 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 14:21 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 14:37 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-29 14:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 14:33 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 14:40 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 14:40 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 14:34 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 14:46 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 14:44 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 14:24 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 14:24 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 14:32 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 14:26 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 14:44 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 14:49 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 14:31 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 14:26 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 14:31 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 14:30 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 14:50 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 14:42 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 14:52 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 14:31 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 14:49 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 14:34 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 14:50 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 14:47 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:37 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/02712158.shtml)
-- 2026-06-29 14:43 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/833226335695.shtml)
-- 2026-06-29 14:41 - [链博会上的机器人太全能了](http://www.share.kurohicncr.top/Article/details/782073.shtml)
-- 2026-06-29 14:42 - [AG 宫斗](http://www.share.minike.top/Article/details/845908265306.shtml)
-- 2026-06-29 14:40 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/085456580348.shtml)
-- 2026-06-29 14:19 - [周深双眼皮贴又掉了](https://www.blog.kurohicncr.top/Article/details/6494268.shtml)
-- 2026-06-29 14:32 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.kurohicncr.top/Article/details/995192.shtml)
-- 2026-06-29 14:22 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/151629498914.shtml)
-- 2026-06-29 14:42 - [直击宜宾地震：监控剧烈摇晃](https://www.share.minike.top/Article/details/110673706671.shtml)
-- 2026-06-29 14:32 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/903297752.shtml)
-- 2026-06-29 14:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/73544.shtml)
-- 2026-06-29 14:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/441098320.shtml)
-- 2026-06-29 14:19 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/1861373.shtml)
-- 2026-06-29 14:22 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/94205.shtml)
-- 2026-06-29 14:34 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/658015161280.shtml)
+- 2026-06-29 14:38 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/739474.shtml)
+- 2026-06-29 14:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/747739334.shtml)
+- 2026-06-29 14:36 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/194536104103.shtml)
+- 2026-06-29 14:27 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/874472692.shtml)
+- 2026-06-29 14:43 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/02865483703.shtml)
+- 2026-06-29 14:29 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/4787321.shtml)
+- 2026-06-29 14:37 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/0083175.shtml)
+- 2026-06-29 14:38 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/86207.shtml)
+- 2026-06-29 14:49 - [F1奥地利正赛战报](http://www.share.minike.top/Article/details/338846941073.shtml)
+- 2026-06-29 14:47 - [金牌调解](http://www.share.kurohicncr.top/Article/details/8576084.shtml)
+- 2026-06-29 14:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/87498440673.shtml)
+- 2026-06-29 14:45 - [去了一趟潮汕。](http://www.share.kurohicncr.top/Article/details/294233186.shtml)
+- 2026-06-29 14:36 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.kurohicncr.top/Article/details/90363880289.shtml)
+- 2026-06-29 14:47 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/18638.shtml)
+- 2026-06-29 14:51 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.kurohicncr.top/Article/details/38026464.shtml)

@@ -1,52 +1,42 @@
-# 儿童手表变“手腕上的沉迷源”？律师：提供破解教程或面临刑事责任
+# 山东省自然资源厅原一级巡视员李树民接受审查调查
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 18:27 来源：中国新闻网 近日，有学生家长告诉记者，手表中搭载的过度社交功能、虚拟装扮功能、积分排行榜等，诱导孩子不断沉迷其中。除了过度功能带来的沉迷隐患，更令人担忧的是另一层隐蔽的威胁。在多个社交平台上记者看到，讲解如何下载各种被禁用的App、解除儿童手表禁用模式的教程层出不穷。提供相关服务的人员报价从10元至100元不等，孩子只需花费不
+中新网6月1日电 据山东省纪委监委消息，山东省自然资源厅原一级巡视员李树民涉嫌严重违纪违法，目前正接受山东省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-发布时间：2026年06月01日 18:27 来源：中国新闻网 近日，有学生家长告诉记者，手表中搭载的过度社交功能、虚拟装扮功能、积分排行榜等，诱导孩子不断沉迷其中。
-
-除了过度功能带来的沉迷隐患，更令人担忧的是另一层隐蔽的威胁。
-
-在多个社交平台上记者看到，讲解如何下载各种被禁用的App、解除儿童手表禁用模式的教程层出不穷。
-
-提供相关服务的人员报价从10元至100元不等，孩子只需花费不足百元的零花钱，就能彻底瓦解平台与家长设下的管控防线。
-
-对此，律师从法律角度指出，为儿童手表提供破解服务的此类行为，情节严重时甚至涉嫌刑事犯罪。
-
-记者 迟瀚宇 北京报道 责任编辑：【叶攀】
+中新网6月1日电 据山东省纪委监委消息，山东省自然资源厅原一级巡视员李树民涉嫌严重违纪违法，目前正接受山东省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 14:35 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 14:26 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 14:44 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 14:38 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 14:24 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 14:26 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 14:40 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 14:37 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 14:28 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 14:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 14:50 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 14:31 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 14:53 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 14:50 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 14:48 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 14:26 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 14:24 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 14:24 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 14:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:20 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.kurohicncr.top/Article/details/644505979930.shtml)
-- 2026-06-29 14:37 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/46022542.shtml)
-- 2026-06-29 14:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/403911061883.shtml)
-- 2026-06-29 14:30 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/366494.shtml)
-- 2026-06-29 14:29 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/72663463.shtml)
-- 2026-06-29 14:28 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/518683.shtml)
-- 2026-06-29 14:18 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/417781680.shtml)
-- 2026-06-29 14:22 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/845713634.shtml)
-- 2026-06-29 14:26 - [一生一世](http://www.blog.kurohicncr.top/Article/details/985209628942.shtml)
-- 2026-06-29 14:32 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/50980.shtml)
-- 2026-06-29 14:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/333847209.shtml)
-- 2026-06-29 14:22 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/9332424.shtml)
-- 2026-06-29 14:32 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/86428493323.shtml)
-- 2026-06-29 14:18 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/41195397.shtml)
-- 2026-06-29 14:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/6890421.shtml)
+- 2026-06-29 14:45 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/71272695625.shtml)
+- 2026-06-29 14:31 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/070182426733.shtml)
+- 2026-06-29 14:38 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/88917921249.shtml)
+- 2026-06-29 14:32 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/35969327172.shtml)
+- 2026-06-29 14:40 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/26881.shtml)
+- 2026-06-29 14:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/38265.shtml)
+- 2026-06-29 14:50 - [周深双眼皮贴又掉了](http://www.blog.kurohicncr.top/Article/details/4445156550.shtml)
+- 2026-06-29 14:37 - [时光音乐会](https://www.share.minike.top/Article/details/60101543709.shtml)
+- 2026-06-29 14:37 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/348070075.shtml)
+- 2026-06-29 14:40 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/897884184824.shtml)
+- 2026-06-29 14:47 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/626928392112.shtml)
+- 2026-06-29 14:44 - [爸爸当家](https://www.share.minike.top/Article/details/42879153.shtml)
+- 2026-06-29 14:44 - [杨紫 你幸福的话我会比你先流泪](https://www.share.minike.top/Article/details/11072.shtml)
+- 2026-06-29 14:28 - [高考志愿今起开始填报](http://www.share.kurohicncr.top/Article/details/93303.shtml)
+- 2026-06-29 14:49 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/12481.shtml)

@@ -1,45 +1,59 @@
-# 上海政法学院通报学生沈某偷拍：决定给予开除学籍处分
+# 信义集团主席李贤义：川渝开放势能强劲 侨界参与大有可为
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中新网6月1日电 据上海政法学院官网消息，6月1日上海政法学院发布情况通报称，上海政法学院学生沈某将网购的摄像设备，放置在自习教室男女厕所之间的隔墙顶部进行偷拍，已被公安机关依法行政拘留。依据《普通高等学校学生管理规定》《上海政法学院学生违纪处分规定》等相关规定，学校决定给予沈某开除学籍处分。
+中新网成都6月2日电 (记者 岳依桐)“信义集团在2012年布局四川德阳，2023年投资重庆永川，在川渝地区投资资产规模已超过40亿元。”2026“一带一路”华侨华人合作发展大会2日在成都开幕，鲜少接受媒体采访的信义集团有限公司董事局主席李贤义接受中新网记者独家专访时表示，集团将继续扎根川渝、投资川渝。 1979年，李贤义从一辆拖拉机起步，在家乡福建石狮开始创业，于1988年创
 
 ## 正文
 
-中新网6月1日电 据上海政法学院官网消息，6月1日上海政法学院发布情况通报称，上海政法学院学生沈某将网购的摄像设备，放置在自习教室男女厕所之间的隔墙顶部进行偷拍，已被公安机关依法行政拘留。
+中新网成都6月2日电 (记者 岳依桐)“信义集团在2012年布局四川德阳，2023年投资重庆永川，在川渝地区投资资产规模已超过40亿元。
 
-依据《普通高等学校学生管理规定》《上海政法学院学生违纪处分规定》等相关规定，学校决定给予沈某开除学籍处分。
+”2026“一带一路”华侨华人合作发展大会2日在成都开幕，鲜少接受媒体采访的信义集团有限公司董事局主席李贤义接受中新网记者独家专访时表示，集团将继续扎根川渝、投资川渝。
+
+1979年，李贤义从一辆拖拉机起步，在家乡福建石狮开始创业，于1988年创立信义玻璃，并推动企业成长为全球领先的综合玻璃制造商。
+
+他说，信义集团是最早响应共建“一带一路”的香港企业之一，先后在马来西亚、印尼建设海外生产基地，得到当地政府和社会的高度评价。
+
+深耕实业数十载的李贤义表示，川渝地区制造业链条完备、配套能力突出，产业转型升级势头强劲，良好的发展环境和产业基础为实体企业发展提供有力支撑。
+
+“信义集团将继续在川渝推进产业扩容，并积极谋划科创项目落地。
+
+” 李贤义认为，中国西部正加速从“内陆腹地”迈向“开放前沿”，广大侨商可抓住机遇，发挥融通中外、熟悉规则、信息灵通的优势，精准对接西部产业发展需求，以侨为桥整合资源、畅通物流、拓展市场。
+
+“希望更多侨商侨企、外商外企走进川渝、了解西部，把川渝支持产业发展、支持创新创业的各类好政策吃透、用好，携手共赢。
 
 ## 相关推荐
 
-- 2026-06-29 14:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 14:35 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 14:37 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 14:20 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 14:27 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 14:31 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 14:45 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 14:34 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 14:18 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 14:27 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 14:42 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 14:25 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 14:39 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 14:33 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 14:26 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 14:39 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 14:50 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 14:31 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 14:38 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 14:25 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 14:25 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 14:32 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 14:34 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 14:51 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/90968191766.shtml)
-- 2026-06-29 14:25 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/7839322150.shtml)
-- 2026-06-29 14:31 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/2591622.shtml)
-- 2026-06-29 14:43 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.kurohicncr.top/Article/details/1414561713.shtml)
-- 2026-06-29 14:36 - [韩媒破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/662355197115.shtml)
-- 2026-06-29 14:18 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/00052430.shtml)
-- 2026-06-29 14:31 - [人民日报评“AI脸看腻了”](https://www.share.minike.top/Article/details/09336348.shtml)
-- 2026-06-29 14:27 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/837766470875.shtml)
-- 2026-06-29 14:19 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/904233444.shtml)
-- 2026-06-29 14:44 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.kurohicncr.top/Article/details/029070610.shtml)
-- 2026-06-29 14:40 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/23633121134.shtml)
-- 2026-06-29 14:21 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.minike.top/Article/details/423084073217.shtml)
-- 2026-06-29 14:40 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/104665415019.shtml)
-- 2026-06-29 14:20 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/047611682.shtml)
-- 2026-06-29 14:32 - [扬名立万](http://www.share.minike.top/Article/details/72756.shtml)
+- 2026-06-29 14:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/73195.shtml)
+- 2026-06-29 14:31 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/0314400053.shtml)
+- 2026-06-29 14:30 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/488936276.shtml)
+- 2026-06-29 14:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/0260738.shtml)
+- 2026-06-29 14:29 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/4538113.shtml)
+- 2026-06-29 14:24 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/12786.shtml)
+- 2026-06-29 14:51 - [俄称继续推进 乌称打击俄军设施](http://www.share.kurohicncr.top/Article/details/011973.shtml)
+- 2026-06-29 14:47 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/8946791651.shtml)
+- 2026-06-29 14:24 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/806628148401.shtml)
+- 2026-06-29 14:42 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/204078242284.shtml)
+- 2026-06-29 14:51 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/7983396.shtml)
+- 2026-06-29 14:49 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/503532345817.shtml)
+- 2026-06-29 14:42 - [如何“亲菌子”又“远小人儿”](https://www.blog.kurohicncr.top/Article/details/357396.shtml)
+- 2026-06-29 14:30 - [双高胎](https://www.blog.kurohicncr.top/Article/details/03104392.shtml)
+- 2026-06-29 14:34 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/61231336.shtml)

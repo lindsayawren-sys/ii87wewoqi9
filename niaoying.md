@@ -1,56 +1,59 @@
-# 中央生态环境保护督察集中通报四省份典型案例
+# 光大期货：6月2日能源化工日报
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中新网6月2日电 据生态环境部微信公众号消息，第三轮第六批中央生态环境保护督察严格落实《生态环境保护督察工作条例》，树立和践行正确政绩观，统筹推进经济高质量发展和生态环境高水平保护，精准科学依法开展督察。各督察组深入一线、深入现场，查实了一批突出生态环境问题，核实了一批不作为、慢作为，不担当、不碰硬，甚至敷衍应对、弄虚作假等形式主义、官僚主义问题。为发挥警示作用，切实推动问题整
+原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周一油价重心上涨，其中WTI 7月合约收盘上涨4.8美元至92.16美元/桶，涨幅5.49%。布伦特新换8月合约收盘上涨3.86美元至94.98美元/桶，涨幅4.24%。SC2607以605.7元/桶收盘，上涨20.9元/桶，涨幅3.57%。据伊朗媒体1日报道，伊朗和“抵抗阵线”计划彻底封锁霍尔
 
 ## 正文
 
-中新网6月2日电 据生态环境部微信公众号消息，第三轮第六批中央生态环境保护督察严格落实《生态环境保护督察工作条例》，树立和践行正确政绩观，统筹推进经济高质量发展和生态环境高水平保护，精准科学依法开展督察。
+原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周一油价重心上涨，其中WTI 7月合约收盘上涨4.8美元至92.16美元/桶，涨幅5.49%。
 
-各督察组深入一线、深入现场，查实了一批突出生态环境问题，核实了一批不作为、慢作为，不担当、不碰硬，甚至敷衍应对、弄虚作假等形式主义、官僚主义问题。
+布伦特新换8月合约收盘上涨3.86美元至94.98美元/桶，涨幅4.24%。
 
-为发挥警示作用，切实推动问题整改，现对第三批次典型案例进行公开通报。
+SC2607以605.7元/桶收盘，上涨20.9元/桶，涨幅3.57%。
 
-辽宁省葫芦岛市生活污水收集处理短板明显 2026年5月，中央第一生态环境保护督察组督察辽宁省发现，葫芦岛市生活污水管网建设改造滞后，污水直排问题突出，城市黑臭水体排查整治不到位。
+据伊朗媒体1日报道，伊朗和“抵抗阵线”计划彻底封锁霍尔木兹海峡，并在曼德海峡等其他“战线”开启行动。
 
-一、基本情况 葫芦岛市主城区有五里河、连山河等河流穿城而过，但城市环境基础设施建设管理比较薄弱，约四分之一区域雨污不分，晴天污水溢流、直排现象多发，部分水体出现黑臭。
+据伊朗塔斯尼姆通讯社1日报道，伊朗官员表示，以色列必须立即停止在黎巴嫩和加沙地带的军事行动，并从黎巴嫩撤出。
 
-二、主要问题 一是管网建设改造滞后。
+在此要求得到满足前，伊朗不会举行任何谈判。
 
-《城镇污水处理提质增效三年行动方案(2019—2021年)》要求，建立污水管网排查和检测制度，实施管网混错接改造、管网更新、破损修复改造等工程，消除管网空白区。
+地缘再度反转引发油价低位反弹，国内方面，因近期原料成本持续处于高位，地炼企业生产经营面临较大压力，其向有关部门正式提交了停产检修申请。
 
-督察发现，截至2025年底，葫芦岛市主城区421.8公里污水管网中，有140.9公里未开展排查检测；2020年以来排查发现的管网混错接和缺陷问题，有3009个未完成修复。
+该申请已获得批准，预计将于本周内启动全厂停产检修。
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 14:19 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 14:35 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 14:41 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 14:19 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 14:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 14:20 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 14:32 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 14:25 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 14:19 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 14:32 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 14:45 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 14:39 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 14:47 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 14:29 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 14:28 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 14:39 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 14:40 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 14:25 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 14:31 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 14:26 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 14:37 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 14:37 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:30 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/49786846.shtml)
-- 2026-06-29 14:22 - [陈靖可虞书欣领衔主演](https://www.share.minike.top/Article/details/809522359.shtml)
-- 2026-06-29 14:38 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/47560.shtml)
-- 2026-06-29 14:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/07068.shtml)
-- 2026-06-29 14:38 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/629457.shtml)
-- 2026-06-29 14:38 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/511211.shtml)
-- 2026-06-29 14:19 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/240161.shtml)
-- 2026-06-29 14:27 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/45394.shtml)
-- 2026-06-29 14:42 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/64932355863.shtml)
-- 2026-06-29 14:47 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/735764926971.shtml)
-- 2026-06-29 14:45 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/25663.shtml)
-- 2026-06-29 14:25 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/970311.shtml)
-- 2026-06-29 14:21 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/8892759.shtml)
-- 2026-06-29 14:21 - [记者率先试乘西十高铁](http://www.share.kurohicncr.top/Article/details/9046604.shtml)
-- 2026-06-29 14:26 - [赵露思爸爸拍vlog翻车了](http://www.blog.kurohicncr.top/Article/details/194450850005.shtml)
+- 2026-06-29 14:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/57098206.shtml)
+- 2026-06-29 14:36 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/82622.shtml)
+- 2026-06-29 14:47 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/49323073.shtml)
+- 2026-06-29 14:28 - [媒体评恋与深空争议](http://www.blog.kurohicncr.top/Article/details/243918.shtml)
+- 2026-06-29 14:35 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/885021.shtml)
+- 2026-06-29 14:53 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/8080318332.shtml)
+- 2026-06-29 14:32 - [志愿选择倒计时！浙大学生送祝福](https://www.share.kurohicncr.top/Article/details/257075744237.shtml)
+- 2026-06-29 14:25 - [手游300亿数据或被军事化运用](http://www.blog.kurohicncr.top/Article/details/00336940.shtml)
+- 2026-06-29 14:24 - [人民日报评“AI脸看腻了”](http://www.blog.kurohicncr.top/Article/details/780827.shtml)
+- 2026-06-29 14:31 - [扬名立万](https://www.blog.minike.top/Article/details/911541.shtml)
+- 2026-06-29 14:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/025430078377.shtml)
+- 2026-06-29 14:51 - [北极荒岛生存挑战](https://www.blog.kurohicncr.top/Article/details/8491459281.shtml)
+- 2026-06-29 14:25 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/8565424.shtml)
+- 2026-06-29 14:36 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/68786.shtml)
+- 2026-06-29 14:34 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/27810.shtml)

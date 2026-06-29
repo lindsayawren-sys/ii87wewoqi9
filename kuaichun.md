@@ -1,48 +1,54 @@
-# 广西柳州受地震影响的市属45所学校已全部复课
+# Strategy公司自2022年以来首次出售比特币
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-记者从柳州市教育局获悉，在确保安全的前提下，继5月25日17所学校复课后，目前，柳州受地震影响的市属45所学校已全部复课。 柳州市各安置点通过趣味化、轻量化、公益性的活动，让学生在陪伴中学习、在体验中成长，平稳度过灾后过渡期。 据了解，在震情逐步平稳后，柳州市教育局研究启动复学复课的工作，根据不同校舍受损情况，采取原址复课、异地复课、安置点复课、就近插班、线上教学等方式复课。
+根据周一的一份文件，Strategy（MSTR）上周出售了250万美元的比特币。该公司股价下跌逾6%，而比特币下跌2%至4月13日以来的最低水平。 这是Strategy历史上第二次出售比特币，距离该公司宣布放弃Saylor长期秉持的“永不卖出”策略、转而积极管理资产负债表仅过去不久。新策略包括在能够提升每股比特币指标、支付股息或增强公司财务状况的情况下，可能出售比特币。责任编辑
 
 ## 正文
 
-记者从柳州市教育局获悉，在确保安全的前提下，继5月25日17所学校复课后，目前，柳州受地震影响的市属45所学校已全部复课。
+根据周一的一份文件，Strategy（MSTR）上周出售了250万美元的比特币。
 
-柳州市各安置点通过趣味化、轻量化、公益性的活动，让学生在陪伴中学习、在体验中成长，平稳度过灾后过渡期。
+该公司股价下跌逾6%，而比特币下跌2%至4月13日以来的最低水平。
 
-据了解，在震情逐步平稳后，柳州市教育局研究启动复学复课的工作，根据不同校舍受损情况，采取原址复课、异地复课、安置点复课、就近插班、线上教学等方式复课。
+这是Strategy历史上第二次出售比特币，距离该公司宣布放弃Saylor长期秉持的“永不卖出”策略、转而积极管理资产负债表仅过去不久。
 
-(央视新闻客户端 总台记者 廖汨 孔祥新)
+新策略包括在能够提升每股比特币指标、支付股息或增强公司财务状况的情况下，可能出售比特币。
+
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 14:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 14:30 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 14:40 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 14:38 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 14:21 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 14:28 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 14:40 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 14:19 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 14:23 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 14:34 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 14:27 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 14:52 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 14:48 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 14:50 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 14:53 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 14:33 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 14:34 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 14:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 14:53 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 14:49 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 14:41 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 14:36 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 14:34 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 14:52 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:46 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/207503.shtml)
-- 2026-06-29 14:28 - [小娘惹](https://www.blog.minike.top/Article/details/766244948563.shtml)
-- 2026-06-29 14:22 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/53186459820.shtml)
-- 2026-06-29 14:33 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/577473807962.shtml)
-- 2026-06-29 14:41 - [严浩翔FIY断层第一](https://www.blog.minike.top/Article/details/010791.shtml)
-- 2026-06-29 14:40 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/668294.shtml)
-- 2026-06-29 14:22 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/6904142.shtml)
-- 2026-06-29 14:37 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/9708807029.shtml)
-- 2026-06-29 14:18 - [吴建豪老婆](https://www.blog.minike.top/Article/details/94370298.shtml)
-- 2026-06-29 14:29 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/983212.shtml)
-- 2026-06-29 14:23 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.minike.top/Article/details/668960007514.shtml)
-- 2026-06-29 14:43 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/706356260361.shtml)
-- 2026-06-29 14:28 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/8163717.shtml)
-- 2026-06-29 14:38 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/569160.shtml)
-- 2026-06-29 14:33 - [唐艺昕女儿接唐艺昕回家](https://www.share.minike.top/Article/details/963067.shtml)
+- 2026-06-29 14:51 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.kurohicncr.top/Article/details/215236353789.shtml)
+- 2026-06-29 14:39 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/401095623581.shtml)
+- 2026-06-29 14:50 - [F1奥地利正赛战报](http://www.share.minike.top/Article/details/23381815.shtml)
+- 2026-06-29 14:35 - [20年前的周杰伦](http://www.blog.kurohicncr.top/Article/details/2702134860.shtml)
+- 2026-06-29 14:45 - [崔韩率还以为韩娱来新人了](https://www.blog.minike.top/Article/details/662858125.shtml)
+- 2026-06-29 14:50 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.minike.top/Article/details/203793732.shtml)
+- 2026-06-29 14:42 - [四川宜宾地震](https://www.share.kurohicncr.top/Article/details/3532009951.shtml)
+- 2026-06-29 14:38 - [AG 宫斗](http://www.blog.minike.top/Article/details/8436159373.shtml)
+- 2026-06-29 14:43 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/82764181.shtml)
+- 2026-06-29 14:37 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/083965.shtml)
+- 2026-06-29 14:42 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/48209175680.shtml)
+- 2026-06-29 14:37 - [哈兰德之歌火到国外](https://www.share.kurohicncr.top/Article/details/594366607.shtml)
+- 2026-06-29 14:51 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/30822.shtml)
+- 2026-06-29 14:37 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/329745522470.shtml)
+- 2026-06-29 14:49 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/389347440.shtml)

@@ -1,61 +1,57 @@
-# 美光股价创下近30年严重超买状态
+# Camden Property Trust将出席REITweek大会并发布Q2运营更新
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-上一次美光股票出现当前这般相对强弱指数（RSI）高位，还要追溯到比尔・克林顿担任美国总统的时期。 据雅虎财经旗下 AlphaSpace 数据，存储芯片厂商美光目前相对强弱指数达到 90，该数值自 1995 年 9 月 1 日触及 96 之后，便再未触及如此高位。 相对强弱指数是技术分析中常用的动量指标，用于衡量股价涨跌的速度与波动幅度。该指标数值突破 70 时，通常意味着标的短
+Camden Property Trust今日宣布，公司将出席于2026年6月2日至3日举行的Nareit REITweek 2026投资者大会。公司同时提供了2026年第二季度运营趋势的最新情况，表示截至目前的表现与其在第一季度财报中提供的指引和预期保持一致。 Camden Property Trust是一家总部位于休斯顿的房地产投资信托基金，专注于多户型公寓社区的拥有、管理
 
 ## 正文
 
-上一次美光股票出现当前这般相对强弱指数（RSI）高位，还要追溯到比尔・克林顿担任美国总统的时期。
+Camden Property Trust今日宣布，公司将出席于2026年6月2日至3日举行的Nareit REITweek 2026投资者大会。
 
-据雅虎财经旗下 AlphaSpace 数据，存储芯片厂商美光目前相对强弱指数达到 90，该数值自 1995 年 9 月 1 日触及 96 之后，便再未触及如此高位。
+公司同时提供了2026年第二季度运营趋势的最新情况，表示截至目前的表现与其在第一季度财报中提供的指引和预期保持一致。
 
-相对强弱指数是技术分析中常用的动量指标，用于衡量股价涨跌的速度与波动幅度。
+Camden Property Trust是一家总部位于休斯顿的房地产投资信托基金，专注于多户型公寓社区的拥有、管理、开发、再开发、收购和建设。
 
-该指标数值突破 70 时，通常意味着标的短期涨幅过快、估值偏高，行情大概率迎来反转或回调。
+作为标普500指数成分股公司，Camden目前在美国各地拥有并运营173处物业，包含58，811套公寓住宅。
 
-根据 AlphaSpace 统计，1995 年美光 RSI 触及 96 高点后，其股价在随后数月大幅跳水，下跌行情一直持续到 1996 年 7 月左右。
+待目前在建的3处物业完工后，公司的投资组合将扩大至176处物业，共计59，973套公寓住宅。
 
-存储板块行情解读：席卷美国的人工智能资本开支热潮，持续利好闪迪、美光等一众存储芯片企业。
+在运营方面，公司此前预计2026年第二季度核心营运资金每股在1.65至1.69美元之间。
 
-亚马逊等大型科技企业大举建设人工智能数据中心，拉动存储芯片需求暴涨。
+第一季度的表现为：GAAP每股收益为0.40美元，超出分析师预期的0.27美元；物业收入为3.888亿美元，同样超过预期。
 
-AI 模型运转需要海量数据读写与流转，而存储芯片正是承担数据存储、传输的核心器件。
+一季度同物业收入同比增长0.2%，但同物业净营业收入同比下降0.7%，主要受到新租赁利率下降5.2%的影响。
 
 ## 相关推荐
 
-- 2026-06-29 14:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 14:36 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 14:31 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 14:33 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 14:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 14:34 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 14:39 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 14:46 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 14:43 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 14:46 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 14:19 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 14:44 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 14:36 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 14:41 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 14:38 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 14:27 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 14:42 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 14:46 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 14:36 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 14:24 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 14:35 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 14:48 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 14:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 14:25 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 14:29 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 14:31 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:29 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/0878241737.shtml)
-- 2026-06-29 14:34 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/54256.shtml)
-- 2026-06-29 14:44 - [美的空调 卡bug](http://www.share.minike.top/Article/details/138554.shtml)
-- 2026-06-29 14:29 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.minike.top/Article/details/78478743.shtml)
-- 2026-06-29 14:34 - [实习期把公司领导开除了](http://www.share.kurohicncr.top/Article/details/11479336.shtml)
-- 2026-06-29 14:34 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.minike.top/Article/details/58591327.shtml)
-- 2026-06-29 14:24 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/413913116935.shtml)
-- 2026-06-29 14:43 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/31799183.shtml)
-- 2026-06-29 14:28 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/70860.shtml)
-- 2026-06-29 14:34 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/115720442.shtml)
-- 2026-06-29 14:26 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.kurohicncr.top/Article/details/560228151153.shtml)
-- 2026-06-29 14:21 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/663774000528.shtml)
-- 2026-06-29 14:26 - [欧委会总部只给高层开空调](http://www.blog.kurohicncr.top/Article/details/381737.shtml)
-- 2026-06-29 14:28 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.kurohicncr.top/Article/details/8685915651.shtml)
-- 2026-06-29 14:25 - [事关个税 明日截止请抓紧办理](https://www.blog.minike.top/Article/details/9429853627.shtml)
+- 2026-06-29 14:35 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.minike.top/Article/details/3133558.shtml)
+- 2026-06-29 14:35 - [Canna纳尔8-0对位单杀Doran](https://www.share.kurohicncr.top/Article/details/608179733.shtml)
+- 2026-06-29 14:32 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/78988.shtml)
+- 2026-06-29 14:26 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/81400517.shtml)
+- 2026-06-29 14:39 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/7901877.shtml)
+- 2026-06-29 14:25 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/3337838.shtml)
+- 2026-06-29 14:46 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.minike.top/Article/details/228110.shtml)
+- 2026-06-29 14:42 - [以前不让妆女二可以艳压女主](http://www.blog.kurohicncr.top/Article/details/586929632655.shtml)
+- 2026-06-29 14:42 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/457584905936.shtml)
+- 2026-06-29 14:24 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/9488617421.shtml)
+- 2026-06-29 14:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/7461411582.shtml)
+- 2026-06-29 14:30 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/114385138019.shtml)
+- 2026-06-29 14:53 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/43957776.shtml)
+- 2026-06-29 14:24 - [金价银价下跌 油价上涨](https://www.share.kurohicncr.top/Article/details/1981311.shtml)
+- 2026-06-29 14:36 - [比亚迪为什么卖得越多市值越低](http://www.share.minike.top/Article/details/08313982.shtml)

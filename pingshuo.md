@@ -1,59 +1,59 @@
-# 巴里・迪勒旗下People公司拟以每股48.30美元收购美高梅
+# 毛利腰斩利润由盈转亏，理想汽车的盈利神话终结了？
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-核心要点 巴里・迪勒旗下 People 公司发出全现金收购邀约，报价每股 48.30 美元，收购赌场龙头美高梅度假村。 美高梅坐拥拉斯维加斯多家地标度假村，包含百乐宫、阿瑞亚等知名物业。 受收购消息提振，美高梅周一早盘股价大涨约 11%，迪勒旗下公司股价上涨 2%。 迪勒在致美高梅董事会的信函中表示，自己身为美高梅董事，涉及本次收购的董事会审议环节将依规回避表决。 People
+理想能否重回盈利？ 出品/独角兽观察 2026年的国内新能源汽车市场，正式进入残酷的存量淘汰赛。行业整体需求萎缩、全线价格战常态化，绝大多数车企都在收缩战线、严控成本，以盈利为第一生存目标。 作为新势力阵营中最早上岸的 “盈利优等生”，理想汽车却走出了一条反行业趋势的发展曲线。 5月28日，理想汽车发布 2026 年第一季度财报，这份财报彻底打破了外界对理想 “稳健盈利、低风险
 
 ## 正文
 
-核心要点 巴里・迪勒旗下 People 公司发出全现金收购邀约，报价每股 48.30 美元，收购赌场龙头美高梅度假村。
+理想能否重回盈利？
 
-美高梅坐拥拉斯维加斯多家地标度假村，包含百乐宫、阿瑞亚等知名物业。
+出品/独角兽观察 2026年的国内新能源汽车市场，正式进入残酷的存量淘汰赛。
 
-受收购消息提振，美高梅周一早盘股价大涨约 11%，迪勒旗下公司股价上涨 2%。
+行业整体需求萎缩、全线价格战常态化，绝大多数车企都在收缩战线、严控成本，以盈利为第一生存目标。
 
-迪勒在致美高梅董事会的信函中表示，自己身为美高梅董事，涉及本次收购的董事会审议环节将依规回避表决。
+作为新势力阵营中最早上岸的 “盈利优等生”，理想汽车却走出了一条反行业趋势的发展曲线。
 
-People 公司前身是 IAC，手握美高梅近 26.1% 股权。
+5月28日，理想汽车发布 2026 年第一季度财报，这份财报彻底打破了外界对理想 “稳健盈利、低风险成长” 的固有认知。
 
-People 董事长迪勒在公告中称：“六年前我们布局美高梅，正是看中其稀缺的商业模式：手握实体不动产，人工智能难以替代、颠覆业务，同时线上数字化增长空间突出。
+单季归母净亏损高达 22.76 亿元，同比由盈转亏；车辆毛利率从去年同期 19.8% 断崖式下跌至 6.1%，近乎腰斩。
 
-” “我们依旧认为市场严重低估了美高梅资产的价值与长期稳健属性。
+一时间，市场质疑声四起，投资者情绪受挫。
 
-美高梅管理层能力出众，本次收购可助力公司迈入新一轮成长周期，充分释放内在价值。
+但矛盾的是，在利润由盈转亏的同时，理想汽车Q1交付量达到95142辆，同比小幅上涨 2.5%，在行业整体销量同比下滑21.1%的大环境下，逆势实现正增长，稳居 20 万以上中国品牌新能源SUV销量榜首。
 
 ## 相关推荐
 
-- 2026-06-29 14:33 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 14:24 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 14:41 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 14:43 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 14:33 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 14:44 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 14:43 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 14:18 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 14:44 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 14:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 14:46 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 14:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 14:28 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 14:29 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 14:47 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 14:25 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 14:42 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 14:50 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 14:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 14:41 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 14:36 - [T1对战KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 14:47 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 14:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 14:32 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 14:48 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 14:48 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:30 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/838433153.shtml)
-- 2026-06-29 14:23 - [Canna纳尔8-0对位单杀Doran](https://www.blog.kurohicncr.top/Article/details/43844883.shtml)
-- 2026-06-29 14:18 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/797318532879.shtml)
-- 2026-06-29 14:26 - [南非老帅布罗斯的梦没能做完](http://www.share.minike.top/Article/details/5983399.shtml)
-- 2026-06-29 14:44 - [张真源解读相思锁](http://www.blog.minike.top/Article/details/63946.shtml)
-- 2026-06-29 14:42 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/8690139222.shtml)
-- 2026-06-29 14:19 - [天道](https://www.share.kurohicncr.top/Article/details/64872930.shtml)
-- 2026-06-29 14:36 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/59097861.shtml)
-- 2026-06-29 14:33 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/6789127452.shtml)
-- 2026-06-29 14:25 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/4126033453.shtml)
-- 2026-06-29 14:23 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/7944920164.shtml)
-- 2026-06-29 14:38 - [我国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/309339584.shtml)
-- 2026-06-29 14:41 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/593744.shtml)
-- 2026-06-29 14:40 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/77831346.shtml)
-- 2026-06-29 14:33 - [沙特足协主席发布声明主动请辞](https://www.share.kurohicncr.top/Article/details/299575.shtml)
+- 2026-06-29 14:50 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/54061628.shtml)
+- 2026-06-29 14:50 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.kurohicncr.top/Article/details/5846785.shtml)
+- 2026-06-29 14:43 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.minike.top/Article/details/080525927.shtml)
+- 2026-06-29 14:47 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/461106031.shtml)
+- 2026-06-29 14:38 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/15735.shtml)
+- 2026-06-29 14:38 - [42岁郭碧婷纯素颜状态](https://www.share.kurohicncr.top/Article/details/550469305048.shtml)
+- 2026-06-29 14:45 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/226710409666.shtml)
+- 2026-06-29 14:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/66345605.shtml)
+- 2026-06-29 14:34 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/260992801.shtml)
+- 2026-06-29 14:24 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/2596216070.shtml)
+- 2026-06-29 14:31 - [金牌调解](http://www.blog.minike.top/Article/details/20367638762.shtml)
+- 2026-06-29 14:52 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/84201.shtml)
+- 2026-06-29 14:29 - [王楚钦周启豪爆分](http://www.share.kurohicncr.top/Article/details/4883239.shtml)
+- 2026-06-29 14:51 - [金刚川](http://www.share.kurohicncr.top/Article/details/573966351.shtml)
+- 2026-06-29 14:46 - [《贺子珍》](https://www.blog.minike.top/Article/details/918781307331.shtml)

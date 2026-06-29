@@ -1,61 +1,59 @@
-# 欧洲央行报告：黄金已取代美债成为全球首选储备资产
+# 加拿大经济意外萎缩叠加美元避险需求升温，美元兑加元重返1.3800上方
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-文章来源：格隆汇 据英国金融时报，黄金已超越美国政府债券，成为全球第一大储备资产。根据欧洲央行周二发布的一份报告，截至2025年底，黄金在全球央行储备资产中的占比达到27%，高于一年前的20%。同期，美国国债的占比从25%降至22%。欧元计价储备资产的占比保持不变，为15%。储备资产是央行用于支持本币汇率、履行国际支付义务以及在金融动荡时提供流动性支持的高流动性资产。其构成的这
+汇通财经APP讯——美元兑加元（USD/CAD）周一亚洲交易时段延续反弹走势，汇价重新收复1.3800整数关口。虽然距离上周触及的4月中旬以来高点1.3870附近仍有一定距离，但整体市场氛围依然偏向美元多头。 当前市场关注的核心因素依然是美国与伊朗之间的外交谈判以及中东地区安全局势。由于双方围绕核计划和霍尔木兹海峡问题仍存在明显分歧，市场对于协议最终达成的预期有所降温。 与此同
 
 ## 正文
 
-文章来源：格隆汇 据英国金融时报，黄金已超越美国政府债券，成为全球第一大储备资产。
+汇通财经APP讯——美元兑加元（USD/CAD）周一亚洲交易时段延续反弹走势，汇价重新收复1.3800整数关口。
 
-根据欧洲央行周二发布的一份报告，截至2025年底，黄金在全球央行储备资产中的占比达到27%，高于一年前的20%。
+虽然距离上周触及的4月中旬以来高点1.3870附近仍有一定距离，但整体市场氛围依然偏向美元多头。
 
-同期，美国国债的占比从25%降至22%。
+当前市场关注的核心因素依然是美国与伊朗之间的外交谈判以及中东地区安全局势。
 
-欧元计价储备资产的占比保持不变，为15%。
+由于双方围绕核计划和霍尔木兹海峡问题仍存在明显分歧，市场对于协议最终达成的预期有所降温。
 
-储备资产是央行用于支持本币汇率、履行国际支付义务以及在金融动荡时提供流动性支持的高流动性资产。
+与此同时，以色列在黎巴嫩地区扩大军事行动，也进一步增加了地区局势的不确定性。
 
-其构成的这一变化，反映出许多国家正试图寻找美元——这一事实上的全球储备货币——的替代品。
+避险情绪升温推动美元获得更多资金支持，并成为美元兑加元上涨的重要驱动力之一。
 
-自2022年美国因俄乌冲突爆发而使用制裁手段冻结其美元储备以来，各国寻求替代方案的努力明显加快。
+伊朗首席谈判代表加利巴夫表示，除非伊朗国家权益获得充分保障，否则不会接受任何协议。
 
-欧洲央行行长拉加德在周二的报告中写道：“地缘政治紧张局势继续推动央行对黄金的强劲需求。
+这意味着未来谈判仍面临较大挑战。
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 14:38 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 14:32 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 14:38 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 14:47 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 14:41 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 14:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 14:27 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 14:28 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 14:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 14:33 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 14:39 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 14:24 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 14:29 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 14:30 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 14:44 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 14:31 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 14:37 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 14:31 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 14:30 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 14:48 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 14:41 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 14:53 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 14:46 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 14:39 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 14:43 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 14:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 14:53 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:26 - [105年初心滚烫](https://www.share.minike.top/Article/details/806356044351.shtml)
-- 2026-06-29 14:36 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/4320903837.shtml)
-- 2026-06-29 14:47 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/463650.shtml)
-- 2026-06-29 14:39 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/97908871.shtml)
-- 2026-06-29 14:22 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/6614322120.shtml)
-- 2026-06-29 14:18 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.minike.top/Article/details/8936645.shtml)
-- 2026-06-29 14:28 - [记者暗访贵州和云南多个养老机构](http://www.blog.kurohicncr.top/Article/details/860676592.shtml)
-- 2026-06-29 14:39 - [TOP 无畏契约](http://www.share.kurohicncr.top/Article/details/23741951.shtml)
-- 2026-06-29 14:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/161145258.shtml)
-- 2026-06-29 14:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/147341294683.shtml)
-- 2026-06-29 14:29 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.minike.top/Article/details/3139557044.shtml)
-- 2026-06-29 14:34 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/20013.shtml)
-- 2026-06-29 14:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/11709.shtml)
-- 2026-06-29 14:45 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/00187550754.shtml)
-- 2026-06-29 14:46 - [一生一世](https://www.blog.kurohicncr.top/Article/details/8134631132.shtml)
+- 2026-06-29 14:37 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/66333.shtml)
+- 2026-06-29 14:39 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/37247791.shtml)
+- 2026-06-29 14:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/33474619351.shtml)
+- 2026-06-29 14:26 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/491120.shtml)
+- 2026-06-29 14:40 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/31313.shtml)
+- 2026-06-29 14:31 - [森保一：日本队要亲手改写历史](http://www.share.kurohicncr.top/Article/details/7320130.shtml)
+- 2026-06-29 14:35 - [啊啊啊](https://www.blog.minike.top/Article/details/7635383109.shtml)
+- 2026-06-29 14:32 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/586424252.shtml)
+- 2026-06-29 14:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/48546483.shtml)
+- 2026-06-29 14:52 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/442849573651.shtml)
+- 2026-06-29 14:50 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.minike.top/Article/details/165373.shtml)
+- 2026-06-29 14:26 - [多家银行收紧个人贵金属业务](http://www.blog.kurohicncr.top/Article/details/3583885765.shtml)
+- 2026-06-29 14:32 - [毒液2](https://www.blog.kurohicncr.top/Article/details/61392.shtml)
+- 2026-06-29 14:36 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/31475463888.shtml)
+- 2026-06-29 14:34 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.minike.top/Article/details/3860301.shtml)

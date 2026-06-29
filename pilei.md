@@ -1,57 +1,59 @@
-# 硬核浪漫遇家国温情 哈工大百余名博士生携航天自研钻戒赴集体婚礼之约
+# 电诈盯上未成年人！手机弹出更新系统竟是骗子在远程操控
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨6月1日电(记者史轶夫)5月31日，哈尔滨工业大学第十一届博士生集体婚礼在校园草坪温情启幕。187对博士新人携手并肩，在师长、亲友的共同见证下许下相守诺言，本届参与人数创下历届新高。从科研书桌到婚礼殿堂，这群深耕学术的青年学子，将校园爱恋与报国初心相融，书写独属于哈工大人的家国浪漫。 自2013年首届活动举办至今，哈工大博士生集体婚礼已然成为校园特色文化名片，累计8
+法治在线丨电诈盯上未成年人！手机弹出更新系统竟是骗子在远程操控 孩子想免费领游戏皮肤却引来了骗子？原来有人瞄准未成年人设局，借孩子之手控制家长的手机，盗刷钱款。来看北京通州一位家长的遭遇。 手机弹出系统更新？ 竟是骗子在远程操控事情要从今年4月的一天说起。当天晚上10点多，家住北京通州的梁女士手机屏幕上突然出现了一个奇怪的界面。 被害人 梁女士：我的手机屏幕突然出现操作系统正在
 
 ## 正文
 
-中新网哈尔滨6月1日电(记者史轶夫)5月31日，哈尔滨工业大学第十一届博士生集体婚礼在校园草坪温情启幕。
+法治在线丨电诈盯上未成年人！
 
-187对博士新人携手并肩，在师长、亲友的共同见证下许下相守诺言，本届参与人数创下历届新高。
+手机弹出更新系统竟是骗子在远程操控 孩子想免费领游戏皮肤却引来了骗子？
 
-从科研书桌到婚礼殿堂，这群深耕学术的青年学子，将校园爱恋与报国初心相融，书写独属于哈工大人的家国浪漫。
+原来有人瞄准未成年人设局，借孩子之手控制家长的手机，盗刷钱款。
 
-自2013年首届活动举办至今，哈工大博士生集体婚礼已然成为校园特色文化名片，累计803对新人在此缔结良缘，让哈工大成为无数青年科研人爱情与人生的重要见证者。
+来看北京通州一位家长的遭遇。
 
-不同于普通婚礼的浪漫布置，本次婚礼藏着独属于工科名校的硬核惊喜。
+手机弹出系统更新？
 
-哈工大为每一对新人送上一枚特殊钻戒，钻戒上1克拉钻石全部由哈工大红外薄膜与晶体团队自主研制。
+竟是骗子在远程操控事情要从今年4月的一天说起。
 
-培育钻石，拥有超高硬度与极佳化学稳定性，该项科研成果斩获国家技术发明二等奖、日内瓦国际发明展金奖等多项国内外重磅荣誉。
+当天晚上10点多，家住北京通州的梁女士手机屏幕上突然出现了一个奇怪的界面。
 
-真心钻石化作见证爱意的信物，让航天科技为青春爱情保驾护航，成为这场婚礼最特别的浪漫底色。
+被害人 梁女士：我的手机屏幕突然出现操作系统正在更新中，请不要触屏或被格式化这样的提示，当时怀疑手机操作系统更新是不是正常。
 
 ## 相关推荐
 
-- 2026-06-29 14:47 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 14:33 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 14:39 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 14:48 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 14:26 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 14:42 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 14:46 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 14:35 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 14:20 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 14:46 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 14:23 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 14:25 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 14:46 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 14:51 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 14:26 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 14:28 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 14:42 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 14:50 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 14:36 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 14:41 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 14:42 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 14:50 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 14:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 14:29 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:24 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/68157057338.shtml)
-- 2026-06-29 14:34 - [金牌调解](http://www.share.kurohicncr.top/Article/details/81380715741.shtml)
-- 2026-06-29 14:26 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/2079137636.shtml)
-- 2026-06-29 14:46 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/4914648528.shtml)
-- 2026-06-29 14:35 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/54141.shtml)
-- 2026-06-29 14:44 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/42567584683.shtml)
-- 2026-06-29 14:24 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/704282014.shtml)
-- 2026-06-29 14:42 - [多家银行收紧个人贵金属业务](https://www.blog.kurohicncr.top/Article/details/20682679.shtml)
-- 2026-06-29 14:24 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/2261594.shtml)
-- 2026-06-29 14:39 - [严浩翔FIY断层第一](https://www.blog.kurohicncr.top/Article/details/21585787157.shtml)
-- 2026-06-29 14:45 - [给阿嬷的情书海外口碑](https://www.blog.minike.top/Article/details/3314395523.shtml)
-- 2026-06-29 14:22 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/059554.shtml)
-- 2026-06-29 14:37 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/7468250705.shtml)
-- 2026-06-29 14:18 - [媒体：高考后消费应量力而行适度有度](http://www.share.minike.top/Article/details/3466907.shtml)
-- 2026-06-29 14:44 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/8183811.shtml)
+- 2026-06-29 14:49 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/589506.shtml)
+- 2026-06-29 14:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/0066624.shtml)
+- 2026-06-29 14:45 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/7190621393.shtml)
+- 2026-06-29 14:39 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/657767357.shtml)
+- 2026-06-29 14:45 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/141673742521.shtml)
+- 2026-06-29 14:32 - [梅朗雄主张法国退出北约](http://www.blog.minike.top/Article/details/5852609.shtml)
+- 2026-06-29 14:38 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/8012201.shtml)
+- 2026-06-29 14:43 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/64417489.shtml)
+- 2026-06-29 14:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/299670897352.shtml)
+- 2026-06-29 14:28 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/59424.shtml)
+- 2026-06-29 14:25 - [王楚钦3比0周启豪](https://www.share.kurohicncr.top/Article/details/3961907609.shtml)
+- 2026-06-29 14:24 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/0638499.shtml)
+- 2026-06-29 14:26 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/34500536829.shtml)
+- 2026-06-29 14:37 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/6780100361.shtml)
+- 2026-06-29 14:26 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/6457037184.shtml)

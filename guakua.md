@@ -1,59 +1,46 @@
-# 高温范围今日将达近期最大 南方新一轮降水过程上线
+# 高盛：华勤技术首予“买入”评级 目标价127.76港元
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中国天气网讯 今明天(6月2日至3日)，东北及内蒙古多地仍有强对流天气，南方新一轮降雨过程也将上线，西南地区东部等地雨势较强，需警惕山体滑坡等次生灾害的发生。同时，高温也在发展，今天高温范围将达近期最大，北方局地最高气温可达39℃；华南本周前期闷热不下线，海南多地将现持续性高温，需注意防暑。 东北及内蒙古多地仍有强对流 南方新一轮降雨将上线 昨天，东北、内蒙古多地再迎强对流天气
+盛发布研报称，华勤技术（03296）是按2024年出货量计全球领先的消费电子产品原始设计制造商，预计其增长将受AI数据中心及传统业务的持续增长所推动，首次覆盖公司H股予“买入”评级，目标价127.76港元。 该行预计，华勤技术2025–2027年收入复合年增长率将达32%，主要受到公司在硬件、软件、机械工程、营运效率、供应链管理、先进生产等端到端研发能力所支持，同时产品组合升级
 
 ## 正文
 
-中国天气网讯 今明天(6月2日至3日)，东北及内蒙古多地仍有强对流天气，南方新一轮降雨过程也将上线，西南地区东部等地雨势较强，需警惕山体滑坡等次生灾害的发生。
+盛发布研报称，华勤技术（03296）是按2024年出货量计全球领先的消费电子产品原始设计制造商，预计其增长将受AI数据中心及传统业务的持续增长所推动，首次覆盖公司H股予“买入”评级，目标价127.76港元。
 
-同时，高温也在发展，今天高温范围将达近期最大，北方局地最高气温可达39℃；华南本周前期闷热不下线，海南多地将现持续性高温，需注意防暑。
+该行预计，华勤技术2025–2027年收入复合年增长率将达32%，主要受到公司在硬件、软件、机械工程、营运效率、供应链管理、先进生产等端到端研发能力所支持，同时产品组合升级亦有望推动毛利率改善。
 
-东北及内蒙古多地仍有强对流 南方新一轮降雨将上线 昨天，东北、内蒙古多地再迎强对流天气，南方强降雨主要集中在贵州、广西西部等地。
-
-监测显示，贵州南部、广西北部、广东中部等地部分地区出现大到暴雨，贵州黔西南、广西河池和柳州、广东肇庆等局地大暴雨。
-
-今明两天，冷涡仍将盘旋在内蒙古东部、东北一带上空，受其影响，辽宁、内蒙古东部、华北北部等地仍将有强对流天气，风雹天气较明显，局地有短时强降水。
-
-同时，随着冷空气南下，暖湿气流将再度加强，南方降雨将再度发展增多，局地有暴雨或大暴雨。
-
-中央气象台预计，今天，黑龙江中部、江南北部和西部、西南地区东南部、广西西北部等地部分地区有中到大雨，其中，湖南西部、重庆东南部、贵州东北部和西南部、广西西北部等地部分地区有暴雨或大暴雨。
-
-明天，内蒙古东北部、东北地区中南部、华北东部、江汉东部、江南大部、西南地区东南部、华南北部等地部分地区有中到大雨，其中，安徽南部、江西北部、浙江中北部、湖南西部和东部、贵州南部、广西北部等地部分地区有暴雨或大暴雨。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:26 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 14:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 14:40 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 14:45 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 14:27 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 14:35 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 14:41 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 14:19 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 14:38 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 14:34 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 14:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 14:29 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 14:34 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 14:50 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 14:34 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 14:40 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 14:33 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 14:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 14:26 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 14:26 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 14:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 14:33 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 14:35 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/931782293918.shtml)
-- 2026-06-29 14:35 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/57859031428.shtml)
-- 2026-06-29 14:48 - [汪东城回应45岁婚约](http://www.blog.minike.top/Article/details/863783132521.shtml)
-- 2026-06-29 14:35 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/47520264.shtml)
-- 2026-06-29 14:29 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.minike.top/Article/details/468982021.shtml)
-- 2026-06-29 14:37 - [撒旦的腋窝是什么比喻](http://www.share.kurohicncr.top/Article/details/5145838582.shtml)
-- 2026-06-29 14:30 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/2972976.shtml)
-- 2026-06-29 14:39 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/40063.shtml)
-- 2026-06-29 14:26 - [宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/484004.shtml)
-- 2026-06-29 14:36 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/45427.shtml)
-- 2026-06-29 14:23 - [吴建豪老婆](https://www.share.minike.top/Article/details/043620563886.shtml)
-- 2026-06-29 14:37 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/5837520784.shtml)
-- 2026-06-29 14:19 - [韩国队启程回国众将回避镜头](http://www.share.minike.top/Article/details/985314.shtml)
-- 2026-06-29 14:47 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/692583.shtml)
-- 2026-06-29 14:44 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/17612.shtml)
+- 2026-06-29 14:47 - [强⁶](http://www.share.kurohicncr.top/Article/details/4933451740.shtml)
+- 2026-06-29 14:32 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/107987.shtml)
+- 2026-06-29 14:24 - [一见倾心](http://www.share.kurohicncr.top/Article/details/5457729741.shtml)
+- 2026-06-29 14:52 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/52821.shtml)
+- 2026-06-29 14:26 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/68529161425.shtml)
+- 2026-06-29 14:34 - [东部机场集团新增釜山航线](http://www.share.kurohicncr.top/Article/details/778376846576.shtml)
+- 2026-06-29 14:41 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/86176312906.shtml)
+- 2026-06-29 14:38 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/3957147.shtml)
+- 2026-06-29 14:29 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/7520980.shtml)
+- 2026-06-29 14:41 - [NBA交易](http://www.share.minike.top/Article/details/12602850387.shtml)
+- 2026-06-29 14:38 - [退休化学教授帮医药研发人员制毒](https://www.share.minike.top/Article/details/105644.shtml)
+- 2026-06-29 14:26 - [比亚迪市值为何蒸发8000亿](http://www.share.kurohicncr.top/Article/details/611525187.shtml)
+- 2026-06-29 14:29 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/5322312992.shtml)
+- 2026-06-29 14:43 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.kurohicncr.top/Article/details/0944158.shtml)
+- 2026-06-29 14:38 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/864283.shtml)

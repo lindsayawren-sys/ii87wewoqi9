@@ -1,48 +1,59 @@
-# 伊朗称与阿曼在霍尔木兹海峡管控方面取得“良好进展”
+# 压降负债成本！多家民营银行下架3年期、5年期定期存款
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-伊朗外交部副部长Kazem Gharibabadi在接受伊朗国家电视台采访时表示，伊朗和阿曼有权对霍尔木兹海峡行使主权。 重申伊朗已制定新的战时船舶通过霍尔木兹海峡的管制条例，绝不允许任何国家干涉。 他说，任何安排都必须与阿曼协调。责任编辑：江学思
+界面新闻记者 | 林倩冰 又有民营银行下架中长期定期存款产品。 近日，中关村银行公告称，自5月30日起暂时下架个人、单位整存整取3年期存款产品。界面新闻梳理发现，目前多家民营银行APP页面已暂时无法购买5年期和3年期整存整取产品。 业内认为，民营银行下架高利率存款产品与净息差持续下行有关，下架中长期存款可以控制整体付息率。 中关村银行下架整存整取3年期存款产品 近日，中关村银行
 
 ## 正文
 
-伊朗外交部副部长Kazem Gharibabadi在接受伊朗国家电视台采访时表示，伊朗和阿曼有权对霍尔木兹海峡行使主权。
+界面新闻记者 | 林倩冰 又有民营银行下架中长期定期存款产品。
 
-重申伊朗已制定新的战时船舶通过霍尔木兹海峡的管制条例，绝不允许任何国家干涉。
+近日，中关村银行公告称，自5月30日起暂时下架个人、单位整存整取3年期存款产品。
 
-他说，任何安排都必须与阿曼协调。
+界面新闻梳理发现，目前多家民营银行APP页面已暂时无法购买5年期和3年期整存整取产品。
 
-责任编辑：江学思
+业内认为，民营银行下架高利率存款产品与净息差持续下行有关，下架中长期存款可以控制整体付息率。
+
+中关村银行下架整存整取3年期存款产品 近日，中关村银行公告称，自5月30日起，该行营业厅、手机银行APP、企业网银等渠道，暂时下架个人、单位整存整取3年期存款产品。
+
+已办理的存量整存整取3年存款产品不受本次调整影响，仍按照存入时约定的利率计息，按约定到期兑付或到期转存。
+
+界面新闻注意到，2025年10月，中关村银行曾下调部分存款产品利率。
+
+据当时公告，下调后，整存整取2年期产品年利率、新客整存整取2年期产品年利率、整存整取3年期产品年利率、整存整取5年期产品年利率分别为1.8%、1.9%、2.1%、2%。
 
 ## 相关推荐
 
-- 2026-06-29 14:45 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 14:33 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 14:36 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 14:46 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 14:19 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 14:32 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 14:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 14:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 14:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 14:19 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 14:48 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 14:40 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 14:48 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 14:28 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 14:40 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 14:45 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 14:26 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 14:42 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 14:41 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 14:26 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 14:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 14:32 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 14:50 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:46 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/03783.shtml)
-- 2026-06-29 14:23 - [Mrbeast的30天不吃饭挑战](https://www.share.kurohicncr.top/Article/details/1237811.shtml)
-- 2026-06-29 14:27 - [退休化学教授帮医药研发人员制毒](https://www.blog.kurohicncr.top/Article/details/575425869.shtml)
-- 2026-06-29 14:28 - [T1对战KC](http://www.blog.minike.top/Article/details/61966778.shtml)
-- 2026-06-29 14:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/403460.shtml)
-- 2026-06-29 14:40 - [ENC瓦中国香港负印度数据图](https://www.blog.kurohicncr.top/Article/details/8337830.shtml)
-- 2026-06-29 14:41 - [双高胎](http://www.blog.minike.top/Article/details/43556.shtml)
-- 2026-06-29 14:28 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/65681280405.shtml)
-- 2026-06-29 14:42 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.minike.top/Article/details/07737357999.shtml)
-- 2026-06-29 14:34 - [T1对战KC](https://www.share.minike.top/Article/details/8010328908.shtml)
-- 2026-06-29 14:25 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/38745615.shtml)
-- 2026-06-29 14:37 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/06364.shtml)
-- 2026-06-29 14:32 - [我和我的家乡](http://www.share.minike.top/Article/details/919814344.shtml)
-- 2026-06-29 14:36 - [周生如故](https://www.share.kurohicncr.top/Article/details/28174.shtml)
-- 2026-06-29 14:31 - [光与夜之恋](https://www.share.minike.top/Article/details/1010315.shtml)
+- 2026-06-29 14:41 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/02041025096.shtml)
+- 2026-06-29 14:46 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/12220271587.shtml)
+- 2026-06-29 14:52 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/8195933806.shtml)
+- 2026-06-29 14:46 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/7800748.shtml)
+- 2026-06-29 14:32 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/31767004213.shtml)
+- 2026-06-29 14:26 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/467668298.shtml)
+- 2026-06-29 14:26 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/7034600.shtml)
+- 2026-06-29 14:47 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/9997994.shtml)
+- 2026-06-29 14:49 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/7921105189.shtml)
+- 2026-06-29 14:26 - [宜宾5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/479478696.shtml)
+- 2026-06-29 14:49 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/087185.shtml)
+- 2026-06-29 14:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/581780.shtml)
+- 2026-06-29 14:27 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/068625542.shtml)
+- 2026-06-29 14:47 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/24001.shtml)
+- 2026-06-29 14:32 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/23629146.shtml)

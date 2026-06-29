@@ -1,58 +1,60 @@
-# 美国股市密集亮起预警红灯
+# 伊朗击落美军无人机后美军空袭伊朗，伊朗随后发起报复打击
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-当美股指数连创历史新高、超级IPO排队上市，美国股市沉浸在一片狂欢中，美银证券首席投资策略师迈克尔·哈特奈特却已经讨论起泡沫破裂后的交易策略。 他是“华尔街最准分析师”之一，2025年国际股市跑赢美股、大宗商品走强的精准预测，都出自他手。他说，当前人工智能(AI)主题驱动的市场泡沫是19世纪铁路泡沫以来规模最大的一次。 无独有偶。欧洲太平洋资本首席执行官兼首席全球策略师彼得·希
+中新网6月1日电 据美联社报道，美国军方当地时间6月1日表示，在伊朗击落一架美国MQ-1“捕食者”无人机后，美军轰炸了伊朗境内的雷达和无人机控制站点。伊朗方面承认随后发动报复性打击。与此同时，科威特表示，其防空系统拦截了来袭的无人机和导弹。报道称，美伊双方相互攻击反映出停火十分脆弱。尽管美国和伊朗官员正试图通过谈判达成延长停火的协议，但袭击仍不断发生。 美国中央司令部称，美军于
 
 ## 正文
 
-当美股指数连创历史新高、超级IPO排队上市，美国股市沉浸在一片狂欢中，美银证券首席投资策略师迈克尔·哈特奈特却已经讨论起泡沫破裂后的交易策略。
+中新网6月1日电 据美联社报道，美国军方当地时间6月1日表示，在伊朗击落一架美国MQ-1“捕食者”无人机后，美军轰炸了伊朗境内的雷达和无人机控制站点。
 
-他是“华尔街最准分析师”之一，2025年国际股市跑赢美股、大宗商品走强的精准预测，都出自他手。
+伊朗方面承认随后发动报复性打击。
 
-他说，当前人工智能(AI)主题驱动的市场泡沫是19世纪铁路泡沫以来规模最大的一次。
+与此同时，科威特表示，其防空系统拦截了来袭的无人机和导弹。
 
-无独有偶。
+报道称，美伊双方相互攻击反映出停火十分脆弱。
 
-欧洲太平洋资本首席执行官兼首席全球策略师彼得·希夫也发出警告：投资者现在正一步步走进“陷阱”。
+尽管美国和伊朗官员正试图通过谈判达成延长停火的协议，但袭击仍不断发生。
 
-这位曾准确预测2008年金融危机的华尔街著名经济学家直言，随着美国股市攀升至历史新高，投资者正在忽视重大风险。
+美国中央司令部称，美军于5月30日和31日在伊朗格鲁克市附近以及格什姆岛实施打击。
 
-他警告说，美股市场可能即将面临痛苦的清算。
+声明称，此次打击是为了回应伊朗击落一架在国际水域上空行动的美国MQ-1无人机等“侵略性行动”。
 
-目前，美股三大预警信号已罕见地同时亮起了红灯。
+美军称，美国战斗机摧毁了伊朗防空设施、一个地面控制站以及两架对通过地区水域的船只构成威胁的单向攻击无人机。
 
 ## 相关推荐
 
-- 2026-06-29 14:23 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 14:45 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 14:25 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 14:38 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 14:19 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 14:42 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 14:42 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 14:25 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 14:38 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 14:21 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 14:26 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 14:21 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 14:28 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 14:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 14:26 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 14:53 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 14:42 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 14:32 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 14:51 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 14:28 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 14:34 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 14:49 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 14:47 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 14:43 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 14:48 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 14:50 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:36 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/9059912931.shtml)
-- 2026-06-29 14:43 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/147743281.shtml)
-- 2026-06-29 14:47 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/411754729747.shtml)
-- 2026-06-29 14:47 - [王楚钦首轮赢下国乒德比](http://www.blog.minike.top/Article/details/7449668333.shtml)
-- 2026-06-29 14:30 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/906266251464.shtml)
-- 2026-06-29 14:23 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/40291285.shtml)
-- 2026-06-29 14:39 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/070219437.shtml)
-- 2026-06-29 14:28 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/12575123056.shtml)
-- 2026-06-29 14:23 - [AG冠军五人组轮换](https://www.share.minike.top/Article/details/638053.shtml)
-- 2026-06-29 14:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/8980313722.shtml)
-- 2026-06-29 14:31 - [广东一地发现极危植物新物种](http://www.blog.kurohicncr.top/Article/details/329070.shtml)
-- 2026-06-29 14:24 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.minike.top/Article/details/445189070018.shtml)
-- 2026-06-29 14:34 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/882101.shtml)
-- 2026-06-29 14:29 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/9953077184.shtml)
-- 2026-06-29 14:30 - [叶一茜森碟一起回北京了](https://www.blog.kurohicncr.top/Article/details/79569.shtml)
+- 2026-06-29 14:43 - [中国避暑神器在欧洲卖爆了](https://www.share.minike.top/Article/details/896085194.shtml)
+- 2026-06-29 14:46 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/3918048667.shtml)
+- 2026-06-29 14:26 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.kurohicncr.top/Article/details/183060204200.shtml)
+- 2026-06-29 14:29 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/839428449.shtml)
+- 2026-06-29 14:39 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/925522284.shtml)
+- 2026-06-29 14:47 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/1175157.shtml)
+- 2026-06-29 14:29 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/04571.shtml)
+- 2026-06-29 14:30 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/519946567.shtml)
+- 2026-06-29 14:32 - [给阿嬷的情书海外口碑](https://www.share.minike.top/Article/details/8361281667.shtml)
+- 2026-06-29 14:53 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/6726209956.shtml)
+- 2026-06-29 14:47 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/85038457.shtml)
+- 2026-06-29 14:38 - [拄拐少年高考663分：用行动回报社会](https://www.share.minike.top/Article/details/700616.shtml)
+- 2026-06-29 14:45 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/35623924.shtml)
+- 2026-06-29 14:39 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/761978340083.shtml)
+- 2026-06-29 14:51 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/46453001387.shtml)

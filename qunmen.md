@@ -1,57 +1,59 @@
-# “一车明星安全带全是P的”，公安部交管局发声
+# 美股软件业绩强劲，“吞噬”叙事被证伪！AI应用逆市活跃，华宝基金大数据ETF（516700）最高上探3.53%！
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-近期，某综艺节目播出后被眼光敏锐的网友发现，多名嘉宾在乘车时并没有真的系安全带，而是节目组通过后期技术添加，P图痕迹相当明显。 @公安部交通管理局 6月1日发布提醒：安全不是做样子给别人看，安全更容不得自欺欺人！我国道交法中明确规定：“机动车行驶时，驾驶人、乘坐人员应当按规定使用安全带。”对数量可观的粉丝、受众而言，明星、综艺节目的示范作用不可小觑，更应在涉及公共利益、公共安全
+今日（6月1日）AI应用和软件方向逆市活跃，覆盖算力租赁、AI应用等热门概念的大数据ETF华宝（516700）场内涨幅最高上探3.53%，收涨1.35%，此前4个交易日连续获资金净流入，合计金额848万元，反映资金看好大数据产业后市表现，积极进场布局！ 成份股方面，用友网络、税友股份涨停，鼎捷数智领涨超14%，易点天下、深信服涨逾9%，中国软件、电科数字等个股跟涨，合计26股涨
 
 ## 正文
 
-近期，某综艺节目播出后被眼光敏锐的网友发现，多名嘉宾在乘车时并没有真的系安全带，而是节目组通过后期技术添加，P图痕迹相当明显。
+今日（6月1日）AI应用和软件方向逆市活跃，覆盖算力租赁、AI应用等热门概念的大数据ETF华宝（516700）场内涨幅最高上探3.53%，收涨1.35%，此前4个交易日连续获资金净流入，合计金额848万元，反映资金看好大数据产业后市表现，积极进场布局！
 
-@公安部交通管理局 6月1日发布提醒：安全不是做样子给别人看，安全更容不得自欺欺人！
+成份股方面，用友网络、税友股份涨停，鼎捷数智领涨超14%，易点天下、深信服涨逾9%，中国软件、电科数字等个股跟涨，合计26股涨超2%。
 
-我国道交法中明确规定：“机动车行驶时，驾驶人、乘坐人员应当按规定使用安全带。
+AI应用和软件方向为何逆市活跃？
 
-”对数量可观的粉丝、受众而言，明星、综艺节目的示范作用不可小觑，更应在涉及公共利益、公共安全的问题上严格以身作则，严格遵守法律法规，严格守住安全底线！
+重点关注三方面因素： 1、美股软件财报超预期，扭转板块悲观叙事 进入5月份，美股Snowflake、MongoDB、Salesforce等软件公司业绩全面超预期，此前市场担心的“Al颠覆软件”叙事被业绩强势证伪，市场开始重新认识软件企业在AI时代的受益逻辑。
 
-据@大河报 此前报道，在5月29日更新的《这就是我的西游2》第一期上节目中，有网友发现，嘉宾所使用的安全带疑似为后期P图添加，存在明显后期合成痕迹，被调侃为“PS安全带”。
+美股软件IGV指数超跌反弹21%的外溢效应，正在通过全球资金再配置，向A股软件板块传导。
 
-类似问题并非首次发生。
+2、商业模式重塑，打开收益天花板 一方面，AI商业模式正从单一SaaS订阅转向“订阅+Token消耗”双轨制。
 
-部分观众指出，此前《奔跑吧》节目中，经网友逐帧分析，郑恺、刘涛、沙溢等嘉宾的安全带也呈现出明显的P图痕迹。
+随着Agent爆发，Token消耗将呈指数级增长，打开行业收入天花板。
 
-另据红星新闻报道，北京含墨律师事务所于跃律师表示，节目录制现场，驾乘人员若未规范佩戴安全带本身已违反道路交通安全管理规定，通过后期P图伪造 “全员规范佩戴安全带” 的画面属于刻意隐瞒真实交通违法行为。
+另一方面，单位token推理成本降低90%，成本断崖式减少，极大降低AI应用门槛，助力软件企业在2026年进入规模化落地的高景气期。
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 14:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 14:42 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 14:34 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 14:47 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 14:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 14:20 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 14:21 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 14:46 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 14:30 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 14:29 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 14:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 14:42 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 14:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 14:48 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 14:37 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 14:38 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 14:38 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 14:53 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 14:38 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 14:54 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 14:38 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 14:44 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 14:31 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:18 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/6878500.shtml)
-- 2026-06-29 14:45 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/63070.shtml)
-- 2026-06-29 14:32 - [女心理师](http://www.blog.minike.top/Article/details/96436820.shtml)
-- 2026-06-29 14:29 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/7813997390.shtml)
-- 2026-06-29 14:30 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/824126.shtml)
-- 2026-06-29 14:24 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/89278211549.shtml)
-- 2026-06-29 14:35 - [明星大侦探第一季](https://www.share.minike.top/Article/details/8590767.shtml)
-- 2026-06-29 14:37 - [灿如繁星定档](https://www.blog.kurohicncr.top/Article/details/32728092243.shtml)
-- 2026-06-29 14:34 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/66214949.shtml)
-- 2026-06-29 14:46 - [T1对战KC](https://www.blog.kurohicncr.top/Article/details/849320778288.shtml)
-- 2026-06-29 14:18 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/08764077.shtml)
-- 2026-06-29 14:38 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/159839.shtml)
-- 2026-06-29 14:44 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/37623.shtml)
-- 2026-06-29 14:36 - [一生一世](http://www.share.kurohicncr.top/Article/details/95377473.shtml)
-- 2026-06-29 14:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/9315875.shtml)
+- 2026-06-29 14:49 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/468692080425.shtml)
+- 2026-06-29 14:43 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/08761.shtml)
+- 2026-06-29 14:51 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/3600035611.shtml)
+- 2026-06-29 14:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/534155672.shtml)
+- 2026-06-29 14:44 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/36767.shtml)
+- 2026-06-29 14:47 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/89411147.shtml)
+- 2026-06-29 14:47 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/055118423.shtml)
+- 2026-06-29 14:38 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/150812473.shtml)
+- 2026-06-29 14:44 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.kurohicncr.top/Article/details/26682.shtml)
+- 2026-06-29 14:50 - [一生一世](https://www.share.kurohicncr.top/Article/details/348150690.shtml)
+- 2026-06-29 14:52 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/25120112947.shtml)
+- 2026-06-29 14:29 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/5933799687.shtml)
+- 2026-06-29 14:27 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/347592080744.shtml)
+- 2026-06-29 14:47 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/894231650.shtml)
+- 2026-06-29 14:41 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/13421567.shtml)

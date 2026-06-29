@@ -1,58 +1,58 @@
-# 习近平总书记的深情寄望鼓舞新时代少年儿童成长成才
+# 宇树科技，今日上会
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-原标题：守护童心 筑梦未来——习近平总书记的深情寄望鼓舞新时代少年儿童成长成才 6月1日，亿万少年儿童迎来属于自己的节日。 当代中国少年儿童既是实现第一个百年奋斗目标的经历者、见证者，更是实现第二个百年奋斗目标、建设社会主义现代化强国的生力军。 “培养好少年儿童是一项战略任务，事关长远。”党的十八大以来，习近平总书记始终心系少年儿童成长成才，站在党和国家事业发展薪火相传、后继有
+据上交所消息，宇树科技科创板IPO申请6月1日上会审议。从今年3月20日上交所受理宇树科技IPO申请，到6月1日上会，只间隔73天，如果顺利过会，宇树科技将跻身近年来科创板审核最快梯队。或成第一家在A股上市的人形机器人公司宇树科技此次IPO拟募资42.02亿元，按不低于10%的公开发行比例计算，整体估值预计达到420亿元。2016年，现任宇树科技董事长兼CEO王兴兴从上海大学毕
 
 ## 正文
 
-原标题：守护童心 筑梦未来——习近平总书记的深情寄望鼓舞新时代少年儿童成长成才 6月1日，亿万少年儿童迎来属于自己的节日。
+据上交所消息，宇树科技科创板IPO申请6月1日上会审议。
 
-当代中国少年儿童既是实现第一个百年奋斗目标的经历者、见证者，更是实现第二个百年奋斗目标、建设社会主义现代化强国的生力军。
+从今年3月20日上交所受理宇树科技IPO申请，到6月1日上会，只间隔73天，如果顺利过会，宇树科技将跻身近年来科创板审核最快梯队。
 
-“培养好少年儿童是一项战略任务，事关长远。
+或成第一家在A股上市的人形机器人公司宇树科技此次IPO拟募资42.02亿元，按不低于10%的公开发行比例计算，整体估值预计达到420亿元。
 
-”党的十八大以来，习近平总书记始终心系少年儿童成长成才，站在党和国家事业发展薪火相传、后继有人的高度，作出一系列重要指示，为新时代少年儿童事业发展提供根本遵循。
+2016年，现任宇树科技董事长兼CEO王兴兴从上海大学毕业，创立宇树科技。
 
-“十五五”规划纲要提出，推进儿童友好建设，营造关心关爱下一代的社会环境。
+近年来，经历三次春晚登台，一次人形机器人半程马拉松赛事夺冠，以及因突出的运控能力屡次在社交媒体出圈的短视频，宇树科技成为中国人形机器人赛道最受关注的企业之一。
 
-历史性的落笔，推动我国少年儿童事业进入新的发展阶段。
+此外，其关注度也来自于行业地位。
 
-在习近平总书记关心指引下，“祖国的花朵”向阳而生、绚丽绽放。
+根据宇树科技招股书，2025年，公司人形机器人出货量超过5500台（不含轮式双臂机器人），出货量全球第一。
 
-筑牢信仰根基——“努力成长为社会主义建设者和接班人” 在“六一”国际儿童节即将到来之际，习近平总书记给中共一大纪念馆、南湖革命纪念馆少先队红领巾讲解员回信，肯定了他们“用心用情讲述党的历史、革命故事和英雄事迹，厚植了爱党、爱国、爱社会主义的情感”。
+按照公开数据及第三方咨询机构的统计，其2025年出货量超过在港股上市的优必选和美国人形机器人代表企业特斯拉。
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 14:20 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 14:28 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 14:33 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 14:35 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 14:40 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 14:38 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 14:29 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 14:39 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 14:23 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 14:33 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 14:42 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 14:24 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 14:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 14:29 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 14:29 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 14:41 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 14:52 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 14:26 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 14:32 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 14:49 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 14:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 14:26 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 14:51 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:42 - [3D打印不是工业革命，它是……](http://www.blog.minike.top/Article/details/5907395934.shtml)
-- 2026-06-29 14:44 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/639233453038.shtml)
-- 2026-06-29 14:29 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.kurohicncr.top/Article/details/45885.shtml)
-- 2026-06-29 14:21 - [《昨夜将至》为何是悬疑黑马](https://www.share.kurohicncr.top/Article/details/70344403931.shtml)
-- 2026-06-29 14:26 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/027005448.shtml)
-- 2026-06-29 14:39 - [普京称考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/447686.shtml)
-- 2026-06-29 14:30 - [啊啊啊](https://www.share.minike.top/Article/details/9714519981.shtml)
-- 2026-06-29 14:25 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/669835255.shtml)
-- 2026-06-29 14:33 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/33811657.shtml)
-- 2026-06-29 14:46 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/8985315228.shtml)
-- 2026-06-29 14:32 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/86175.shtml)
-- 2026-06-29 14:42 - [南非老帅布罗斯的梦没能做完](https://www.blog.kurohicncr.top/Article/details/44296.shtml)
-- 2026-06-29 14:21 - [吴建豪老婆](https://www.blog.minike.top/Article/details/77666134927.shtml)
-- 2026-06-29 14:28 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/650327839.shtml)
-- 2026-06-29 14:20 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/8751281.shtml)
+- 2026-06-29 14:49 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.minike.top/Article/details/707662245935.shtml)
+- 2026-06-29 14:31 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/802831.shtml)
+- 2026-06-29 14:31 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/730525137794.shtml)
+- 2026-06-29 14:48 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.minike.top/Article/details/20317.shtml)
+- 2026-06-29 14:42 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/1071750618.shtml)
+- 2026-06-29 14:47 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/14079617304.shtml)
+- 2026-06-29 14:52 - [四川宜宾地震](https://www.share.minike.top/Article/details/17045461.shtml)
+- 2026-06-29 14:38 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/527748.shtml)
+- 2026-06-29 14:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/825389909.shtml)
+- 2026-06-29 14:37 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/717143403.shtml)
+- 2026-06-29 14:47 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/61145.shtml)
+- 2026-06-29 14:50 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/89007224239.shtml)
+- 2026-06-29 14:39 - [詹俊预测德国大胜巴拉圭](https://www.blog.minike.top/Article/details/429451694.shtml)
+- 2026-06-29 14:34 - [德国队前往比赛场地遭遇囧途](http://www.blog.minike.top/Article/details/41547000.shtml)
+- 2026-06-29 14:52 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/101703044307.shtml)

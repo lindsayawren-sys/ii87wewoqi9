@@ -1,46 +1,57 @@
-# 中金：汇丰控股维持跑赢行业评级 目标价170.80港元
+# 印尼华裔总会总主席黄印华：看好川渝发展潜力 冀深化中印尼合作
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中金发布研报称，维持汇丰控股（00005）盈利预测基本不变。公司交易于1.8x/1.7x 2026E/2027EP/B，该行维持170.80港元目标价不变，对应2.1x/2.0x2026E/2027EP/B与17.71%上行空间，维持跑赢行业评级。责任编辑：卢昱君
+中新网成都6月2日电 (记者 岳依桐)“东南亚侨商扎根当地、融通中外，是共建‘一带一路’不可替代的天然桥梁。”近日，专程赴蓉出席2026“一带一路”华侨华人合作发展大会的印尼华裔总会总主席、印尼FBL有限公司董事长黄印华在接受中新网记者专访时如是说。 谈及东南亚侨商侨社在共建“一带一路”中的独特价值，黄印华表示，东南亚华侨华人熟悉中国与住在国的文化、法律及市场环境，与当地政府、
 
 ## 正文
 
-中金发布研报称，维持汇丰控股（00005）盈利预测基本不变。
+中新网成都6月2日电 (记者 岳依桐)“东南亚侨商扎根当地、融通中外，是共建‘一带一路’不可替代的天然桥梁。
 
-公司交易于1.8x/1.7x 2026E/2027EP/B，该行维持170.80港元目标价不变，对应2.1x/2.0x2026E/2027EP/B与17.71%上行空间，维持跑赢行业评级。
+”近日，专程赴蓉出席2026“一带一路”华侨华人合作发展大会的印尼华裔总会总主席、印尼FBL有限公司董事长黄印华在接受中新网记者专访时如是说。
 
-责任编辑：卢昱君
+谈及东南亚侨商侨社在共建“一带一路”中的独特价值，黄印华表示，东南亚华侨华人熟悉中国与住在国的文化、法律及市场环境，与当地政府、工商界联系紧密，在促进互信、推动项目落地、化解文化差异等方面优势显著。
+
+黄印华指出，近年来中印尼合作持续深化，为侨企带来基础设施、数字经济、绿色能源、跨境电商等领域的广阔机遇，侨商可发挥“双向平台”作用，助力中国企业“走出去”、东南亚企业走进中国。
+
+在黄印华看来，中印尼经贸合作范畴当前正从传统贸易向高质量、科技化、绿色化升级。
+
+印尼工商界高度关注成渝地区双城经济圈发展，尤其看好川渝新能源、智能制造、数字经济、现代物流、农业科技及文旅等领域发展前景。
+
+他特别指出，川渝地区与东南亚在绿色能源领域的合作空间尤为广阔。
+
+“川渝完整的产业体系、优质的营商环境与强劲的科创实力，对侨资吸引力十足。
 
 ## 相关推荐
 
-- 2026-06-29 14:24 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 14:43 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 14:46 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 14:38 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 14:36 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 14:42 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 14:41 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 14:26 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 14:23 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 14:29 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 14:41 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 14:46 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 14:43 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 14:30 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 14:24 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 14:47 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 14:34 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 14:44 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 14:44 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 14:42 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 14:45 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:44 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/265674805042.shtml)
-- 2026-06-29 14:44 - [俄称继续推进 乌称打击俄军设施](http://www.blog.minike.top/Article/details/9956989697.shtml)
-- 2026-06-29 14:19 - [血糖高的人能吃西瓜吗](https://www.share.kurohicncr.top/Article/details/961746.shtml)
-- 2026-06-29 14:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/60128905.shtml)
-- 2026-06-29 14:46 - [金刚川](https://www.share.minike.top/Article/details/93068.shtml)
-- 2026-06-29 14:21 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/84970817761.shtml)
-- 2026-06-29 14:22 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/192686802494.shtml)
-- 2026-06-29 14:38 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/851519629.shtml)
-- 2026-06-29 14:18 - [绘画区你赢了](https://www.share.minike.top/Article/details/4330159.shtml)
-- 2026-06-29 14:19 - [美人鱼](https://www.share.minike.top/Article/details/4769838025.shtml)
-- 2026-06-29 14:27 - [航空运输旅客服务质量国标将实施](http://www.share.minike.top/Article/details/78477215.shtml)
-- 2026-06-29 14:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/286981.shtml)
-- 2026-06-29 14:22 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/8439341287.shtml)
-- 2026-06-29 14:47 - [国家体育总局政策法规司原副司长获刑](http://www.share.minike.top/Article/details/80340326893.shtml)
-- 2026-06-29 14:29 - [比亚迪市值为何蒸发8000亿](https://www.share.minike.top/Article/details/41729541035.shtml)
+- 2026-06-29 14:53 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/74030078359.shtml)
+- 2026-06-29 14:27 - [3D打印不是工业革命，它是……](https://www.blog.minike.top/Article/details/5845509662.shtml)
+- 2026-06-29 14:42 - [急先锋](http://www.share.minike.top/Article/details/3882111.shtml)
+- 2026-06-29 14:33 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/331530.shtml)
+- 2026-06-29 14:34 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/605272074.shtml)
+- 2026-06-29 14:49 - [105年初心滚烫](http://www.blog.minike.top/Article/details/412341.shtml)
+- 2026-06-29 14:29 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/3909090.shtml)
+- 2026-06-29 14:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/46969.shtml)
+- 2026-06-29 14:52 - [美的空调 卡bug](https://www.share.minike.top/Article/details/3253527.shtml)
+- 2026-06-29 14:50 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/840897067.shtml)
+- 2026-06-29 14:36 - [绘画区你赢了](http://www.blog.minike.top/Article/details/395570297930.shtml)
+- 2026-06-29 14:36 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/387256.shtml)
+- 2026-06-29 14:43 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/096116157.shtml)
+- 2026-06-29 14:40 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/08128048293.shtml)
+- 2026-06-29 14:29 - [记者暗访贵州和云南多个养老机构](https://www.share.kurohicncr.top/Article/details/78559323611.shtml)

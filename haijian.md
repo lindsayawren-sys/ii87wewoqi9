@@ -1,59 +1,60 @@
-# ATFX:美伊信号矛盾让市场不安 黄金跌超1%后继续承压
+# 想方设法“曲线入局” 散户投资者冀望从SpaceX上市分一杯羹
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 6月2日，ATFX：由于美国和伊朗释放出相互矛盾的信号，市场担忧美伊停火协议延长不如此前预期的乐观，通胀担忧的加剧继续推升美联储年内加息预期，债券收益率和美元走强，拖累黄金价格在6月开局下跌超过1%，今早亚市盘中延续承压。昨日原油价格大幅反弹，加剧了通胀担忧，这可能导致各国央行提高利率以抑制不断上涨的价格压力。 在霍尔木兹海峡附近冲突再度升级的背景下
+Tyler Woods当时确信自己发大财了。他投入Fundrise Innovation Fund （VCX）的2000美元，短短四天内就变成了76000美元。 “天哪，”这位就读于圣地亚哥州立大学的19岁学生心想，“我这下，算有钱了。” 他其实没有，或者至少目前还没有。 如今，越来越多的投资产品让普通投资者有机会投资未上市公司，而Woods及时入场，使他成为了这类新兴投资领域
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 6月2日，ATFX：由于美国和伊朗释放出相互矛盾的信号，市场担忧美伊停火协议延长不如此前预期的乐观，通胀担忧的加剧继续推升美联储年内加息预期，债券收益率和美元走强，拖累黄金价格在6月开局下跌超过1%，今早亚市盘中延续承压。
+Tyler Woods当时确信自己发大财了。
 
-昨日原油价格大幅反弹，加剧了通胀担忧，这可能导致各国央行提高利率以抑制不断上涨的价格压力。
+他投入Fundrise Innovation Fund （VCX）的2000美元，短短四天内就变成了76000美元。
 
-在霍尔木兹海峡附近冲突再度升级的背景下，美国总统特朗普表示，与伊朗的谈判正在“快速推进”，以此回应德黑兰此前暂停外交斡旋并彻底。
+“天哪，”这位就读于圣地亚哥州立大学的19岁学生心想，“我这下，算有钱了。
 
-据彭社报道，特朗普和以色列总理本雅明·内塔尼亚乌对有关黎巴嫩战事的通话也给出了不同的说法，这凸显了围绕结束这场冲突的谈判的混乱局面。
+” 他其实没有，或者至少目前还没有。
 
-这场冲突引发了全球能源危机，如今已进入第四个月。
+如今，越来越多的投资产品让普通投资者有机会投资未上市公司，而Woods及时入场，使他成为了这类新兴投资领域的尝鲜者之一。
 
-机构指出，即便达成潜在协议，能源市场供应仍可能保持紧张，价格也将得到支撑。
+VCX持有全球一些最具价值的初创公司股份，包括OpenAI、Anthropic和SpaceX。
 
-这表明，此前对贵金属市场构成压力的宏观经济逆风因素仍将持续存在。
+从历史上看，散户投资者在那些备受瞩目的公司上市之前，鲜有机会能够参与其中。
 
-虽然黄金通常被视为对冲通胀的工具，但在高利率环境下，由于黄金不产生收益，其吸引力往往会减弱。
+但一种新兴类型的投资工具正试图改变这一现状。
 
 ## 相关推荐
 
-- 2026-06-29 14:23 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 14:29 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 14:23 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 14:45 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 14:37 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 14:46 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 14:38 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 14:24 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 14:23 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 14:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 14:40 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 14:44 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 14:22 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 14:47 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 14:46 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 14:32 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 14:45 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 14:25 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 14:51 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 14:31 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 14:26 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 14:38 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 14:47 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 14:45 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 14:41 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 14:32 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 14:50 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:27 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/71396673.shtml)
-- 2026-06-29 14:27 - [记者暗访贵州和云南多个养老机构](https://www.share.kurohicncr.top/Article/details/946722498.shtml)
-- 2026-06-29 14:25 - [媒体人：警惕日本再次成战争加害国](https://www.blog.minike.top/Article/details/81379537709.shtml)
-- 2026-06-29 14:19 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/501722376.shtml)
-- 2026-06-29 14:45 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/43015.shtml)
-- 2026-06-29 14:40 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/2944125392.shtml)
-- 2026-06-29 14:33 - [陈靖可虞书欣领衔主演](https://www.share.minike.top/Article/details/292082987364.shtml)
-- 2026-06-29 14:22 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/8853839229.shtml)
-- 2026-06-29 14:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/95926.shtml)
-- 2026-06-29 14:30 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/594839.shtml)
-- 2026-06-29 14:21 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/0348220.shtml)
-- 2026-06-29 14:26 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/3238711.shtml)
-- 2026-06-29 14:41 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/151704.shtml)
-- 2026-06-29 14:40 - [周杰伦演唱会真的好多人啊](https://www.blog.kurohicncr.top/Article/details/35798.shtml)
-- 2026-06-29 14:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/40922776.shtml)
+- 2026-06-29 14:43 - [四川宜宾地震](https://www.blog.minike.top/Article/details/4786927003.shtml)
+- 2026-06-29 14:31 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/45865891.shtml)
+- 2026-06-29 14:46 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/92083867.shtml)
+- 2026-06-29 14:51 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/2450486810.shtml)
+- 2026-06-29 14:37 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/218730.shtml)
+- 2026-06-29 14:31 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.minike.top/Article/details/38378812.shtml)
+- 2026-06-29 14:53 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/115961505384.shtml)
+- 2026-06-29 14:45 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.minike.top/Article/details/31857.shtml)
+- 2026-06-29 14:48 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/101914.shtml)
+- 2026-06-29 14:28 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/38902.shtml)
+- 2026-06-29 14:37 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/005984361431.shtml)
+- 2026-06-29 14:48 - [沙丘](http://www.share.minike.top/Article/details/344846.shtml)
+- 2026-06-29 14:42 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/067663012098.shtml)
+- 2026-06-29 14:36 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/979681.shtml)
+- 2026-06-29 14:48 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/8067000.shtml)

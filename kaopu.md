@@ -1,59 +1,56 @@
-# 陈映玲：在“时光的残忍”里，守住一声“奴啊”
+# 伯克希尔68亿美元收购Taylor Morrison
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电 题：陈映玲：在“时光的残忍”里，守住一声“奴啊” 中新网记者 徐文欣 “很多人老了以后，那种对故乡的思念和对时光流逝的无力感，会变得特别强烈。看着他们，我很心疼，所以想把他们的故事记录下来。”短视频账号“泰国V姐”创作者陈映玲日前接受中国侨网“华人故事”栏目专访时说道。 无心插柳，做时光的记录者 陈映玲的父母早年定居泰国，她自幼在泰中两国间往返生活、读书，
+伯克希尔・哈撒韦公司将以全现金方式收购住宅建筑商Taylor Morrison住宅公司，交易总额约 68 亿美元。这是首席执行官格雷格・阿贝尔上任后的首笔重大收购，也体现出其对美国房地产市场的信心。 本次收购报价为每股普通股 72.50 美元，较该股上周五收盘价溢价 24%。这也是伯克希尔自今年 1 月收购西方石油石化业务以来，达成的规模最大一笔交易。 阿贝尔在周日的声明中表示
 
 ## 正文
 
-中新网北京6月2日电 题：陈映玲：在“时光的残忍”里，守住一声“奴啊” 中新网记者 徐文欣 “很多人老了以后，那种对故乡的思念和对时光流逝的无力感，会变得特别强烈。
+伯克希尔・哈撒韦公司将以全现金方式收购住宅建筑商Taylor Morrison住宅公司，交易总额约 68 亿美元。
 
-看着他们，我很心疼，所以想把他们的故事记录下来。
+这是首席执行官格雷格・阿贝尔上任后的首笔重大收购，也体现出其对美国房地产市场的信心。
 
-”短视频账号“泰国V姐”创作者陈映玲日前接受中国侨网“华人故事”栏目专访时说道。
+本次收购报价为每股普通股 72.50 美元，较该股上周五收盘价溢价 24%。
 
-无心插柳，做时光的记录者 陈映玲的父母早年定居泰国，她自幼在泰中两国间往返生活、读书，从小耳濡目染侨社事务。
+这也是伯克希尔自今年 1 月收购西方石油石化业务以来，达成的规模最大一笔交易。
 
-如今她也担任泰国中华总商会会董、泰国华商中心执行主任等侨社职务。
+阿贝尔在周日的声明中表示：“我们很高兴将Taylor Morrison纳入伯克希尔的业务版图。
 
-三年前，陈映玲开始拍摄短视频，记录身边的故事。
+未来我们计划整合旗下自建住宅业务，打造统一运营平台，助力更多美国人实现安居梦想。
 
-谈及初心，她说，看到一些老前辈身体越来越差，心里很不是滋味。
+” 周一纽约盘前交易时段，Taylor Morrison股价最高上涨 23%，报 71.75 美元；伯克希尔 B 类股则基本持平。
 
-再不记录下来，他们的故事可能就再也听不到了。
+传奇投资人沃伦・巴菲特于去年卸任，阿贝尔接掌伯克希尔后，此次是其完成的首笔数十亿美元级收购。
 
 ## 相关推荐
 
-- 2026-06-29 14:35 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 14:43 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 14:32 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 14:35 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 14:45 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 14:19 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 14:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 14:36 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 14:22 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 14:34 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 14:47 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 14:45 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 14:36 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 14:26 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 14:25 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 14:53 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 14:33 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 14:27 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 14:51 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 14:47 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 14:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 14:40 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 14:50 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:18 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.minike.top/Article/details/910984745792.shtml)
-- 2026-06-29 14:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/3512974788.shtml)
-- 2026-06-29 14:36 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/256261.shtml)
-- 2026-06-29 14:33 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/11196.shtml)
-- 2026-06-29 14:37 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/090327099.shtml)
-- 2026-06-29 14:28 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/094284.shtml)
-- 2026-06-29 14:25 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.minike.top/Article/details/53115273961.shtml)
-- 2026-06-29 14:32 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/197996978.shtml)
-- 2026-06-29 14:33 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/243184149.shtml)
-- 2026-06-29 14:47 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/40408086.shtml)
-- 2026-06-29 14:38 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/960548589.shtml)
-- 2026-06-29 14:36 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/97926016331.shtml)
-- 2026-06-29 14:29 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/5274326.shtml)
-- 2026-06-29 14:18 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/0400221.shtml)
-- 2026-06-29 14:19 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.minike.top/Article/details/50318478130.shtml)
+- 2026-06-29 14:40 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/2525576024.shtml)
+- 2026-06-29 14:48 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/1054274.shtml)
+- 2026-06-29 14:49 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/64381210.shtml)
+- 2026-06-29 14:35 - [海军舰艇编队将赴香港](http://www.share.minike.top/Article/details/0044371.shtml)
+- 2026-06-29 14:32 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/36543576.shtml)
+- 2026-06-29 14:53 - [爱很美味](https://www.share.minike.top/Article/details/28016.shtml)
+- 2026-06-29 14:31 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/0109028848.shtml)
+- 2026-06-29 14:28 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.kurohicncr.top/Article/details/56055021.shtml)
+- 2026-06-29 14:24 - [TOP 无畏契约](https://www.share.kurohicncr.top/Article/details/9336403.shtml)
+- 2026-06-29 14:53 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/526324.shtml)
+- 2026-06-29 14:45 - [宜宾5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/76333249062.shtml)
+- 2026-06-29 14:42 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/94799857813.shtml)
+- 2026-06-29 14:43 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/105162667.shtml)
+- 2026-06-29 14:33 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/2876343.shtml)
+- 2026-06-29 14:43 - [女心理师](http://www.share.kurohicncr.top/Article/details/27090313321.shtml)

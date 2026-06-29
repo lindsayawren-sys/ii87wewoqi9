@@ -1,56 +1,60 @@
-# 股价4天涨40%、全年算力利润仅7万，4只电力牛股集体“自泼冷水”
+# 上海虹桥国际志愿服务联盟绘就基层民主新图景
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-连收4个涨停板的粤电力A（000539.SZ）6月1日晚火速发布风险提示和澄清公告，直指近期多个网传消息存在夸大成分、不实信息及误导性可能。 粤电力A称，目前公司基本面未发生重大变化，5月27日至6月1日期间公司股票价格短期快速上涨且累计涨幅达40.05%，显著偏离大盘指数及市场走势，公司滚动市盈率明显高于同行业水平，存在市场情绪过热及非理性炒作情形。 近期，“股吧”等平台个别
+中新网上海6月1日电 (记者 李佳佳)6月1日，“同心同行 爱在虹桥”——活力IN虹桥国际志愿服务联盟分享会暨2026年古北太太慈善义卖在上海古北市民中心温情启幕。上海长宁区虹桥街道与浙江义乌江东街道跨城联动，复盘联盟成长硕果，展现新时代基层治理与多元融合的生动实践。 活力IN虹桥国际志愿服务联盟自成立以来，坚持共建共治共享，以志愿服务为纽带，打破语言隔阂、消融文化差异，推动国
 
 ## 正文
 
-连收4个涨停板的粤电力A（000539.SZ）6月1日晚火速发布风险提示和澄清公告，直指近期多个网传消息存在夸大成分、不实信息及误导性可能。
+中新网上海6月1日电 (记者 李佳佳)6月1日，“同心同行 爱在虹桥”——活力IN虹桥国际志愿服务联盟分享会暨2026年古北太太慈善义卖在上海古北市民中心温情启幕。
 
-粤电力A称，目前公司基本面未发生重大变化，5月27日至6月1日期间公司股票价格短期快速上涨且累计涨幅达40.05%，显著偏离大盘指数及市场走势，公司滚动市盈率明显高于同行业水平，存在市场情绪过热及非理性炒作情形。
+上海长宁区虹桥街道与浙江义乌江东街道跨城联动，复盘联盟成长硕果，展现新时代基层治理与多元融合的生动实践。
 
-近期，“股吧”等平台个别用户发表关于粤电力A新疆克拉玛依项目直接对标“东数西算”、广东本地直供韶关算力集群、2026-2027年再增500万千瓦风光等言论，粤电力A逐一辟谣。
+活力IN虹桥国际志愿服务联盟自成立以来，坚持共建共治共享，以志愿服务为纽带，打破语言隔阂、消融文化差异，推动国际社区治理从多元并存迈向深度融合，交出亮眼答卷： ——规模扩容，多元协同格局成型。
 
-其一，否认新疆项目直接对标“东数西算”。
+联盟成员单位持续壮大，中外志愿者队伍不断扩充，覆盖国际学校、文化机构、公益组织、社区团队等多元主体，民主参与覆盖面持续拓宽。
 
-粤电力A表示，其所投资的新疆克拉玛依项目为30万千瓦光伏电站（含10%/2h储能）及500PFlops算力项目。
+——服务深耕，公益触角全域延伸。
 
-项目总投资约9.24亿元，其中光伏（含储能）投资约 8.24 亿元，算力投资约1亿元。
+常态化开展志愿服务百余场，覆盖无偿献血、先心病救助、文化传承、环保行动、社区治理、助老扶弱等领域，惠及中外居民数千人次，让善意浸润社区每个角落。
 
-2025年该项目算力租赁收入911.5万元，占公司2025年营业收入比例0.02%，利润7.22万元，占公司2025年归属于母公司股东的净利润比例0.01%。
+——品牌擦亮，国际影响力持续出圈。
 
-2026年1-3月该项目算力租赁收入273.58万元。
+Bloodline(血缘)无偿献血、“乐贤荟”先心病救助、古北太太慈善义卖、国际文化交流等特色项目深入人心，成为虹桥国际化治理的闪亮名片。
 
 ## 相关推荐
 
-- 2026-06-29 14:25 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 14:21 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 14:45 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 14:44 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 14:18 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 14:24 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 14:37 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 14:28 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 14:18 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 14:39 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 14:43 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 14:31 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 14:32 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 14:47 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 14:35 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 14:52 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 14:29 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 14:38 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 14:45 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 14:47 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 14:36 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 14:30 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 14:53 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 14:36 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:18 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/37506.shtml)
-- 2026-06-29 14:27 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/4079033281.shtml)
-- 2026-06-29 14:46 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/6318366189.shtml)
-- 2026-06-29 14:22 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/022632469.shtml)
-- 2026-06-29 14:27 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/24349135205.shtml)
-- 2026-06-29 14:23 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/379067494426.shtml)
-- 2026-06-29 14:18 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/6326120.shtml)
-- 2026-06-29 14:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/64760604414.shtml)
-- 2026-06-29 14:31 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.kurohicncr.top/Article/details/677227.shtml)
-- 2026-06-29 14:18 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/32497293.shtml)
-- 2026-06-29 14:45 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/31566470561.shtml)
-- 2026-06-29 14:22 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/8280008589.shtml)
-- 2026-06-29 14:44 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/940385204.shtml)
-- 2026-06-29 14:43 - [李连杰回应网传不管前妻俩女儿](https://www.share.kurohicncr.top/Article/details/7113218.shtml)
-- 2026-06-29 14:46 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/26654629383.shtml)
+- 2026-06-29 14:53 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/141679.shtml)
+- 2026-06-29 14:52 - [航空运输旅客服务质量国标将实施](http://www.blog.kurohicncr.top/Article/details/8043969331.shtml)
+- 2026-06-29 14:29 - [实习期把公司领导开除了](https://www.share.minike.top/Article/details/92425505864.shtml)
+- 2026-06-29 14:51 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/386023.shtml)
+- 2026-06-29 14:39 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.minike.top/Article/details/677899306330.shtml)
+- 2026-06-29 14:48 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/21824203129.shtml)
+- 2026-06-29 14:39 - [志愿选择倒计时！浙大学生送祝福](http://www.share.minike.top/Article/details/08709477420.shtml)
+- 2026-06-29 14:30 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/320790967400.shtml)
+- 2026-06-29 14:35 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/303215464348.shtml)
+- 2026-06-29 14:24 - [韩国队启程回国众将回避镜头](https://www.blog.minike.top/Article/details/77661.shtml)
+- 2026-06-29 14:37 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/0917941063.shtml)
+- 2026-06-29 14:51 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/5256392750.shtml)
+- 2026-06-29 14:45 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/15462606.shtml)
+- 2026-06-29 14:32 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/0883529.shtml)
+- 2026-06-29 14:27 - [斛珠夫人](https://www.share.minike.top/Article/details/06272252369.shtml)

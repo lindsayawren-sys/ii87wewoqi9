@@ -1,51 +1,46 @@
-# 中信银行：2025年度每股派0.193元（含税） 6月10日除权除息
+# 世卫组织呼吁向埃博拉疫区提供国际支持
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-6月2日金融一线消息，中信银行发布2025年年度A股普通股分红派息实施公告，2025年年度A股每股派发现金红利0.193元（含税），股权登记日为2026年6月9日，除权（息）日及现金红利发放日均为2026年6月10日。 本次分红以普通股总股本为基数派发，加上此前已派发的2025年中期现金红利，该行2025年全年每股现金红利合计0.381元（含税）。 责任编辑：秦艺
+发布时间：2026年06月01日 09:16 来源：央视综合 责任编辑：【王祎】
 
 ## 正文
 
-6月2日金融一线消息，中信银行发布2025年年度A股普通股分红派息实施公告，2025年年度A股每股派发现金红利0.193元（含税），股权登记日为2026年6月9日，除权（息）日及现金红利发放日均为2026年6月10日。
-
-本次分红以普通股总股本为基数派发，加上此前已派发的2025年中期现金红利，该行2025年全年每股现金红利合计0.381元（含税）。
-
-责任编辑：秦艺
+发布时间：2026年06月01日 09:16 来源：央视综合 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 14:32 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 14:28 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 14:30 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 14:36 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 14:22 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 14:48 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 14:40 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 14:38 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 14:36 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 14:27 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 14:35 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 14:35 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 14:42 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 14:44 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 14:29 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 14:27 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 14:45 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 14:25 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 14:28 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 14:41 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 14:51 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 14:35 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 14:26 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 14:40 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 14:39 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 14:48 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 14:26 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 14:49 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 14:25 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:28 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.kurohicncr.top/Article/details/9610691461.shtml)
-- 2026-06-29 14:39 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.kurohicncr.top/Article/details/423181844739.shtml)
-- 2026-06-29 14:47 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/77186890469.shtml)
-- 2026-06-29 14:25 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/6650344553.shtml)
-- 2026-06-29 14:18 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/4535356.shtml)
-- 2026-06-29 14:34 - [媒体评恋与深空争议](http://www.share.kurohicncr.top/Article/details/9043503.shtml)
-- 2026-06-29 14:39 - [詹俊预测德国大胜巴拉圭](https://www.blog.minike.top/Article/details/7744134498.shtml)
-- 2026-06-29 14:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/26224.shtml)
-- 2026-06-29 14:45 - [马斯克也站到了光里](https://www.share.minike.top/Article/details/34897.shtml)
-- 2026-06-29 14:18 - [美国近12万名科技员工被解雇](http://www.blog.minike.top/Article/details/64991236.shtml)
-- 2026-06-29 14:43 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/589990767827.shtml)
-- 2026-06-29 14:31 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/245381460.shtml)
-- 2026-06-29 14:34 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/855865.shtml)
-- 2026-06-29 14:28 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.minike.top/Article/details/4443895367.shtml)
-- 2026-06-29 14:30 - [媒体：高考后消费应量力而行适度有度](https://www.share.minike.top/Article/details/02133497215.shtml)
+- 2026-06-29 14:38 - [105年初心滚烫](https://www.blog.minike.top/Article/details/580298812019.shtml)
+- 2026-06-29 14:26 - [森保一：日本队要亲手改写历史](https://www.share.minike.top/Article/details/351910033.shtml)
+- 2026-06-29 14:27 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/077322.shtml)
+- 2026-06-29 14:46 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/3994008.shtml)
+- 2026-06-29 14:41 - [手游300亿数据或被军事化运用](https://www.blog.minike.top/Article/details/997649827599.shtml)
+- 2026-06-29 14:47 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/091422717.shtml)
+- 2026-06-29 14:42 - [中国邮政上海分公司总经理李柏平被查](https://www.share.minike.top/Article/details/74816397930.shtml)
+- 2026-06-29 14:26 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/430669234003.shtml)
+- 2026-06-29 14:42 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/491505526.shtml)
+- 2026-06-29 14:48 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/82121166.shtml)
+- 2026-06-29 14:47 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/913631625.shtml)
+- 2026-06-29 14:42 - [佛得角到底在哪个“角”](http://www.share.minike.top/Article/details/37373897687.shtml)
+- 2026-06-29 14:49 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/93427.shtml)
+- 2026-06-29 14:34 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/00089.shtml)
+- 2026-06-29 14:41 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/59335214651.shtml)

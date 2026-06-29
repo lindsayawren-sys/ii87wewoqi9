@@ -1,58 +1,56 @@
-# 两名9岁女孩被困电梯，求救几十次无果，谁来担责？律师说法
+# 土耳其一艘载148人游船起火沉没 乘客被迫跳船
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-两名9岁女孩被困电梯，求救几十次无果！律师：物业公司不能因“辞退员工”免责 近日，浙江杭州临平某小区两名9岁女孩被困电梯2小时一事，引发广泛关注。据浙江广播电视集团“1818黄金眼”报道，两名被困女孩轮流按求助键大约35到50次，物业公司保安接到了孩子的求助电话，却一直无动于衷，还让孩子“别再按电梯玩”。 对此，物业公司回应称，因通信信号不佳，加上接通后话筒未妥善归位，导致后续
+中新网6月1日电 据外媒报道，当地时间5月29日，土耳其一艘载有148人的游船起火后沉入大海，突如其来的危急情况迫使乘客跳船自救。 据报道，涉事船只是一艘海盗主题游船，事发地点位于土耳其海岸附近的地中海海域。 该船从度假城市马尔马里斯出发，但启航后不久，在天堂岛附近开始进水。 附近船只上游客拍摄的惊险画面显示，这艘船在岩石海岸附近起火并剧烈侧倾，随后消失在水下。到最后，只有船桅
 
 ## 正文
 
-两名9岁女孩被困电梯，求救几十次无果！
+中新网6月1日电 据外媒报道，当地时间5月29日，土耳其一艘载有148人的游船起火后沉入大海，突如其来的危急情况迫使乘客跳船自救。
 
-律师：物业公司不能因“辞退员工”免责 近日，浙江杭州临平某小区两名9岁女孩被困电梯2小时一事，引发广泛关注。
+据报道，涉事船只是一艘海盗主题游船，事发地点位于土耳其海岸附近的地中海海域。
 
-据浙江广播电视集团“1818黄金眼”报道，两名被困女孩轮流按求助键大约35到50次，物业公司保安接到了孩子的求助电话，却一直无动于衷，还让孩子“别再按电梯玩”。
+该船从度假城市马尔马里斯出发，但启航后不久，在天堂岛附近开始进水。
 
-对此，物业公司回应称，因通信信号不佳，加上接通后话筒未妥善归位，导致后续呼救信号未能传入监控中心，延误了救援时机。
+附近船只上游客拍摄的惊险画面显示，这艘船在岩石海岸附近起火并剧烈侧倾，随后消失在水下。
 
-目前已对直接责任人予以劝退处理，并立即组织物业公司全员应急培训，后续将全面排查所有电梯设备隐患，升级应急救援流程。
+到最后，只有船桅的顶端还露出水面。
 
-被困两小时、多次求救却未引起重视，孩子因此受到伤害，谁来担责？
-
-物业公司能否因“辞退涉事人员”免除责任？
-
-对此，《法治日报》律师专家库成员、北京市康达律师事务所高级合伙人孙振勇接受《法治日报》记者采访，带来专业解读。
+乘客被迫跳入周围的水中，所有乘客和船员都被救援队安全送上岸，游船在约一小时内完全沉没。
 
 ## 相关推荐
 
-- 2026-06-29 14:25 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 14:28 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 14:33 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 14:34 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 14:30 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 14:35 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 14:44 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 14:31 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 14:40 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 14:28 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-29 14:33 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 14:19 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 14:25 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 14:40 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 14:50 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 14:40 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 14:32 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 14:47 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 14:36 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 14:27 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 14:36 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 14:33 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 14:40 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 14:34 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 14:33 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 14:49 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:33 - [李在明称韩国足协任命了无能之人](https://www.share.minike.top/Article/details/21867.shtml)
-- 2026-06-29 14:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/82039367191.shtml)
-- 2026-06-29 14:46 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/26402930.shtml)
-- 2026-06-29 14:28 - [上班主打一个薪尽自然凉](http://www.blog.minike.top/Article/details/1760111.shtml)
-- 2026-06-29 14:28 - [105年初心滚烫](http://www.blog.minike.top/Article/details/69981.shtml)
-- 2026-06-29 14:23 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/527548582748.shtml)
-- 2026-06-29 14:38 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/6730301401.shtml)
-- 2026-06-29 14:37 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/17746166052.shtml)
-- 2026-06-29 14:46 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.kurohicncr.top/Article/details/66724622.shtml)
-- 2026-06-29 14:34 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/644875163.shtml)
-- 2026-06-29 14:20 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/2495441571.shtml)
-- 2026-06-29 14:40 - [行程万里不忘初心](http://www.blog.minike.top/Article/details/86693956.shtml)
-- 2026-06-29 14:27 - [美人鱼](https://www.share.kurohicncr.top/Article/details/7575501406.shtml)
-- 2026-06-29 14:21 - [F1奥地利正赛战报](http://www.share.minike.top/Article/details/968864.shtml)
-- 2026-06-29 14:38 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/932969.shtml)
+- 2026-06-29 14:38 - [欧委会总部只给高层开空调](http://www.blog.minike.top/Article/details/97965977195.shtml)
+- 2026-06-29 14:46 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/025204601528.shtml)
+- 2026-06-29 14:31 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/652236312095.shtml)
+- 2026-06-29 14:43 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/6628732.shtml)
+- 2026-06-29 14:48 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/4951988.shtml)
+- 2026-06-29 14:35 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/28735434215.shtml)
+- 2026-06-29 14:26 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/44704892239.shtml)
+- 2026-06-29 14:50 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/600717032.shtml)
+- 2026-06-29 14:48 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/43967.shtml)
+- 2026-06-29 14:33 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/579420.shtml)
+- 2026-06-29 14:25 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/914110.shtml)
+- 2026-06-29 14:40 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/382134335.shtml)
+- 2026-06-29 14:36 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/54881296.shtml)
+- 2026-06-29 14:28 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/42293.shtml)
+- 2026-06-29 14:49 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/2634545140.shtml)

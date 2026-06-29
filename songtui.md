@@ -1,60 +1,60 @@
-# 好评中国｜一场“东北超”何以让文旅“破圈”
+# 早盘：美股小幅下滑 标普指数下跌0.1%
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-足球的魅力，究竟在哪里？ 对于很多球迷来说，是90分钟里屏住呼吸的紧张，是进球瞬间爆发的狂喜，是终场哨响后或释然或遗憾的叹息。但如果有人告诉你，一场足球赛的真正“剧情”，从终场哨响后才刚刚开始，你信不信？ 5月31日，2026年东北地区城市足球联赛(东北超)长春赛区第二轮比赛，在长春奥林匹克公园体育场激情上演。长春队主场迎战大连队，场内呐喊如潮，激情四溢。在赛场之外，上演了另一
+北京时间6月1日晚，美股周一早盘小幅下滑。伊朗因抗议以色列的罪行而暂停与美国的信息交流后，美国WTI与伦敦布伦特原油价格迅速拉升。 道指跌48.94点，跌幅为0.10%，报50983.52点；纳指跌27.64点，跌幅为0.10%，报26944.98点；标普500指数跌5.80点，跌幅为0.08%，报7574.26点。 英伟达在发布新款个人电脑处理器后股价上涨逾2%。戴尔科技和惠
 
 ## 正文
 
-足球的魅力，究竟在哪里？
+北京时间6月1日晚，美股周一早盘小幅下滑。
 
-对于很多球迷来说，是90分钟里屏住呼吸的紧张，是进球瞬间爆发的狂喜，是终场哨响后或释然或遗憾的叹息。
+伊朗因抗议以色列的罪行而暂停与美国的信息交流后，美国WTI与伦敦布伦特原油价格迅速拉升。
 
-但如果有人告诉你，一场足球赛的真正“剧情”，从终场哨响后才刚刚开始，你信不信？
+道指跌48.94点，跌幅为0.10%，报50983.52点；纳指跌27.64点，跌幅为0.10%，报26944.98点；标普500指数跌5.80点，跌幅为0.08%，报7574.26点。
 
-5月31日，2026年东北地区城市足球联赛(东北超)长春赛区第二轮比赛，在长春奥林匹克公园体育场激情上演。
+英伟达在发布新款个人电脑处理器后股价上涨逾2%。
 
-长春队主场迎战大连队，场内呐喊如潮，激情四溢。
+戴尔科技和惠普公司跟随英伟达走高，分别上涨超1%和约4%。
 
-在赛场之外，上演了另一场更值得玩味的“加时赛”，一场关于城市文旅的“加时赛”。
+英伟达发布新款PC处理器的消息，引发芯片市场格局剧变，传统芯片巨头股价遭遇重挫。
 
-“看一场球”之外的惊喜，藏着长春文旅的“小心思”。
+多年来主导PC芯片市场的英特尔则下跌逾6%。
 
-在长春奥林匹克公园体育场外，长春文旅特色展区成为有“内容”的存在，这里有一幕幕让人忍不住掏出手机、掏出钱包的“沉浸式体验”。
+高通股价大跌9%。
 
 ## 相关推荐
 
-- 2026-06-29 14:40 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 14:37 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 14:29 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 14:32 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 14:38 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 14:41 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 14:28 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 14:34 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 14:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 14:22 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 14:46 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 14:35 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 14:18 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 14:45 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 14:41 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 14:37 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 14:30 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 14:28 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 14:51 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 14:30 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 14:48 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 14:34 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 14:36 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 14:47 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 14:53 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 14:29 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 14:27 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 14:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:27 - [航空运输旅客服务质量国标将实施](http://www.share.kurohicncr.top/Article/details/084875533.shtml)
-- 2026-06-29 14:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/3983478554.shtml)
-- 2026-06-29 14:32 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/308561250041.shtml)
-- 2026-06-29 14:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/19227436.shtml)
-- 2026-06-29 14:46 - [民进党为什么拼命抹黑统战](http://www.blog.minike.top/Article/details/425765259044.shtml)
-- 2026-06-29 14:43 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/16451278687.shtml)
-- 2026-06-29 14:48 - [84岁英国教授成中国网红](http://www.blog.minike.top/Article/details/4105909.shtml)
-- 2026-06-29 14:19 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/226736.shtml)
-- 2026-06-29 14:31 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/85957.shtml)
-- 2026-06-29 14:33 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/75665954175.shtml)
-- 2026-06-29 14:37 - [沙特足协主席发布声明主动请辞](https://www.share.kurohicncr.top/Article/details/5147358491.shtml)
-- 2026-06-29 14:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/66194.shtml)
-- 2026-06-29 14:20 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/2952429.shtml)
-- 2026-06-29 14:43 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/70452.shtml)
-- 2026-06-29 14:20 - [爱很美味](http://www.share.kurohicncr.top/Article/details/95803745966.shtml)
+- 2026-06-29 14:35 - [国家体育总局政策法规司原副司长获刑](https://www.blog.kurohicncr.top/Article/details/6128207.shtml)
+- 2026-06-29 14:39 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/62964597678.shtml)
+- 2026-06-29 14:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/36936.shtml)
+- 2026-06-29 14:51 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/447254413.shtml)
+- 2026-06-29 14:26 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/1991429.shtml)
+- 2026-06-29 14:34 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/46466805.shtml)
+- 2026-06-29 14:50 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/59415.shtml)
+- 2026-06-29 14:27 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/148161.shtml)
+- 2026-06-29 14:26 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/98576242.shtml)
+- 2026-06-29 14:26 - [3D打印不是工业革命，它是……](http://www.share.kurohicncr.top/Article/details/36002663.shtml)
+- 2026-06-29 14:49 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/85151063.shtml)
+- 2026-06-29 14:25 - [上班主打一个薪尽自然凉](https://www.share.minike.top/Article/details/129958895.shtml)
+- 2026-06-29 14:31 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/3612343.shtml)
+- 2026-06-29 14:53 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/4694914.shtml)
+- 2026-06-29 14:40 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.kurohicncr.top/Article/details/342781.shtml)

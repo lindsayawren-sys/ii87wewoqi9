@@ -1,61 +1,61 @@
-# 2026沈阳机器人大会开幕 中外嘉宾共探智造未来
+# 光大期货0602黄金点评：地缘局势反复，金价弱势运行
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中新社沈阳6月1日电 (姜月恒 刁海洋 姚小辉)2026沈阳机器人大会6月1日在沈阳举行。中外知名专家学者，韩国、德国、爱尔兰等国家的40余位代表，80余家机器人领域企业负责人，在大会上以“新质引领发展，智造链接未来”为主题展开探讨。走进机器人大会展区，参会企业的近百件智能产品令人应接不暇。在沈阳粼动仿生科技的展台前，一款海龟两栖机器人吸引众人目光。工作人员告诉记者，企业针对传
+6月1日，COMEX黄金震荡下行，报收4514.8美元/盎司，跌幅1.70%。国内SHFE金夜盘先跌后涨，但仍未收回日盘跌幅，报收980.34元/克，跌幅1.28%。 美国5月ISM制造业新订单指数56.8，大幅高于预期 54.8和前值 54.1，连续五个月扩张，其中新订单增速加速至四个月高位，就业指数有所改善，但通胀压力仍然存在。地缘政治方面，为抗议以军扩大在黎行动，据伊媒称
 
 ## 正文
 
-中新社沈阳6月1日电 (姜月恒 刁海洋 姚小辉)2026沈阳机器人大会6月1日在沈阳举行。
+6月1日，COMEX黄金震荡下行，报收4514.8美元/盎司，跌幅1.70%。
 
-中外知名专家学者，韩国、德国、爱尔兰等国家的40余位代表，80余家机器人领域企业负责人，在大会上以“新质引领发展，智造链接未来”为主题展开探讨。
+国内SHFE金夜盘先跌后涨，但仍未收回日盘跌幅，报收980.34元/克，跌幅1.28%。
 
-走进机器人大会展区，参会企业的近百件智能产品令人应接不暇。
+美国5月ISM制造业新订单指数56.8，大幅高于预期 54.8和前值 54.1，连续五个月扩张，其中新订单增速加速至四个月高位，就业指数有所改善，但通胀压力仍然存在。
 
-在沈阳粼动仿生科技的展台前，一款海龟两栖机器人吸引众人目光。
+地缘政治方面，为抗议以军扩大在黎行动，据伊媒称伊朗将暂停与美国通过中间人沟通，计划彻底封锁霍尔木兹海峡；但特朗普则称美伊或于一周内达成协议，延长停火并重开霍尔木兹海峡。
 
-工作人员告诉记者，企业针对传统机器人在水陆交界场景易陷、易滑等痛点设计了仿生海龟机器人，该产品从海龟卓越的两栖适应性中汲取灵感，实现从“单一介质”到“跨介质自主”的跨越。
+地缘政治的反复性使得金价走势再次面临不确定性，另外虽然美伊谈判取得一定突破，但霍尔木兹海峡通航问题及中东炼油措施损毁仍约束着油价，这也就意味着美通胀预期仍偏高，美联储整体或仍偏鹰，追涨风险度仍较高。
 
-本届大会聚焦具身智能、人形仿生、人机协同等前沿赛道。
+特别是在美联储6月议息前后，宜谨慎看待，同时降低上半年预期。
 
-大会期间，将组织6场应用场景对接活动，包括中韩机器人企业B2B对接、科研成果与产业需求对接、产学研深度融合研讨、京沈智能制造企业合作对接、中韩“人工智能+食品加工”产业对接及“零距离”探秘智造前沿活动，推动科创成果与市场需求精准匹配，加速前沿技术从实验室走向产业化与场景化落地。
+本周重点关注美国5月非农就业数据对盘面的指引。
 
-韩国高丽大学工科学院产业经营工学部名誉教授张东植认为，AI和机器人相结合，类人机器人的应用与发展会越来越普及，韩国和中国在此方面可以加强合作。
+资料来源：Wind、光大期货研究所 撰稿：史玥明 从业资格：F03097365 交易咨询资格：Z0017563 免责声明：本报告的信息均来源于公开资料，我公司对这些信息的准确性、可靠性和完整性不作任何保证，也不保证所包含的信息和建议不会发生任何变更。
 
 ## 相关推荐
 
-- 2026-06-29 14:39 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 14:32 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 14:35 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 14:26 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 14:29 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 14:22 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 14:18 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 14:27 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 14:36 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 14:32 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 14:38 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 14:45 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 14:19 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 14:29 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 14:31 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 14:43 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 14:28 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 14:27 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 14:46 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 14:37 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 14:53 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 14:33 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 14:41 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 14:25 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 14:37 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 14:35 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 14:45 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 14:52 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 14:31 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 14:41 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:36 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/36875180367.shtml)
-- 2026-06-29 14:39 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/893489055149.shtml)
-- 2026-06-29 14:32 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/4394634121.shtml)
-- 2026-06-29 14:37 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/47907.shtml)
-- 2026-06-29 14:27 - [扬名立万](https://www.share.minike.top/Article/details/77911497.shtml)
-- 2026-06-29 14:44 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/485151.shtml)
-- 2026-06-29 14:39 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/915630705.shtml)
-- 2026-06-29 14:35 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/502668456275.shtml)
-- 2026-06-29 14:20 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/89540.shtml)
-- 2026-06-29 14:28 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/98970.shtml)
-- 2026-06-29 14:47 - [三都主：淘汰赛我会支持日本](http://www.blog.kurohicncr.top/Article/details/9882283.shtml)
-- 2026-06-29 14:22 - [强⁶](http://www.share.kurohicncr.top/Article/details/74957.shtml)
-- 2026-06-29 14:19 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/65522767.shtml)
-- 2026-06-29 14:18 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/1297003668.shtml)
-- 2026-06-29 14:30 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/498428372682.shtml)
+- 2026-06-29 14:43 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/57645.shtml)
+- 2026-06-29 14:50 - [吴昕要助理买的药6年前已停产](http://www.share.minike.top/Article/details/662700117127.shtml)
+- 2026-06-29 14:25 - [四川宜宾地震](http://www.blog.minike.top/Article/details/464630.shtml)
+- 2026-06-29 14:41 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/0821574565.shtml)
+- 2026-06-29 14:42 - [南非老帅布罗斯的梦没能做完](http://www.blog.minike.top/Article/details/586752190.shtml)
+- 2026-06-29 14:51 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/3067941.shtml)
+- 2026-06-29 14:34 - [宜宾5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/667270.shtml)
+- 2026-06-29 14:36 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/246007866.shtml)
+- 2026-06-29 14:35 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/37196650471.shtml)
+- 2026-06-29 14:40 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.kurohicncr.top/Article/details/1020303444.shtml)
+- 2026-06-29 14:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/235352001547.shtml)
+- 2026-06-29 14:51 - [行程万里不忘初心](https://www.share.minike.top/Article/details/7077384505.shtml)
+- 2026-06-29 14:43 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/063400162216.shtml)
+- 2026-06-29 14:28 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/305302593135.shtml)
+- 2026-06-29 14:49 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/271215984494.shtml)

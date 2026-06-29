@@ -1,45 +1,56 @@
-# 以总理和国防部长指示以军打击贝鲁特南郊
+# 大模型巨头MiniMax启动A股IPO，AI应用热潮再起！华宝基金创业板人工智能ETF（159363）下探回升涨逾1%
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 09:35 来源：央视新闻 责任编辑：【王祎】
+6月1日早盘，AI应用表现活跃，创业板人工智能拉升逾1%。其中，软通动力20CM涨停，深信服大涨超9%，润和软件、易点天下涨超5%。热门ETF方面，同类规模、流动性第一的创业板人工智能ETF华宝（159363）场内下探回升逾1%。 消息面上，大模型巨头MiniMax Group Inc．（简称“MiniMax”）已于2026年5月29日同中信证券签署辅导协议，正式启动A股IPO
 
 ## 正文
 
-发布时间：2026年06月02日 09:35 来源：央视新闻 责任编辑：【王祎】
+6月1日早盘，AI应用表现活跃，创业板人工智能拉升逾1%。
+
+其中，软通动力20CM涨停，深信服大涨超9%，润和软件、易点天下涨超5%。
+
+热门ETF方面，同类规模、流动性第一的创业板人工智能ETF华宝（159363）场内下探回升逾1%。
+
+消息面上，大模型巨头MiniMax Group Inc．（简称“MiniMax”）已于2026年5月29日同中信证券签署辅导协议，正式启动A股IPO进程。
+
+招商证券指出，在AI进入到Token新时代，AI应用板块有望迎来价值重估。
+
+参照海外的AI发展和中国的传媒互联网发展，AI应用仍然被低估。
+
+一键布局光模块+AI应用机会，建议重点关注同类规模、流动性第一的创业板人工智能ETF华宝（159363）及场外联接（A类023407、C类023408），标的指数最新光模块含量超50%，“易中天”含量高，约三成仓位布局AI应用，不止是算力核心，也是AI应用代表。
+
+值得注意的是，截至2026.5.29，创业板人工智能ETF华宝（159363）最新规模达74.26亿元，规模居全市场双创AI赛道首位！
 
 ## 相关推荐
 
-- 2026-06-29 14:24 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 14:27 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 14:22 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 14:35 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 14:37 - [世界杯用球成部分门将噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 14:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 14:18 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 14:38 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 14:26 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 14:30 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 14:28 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 14:45 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 14:38 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 14:43 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 14:37 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 14:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 14:44 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 14:35 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 14:51 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 14:51 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 14:37 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 14:48 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 14:32 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:20 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/559732.shtml)
-- 2026-06-29 14:27 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/51239238287.shtml)
-- 2026-06-29 14:28 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/051276525.shtml)
-- 2026-06-29 14:24 - [A股](http://www.share.kurohicncr.top/Article/details/5414168.shtml)
-- 2026-06-29 14:27 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/8848867.shtml)
-- 2026-06-29 14:46 - [《昨夜将至》为何是悬疑黑马](https://www.blog.kurohicncr.top/Article/details/883216.shtml)
-- 2026-06-29 14:28 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/1395006139.shtml)
-- 2026-06-29 14:41 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/2725972152.shtml)
-- 2026-06-29 14:37 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/009522.shtml)
-- 2026-06-29 14:31 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.kurohicncr.top/Article/details/913078489622.shtml)
-- 2026-06-29 14:19 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/53400198869.shtml)
-- 2026-06-29 14:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/90189651682.shtml)
-- 2026-06-29 14:23 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/631732137113.shtml)
-- 2026-06-29 14:42 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/469760.shtml)
-- 2026-06-29 14:22 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/33437.shtml)
+- 2026-06-29 14:45 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/5744574.shtml)
+- 2026-06-29 14:32 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/862688.shtml)
+- 2026-06-29 14:27 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/196051890330.shtml)
+- 2026-06-29 14:48 - [詹俊预测德国大胜巴拉圭](https://www.blog.kurohicncr.top/Article/details/889410.shtml)
+- 2026-06-29 14:36 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/58322.shtml)
+- 2026-06-29 14:26 - [一生一世](http://www.blog.kurohicncr.top/Article/details/83674268733.shtml)
+- 2026-06-29 14:44 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/124268.shtml)
+- 2026-06-29 14:27 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/423367572975.shtml)
+- 2026-06-29 14:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/815292637677.shtml)
+- 2026-06-29 14:32 - [东部机场集团新增釜山航线](https://www.share.kurohicncr.top/Article/details/88787796873.shtml)
+- 2026-06-29 14:29 - [强⁶](https://www.blog.minike.top/Article/details/754896.shtml)
+- 2026-06-29 14:46 - [和阿根廷球员家属一起看球](https://www.blog.kurohicncr.top/Article/details/04160.shtml)
+- 2026-06-29 14:53 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.kurohicncr.top/Article/details/527709.shtml)
+- 2026-06-29 14:27 - [志愿选择倒计时！浙大学生送祝福](https://www.share.kurohicncr.top/Article/details/758484.shtml)
+- 2026-06-29 14:41 - [异世界一点都不好玩！](https://www.blog.minike.top/Article/details/5831245.shtml)

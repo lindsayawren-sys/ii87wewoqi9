@@ -1,61 +1,48 @@
-# 伦交所陈芳：跨国管理破局关键，换位思考是通用底层能力
+# 姚明恩师阿德尔曼离世 曾率休斯顿火箭打出22连胜
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-专题：SWCC首届女性CEO大会 5月31日，上海市工商联女企业家联合会第一届第一次会员大会暨SWCC首届女性CEO大会于上海召开。伦敦证券交易所集团北亚太区董事总经理、中国区总裁陈芳在现场分享观点：在跨国企业的管理与跨地域沟通中，换位思考是不可或缺的核心硬技能。 结合多年跨境管理实操经验，她总结出管理预期的两大核心心得： 一是前置沟通，抢占主动权。决策切忌后置推进，遇事提前预
+发布时间：2026年06月02日 12:58 来源：中国新闻网 北京时间6月2日，美国篮球教练协会宣布，NBA传奇主教练、名人堂成员里克·阿德尔曼离世，享年79岁。 里克·阿德尔曼在NBA执教长达29年，他共取得1042场胜利(历史排名第十)，2021年入选奈史密斯篮球名人堂，并于2023年荣获NBCA查克·戴利终身成就奖。 2007年，阿德尔曼接手火箭队，开始执教姚明和特雷西
 
 ## 正文
 
-专题：SWCC首届女性CEO大会 5月31日，上海市工商联女企业家联合会第一届第一次会员大会暨SWCC首届女性CEO大会于上海召开。
+发布时间：2026年06月02日 12:58 来源：中国新闻网 北京时间6月2日，美国篮球教练协会宣布，NBA传奇主教练、名人堂成员里克·阿德尔曼离世，享年79岁。
 
-伦敦证券交易所集团北亚太区董事总经理、中国区总裁陈芳在现场分享观点：在跨国企业的管理与跨地域沟通中，换位思考是不可或缺的核心硬技能。
+里克·阿德尔曼在NBA执教长达29年，他共取得1042场胜利(历史排名第十)，2021年入选奈史密斯篮球名人堂，并于2023年荣获NBCA查克·戴利终身成就奖。
 
-结合多年跨境管理实操经验，她总结出管理预期的两大核心心得： 一是前置沟通，抢占主动权。
+2007年，阿德尔曼接手火箭队，开始执教姚明和特雷西·麦克格雷迪，在2007-08赛季，阿德尔曼率领的火箭队在赛季中期取得了一波22连胜‌。
 
-决策切忌后置推进，遇事提前预判形势，主动向总部同步动向、释放预告，从源头做好预期管理，远比问题爆发后被动求援更高效从容。
-
-二是换位思考，读懂优先级差异。
-
-身处区域视角认定的头等要事，站在全球总部的统筹维度未必是紧急事项。
-
-跳出自身立场换位思考，才能打通跨境沟通壁垒，让跨国管理协同更顺畅。
-
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+(制作 徐妙巧） 责任编辑：【张燕玲】
 
 ## 相关推荐
 
-- 2026-06-29 14:40 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 14:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 14:28 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 14:37 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 14:47 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 14:31 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 14:43 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 14:30 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 14:38 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 14:39 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 14:36 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 14:24 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 14:30 - [高考志愿今起开始填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 14:25 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 14:23 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 14:45 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 14:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 14:45 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 14:53 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 14:35 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 14:47 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 14:29 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 14:25 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 14:35 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 14:47 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:30 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/25470.shtml)
-- 2026-06-29 14:20 - [医药股集体爆发](https://www.share.minike.top/Article/details/282061.shtml)
-- 2026-06-29 14:19 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/98536828.shtml)
-- 2026-06-29 14:40 - [上班主打一个薪尽自然凉](https://www.blog.minike.top/Article/details/8855424378.shtml)
-- 2026-06-29 14:36 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/9024135.shtml)
-- 2026-06-29 14:43 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/99764224.shtml)
-- 2026-06-29 14:35 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/341942658616.shtml)
-- 2026-06-29 14:35 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/24889081267.shtml)
-- 2026-06-29 14:22 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/8935140.shtml)
-- 2026-06-29 14:37 - [俄军新型无人机战力如何](https://www.share.minike.top/Article/details/5189912284.shtml)
-- 2026-06-29 14:26 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/86153807.shtml)
-- 2026-06-29 14:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/63897280.shtml)
-- 2026-06-29 14:27 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/44154826995.shtml)
-- 2026-06-29 14:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/467995016.shtml)
-- 2026-06-29 14:33 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/359149116813.shtml)
+- 2026-06-29 14:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/52035891.shtml)
+- 2026-06-29 14:39 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/496249642.shtml)
+- 2026-06-29 14:32 - [三都主：淘汰赛我会支持日本](https://www.share.minike.top/Article/details/9665936.shtml)
+- 2026-06-29 14:52 - [日本主帅：目标是冠军](https://www.blog.kurohicncr.top/Article/details/076316012303.shtml)
+- 2026-06-29 14:26 - [记者暗访贵州和云南多个养老机构](http://www.share.minike.top/Article/details/67414948800.shtml)
+- 2026-06-29 14:33 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/9278833008.shtml)
+- 2026-06-29 14:44 - [媒体评恋与深空争议](https://www.share.minike.top/Article/details/7573437101.shtml)
+- 2026-06-29 14:32 - [韩国队如何把94%出线概率打到0%](http://www.blog.kurohicncr.top/Article/details/17393818190.shtml)
+- 2026-06-29 14:51 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/29212600.shtml)
+- 2026-06-29 14:53 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/47850382.shtml)
+- 2026-06-29 14:25 - [乔家的儿女](http://www.share.minike.top/Article/details/7493742.shtml)
+- 2026-06-29 14:26 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/01585.shtml)
+- 2026-06-29 14:49 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/84106217052.shtml)
+- 2026-06-29 14:36 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/21531330564.shtml)
+- 2026-06-29 14:38 - [双高胎](https://www.blog.kurohicncr.top/Article/details/481958.shtml)

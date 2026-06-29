@@ -1,58 +1,58 @@
-# 是什么让多国使节连呼“难以置信”？答案，正在广东书写
+# 特朗普：与伊朗或在“未来一周内”达成协议
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 20:59 来源：中国新闻网 是什么让外国来宾赞不绝口，争相了解？6月1日，“启航‘十五五’：中国发展与全球机遇(广东行)”活动在广州启动。来自37个国家的60名驻华使节走进广东，感受这里的独特魅力与发展潜力。活动现场，多家广东本土的高科技企业带来不同领域的“拳头产品”，吸引外宾驻足观看。在非遗展区里，国家级非遗代表性传承人饶宝莲展示了其精湛的
+中新网6月2日电 据美国广播公司报道，美国总统特朗普1日称，他认为在“未来一周内”将与伊朗达成一项协议，以延长停火期限并重新开放霍尔木兹海峡。 “情况看起来不错，看起来不错。”他在与美国广播公司记者的电话交谈中说道。 “今天出现了一点小插曲，但我很快就解决了，你可能之前已经注意到了。”特朗普说。据特朗普称，这个小插曲是伊朗方面对以色列袭击黎巴嫩感到不满。 “所以我跟黎巴嫩真主党
 
 ## 正文
 
-发布时间：2026年06月02日 20:59 来源：中国新闻网 是什么让外国来宾赞不绝口，争相了解？
+中新网6月2日电 据美国广播公司报道，美国总统特朗普1日称，他认为在“未来一周内”将与伊朗达成一项协议，以延长停火期限并重新开放霍尔木兹海峡。
 
-6月1日，“启航‘十五五’：中国发展与全球机遇(广东行)”活动在广州启动。
+“情况看起来不错，看起来不错。
 
-来自37个国家的60名驻华使节走进广东，感受这里的独特魅力与发展潜力。
+”他在与美国广播公司记者的电话交谈中说道。
 
-活动现场，多家广东本土的高科技企业带来不同领域的“拳头产品”，吸引外宾驻足观看。
+“今天出现了一点小插曲，但我很快就解决了，你可能之前已经注意到了。
 
-在非遗展区里，国家级非遗代表性传承人饶宝莲展示了其精湛的剪纸技艺，获得阵阵掌声。
+”特朗普说。
 
-在当天举行的广东省推介会上，中国外交部部长助理刘彬表示，面向未来，中国将坚持以自身高质量发展推动世界共同发展，以高水平对外开放拓展全球共同机遇。
+据特朗普称，这个小插曲是伊朗方面对以色列袭击黎巴嫩感到不满。
 
-希望参会的驻华使节把在岭南大地的所见所闻带回各国。
+“所以我跟黎巴嫩真主党谈了，说不准开火；又跟以色列总理内塔尼亚胡谈了，说不准开火，结果双方都停止了相互射击。
 
-据悉，“启航‘十五五’：中国发展与全球机遇(广东行)”活动由外交部与广东省人民政府联合主办，多国的驻华使节将参访粤港澳合作发展平台、大湾区互联互通重点项目、广东优势产业与创新生态、“百县千镇万村高质量发展工程”示范村等，见证中国式现代化广东实践取得的新成就，共谱“十五五”合作新篇章。
+”特朗普说道。
 
 ## 相关推荐
 
-- 2026-06-29 14:19 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 14:32 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 14:28 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 14:35 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 14:30 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 14:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 14:27 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 14:44 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 14:32 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 14:24 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 14:41 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 14:31 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 14:28 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 14:41 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 14:50 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 14:43 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 14:31 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 14:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 14:32 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 14:25 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 14:34 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 14:31 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 14:27 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 14:50 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:46 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/4300287084.shtml)
-- 2026-06-29 14:28 - [多家银行收紧个人贵金属业务](https://www.share.minike.top/Article/details/668188606.shtml)
-- 2026-06-29 14:33 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/0273422350.shtml)
-- 2026-06-29 14:35 - [爸爸当家](http://www.blog.minike.top/Article/details/2386533191.shtml)
-- 2026-06-29 14:24 - [吴磊爱上回收了](http://www.share.minike.top/Article/details/08562.shtml)
-- 2026-06-29 14:27 - [王楚钦3-0周启豪 晋级32强](https://www.share.kurohicncr.top/Article/details/01263727267.shtml)
-- 2026-06-29 14:34 - [发反科学内容为何会有200万粉丝](http://www.blog.minike.top/Article/details/96578973.shtml)
-- 2026-06-29 14:42 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/03498115855.shtml)
-- 2026-06-29 14:44 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/30636.shtml)
-- 2026-06-29 14:20 - [赵露思爸爸拍vlog翻车了](http://www.share.kurohicncr.top/Article/details/7355607.shtml)
-- 2026-06-29 14:42 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/526200799.shtml)
-- 2026-06-29 14:46 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/045026.shtml)
-- 2026-06-29 14:29 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/9244275098.shtml)
-- 2026-06-29 14:38 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.minike.top/Article/details/64550971.shtml)
-- 2026-06-29 14:33 - [逃狱兄弟](http://www.blog.minike.top/Article/details/94853.shtml)
+- 2026-06-29 14:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/296866232554.shtml)
+- 2026-06-29 14:31 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/522461588.shtml)
+- 2026-06-29 14:52 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/82844.shtml)
+- 2026-06-29 14:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/46103.shtml)
+- 2026-06-29 14:29 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/369394517.shtml)
+- 2026-06-29 14:44 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/29418397651.shtml)
+- 2026-06-29 14:42 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/283977.shtml)
+- 2026-06-29 14:41 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/771847019.shtml)
+- 2026-06-29 14:28 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/5856552.shtml)
+- 2026-06-29 14:47 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/836781631164.shtml)
+- 2026-06-29 14:26 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/206012018.shtml)
+- 2026-06-29 14:38 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/248308262.shtml)
+- 2026-06-29 14:26 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.minike.top/Article/details/39686685.shtml)
+- 2026-06-29 14:32 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.minike.top/Article/details/806315384970.shtml)
+- 2026-06-29 14:52 - [梅朗雄主张法国退出北约](http://www.blog.minike.top/Article/details/312364.shtml)

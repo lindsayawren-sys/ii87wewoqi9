@@ -1,56 +1,59 @@
-# D.A. Davidson将英伟达列入“首选股”名单
+# 罗硕权：精准衡量多元价值已成企业核心竞争力与长远发展基石
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-D.A． Davidson周一将英伟达列入其顶级选股名单。 该机构科技研究主管Gil Luria对该股也给予买入评级。他设定的300美元目标价意味着较上周五收盘价约有42%的上涨空间。 在向客户发布的一份宣布英伟达被纳入所谓“首选股”名单的报告中，Luria表示，英伟达拥有“一流的利润率”和“持久的竞争优势”。 英伟达股价周一上涨约6%。这家芯片制造商2026年迄今已累计上涨2
+专题：中韩企业可持续发展交流会 由新浪财经、洋河股份主办，中国国际商会协办的 “可持续全球领导者大会海外专场 中韩企业可持续发展交流会” 于 5 月 26 日 - 5 月 28 日在韩国首尔举行，主题为 “融聚・共赢”。韩国社会价值研究院（CSES）代表理事罗硕权（Na Suk-Kwon）出席活动并发言。 罗硕权表示，研究院依托 SK 集团深厚研究积淀，专注于构建企业社会价值测
 
 ## 正文
 
-D.A． Davidson周一将英伟达列入其顶级选股名单。
+专题：中韩企业可持续发展交流会 由新浪财经、洋河股份主办，中国国际商会协办的 “可持续全球领导者大会海外专场 中韩企业可持续发展交流会” 于 5 月 26 日 - 5 月 28 日在韩国首尔举行，主题为 “融聚・共赢”。
 
-该机构科技研究主管Gil Luria对该股也给予买入评级。
+韩国社会价值研究院（CSES）代表理事罗硕权（Na Suk-Kwon）出席活动并发言。
 
-他设定的300美元目标价意味着较上周五收盘价约有42%的上涨空间。
+罗硕权表示，研究院依托 SK 集团深厚研究积淀，专注于构建企业社会价值测量与评价体系，助力精准核算企业经济、社会、环境三大维度价值。
 
-在向客户发布的一份宣布英伟达被纳入所谓“首选股”名单的报告中，Luria表示，英伟达拥有“一流的利润率”和“持久的竞争优势”。
+他强调，精准衡量多元的企业社会价值已成为全球企业核心竞争力与长远发展基石，这一理念从韩国逐步辐射中国乃至全球，本次中韩企业面对面交流极具现实意义。
 
-英伟达股价周一上涨约6%。
+在跨国合作领域，研究院 2018 年起与中国国务院国资委开展联合研究，量身打造适配中国国企的社会价值评价体系。
 
-这家芯片制造商2026年迄今已累计上涨20%。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-责任编辑：张俊 SF065
+责任编辑：李思阳
 
 ## 相关推荐
 
-- 2026-06-29 14:28 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 14:23 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 14:35 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 14:18 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 14:41 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 14:36 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 14:42 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 14:44 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 14:37 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 14:25 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 14:34 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 14:42 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 14:34 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 14:44 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 14:47 - [媒体：网络测评不能只剩“生意”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 14:51 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 14:47 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 14:30 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 14:53 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 14:31 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 14:30 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 14:45 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 14:41 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 14:28 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 14:49 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 14:33 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 14:35 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:31 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/709975790198.shtml)
-- 2026-06-29 14:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/38909.shtml)
-- 2026-06-29 14:29 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/4574893337.shtml)
-- 2026-06-29 14:39 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/8874686805.shtml)
-- 2026-06-29 14:27 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/491641382.shtml)
-- 2026-06-29 14:36 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/39375364454.shtml)
-- 2026-06-29 14:18 - [医药股集体爆发](http://www.share.kurohicncr.top/Article/details/42517759.shtml)
-- 2026-06-29 14:27 - [以前不让妆女二可以艳压女主](http://www.blog.minike.top/Article/details/070143862098.shtml)
-- 2026-06-29 14:38 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/273692.shtml)
-- 2026-06-29 14:20 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/76065037.shtml)
-- 2026-06-29 14:29 - [金牌调解](http://www.share.minike.top/Article/details/99433041.shtml)
-- 2026-06-29 14:34 - [志愿选择倒计时！浙大学生送祝福](http://www.share.minike.top/Article/details/995636664035.shtml)
-- 2026-06-29 14:38 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/790191389054.shtml)
-- 2026-06-29 14:22 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/527679.shtml)
-- 2026-06-29 14:39 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.kurohicncr.top/Article/details/4923748.shtml)
+- 2026-06-29 14:28 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/9892261737.shtml)
+- 2026-06-29 14:53 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/0966854198.shtml)
+- 2026-06-29 14:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/6627755.shtml)
+- 2026-06-29 14:32 - [一生一世](https://www.blog.kurohicncr.top/Article/details/68829927.shtml)
+- 2026-06-29 14:27 - [王楚钦欢迎晚宴上打台球](http://www.share.kurohicncr.top/Article/details/716797478486.shtml)
+- 2026-06-29 14:32 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/212922.shtml)
+- 2026-06-29 14:46 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/555555798.shtml)
+- 2026-06-29 14:47 - [汪东城回应45岁婚约](https://www.blog.kurohicncr.top/Article/details/060079502.shtml)
+- 2026-06-29 14:49 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/6131767.shtml)
+- 2026-06-29 14:34 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/35554412071.shtml)
+- 2026-06-29 14:49 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/311870693.shtml)
+- 2026-06-29 14:48 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/814434947479.shtml)
+- 2026-06-29 14:25 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/991708871682.shtml)
+- 2026-06-29 14:48 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/2113906.shtml)
+- 2026-06-29 14:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/79199.shtml)

@@ -1,56 +1,58 @@
-# 广东佛山云勇林场人工混交林助力森林质量提升
+# 中央生态环境保护督察集中通报四省份典型案例
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-日本加速推进修宪进程须引起警惕王楚钦任中国乒乓男队队长 马龙12年任期结束美国股市密集亮起预警红灯打击网络侵权盗版 四部门启动“剑网2026”专项行动特朗普怒斥内塔尼亚胡：对以色列升级黎巴嫩局势表示“强烈不满”重启第三次，天涯打赢复活赛了吗？周末戒咖啡，为何会引发头疼？专家解读汽车产业链集体押注机器人 一场从“车”到“人”的战略卡位充电宝3C认证新规来了！教你一眼认出“新国标”
+中新网6月2日电 据生态环境部微信公众号消息，第三轮第六批中央生态环境保护督察严格落实《生态环境保护督察工作条例》，树立和践行正确政绩观，统筹推进经济高质量发展和生态环境高水平保护，精准科学依法开展督察。各督察组深入一线、深入现场，查实了一批突出生态环境问题，核实了一批不作为、慢作为，不担当、不碰硬，甚至敷衍应对、弄虚作假等形式主义、官僚主义问题。为发挥警示作用，切实推动问题整
 
 ## 正文
 
-日本加速推进修宪进程须引起警惕王楚钦任中国乒乓男队队长 马龙12年任期结束美国股市密集亮起预警红灯打击网络侵权盗版 四部门启动“剑网2026”专项行动特朗普怒斥内塔尼亚胡：对以色列升级黎巴嫩局势表示“强烈不满”重启第三次，天涯打赢复活赛了吗？
+中新网6月2日电 据生态环境部微信公众号消息，第三轮第六批中央生态环境保护督察严格落实《生态环境保护督察工作条例》，树立和践行正确政绩观，统筹推进经济高质量发展和生态环境高水平保护，精准科学依法开展督察。
 
-周末戒咖啡，为何会引发头疼？
+各督察组深入一线、深入现场，查实了一批突出生态环境问题，核实了一批不作为、慢作为，不担当、不碰硬，甚至敷衍应对、弄虚作假等形式主义、官僚主义问题。
 
-专家解读汽车产业链集体押注机器人 一场从“车”到“人”的战略卡位充电宝3C认证新规来了！
+为发挥警示作用，切实推动问题整改，现对第三批次典型案例进行公开通报。
 
-教你一眼认出“新国标”产品→网暴抗洪救灾村干部“戴金耳环” 相关网民被行政处罚一碗剩米饭 吃进ICU！
+辽宁省葫芦岛市生活污水收集处理短板明显 2026年5月，中央第一生态环境保护督察组督察辽宁省发现，葫芦岛市生活污水管网建设改造滞后，污水直排问题突出，城市黑臭水体排查整治不到位。
 
-夏季慎吃剩饭 远离“炒饭综合征”从侨批看中国中新网评：大字吸睛小字免责？
+一、基本情况 葫芦岛市主城区有五里河、连山河等河流穿城而过，但城市环境基础设施建设管理比较薄弱，约四分之一区域雨污不分，晴天污水溢流、直排现象多发，部分水体出现黑臭。
 
-对虚假“第一”就该较真到底日本在野党批高市政府推动修宪扩军：背离民众真实诉求除了《给阿嬷的情书》，这些涉侨电影也值得一看！
+二、主要问题 一是管网建设改造滞后。
 
-质量差、退费难、价格高......租赁手机小心暗藏玄机日本启动第20次核污染水排海 排放量约7800吨领取失业保险金期间，城乡居民医疗保险受影响吗？
+《城镇污水处理提质增效三年行动方案(2019—2021年)》要求，建立污水管网排查和检测制度，实施管网混错接改造、管网更新、破损修复改造等工程，消除管网空白区。
 
-人社部回应钓鱼佬夜钓顺手救下2名落水少年高铁穿麦浪，皖北麦收正当时直击无人机实战化作战训练现场“最美天山公路”独库公路恢复通车新疆喀什：走进“西域之西”的人文风情轰鸣阵阵！
+督察发现，截至2025年底，葫芦岛市主城区421.8公里污水管网中，有140.9公里未开展排查检测；2020年以来排查发现的管网混错接和缺陷问题，有3009个未完成修复。
 
 ## 相关推荐
 
-- 2026-06-29 14:24 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 14:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 14:39 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 14:43 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 14:42 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 14:34 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 14:18 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 14:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 14:28 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 14:38 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 14:50 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 14:29 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 14:41 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 14:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 14:49 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 14:45 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 14:24 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 14:41 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 14:28 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 14:43 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 14:50 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 14:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:20 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/201474336.shtml)
-- 2026-06-29 14:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/90191854358.shtml)
-- 2026-06-29 14:26 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.minike.top/Article/details/3923782915.shtml)
-- 2026-06-29 14:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/05418551468.shtml)
-- 2026-06-29 14:39 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/0961053.shtml)
-- 2026-06-29 14:21 - [给阿嬷的情书海外口碑](http://www.share.kurohicncr.top/Article/details/106763396641.shtml)
-- 2026-06-29 14:19 - [王楚钦周启豪爆分](https://www.blog.kurohicncr.top/Article/details/36340.shtml)
-- 2026-06-29 14:32 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/40274.shtml)
-- 2026-06-29 14:40 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/881807.shtml)
-- 2026-06-29 14:30 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/51452.shtml)
-- 2026-06-29 14:46 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/220902.shtml)
-- 2026-06-29 14:22 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.minike.top/Article/details/037703245922.shtml)
-- 2026-06-29 14:23 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/62501011.shtml)
-- 2026-06-29 14:29 - [绘画区你赢了](https://www.share.minike.top/Article/details/05566911623.shtml)
-- 2026-06-29 14:27 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/624888937232.shtml)
+- 2026-06-29 14:42 - [A股](http://www.share.minike.top/Article/details/459519341410.shtml)
+- 2026-06-29 14:43 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/16965979425.shtml)
+- 2026-06-29 14:32 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/3595822.shtml)
+- 2026-06-29 14:28 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.kurohicncr.top/Article/details/763763886101.shtml)
+- 2026-06-29 14:40 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/89764884.shtml)
+- 2026-06-29 14:35 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/81636376.shtml)
+- 2026-06-29 14:39 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/897757642.shtml)
+- 2026-06-29 14:39 - [四川宜宾地震](http://www.blog.kurohicncr.top/Article/details/1389883124.shtml)
+- 2026-06-29 14:43 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/2299487.shtml)
+- 2026-06-29 14:41 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/94634.shtml)
+- 2026-06-29 14:32 - [第一炉香](https://www.blog.minike.top/Article/details/50578018549.shtml)
+- 2026-06-29 14:40 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/307695638.shtml)
+- 2026-06-29 14:39 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/37842278.shtml)
+- 2026-06-29 14:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/73029927.shtml)
+- 2026-06-29 14:53 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/14754199.shtml)

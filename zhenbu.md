@@ -1,53 +1,59 @@
-# 韩媒：韩国一军工企业发生爆炸，已致4人死2人伤
+# 人人租IPO遭遇证监会六连问：股权操作被质疑 多次违规被点名
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中新网6月1日电 综合韩联社等韩媒报道，当地时间1日上午10点59分，位于韩国大田市的韩华航空航天大田工厂发生爆炸，已造成4人死亡、2人受伤。 报道称，韩国消防部门于上午11点17分左右启动一级应急响应，目前正在全力扑救。大田消防局一位官员表示：“目前已确认4人死亡，2人受伤。” 事发时，警方接到的紧急求助电话，均报告听到爆炸声并看到冒出浓烟。 据悉，爆炸导致一栋建筑物起火。警
+来源：新经济观察团 饱受市场争议的知名租机平台人人租，赴港IPO之路突生波折。 2026年5月29日，证监会披露《境外发行上市备案补充材料要求》，退回人人租运营主体广州研趣信息科技股份有限公司招股书，要求企业针对股权沿革、财务真实性、境外业务、合规运作、股份权利状态等六大核心事项进行补充举证、自查说明。 具体来看： 其中前三项问询指向人人租的股权和资本运作问题。 首先是‌股权合
 
 ## 正文
 
-中新网6月1日电 综合韩联社等韩媒报道，当地时间1日上午10点59分，位于韩国大田市的韩华航空航天大田工厂发生爆炸，已造成4人死亡、2人受伤。
+来源：新经济观察团 饱受市场争议的知名租机平台人人租，赴港IPO之路突生波折。
 
-报道称，韩国消防部门于上午11点17分左右启动一级应急响应，目前正在全力扑救。
+2026年5月29日，证监会披露《境外发行上市备案补充材料要求》，退回人人租运营主体广州研趣信息科技股份有限公司招股书，要求企业针对股权沿革、财务真实性、境外业务、合规运作、股份权利状态等六大核心事项进行补充举证、自查说明。
 
-大田消防局一位官员表示：“目前已确认4人死亡，2人受伤。
+具体来看： 其中前三项问询指向人人租的股权和资本运作问题。
 
-” 事发时，警方接到的紧急求助电话，均报告听到爆炸声并看到冒出浓烟。
+首先是‌股权合规性‌：需说明历次增资/股权转让定价依据、实缴出资情况、是否存在抽逃出资或瑕疵，并出具合法合规结论；其次是‌新增股东合理性‌：近12个月新增股东入股价格差异原因及是否存在利益输送；第三是‌股权激励合规‌：股权激励计划实施是否合法合规、有无利益输送。
 
-据悉，爆炸导致一栋建筑物起火。
+从公司实际资本操作来看，2025年5月人人租完成D轮融资，大华银行旗下ACIF V和ACIF （US） V合计出资约1.08亿元，仅认购研趣信息19.73万元注册资本。
 
-警方和消防部门初步判断爆炸发生在工厂一楼，并计划在火势得到控制后，尽快展开伤亡情况及事故原因的调查。
+折算下来，外部投资者以每1元注册资本约547元的超高溢价入股，估值溢价水平远超行业常规逻辑。
+
+与之形成鲜明对比的是，2026年1月公司完成无募资股本扩容，通过股份溢价资本化方式，将注册资本从238万元大幅增至1500万元，本次增资仅为内部股本结构调整，未引入任何外部新资金。
+
+证监会要求解释D轮融资定价的合理性，显然是在质疑激进的溢价背后，是否存在未披露的抽屉协议或利益输送安排？
 
 ## 相关推荐
 
-- 2026-06-29 14:29 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 14:40 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 14:44 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 14:28 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 14:21 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 14:36 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 14:40 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 14:28 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 14:36 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 14:26 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 14:20 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 14:41 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 14:35 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 14:48 - [高考志愿今起开始填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 14:52 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 14:24 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 14:44 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 14:27 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 14:53 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 14:46 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 14:42 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 14:41 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 14:35 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 14:32 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:19 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/6365455.shtml)
-- 2026-06-29 14:19 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/33576858534.shtml)
-- 2026-06-29 14:30 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/314576560.shtml)
-- 2026-06-29 14:39 - [东部机场集团新增釜山航线](http://www.blog.minike.top/Article/details/67288265.shtml)
-- 2026-06-29 14:21 - [6月我国降水为何偏多](https://www.share.minike.top/Article/details/48052.shtml)
-- 2026-06-29 14:32 - [天道](https://www.blog.kurohicncr.top/Article/details/365843.shtml)
-- 2026-06-29 14:41 - [美国近12万名科技员工被解雇](http://www.blog.minike.top/Article/details/14964549.shtml)
-- 2026-06-29 14:31 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/0094000481.shtml)
-- 2026-06-29 14:27 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/78545769.shtml)
-- 2026-06-29 14:37 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/31118362261.shtml)
-- 2026-06-29 14:27 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.kurohicncr.top/Article/details/57996240239.shtml)
-- 2026-06-29 14:31 - [龟梨和也田中美奈实结婚](https://www.share.minike.top/Article/details/815063320.shtml)
-- 2026-06-29 14:38 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/385339292.shtml)
-- 2026-06-29 14:45 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/250511129.shtml)
-- 2026-06-29 14:36 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/12134.shtml)
+- 2026-06-29 14:40 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/701123074203.shtml)
+- 2026-06-29 14:26 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/048075.shtml)
+- 2026-06-29 14:26 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/47912036.shtml)
+- 2026-06-29 14:47 - [高考志愿今起开始填报](https://www.share.kurohicncr.top/Article/details/9410438974.shtml)
+- 2026-06-29 14:42 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/542910793.shtml)
+- 2026-06-29 14:40 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/73644871803.shtml)
+- 2026-06-29 14:35 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/5593575.shtml)
+- 2026-06-29 14:38 - [俄称继续推进 乌称打击俄军设施](https://www.blog.kurohicncr.top/Article/details/189537769.shtml)
+- 2026-06-29 14:53 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/0632345148.shtml)
+- 2026-06-29 14:38 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/2629111136.shtml)
+- 2026-06-29 14:30 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/03491530.shtml)
+- 2026-06-29 14:35 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.kurohicncr.top/Article/details/65581.shtml)
+- 2026-06-29 14:40 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/043404247942.shtml)
+- 2026-06-29 14:26 - [周深双眼皮贴又掉了](http://www.blog.minike.top/Article/details/60624.shtml)
+- 2026-06-29 14:50 - [周深双眼皮贴又掉了](http://www.share.kurohicncr.top/Article/details/731504136.shtml)

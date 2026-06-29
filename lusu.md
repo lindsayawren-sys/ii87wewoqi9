@@ -1,61 +1,56 @@
-# 端午节将至 海南“非遗”味道定安粽子订单陡增
+# 永利澳门早盘涨超4% 瑞银维持“买入”评级
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 17:30 来源：中国新闻网 2026年端午节将至，近日，海南定安粽子订单量陡增，热销海南岛内外。 据了解，定安粽子与儋州洛基粽、澄迈瑞溪粽并称为海南三大名粽；2014年“定安粽子”获得国家地理标志证明商标；2023年“定安粽子烹制技艺”列入海南省第六批省级非物质文化遗产代表性项目名录。 据了解，传统定安粽甄选优质糯米、黑猪肉、咸蛋黄等本地食材
+永利澳门（01128）早盘涨超4%，截至发稿，股价上涨4.59%，现报5.92港元，成交额1235.43万港元。 瑞银发布研报称，维持对永利澳门及新濠博亚娱乐的“买入”评级，并列为行业首选股。 根据其渠道调查，澳门5月首十天（包括五一黄金周）日均博彩收入约7.8亿澳门元，与去年同期持平，主要受贵宾厅赢率偏低影响。若以3%至3.3%的理论贵宾厅赢率计算，瑞银估计日均博彩收入将达8
 
 ## 正文
 
-发布时间：2026年06月02日 17:30 来源：中国新闻网 2026年端午节将至，近日，海南定安粽子订单量陡增，热销海南岛内外。
+永利澳门（01128）早盘涨超4%，截至发稿，股价上涨4.59%，现报5.92港元，成交额1235.43万港元。
 
-据了解，定安粽子与儋州洛基粽、澄迈瑞溪粽并称为海南三大名粽；2014年“定安粽子”获得国家地理标志证明商标；2023年“定安粽子烹制技艺”列入海南省第六批省级非物质文化遗产代表性项目名录。
+瑞银发布研报称，维持对永利澳门及新濠博亚娱乐的“买入”评级，并列为行业首选股。
 
-据了解，传统定安粽甄选优质糯米、黑猪肉、咸蛋黄等本地食材制作而成，口感醇厚、香气浓郁，成为热销主力。
+根据其渠道调查，澳门5月首十天（包括五一黄金周）日均博彩收入约7.8亿澳门元，与去年同期持平，主要受贵宾厅赢率偏低影响。
 
-在此基础上，当地粽企还创新推出海鲜咸蛋粽、五谷杂粮肉粽等多款新品，进一步满足消费者需求，拓宽消费市场。
+若以3%至3.3%的理论贵宾厅赢率计算，瑞银估计日均博彩收入将达8.5亿至9亿澳门元，同比增长10%至15%。
 
-据海南鸿基食品有限公司工厂负责人陈洪平介绍，今年端午节该公司粽子订单量同比增长10%，目前每天生产近15000个粽子。
+其中，中场日均博彩收入环比增长17%至20%，贵宾厅博彩量环比增长18%至22%，但贵宾厅实际赢率仅为2%至2.3%。
 
-据海南省定安县粽子协会会长王沸健介绍，定安粽子口感绵柔、浓香、味不腻，这是它最大的特点。
+该行指出，市场预计5月余下21天的日均博彩收入将达约7.01亿澳门元，才能令5月整体日均博彩收入达到市场预期的约7.27亿澳门元，即同比增长6.3%。
 
-定安粽子除了在海南岛内销售外，还销往湖南、广东、广西、上海、北京、西藏、新疆等地。
+目前澳门博彩股估值相当于2026年预测企业价值倍数（EV/EBITDA）约8.3倍，较两年平均水平低0.75个标准差。
 
-(记者 李宇凡 王晓斌） 责任编辑：【叶攀】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:44 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 14:22 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 14:34 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 14:27 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 14:46 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 14:23 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 14:33 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 14:38 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 14:18 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 14:46 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 14:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 14:19 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 14:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 14:41 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 14:18 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 14:24 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 14:40 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 14:51 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 14:53 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 14:26 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 14:41 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 14:24 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 14:53 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 14:39 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 14:50 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:44 - [急先锋](http://www.share.minike.top/Article/details/65022.shtml)
-- 2026-06-29 14:25 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/7179011.shtml)
-- 2026-06-29 14:25 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/331379037645.shtml)
-- 2026-06-29 14:24 - [吴建豪老婆](https://www.share.minike.top/Article/details/119415935.shtml)
-- 2026-06-29 14:25 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/77347114773.shtml)
-- 2026-06-29 14:19 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/318918611.shtml)
-- 2026-06-29 14:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/5152771399.shtml)
-- 2026-06-29 14:36 - [流金岁月](https://www.share.kurohicncr.top/Article/details/5638772.shtml)
-- 2026-06-29 14:38 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/3088404.shtml)
-- 2026-06-29 14:37 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/575441894.shtml)
-- 2026-06-29 14:43 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/611471.shtml)
-- 2026-06-29 14:32 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/40572613908.shtml)
-- 2026-06-29 14:23 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/5481359.shtml)
-- 2026-06-29 14:42 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/659771.shtml)
-- 2026-06-29 14:40 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/82254001438.shtml)
+- 2026-06-29 14:44 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/5908769156.shtml)
+- 2026-06-29 14:29 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/06192759643.shtml)
+- 2026-06-29 14:29 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/028947146.shtml)
+- 2026-06-29 14:34 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/698210.shtml)
+- 2026-06-29 14:41 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/034497.shtml)
+- 2026-06-29 14:51 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/1252226810.shtml)
+- 2026-06-29 14:37 - [乔家的儿女](https://www.share.minike.top/Article/details/028731868718.shtml)
+- 2026-06-29 14:41 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/863104.shtml)
+- 2026-06-29 14:42 - [四川宜宾地震](http://www.share.kurohicncr.top/Article/details/43922794938.shtml)
+- 2026-06-29 14:37 - [逆天祖国人](https://www.blog.minike.top/Article/details/44924.shtml)
+- 2026-06-29 14:24 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/301159898829.shtml)
+- 2026-06-29 14:39 - [高考志愿今起开始填报](https://www.share.kurohicncr.top/Article/details/10871011.shtml)
+- 2026-06-29 14:50 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/18944368246.shtml)
+- 2026-06-29 14:35 - [王楚钦 表演球擦网](http://www.share.minike.top/Article/details/488706.shtml)
+- 2026-06-29 14:53 - [普京：俄面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/871619246.shtml)

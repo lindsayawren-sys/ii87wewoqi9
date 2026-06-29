@@ -1,61 +1,56 @@
-# 美高梅收到收购要约，股价应声大涨16%
+# 治理“影子账号”骗捐乱象，守护每一份善意
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-美高梅国际酒店集团股价周一大幅上涨约16%，此前巴里·迪勒旗下的People Inc．向该公司提出全现金收购要约，报价为每股48.30美元。 迪勒同时担任美高梅董事会成员，他表示将回避董事会就该提案进行的任何讨论或决策。People Inc．目前持有美高梅约26.1%的流通普通股，该公司前身为IAC。若交易完成，People Inc．将获得美高梅略超50.1%的股权，其他投资者
+山东6岁肿瘤女孩的抗癌纪实视频被批量高仿搬运，收款链接遭恶意篡改；云南白血病患儿的求助信息被异地账号冒用复刻，公众善意捐款最终流入不法分子口袋——据5月31日红星新闻报道，近日，多地曝光类似乱象，一些隐匿在网络中的“影子账号”，通过复制苦难、伪造求助收割爱心、骗取患儿救命钱。所谓“影子账号”，是不法分子以患儿或家长名义开设的高仿账号，他们批量搬运原账号的治疗视频，绑定私人收款二
 
 ## 正文
 
-美高梅国际酒店集团股价周一大幅上涨约16%，此前巴里·迪勒旗下的People Inc．向该公司提出全现金收购要约，报价为每股48.30美元。
+山东6岁肿瘤女孩的抗癌纪实视频被批量高仿搬运，收款链接遭恶意篡改；云南白血病患儿的求助信息被异地账号冒用复刻，公众善意捐款最终流入不法分子口袋——据5月31日红星新闻报道，近日，多地曝光类似乱象，一些隐匿在网络中的“影子账号”，通过复制苦难、伪造求助收割爱心、骗取患儿救命钱。
 
-迪勒同时担任美高梅董事会成员，他表示将回避董事会就该提案进行的任何讨论或决策。
+所谓“影子账号”，是不法分子以患儿或家长名义开设的高仿账号，他们批量搬运原账号的治疗视频，绑定私人收款二维码，假借求助之名骗取捐款，而真正的患儿家属往往毫不知情。
 
-People Inc．目前持有美高梅约26.1%的流通普通股，该公司前身为IAC。
+相较于传统骗捐行为，“影子账号”盗播骗捐呈现出低成本、产业化、隐蔽化的新特征。
 
-若交易完成，People Inc．将获得美高梅略超50.1%的股权，其他投资者继续持有少数股权。
+不法分子借助爬虫技术批量抓取治疗影像与求助文案，去水印、改落款、换收款码，零成本打造真假难辨的求助账号，利用网友的悲悯之心持续获利。
 
-迪勒在声明中阐述了发起收购的理由：“我们大约六年前开始投资美高梅，因为我们相信这是一种罕见的业务：它拥有AI无法轻易复制或替代的实体资产，同时具备卓越的数字增长机会。
+每笔被骗善款，都是患儿的救命钱，其家庭本就承受病痛与经济重压，还要耗费大量时间举证打假、维权举报，部分家长账号还被误认为“借病牟利”、遭举报封禁，家庭苦难之上再添创伤。
 
-”他补充道，美高梅的资产价值被市场严重低估，公司管理团队极为出色，存在支持其下一阶段增长并帮助释放全部价值的绝佳机会。
+不仅如此，此类乱象更深远的危害，在于对社会善意的透支，对公益信任的消解。
 
-根据摩根士丹利的数据，按拟议收购价计算，对应2026年市场一致预期的企业价值与息税折旧摊销及租金前利润之比约为7.7倍。
+那些真正身处绝境、急需帮扶的重病患儿家庭，可能会陷入真诚求助无人信、艰难发声无人助的困境。
 
-该交易不设融资条件，但需获得有限的反垄断批准及适用的博彩监管批准。
+治理“影子账号”骗捐乱象，守护纯粹的网络公益，要打出技术管控、法律惩戒、生态治理的组合拳。
 
 ## 相关推荐
 
-- 2026-06-29 14:34 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 14:18 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 14:45 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 14:42 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 14:43 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 14:43 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 14:21 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 14:47 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 14:41 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 14:22 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 14:42 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 14:22 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 14:36 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 14:45 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 14:45 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 14:33 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 14:34 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 14:26 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 14:24 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 14:35 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 14:26 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 14:33 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 14:53 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 14:34 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 14:53 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/7418248.shtml)
-- 2026-06-29 14:35 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/072011.shtml)
-- 2026-06-29 14:26 - [王楚钦3-0周启豪 晋级32强](http://www.blog.minike.top/Article/details/63032695.shtml)
-- 2026-06-29 14:43 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/48910.shtml)
-- 2026-06-29 14:35 - [事关个税 明日截止请抓紧办理](https://www.blog.minike.top/Article/details/944714966446.shtml)
-- 2026-06-29 14:43 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/67487.shtml)
-- 2026-06-29 14:41 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/586066340.shtml)
-- 2026-06-29 14:36 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/016019150.shtml)
-- 2026-06-29 14:29 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/38164294931.shtml)
-- 2026-06-29 14:18 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/98040787715.shtml)
-- 2026-06-29 14:18 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/700520.shtml)
-- 2026-06-29 14:27 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/006400132341.shtml)
-- 2026-06-29 14:20 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.kurohicncr.top/Article/details/714172349265.shtml)
-- 2026-06-29 14:35 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/33412.shtml)
-- 2026-06-29 14:42 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.kurohicncr.top/Article/details/19857179.shtml)
+- 2026-06-29 14:43 - [双高胎](http://www.blog.minike.top/Article/details/3046291450.shtml)
+- 2026-06-29 14:48 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/6685886614.shtml)
+- 2026-06-29 14:28 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/418510.shtml)
+- 2026-06-29 14:46 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.kurohicncr.top/Article/details/07585754.shtml)
+- 2026-06-29 14:40 - [新一代影后杨紫](https://www.blog.minike.top/Article/details/506163861.shtml)
+- 2026-06-29 14:50 - [国家体育总局政策法规司原副司长获刑](http://www.share.minike.top/Article/details/702017623.shtml)
+- 2026-06-29 14:29 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/483231387700.shtml)
+- 2026-06-29 14:30 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/0559689625.shtml)
+- 2026-06-29 14:48 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/087171.shtml)
+- 2026-06-29 14:28 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/72573345.shtml)
+- 2026-06-29 14:40 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/163754.shtml)
+- 2026-06-29 14:30 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/0127005.shtml)
+- 2026-06-29 14:39 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.minike.top/Article/details/825283339490.shtml)
+- 2026-06-29 14:29 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/59303.shtml)
+- 2026-06-29 14:24 - [农发行总行专家委员会委员杜晓力被查](https://www.share.minike.top/Article/details/769810238164.shtml)

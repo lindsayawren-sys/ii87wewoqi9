@@ -1,56 +1,60 @@
-# 光大期货：6月2日金融日报
+# 棉花期货走高 受供应缺口扩大预期叠加油价上涨影响
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，A股市场震荡收跌，Wind全A下跌0.76%，成交额2.9万亿元。中证1000指数下跌0.76%，中证500指数下跌1.02%，沪深300指数下跌0.98%，上证50指数下跌0.94%。A股市场2026年一季报表现亮眼。 26Q1全A剔除金融营收同比增速5.2%，大幅高于25Q3的0.6
+受全球棉花缺口预期加剧及油价反弹提振，纽约棉花期货连续第三个交易日上涨。 最活跃合约一度上涨2.5%，至每磅81.61美分，创5月20日以来新高。今年以来，受油价上涨提振棉花相对于石油基合成纤维的竞争力，加之市场预期供应紧张，棉花期货价格持续走高。 市场分析机构Cotlook上周将2026-27年度全球棉花缺口预测上调至65.7万吨，这是该机构第三次上调预测，理由是孟加拉国、印
 
 ## 正文
 
-股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，A股市场震荡收跌，Wind全A下跌0.76%，成交额2.9万亿元。
+受全球棉花缺口预期加剧及油价反弹提振，纽约棉花期货连续第三个交易日上涨。
 
-中证1000指数下跌0.76%，中证500指数下跌1.02%，沪深300指数下跌0.98%，上证50指数下跌0.94%。
+最活跃合约一度上涨2.5%，至每磅81.61美分，创5月20日以来新高。
 
-A股市场2026年一季报表现亮眼。
+今年以来，受油价上涨提振棉花相对于石油基合成纤维的竞争力，加之市场预期供应紧张，棉花期货价格持续走高。
 
-26Q1全A剔除金融营收同比增速5.2%，大幅高于25Q3的0.6%，是2023年以来的最高值。
+市场分析机构Cotlook上周将2026-27年度全球棉花缺口预测上调至65.7万吨，这是该机构第三次上调预测，理由是孟加拉国、印度和越南的需求增强。
 
-营收同比增速可以看做是上市公司资产端收益率，该数值过去三年来首次超过主要资金利率，这代表我国实体经济在总量层面进入新的通胀阶段。
+这使得看涨前景更加强劲。
 
-此外，全A剔除金融在一季度的净利润同比增速为11.7%，盈利端同步继续修复。
+价格：纽约棉花期货上涨1.3%，至每磅80.65美分。
 
-同时，A股板块间分化严重。
+纽约可可期货上涨4%。
 
-一方面，以AI为代表的科技制造业和有色等周期板块增速迅猛。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 14:21 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 14:35 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 14:27 - [世界杯用球成部分门将噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 14:18 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 14:43 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 14:38 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 14:21 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 14:20 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 14:23 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 14:40 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 14:38 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 14:29 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 14:34 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 14:30 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 14:36 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 14:50 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 14:30 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 14:34 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 14:36 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 14:32 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 14:44 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 14:47 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 14:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 14:34 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:36 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/12083044.shtml)
-- 2026-06-29 14:29 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/1750925.shtml)
-- 2026-06-29 14:44 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/6927690.shtml)
-- 2026-06-29 14:40 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/51005049.shtml)
-- 2026-06-29 14:37 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/8222709.shtml)
-- 2026-06-29 14:34 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/601175767.shtml)
-- 2026-06-29 14:34 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/893635146.shtml)
-- 2026-06-29 14:33 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/6827001.shtml)
-- 2026-06-29 14:46 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/13474935119.shtml)
-- 2026-06-29 14:33 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/5989740823.shtml)
-- 2026-06-29 14:42 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/407602097.shtml)
-- 2026-06-29 14:34 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/667691.shtml)
-- 2026-06-29 14:33 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/240781.shtml)
-- 2026-06-29 14:26 - [Mrbeast的30天不吃饭挑战](https://www.share.kurohicncr.top/Article/details/564140224.shtml)
-- 2026-06-29 14:41 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/05886966.shtml)
+- 2026-06-29 14:45 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/46454137743.shtml)
+- 2026-06-29 14:47 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/13941070.shtml)
+- 2026-06-29 14:34 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/71491187199.shtml)
+- 2026-06-29 14:32 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/4877112.shtml)
+- 2026-06-29 14:43 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/578232358859.shtml)
+- 2026-06-29 14:24 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/24790960854.shtml)
+- 2026-06-29 14:32 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.kurohicncr.top/Article/details/39524.shtml)
+- 2026-06-29 14:38 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/394868699867.shtml)
+- 2026-06-29 14:36 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/32942.shtml)
+- 2026-06-29 14:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/7596623.shtml)
+- 2026-06-29 14:48 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/608922.shtml)
+- 2026-06-29 14:39 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/040637267110.shtml)
+- 2026-06-29 14:42 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.minike.top/Article/details/71532445.shtml)
+- 2026-06-29 14:27 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/28715966461.shtml)
+- 2026-06-29 14:52 - [媒体评恋与深空争议](http://www.share.kurohicncr.top/Article/details/133902323873.shtml)

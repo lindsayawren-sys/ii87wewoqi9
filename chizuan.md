@@ -1,57 +1,56 @@
-# 新消费出海潮：从卖货到推广生活方式
+# 商保创新药目录落地半年，商业保险为何“掉队”？
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中国新闻周刊记者：杨智杰 发于2026.6.1总第1237期《中国新闻周刊》杂志 频繁去东南亚出差的邢夏淳发现，如今，走进一些东南亚国家的商场，随处可见熟悉的中国品牌：泡泡玛特、名创优品、蜜雪冰城⋯⋯奶茶店、麻辣烫店与他家门口的那些门店几乎没有区别，只是排队的顾客成了外国年轻人。而十多年前，他在海外街头看到最多和中国相关的店铺，还是传统港式中餐厅。邢夏淳是中国美妆品牌橘宜集团总
+21世纪经济报道记者 孙诗卉 2026年5月，国家医保局启动“双目录”（下称目录）调整。 事实上，自2025年12月首版商保创新药目录发布，经过5个多月的运行，该目录已在多地惠民保产品中落地。 对比来看，目录在商业健康险产品中的推进节奏却明显放慢。 对此，21世纪经济报道记者采访了一位业内人士，其坦言：“险企依然有很多顾虑，也不知道具体该怎么做，很多原本有相关计划的险企都搁置了
 
 ## 正文
 
-中国新闻周刊记者：杨智杰 发于2026.6.1总第1237期《中国新闻周刊》杂志 频繁去东南亚出差的邢夏淳发现，如今，走进一些东南亚国家的商场，随处可见熟悉的中国品牌：泡泡玛特、名创优品、蜜雪冰城⋯⋯奶茶店、麻辣烫店与他家门口的那些门店几乎没有区别，只是排队的顾客成了外国年轻人。
+21世纪经济报道记者 孙诗卉 2026年5月，国家医保局启动“双目录”（下称目录）调整。
 
-而十多年前，他在海外街头看到最多和中国相关的店铺，还是传统港式中餐厅。
+事实上，自2025年12月首版商保创新药目录发布，经过5个多月的运行，该目录已在多地惠民保产品中落地。
 
-邢夏淳是中国美妆品牌橘宜集团总裁，2025年，橘朵也把门店开到了新加坡。
+对比来看，目录在商业健康险产品中的推进节奏却明显放慢。
 
-类似的场景，也出现在纽约、巴黎和伦敦等城市街头。
+对此，21世纪经济报道记者采访了一位业内人士，其坦言：“险企依然有很多顾虑，也不知道具体该怎么做，很多原本有相关计划的险企都搁置了。
 
-过去几年，中国企业掀起了一轮大规模出海潮。
+”背后的原因并不简单——缺乏历史理赔数据、担心逆选择风险、进院路径不通畅，每一条都是“硬骨头”。
 
-从消费品到制造业，“走出去”成为大部分公司的共同选择。
+惠民保为主要落地场景 从产品形态看，惠民保是商保目录的主要落地场景。
 
-但与过去依赖供应链、白牌代工和低价竞争的路径不同，新一轮中国消费品牌出海，正在发生明显变化。
+例如，“深圳惠民保”2025年度保障实现对首版19种创新药的全覆盖，汕头惠民保则在全国率先宣布，参保人因住院使用目录内药品产生的费用，报销比例提升10个百分点。
 
-近两年，LABUBU在全球潮玩圈爆红，名创优品的海外门店一改过往的日杂百货店风格，转向潮玩、IP和打卡空间。
+从覆盖人群看，目录目前主要惠及带病体——已经确诊、需要高值创新药治疗的患者。
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 14:22 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 14:41 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 14:42 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 14:21 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 14:19 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 14:22 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 14:18 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 14:46 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 14:33 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 14:42 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 14:46 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 14:53 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 14:44 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 14:46 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 14:28 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 14:48 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 14:27 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 14:43 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 14:40 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 14:35 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:39 - [恋与深空失控领地](http://www.share.minike.top/Article/details/912238730.shtml)
-- 2026-06-29 14:47 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/165883641192.shtml)
-- 2026-06-29 14:37 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/0823795.shtml)
-- 2026-06-29 14:22 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/8402387000.shtml)
-- 2026-06-29 14:47 - [人民日报评“AI脸看腻了”](https://www.blog.minike.top/Article/details/7591930831.shtml)
-- 2026-06-29 14:24 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/43062.shtml)
-- 2026-06-29 14:35 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/968317.shtml)
-- 2026-06-29 14:21 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/9452579821.shtml)
-- 2026-06-29 14:44 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/28455904830.shtml)
-- 2026-06-29 14:26 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/532268.shtml)
-- 2026-06-29 14:20 - [扬名立万](http://www.blog.minike.top/Article/details/998844126369.shtml)
-- 2026-06-29 14:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/480539377.shtml)
-- 2026-06-29 14:34 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.minike.top/Article/details/4114512.shtml)
-- 2026-06-29 14:20 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/951056.shtml)
-- 2026-06-29 14:38 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/232023964943.shtml)
+- 2026-06-29 14:42 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/32126089.shtml)
+- 2026-06-29 14:43 - [张真源解读相思锁](http://www.share.kurohicncr.top/Article/details/92702768.shtml)
+- 2026-06-29 14:48 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/638214453.shtml)
+- 2026-06-29 14:28 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/7206139.shtml)
+- 2026-06-29 14:41 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/64891191.shtml)
+- 2026-06-29 14:47 - [欧委会总部只给高层开空调](http://www.blog.kurohicncr.top/Article/details/7216827.shtml)
+- 2026-06-29 14:28 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/797034497656.shtml)
+- 2026-06-29 14:40 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/96004382.shtml)
+- 2026-06-29 14:30 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/06832797217.shtml)
+- 2026-06-29 14:49 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/1604522.shtml)
+- 2026-06-29 14:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/24963751920.shtml)
+- 2026-06-29 14:41 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/314014.shtml)
+- 2026-06-29 14:53 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/37458842403.shtml)
+- 2026-06-29 14:44 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/51914416.shtml)
+- 2026-06-29 14:46 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/8271735.shtml)

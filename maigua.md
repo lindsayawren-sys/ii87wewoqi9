@@ -1,57 +1,56 @@
-# 49位一线科学家齐聚“追光课堂”公益课程 培养孩子AI时代的科学思维
+# 博泰车联午前涨近8% 公司携手英伟达布局未来智能出行
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月1日电 (记者 应妮)在贵州黔南的罗甸县木引小学四年级一班的科学课堂上，孩子们围着一台100倍显微镜，争先恐后地把化纤、棉花、羊毛塞到镜头下——他们要回答一个看似平常、却被科学家郑重端到课桌上的问题：“冬天的衣服，为什么能保暖？” 这是日前发生在“追光课堂”——青少年科学素质提升项目的生动一幕。该项目由教育部基础教育司、科学技术与信息化司共同实施，依托腾讯公司、新
+博泰车联（02889）盘中涨超10%，截至发稿，股价上涨7.95%，现报217.20港元，成交额7638.12万港元。 5月29日，博泰车联公告称，该公司与英伟达在美国举行了战略合作签约仪式及相关交流活动。双方围绕车载AI、自动驾驶、下一代计算平台及光通信等前沿领域进行了富有建设性的探讨，并期待未来能够发挥各自优势，探索并加深潜在的合作机会。 值得注意的是，博泰车联最近披露，一
 
 ## 正文
 
-中新网北京6月1日电 (记者 应妮)在贵州黔南的罗甸县木引小学四年级一班的科学课堂上，孩子们围着一台100倍显微镜，争先恐后地把化纤、棉花、羊毛塞到镜头下——他们要回答一个看似平常、却被科学家郑重端到课桌上的问题：“冬天的衣服，为什么能保暖？
+博泰车联（02889）盘中涨超10%，截至发稿，股价上涨7.95%，现报217.20港元，成交额7638.12万港元。
 
-” 这是日前发生在“追光课堂”——青少年科学素质提升项目的生动一幕。
+5月29日，博泰车联公告称，该公司与英伟达在美国举行了战略合作签约仪式及相关交流活动。
 
-该项目由教育部基础教育司、科学技术与信息化司共同实施，依托腾讯公司、新基石科学基金会的公益支持，项目由49位一线科学家与56位教育家深度协作研发，首批112节精品科学课覆盖物质科学、生命科学、地球与宇宙科学、工程与技术四大领域共计27个教学单元的公益课程。
+双方围绕车载AI、自动驾驶、下一代计算平台及光通信等前沿领域进行了富有建设性的探讨，并期待未来能够发挥各自优势，探索并加深潜在的合作机会。
 
-浙江大学求是讲席教授张国捷讲“演化”而非“进化”——“从演化的角度看，人不见得比蟑螂高级”，“在自然选择的过程中，能够生存下来、继续繁衍的生物，就是成功的。
+值得注意的是，博泰车联最近披露，一季度实现营业收入同比增长超过100%，营业利润率同比亦有明显改善。
 
-”这是对孩子整个生命观的重塑。
+公告中最具前瞻性的信息来自AI业务。
 
-北京大学工学院教授杨越从“C罗的香蕉球为什么会拐弯”切入空气动力学，再带孩子亲手设计无动力飞机，完整走过“现象→原理→工程”的科学家路径。
+依托NVIDIA DRIVE AGX Thor加速计算平台开发的AI Box方案，已获得某头部OEM新能源车企新一代智能车型的量产定点，标志着AI Box正式从技术验证走向商业化落地。
 
-“科学家科普课程最大的价值，不是让孩子记住科学知识，而是让孩子在真实问题中，慢慢形成一种更像科学家看世界的思维方式。
+同时，公司正积极探索算力收费、车载Tokens计费等创新商业模式。
 
-”这是北京海淀区教师进修学校创新教育研究中心副主任、教研员陈咏梅在参与“追光课堂”研发时的体会。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:27 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 14:45 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 14:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 14:35 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 14:18 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 14:22 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 14:26 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 14:44 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 14:45 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 14:43 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 14:25 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 14:52 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 14:45 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 14:47 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 14:37 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 14:43 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 14:39 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 14:38 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 14:25 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 14:47 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 14:27 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:46 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.kurohicncr.top/Article/details/0755932.shtml)
-- 2026-06-29 14:30 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/28339353477.shtml)
-- 2026-06-29 14:39 - [俄称继续推进 乌称打击俄军设施](https://www.share.minike.top/Article/details/953611162806.shtml)
-- 2026-06-29 14:43 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/970846073090.shtml)
-- 2026-06-29 14:41 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.kurohicncr.top/Article/details/80369369410.shtml)
-- 2026-06-29 14:32 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/7022144352.shtml)
-- 2026-06-29 14:38 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/82137.shtml)
-- 2026-06-29 14:30 - [记者率先试乘西十高铁](http://www.share.kurohicncr.top/Article/details/217472660106.shtml)
-- 2026-06-29 14:37 - [Mrbeast的30天不吃饭挑战](https://www.share.minike.top/Article/details/744898738.shtml)
-- 2026-06-29 14:29 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/50892.shtml)
-- 2026-06-29 14:24 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.minike.top/Article/details/4962698245.shtml)
-- 2026-06-29 14:39 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/7657907486.shtml)
-- 2026-06-29 14:46 - [加拿大绝杀南非晋级](http://www.share.minike.top/Article/details/824500135075.shtml)
-- 2026-06-29 14:38 - [吴磊爱上回收了](http://www.blog.kurohicncr.top/Article/details/833150677286.shtml)
-- 2026-06-29 14:27 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/0557934.shtml)
+- 2026-06-29 14:41 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/1600455.shtml)
+- 2026-06-29 14:48 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/7250896.shtml)
+- 2026-06-29 14:53 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/6539284754.shtml)
+- 2026-06-29 14:27 - [灿如繁星定档](http://www.blog.minike.top/Article/details/8662072.shtml)
+- 2026-06-29 14:24 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/086388378.shtml)
+- 2026-06-29 14:48 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/9852524.shtml)
+- 2026-06-29 14:26 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/12199456.shtml)
+- 2026-06-29 14:51 - [周深双眼皮贴又掉了](http://www.share.kurohicncr.top/Article/details/99749175760.shtml)
+- 2026-06-29 14:29 - [汪东城回应45岁婚约](https://www.blog.minike.top/Article/details/2484954693.shtml)
+- 2026-06-29 14:32 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/72322868.shtml)
+- 2026-06-29 14:42 - [A股](http://www.share.minike.top/Article/details/6728217.shtml)
+- 2026-06-29 14:37 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/69421.shtml)
+- 2026-06-29 14:30 - [高考志愿今起开始填报](http://www.blog.kurohicncr.top/Article/details/8864106073.shtml)
+- 2026-06-29 14:34 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/488775572.shtml)
+- 2026-06-29 14:46 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/62730531.shtml)

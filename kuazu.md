@@ -1,59 +1,58 @@
-# 中证协召开托管结算与财务会计专业委员会主任委员（扩大）会议
+# “一字”跌停！000586“定增式”易主终止
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月1日电 (记者 陈康亮)据中国证券业协会(下称中证协)1日消息，中证协托管结算与财务会计专业委员会主任委员(扩大)会议近日召开。会议深入学习贯彻2026年全国两会和“十五五”规划纲要精神，研究部署2026年重点工作。会议由委员会主任委员、东吴证券董事长范力主持，协会相关负责人出席会议并致辞，证监会机构司、中国结算相关同志，以及委员会副主任委员、委员代表等20余人参
+筹划“定增式”易主长达半年之久，汇源通信（000586）6月1日宣布，终止向特定对象发行股票事项暨控制权变更终止。受此消息影响，汇源通信股价全天“一字”跌停。 据公告，公司于5月31日召开第十三届董事会第九次会议，同意公司终止2025年度向特定对象发行股票事项，向深交所申请撤回相关申请文件并签署相关终止协议。因本次发行同时构成管理层收购和控制权变更，公司相应终止筹划本次发行涉及
 
 ## 正文
 
-中新网北京6月1日电 (记者 陈康亮)据中国证券业协会(下称中证协)1日消息，中证协托管结算与财务会计专业委员会主任委员(扩大)会议近日召开。
+筹划“定增式”易主长达半年之久，汇源通信（000586）6月1日宣布，终止向特定对象发行股票事项暨控制权变更终止。
 
-会议深入学习贯彻2026年全国两会和“十五五”规划纲要精神，研究部署2026年重点工作。
+受此消息影响，汇源通信股价全天“一字”跌停。
 
-会议由委员会主任委员、东吴证券董事长范力主持，协会相关负责人出席会议并致辞，证监会机构司、中国结算相关同志，以及委员会副主任委员、委员代表等20余人参加会议。
+据公告，公司于5月31日召开第十三届董事会第九次会议，同意公司终止2025年度向特定对象发行股票事项，向深交所申请撤回相关申请文件并签署相关终止协议。
 
-会议指出，2026年全国两会是在“十五五”开局起步关键节点召开的重要会议。
+因本次发行同时构成管理层收购和控制权变更，公司相应终止筹划本次发行涉及的管理层收购和控制权变更事宜，公司仍为无控股股东、无实际控制人。
 
-委员会要深刻领会精神实质，准确把握根本遵循，筑牢托管结算基础设施防线，夯实财务会计专业基础保障，凝聚共识、协同奋进，为资本市场的平稳运行和高质量发展贡献专业力量。
+根据此前交易安排，汇源通信董事长李红星拟通过其控制的鼎耘产业认购公司定增股份，进而入主上市公司，由此构成管理层收购。
 
-会议围绕数据资产价值评估、财务数智化转型、行业税务问题研究、账户管理功能优化、开放式基金结算运营等重点工作开展研讨交流。
+但从深交所问询来看，认购方的出资及控制权认定、大额债务等问题均被监管重点关注。
 
-会议强调，委员会要持续推动行业重点领域自律规则研究和标准建设，着力解决行业税务及实务难题，进一步引导证券公司规范私募基金托管业务，促进行业更好发挥财务管理功能。
+这或许为此次交易终止埋下伏笔。
 
-下一步，委员会表示，将持续加强自身建设，不断提升履职能力，更好发挥行业智库作用，深化托管结算领域基础设施建设与科技赋能融合，加强财务会计前沿问题研究，全面提升托管结算与财会工作服务行业高质量发展的支撑能力。
+管理层收购计划落空 回溯本次交易，2025年11月10日晚间，汇源通信披露关于筹划控制权变更的停牌公告。
 
 ## 相关推荐
 
-- 2026-06-29 14:29 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 14:44 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 14:20 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 14:43 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 14:29 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 14:22 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 14:47 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 14:46 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 14:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 14:18 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 14:34 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 14:18 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 14:36 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 14:29 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 14:47 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 14:26 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 14:24 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 14:29 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 14:27 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 14:52 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 14:44 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 14:49 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 14:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 14:40 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 14:36 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:43 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/24165073.shtml)
-- 2026-06-29 14:29 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.minike.top/Article/details/53533.shtml)
-- 2026-06-29 14:38 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/2334018.shtml)
-- 2026-06-29 14:29 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/473554961.shtml)
-- 2026-06-29 14:19 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.kurohicncr.top/Article/details/48001093976.shtml)
-- 2026-06-29 14:47 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/923513.shtml)
-- 2026-06-29 14:41 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/947273.shtml)
-- 2026-06-29 14:47 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/202902559.shtml)
-- 2026-06-29 14:27 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/5735189992.shtml)
-- 2026-06-29 14:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/528262683.shtml)
-- 2026-06-29 14:29 - [高考公平需要延伸到志愿填报这一环](http://www.blog.kurohicncr.top/Article/details/28765.shtml)
-- 2026-06-29 14:32 - [杨紫 你幸福的话我会比你先流泪](https://www.share.minike.top/Article/details/156603683278.shtml)
-- 2026-06-29 14:31 - [媒体评恋与深空争议](http://www.blog.kurohicncr.top/Article/details/17927914456.shtml)
-- 2026-06-29 14:18 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/859160664.shtml)
-- 2026-06-29 14:24 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/096888459496.shtml)
+- 2026-06-29 14:40 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/282270.shtml)
+- 2026-06-29 14:35 - [第一炉香](https://www.share.kurohicncr.top/Article/details/848337397486.shtml)
+- 2026-06-29 14:44 - [T1对战KC](http://www.blog.minike.top/Article/details/423127129.shtml)
+- 2026-06-29 14:43 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/578018.shtml)
+- 2026-06-29 14:36 - [金价银价下跌 油价上涨](https://www.share.kurohicncr.top/Article/details/558854947.shtml)
+- 2026-06-29 14:27 - [欧委会总部只给高层开空调](https://www.share.minike.top/Article/details/48330089432.shtml)
+- 2026-06-29 14:33 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/503806044871.shtml)
+- 2026-06-29 14:38 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.minike.top/Article/details/822228.shtml)
+- 2026-06-29 14:30 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/3582458.shtml)
+- 2026-06-29 14:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/356850263.shtml)
+- 2026-06-29 14:46 - [人民日报评“AI脸看腻了”](https://www.blog.kurohicncr.top/Article/details/8912481.shtml)
+- 2026-06-29 14:40 - [中餐厅南北饮食差异](https://www.share.kurohicncr.top/Article/details/732149359.shtml)
+- 2026-06-29 14:24 - [世界杯用球成部分门将噩梦](http://www.share.kurohicncr.top/Article/details/65489.shtml)
+- 2026-06-29 14:38 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.kurohicncr.top/Article/details/5671896629.shtml)
+- 2026-06-29 14:50 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/134115.shtml)

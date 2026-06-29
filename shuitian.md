@@ -1,58 +1,57 @@
-# 今年汛期北京降水总量预计偏多
+# Adobe将于2026年6月11日发布第二财季财报，市场聚焦AI战略与增长动能
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中新社北京6月2日电 (记者 陈杭)今年以来(1月1日至5月31日)北京降水量明显偏多，平均气温偏高，大风日数偏多。今年汛期(6月至9月，下同)，与常年(1991年至2020年平均)相比，北京降水总量和强降水日数预计偏多，气温预计偏高且高温日数偏多。这是记者2日从北京市2026年防汛准备工作新闻发布会上获悉的。 北京市气象局副局长宗志平表示，截至5月31日，北京今年平均降水量1
+Adobe今日宣布，将于2026年6月11日美股盘后发布2026财年第二季度财务业绩。财报发布后，公司管理层将于美国东部时间下午5：00举行网络直播电话会议，讨论业绩表现并回答分析师提问。 根据FactSet的共识预期，分析师预计Adobe第二季度非GAAP每股收益为5.01美元，营收预计在64.3亿至64.8亿美元之间。公司此前给出的官方指引为：营收64.3亿至64.8亿美元
 
 ## 正文
 
-中新社北京6月2日电 (记者 陈杭)今年以来(1月1日至5月31日)北京降水量明显偏多，平均气温偏高，大风日数偏多。
+Adobe今日宣布，将于2026年6月11日美股盘后发布2026财年第二季度财务业绩。
 
-今年汛期(6月至9月，下同)，与常年(1991年至2020年平均)相比，北京降水总量和强降水日数预计偏多，气温预计偏高且高温日数偏多。
+财报发布后，公司管理层将于美国东部时间下午5：00举行网络直播电话会议，讨论业绩表现并回答分析师提问。
 
-这是记者2日从北京市2026年防汛准备工作新闻发布会上获悉的。
+根据FactSet的共识预期，分析师预计Adobe第二季度非GAAP每股收益为5.01美元，营收预计在64.3亿至64.8亿美元之间。
 
-北京市气象局副局长宗志平表示，截至5月31日，北京今年平均降水量126.8毫米，比常年同期偏多66%。
+公司此前给出的官方指引为：营收64.3亿至64.8亿美元，非GAAP每股收益5.80至5.85美元，GAAP每股收益4.35至4.40美元。
 
-其中，5月降水为1961年以来同期最多。
+第一季度，Adobe实现营收64亿美元，同比增长12%，非GAAP每股收益6.06美元，双双超出市场预期。
 
-北京已于6月1日进入汛期。
+投资者将密切关注几个核心指标：数字媒体业务的年度经常性收入增长、Firefly等AI产品的商业化进展，以及创意云和专业消费者业务的订阅增长势头。
 
-宗志平说，经与国家气候中心、华北区域各气象部门多次联合会商，综合分析最新气象资料，形成今年北京地区汛期气候趋势预测意见。
+第一季度总ARR达260.6亿美元，同比增长10.9%，AI优先应用的ARR同比增长超过两倍。
 
-宗志平表示，今年汛期，北京平均降水量预计为510至590毫米，比常年同期偏多二至四成，接近近十年同期，少于去年同期；出现大雨及以上量级的降水日数为6至8天，比常年同期偏多。
+过去一年，Adobe正经历从传统软件许可模式向AI驱动的订阅服务的深度转型。
 
 ## 相关推荐
 
-- 2026-06-29 14:24 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 14:40 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 14:34 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 14:28 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 14:37 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 14:34 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 14:37 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 14:40 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 14:34 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 14:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 14:31 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 14:39 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 14:46 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 14:33 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 14:47 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 14:50 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 14:27 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 14:48 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 14:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 14:27 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 14:39 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 14:40 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 14:26 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:23 - [普京称考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/84031.shtml)
-- 2026-06-29 14:28 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/16175565119.shtml)
-- 2026-06-29 14:47 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/98880436.shtml)
-- 2026-06-29 14:36 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.minike.top/Article/details/9975717.shtml)
-- 2026-06-29 14:46 - [比亚迪为什么卖得越多市值越低](http://www.share.minike.top/Article/details/43902784.shtml)
-- 2026-06-29 14:26 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/006074105.shtml)
-- 2026-06-29 14:44 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/3939657531.shtml)
-- 2026-06-29 14:38 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/481491910587.shtml)
-- 2026-06-29 14:47 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.kurohicncr.top/Article/details/27999394900.shtml)
-- 2026-06-29 14:40 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/65196866.shtml)
-- 2026-06-29 14:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/59367242281.shtml)
-- 2026-06-29 14:43 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/63696899.shtml)
-- 2026-06-29 14:37 - [刘烨16岁儿子诺一颜值](https://www.blog.kurohicncr.top/Article/details/7189901914.shtml)
-- 2026-06-29 14:41 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/949987.shtml)
-- 2026-06-29 14:47 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/95836497.shtml)
+- 2026-06-29 14:33 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.kurohicncr.top/Article/details/09005003964.shtml)
+- 2026-06-29 14:32 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/4426720.shtml)
+- 2026-06-29 14:41 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/748215.shtml)
+- 2026-06-29 14:26 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/235416267.shtml)
+- 2026-06-29 14:38 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/54734.shtml)
+- 2026-06-29 14:40 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.kurohicncr.top/Article/details/954183233.shtml)
+- 2026-06-29 14:26 - [迈巴赫提车第二天发现大灯起雾](https://www.share.kurohicncr.top/Article/details/63434438788.shtml)
+- 2026-06-29 14:32 - [李在明称韩国足协任命了无能之人](http://www.blog.kurohicncr.top/Article/details/502401.shtml)
+- 2026-06-29 14:52 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.minike.top/Article/details/979550221.shtml)
+- 2026-06-29 14:30 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/878762057.shtml)
+- 2026-06-29 14:25 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/28633.shtml)
+- 2026-06-29 14:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/06813231.shtml)
+- 2026-06-29 14:48 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.kurohicncr.top/Article/details/41393672257.shtml)
+- 2026-06-29 14:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/13774888.shtml)
+- 2026-06-29 14:45 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/278699.shtml)

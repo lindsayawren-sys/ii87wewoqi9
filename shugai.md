@@ -1,59 +1,60 @@
-# 台湾媒体人参访郑州“竖屏”片场：两岸协作推出更多优质作品
+# （乡村行·看振兴）一条“有礼枇杷街”，何以折射正确政绩观？
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中新社郑州6月2日电 题：台湾媒体人参访郑州“竖屏”片场：两岸协作推出更多优质作品 作者 李百加 走出仿真“法庭”，好似身处20世纪60年代居民起居室内。医院、写字楼、豪华宴会厅……河南郑州大志影视基地里，十数造景首尾相连，步移景异。“沉浸感太强了。”台湾青年导演邱庆龄一路拍摄时说。 5月27日至6月2日，“相约中原·豫见精彩”2026年海峡两岸记者联合采访活动在河南郑州、洛阳
+中新网衢州6月1日电 (张斌)5月，浙江衢州的枇杷树挂满了果，果农盼望的丰收季来了。 清晨5点多，天刚蒙蒙亮，今年65岁的衢州市衢江区周家乡果农宋石室来到地里，摘了满满两大筐枇杷，准备前往城里兜售。和几年前不同，他无需占用人行道和城管“打游击”，而是径直前往位于衢州市柯城区信安街道的“有礼枇杷街”。 “第一天来这里，我就卖了1200块。”在摊位前，宋石室把枇杷按大小分类，跟笔者
 
 ## 正文
 
-中新社郑州6月2日电 题：台湾媒体人参访郑州“竖屏”片场：两岸协作推出更多优质作品 作者 李百加 走出仿真“法庭”，好似身处20世纪60年代居民起居室内。
+中新网衢州6月1日电 (张斌)5月，浙江衢州的枇杷树挂满了果，果农盼望的丰收季来了。
 
-医院、写字楼、豪华宴会厅……河南郑州大志影视基地里，十数造景首尾相连，步移景异。
+清晨5点多，天刚蒙蒙亮，今年65岁的衢州市衢江区周家乡果农宋石室来到地里，摘了满满两大筐枇杷，准备前往城里兜售。
 
-“沉浸感太强了。
+和几年前不同，他无需占用人行道和城管“打游击”，而是径直前往位于衢州市柯城区信安街道的“有礼枇杷街”。
 
-”台湾青年导演邱庆龄一路拍摄时说。
+“第一天来这里，我就卖了1200块。
 
-5月27日至6月2日，“相约中原·豫见精彩”2026年海峡两岸记者联合采访活动在河南郑州、洛阳、开封等地举行。
+”在摊位前，宋石室把枇杷按大小分类，跟笔者算起了账。
 
-采访团走进大志影视基地，近距离观察大陆微短剧产业的发展生态。
+宋石室种了二十多年枇杷。
 
-近年来，以节奏快、反转强、情绪浓烈为特点的大陆微短剧迅速崛起，在台湾掀起观看热潮。
+过去，因为城里卖价高，他都要骑着三轮车在信安街道的太真路、紫荆西路兜售枇杷——这一路段曾经是当地客运枢纽，人流密集，每年枇杷上市季，都会引来衢江区的果农来此集中售卖。
 
-梅花媒体集团“爱传媒”副总编辑陈素贞表示，微短剧已成为不少台湾民众的日常消遣，“很多朋友追看‘霸总’‘婆媳’等题材短剧，轻松解压”。
+“衢江区杜泽镇以及其他地方都有果农。
 
 ## 相关推荐
 
-- 2026-06-29 14:35 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 14:23 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 14:26 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 14:21 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 14:34 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 14:36 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 14:26 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 14:19 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 14:42 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 14:21 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 14:27 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 14:36 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 14:27 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 14:46 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 14:35 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 14:46 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 14:44 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 14:37 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 14:44 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 14:51 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 14:35 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 14:26 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 14:42 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 14:27 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 14:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 14:52 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 14:34 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:47 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/62032331.shtml)
-- 2026-06-29 14:35 - [千与千寻](http://www.share.minike.top/Article/details/971455737.shtml)
-- 2026-06-29 14:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/502933644.shtml)
-- 2026-06-29 14:26 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/0675376.shtml)
-- 2026-06-29 14:36 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/547274.shtml)
-- 2026-06-29 14:32 - [千与千寻](https://www.blog.minike.top/Article/details/920061.shtml)
-- 2026-06-29 14:47 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/26934012.shtml)
-- 2026-06-29 14:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/110928110.shtml)
-- 2026-06-29 14:47 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/21049606.shtml)
-- 2026-06-29 14:29 - [美人鱼](https://www.blog.minike.top/Article/details/0686849.shtml)
-- 2026-06-29 14:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/80890.shtml)
-- 2026-06-29 14:47 - [斛珠夫人](http://www.share.minike.top/Article/details/5235389089.shtml)
-- 2026-06-29 14:21 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/4150843.shtml)
-- 2026-06-29 14:22 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/84438962935.shtml)
-- 2026-06-29 14:24 - [比亚迪为什么卖得越多市值越低](http://www.blog.kurohicncr.top/Article/details/371714888063.shtml)
+- 2026-06-29 14:44 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/940851.shtml)
+- 2026-06-29 14:35 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/459456839.shtml)
+- 2026-06-29 14:42 - [以前不让妆女二可以艳压女主](https://www.blog.kurohicncr.top/Article/details/23160.shtml)
+- 2026-06-29 14:38 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/444395452668.shtml)
+- 2026-06-29 14:54 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/14021652036.shtml)
+- 2026-06-29 14:51 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/3179001.shtml)
+- 2026-06-29 14:47 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/73480.shtml)
+- 2026-06-29 14:27 - [医药股集体爆发](http://www.blog.kurohicncr.top/Article/details/13955155.shtml)
+- 2026-06-29 14:43 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.kurohicncr.top/Article/details/408727219.shtml)
+- 2026-06-29 14:34 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/0596658109.shtml)
+- 2026-06-29 14:27 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.minike.top/Article/details/626725.shtml)
+- 2026-06-29 14:30 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/08865.shtml)
+- 2026-06-29 14:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/581132871.shtml)
+- 2026-06-29 14:50 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/452079522.shtml)
+- 2026-06-29 14:38 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/47023.shtml)

@@ -1,60 +1,53 @@
-# 华泰期货：安全监管全面强化，焦煤昨日盘中触及涨停
+# 2026中国环塔国际拉力赛收车 外籍车手：希望更多人来中国参赛
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-市场分析 期现货方面：昨日双焦期货领涨黑色，焦煤盘中触及涨停，原料市场情绪继续偏强，各地区煤价纷纷涨价，沁源煤矿事故推动山西全面强化安全监管，当地煤矿虽陆续复产，但复产程度远弱于预期，焦煤供应缺口持续存在。焦炭已启动第五轮涨价，每吨上调50-55元。 供需与逻辑：焦炭方面，上周铁水产量持续升高，钢厂对于原料采购积极性较强，加上成本端支持较强，短期焦炭供需结构持续偏紧。本次山西煤
+发布时间：2026年06月02日 13:45 来源：中国新闻网 6月1日，2026中国环塔国际拉力赛在新疆阿克苏市闭幕。本届赛事历时17天，总赛程约7500公里，吸引了中国、俄罗斯、西班牙、墨西哥等多个国家和地区的车手参赛。多位选手表示这是20年来难度最高的一届环塔。赛事跨越多样地貌，13个赛段单日里程可达七八百公里，松软沙漠、坑洼赛道对车手体能与赛车性能都提出极高要求，车队也
 
 ## 正文
 
-市场分析 期现货方面：昨日双焦期货领涨黑色，焦煤盘中触及涨停，原料市场情绪继续偏强，各地区煤价纷纷涨价，沁源煤矿事故推动山西全面强化安全监管，当地煤矿虽陆续复产，但复产程度远弱于预期，焦煤供应缺口持续存在。
+发布时间：2026年06月02日 13:45 来源：中国新闻网 6月1日，2026中国环塔国际拉力赛在新疆阿克苏市闭幕。
 
-焦炭已启动第五轮涨价，每吨上调50-55元。
+本届赛事历时17天，总赛程约7500公里，吸引了中国、俄罗斯、西班牙、墨西哥等多个国家和地区的车手参赛。
 
-供需与逻辑：焦炭方面，上周铁水产量持续升高，钢厂对于原料采购积极性较强，加上成本端支持较强，短期焦炭供需结构持续偏紧。
+多位选手表示这是20年来难度最高的一届环塔。
 
-本次山西煤矿事故带来持续性影响，区域安全整治加码，高瓦斯、煤与瓦斯突出矿井与民营中小煤矿成为监管重点，行业生产端约束加剧。
+赛事跨越多样地貌，13个赛段单日里程可达七八百公里，松软沙漠、坑洼赛道对车手体能与赛车性能都提出极高要求，车队也需要全天候待命修整车辆。
 
-焦煤短期供给量将受制于安监强度与整治周期，中长期供给格局则由表外产能清理进度主导。
+海内外车手均表示，环塔不仅是突破自我极限的赛场，更是连接各国友谊的桥梁，在这里既领略了新疆风光与中国文化，也收获了真挚情谊，不少车手已经定下明年参赛的目标，期待再赴极限之约。
 
-综合判断，焦煤焦炭市场短期供需格局趋紧，市场预计延续偏强运行。
-
-焦煤方面：震荡 焦炭方面：震荡 跨品种：无 跨期：无 期现：无 期权：无 风险 宏观政策、钢厂利润、焦化利润、煤炭供给、基差风险等。
-
-投资咨询业务资格： 证监许可【2011】1289号 免责声明： 本报告基于本公司认为可靠的、已公开的信息编制，但本公司对该等信息的准确性及完整性不作任何保证。
+(贾志鹏 新疆报道） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 14:21 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 14:26 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 14:27 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 14:27 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 14:33 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 14:47 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 14:25 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 14:42 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 14:44 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 14:40 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 14:37 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 14:39 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 14:40 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 14:20 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 14:25 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 14:44 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 14:29 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 14:52 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 14:42 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 14:24 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 14:50 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 14:28 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 14:29 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 14:53 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 14:38 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:47 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.kurohicncr.top/Article/details/829591849733.shtml)
-- 2026-06-29 14:37 - [退休化学教授帮医药研发人员制毒](http://www.share.minike.top/Article/details/8963832.shtml)
-- 2026-06-29 14:28 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/27960702595.shtml)
-- 2026-06-29 14:26 - [T1对战KC](https://www.blog.kurohicncr.top/Article/details/48002339921.shtml)
-- 2026-06-29 14:34 - [我和我的家乡](https://www.blog.minike.top/Article/details/81795.shtml)
-- 2026-06-29 14:47 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.minike.top/Article/details/106951.shtml)
-- 2026-06-29 14:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/459090.shtml)
-- 2026-06-29 14:27 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/3342861.shtml)
-- 2026-06-29 14:24 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.kurohicncr.top/Article/details/51604.shtml)
-- 2026-06-29 14:27 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/579233259.shtml)
-- 2026-06-29 14:27 - [李在明称韩国足协任命了无能之人](https://www.share.kurohicncr.top/Article/details/950245033637.shtml)
-- 2026-06-29 14:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/022297906.shtml)
-- 2026-06-29 14:19 - [俄称继续推进 乌称打击俄军设施](http://www.share.kurohicncr.top/Article/details/4239595.shtml)
-- 2026-06-29 14:19 - [给阿嬷的情书海外口碑](http://www.share.kurohicncr.top/Article/details/0342887.shtml)
-- 2026-06-29 14:36 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/8044022687.shtml)
+- 2026-06-29 14:29 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/836541.shtml)
+- 2026-06-29 14:46 - [锐评浪姐7总决赛](https://www.share.kurohicncr.top/Article/details/3527602.shtml)
+- 2026-06-29 14:30 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/319729178.shtml)
+- 2026-06-29 14:35 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/79154.shtml)
+- 2026-06-29 14:33 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/65887647.shtml)
+- 2026-06-29 14:33 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/510208004512.shtml)
+- 2026-06-29 14:48 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/0441027.shtml)
+- 2026-06-29 14:50 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/3188231327.shtml)
+- 2026-06-29 14:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/940631.shtml)
+- 2026-06-29 14:28 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/97023.shtml)
+- 2026-06-29 14:50 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/1411020732.shtml)
+- 2026-06-29 14:32 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/855152309.shtml)
+- 2026-06-29 14:31 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/65933.shtml)
+- 2026-06-29 14:24 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/1076819387.shtml)
+- 2026-06-29 14:42 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/533638.shtml)

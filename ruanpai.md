@@ -1,57 +1,54 @@
-# 软银宣布750亿欧元投资法国AI基础设施
+# 银诺医药-B拟采纳股份奖励计划
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-软银集团在“选择法国”峰会上宣布，将在法国投资高达750亿欧元，用于开发和运营总容量达5吉瓦的人工智能数据中心。这是软银在欧洲最大规模的人工智能基础设施投资。 根据规划，第一阶段软银将投入450亿欧元，在2031年前于法国北部上法兰西大区的敦刻尔克、博斯凯尔和布尚建设3.1吉瓦的数据中心容量。项目合作伙伴包括法国电力集团和施耐德电气。其中，法国电力集团将为布尚的数据中心提供低碳
+银诺医药-B（02591）发并公告，董事会已建议采纳股份奖励计划。根据组织章程细则的规定，将于股东周年大会上提呈一项特别决议案，以审议及批准建议采纳计划。计划须待股东于2026年6月29日举行的股东周年大会上批准后方告生效。 计划的目的旨在完善本公司的激励机制，透过授予奖励以吸引、激励及留任本公司的选定雇员、关联实体的员工及本公司服务提供者，从而进一步提升参与者的积极性及创造力
 
 ## 正文
 
-软银集团在“选择法国”峰会上宣布，将在法国投资高达750亿欧元，用于开发和运营总容量达5吉瓦的人工智能数据中心。
+银诺医药-B（02591）发并公告，董事会已建议采纳股份奖励计划。
 
-这是软银在欧洲最大规模的人工智能基础设施投资。
+根据组织章程细则的规定，将于股东周年大会上提呈一项特别决议案，以审议及批准建议采纳计划。
 
-根据规划，第一阶段软银将投入450亿欧元，在2031年前于法国北部上法兰西大区的敦刻尔克、博斯凯尔和布尚建设3.1吉瓦的数据中心容量。
+计划须待股东于2026年6月29日举行的股东周年大会上批准后方告生效。
 
-项目合作伙伴包括法国电力集团和施耐德电气。
+计划的目的旨在完善本公司的激励机制，透过授予奖励以吸引、激励及留任本公司的选定雇员、关联实体的员工及本公司服务提供者，从而进一步提升参与者的积极性及创造力。
 
-其中，法国电力集团将为布尚的数据中心提供低碳电力，施耐德电气则将在敦刻尔克港合作开发机器人制造集群。
+计划项下的参与者应受到激励，以更好及稳定的长期方式为本公司服务、创造价值及作出贡献，促进本公司业绩的持续增长，并在提升本公司价值的同时为参与者带来增值利益，从而实现参与者与本公司的共同发展。
 
-软银集团董事长兼首席执行官孙正义在新闻发布会上表示：“人工智能正在进入一个新时代，能够为这一变革建设基础设施的国家将塑造技术、产业和社会的未来。
-
-”他透露，这笔投资是在法国总统马克龙今年4月访问东京期间向他提出的请求后决定的，若计入全产业链配套项目，整体投资体量接近7500亿美元。
-
-法国经济、财政、工业和数字主权部长罗兰·勒斯库尔表示，这是软银集团在欧洲的首个人工智能数据中心项目，体现了法国在人工智能领域的雄心。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:33 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-29 14:29 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 14:36 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 14:23 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 14:39 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 14:44 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 14:20 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 14:25 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 14:31 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 14:48 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 14:34 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 14:37 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 14:37 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 14:34 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 14:40 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 14:32 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 14:47 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 14:45 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 14:30 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 14:45 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 14:53 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 14:37 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 14:44 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:19 - [84岁英国教授成中国网红](http://www.blog.minike.top/Article/details/1372284.shtml)
-- 2026-06-29 14:35 - [6月我国降水为何偏多](http://www.share.minike.top/Article/details/14422.shtml)
-- 2026-06-29 14:46 - [42岁郭碧婷纯素颜状态](http://www.blog.kurohicncr.top/Article/details/644089.shtml)
-- 2026-06-29 14:22 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/54628044.shtml)
-- 2026-06-29 14:41 - [周杰伦演唱会真的好多人啊](https://www.share.kurohicncr.top/Article/details/352350491.shtml)
-- 2026-06-29 14:32 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/8584571695.shtml)
-- 2026-06-29 14:24 - [赵露思爸爸拍vlog翻车了](http://www.share.kurohicncr.top/Article/details/2456701173.shtml)
-- 2026-06-29 14:20 - [韩国队启程回国众将回避镜头](https://www.share.minike.top/Article/details/60508131500.shtml)
-- 2026-06-29 14:28 - [三都主：淘汰赛我会支持日本](http://www.blog.kurohicncr.top/Article/details/39932210.shtml)
-- 2026-06-29 14:44 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/420255441752.shtml)
-- 2026-06-29 14:45 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/4054017.shtml)
-- 2026-06-29 14:43 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/01773.shtml)
-- 2026-06-29 14:22 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/459757.shtml)
-- 2026-06-29 14:29 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/067443405645.shtml)
-- 2026-06-29 14:23 - [欧委会总部只给高层开空调](http://www.share.minike.top/Article/details/27126.shtml)
+- 2026-06-29 14:45 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/8927301.shtml)
+- 2026-06-29 14:51 - [沙特足协主席发布声明主动请辞](http://www.blog.minike.top/Article/details/68848108.shtml)
+- 2026-06-29 14:46 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/95223632692.shtml)
+- 2026-06-29 14:24 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/86421054430.shtml)
+- 2026-06-29 14:37 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/480510759813.shtml)
+- 2026-06-29 14:44 - [逆天祖国人](http://www.blog.minike.top/Article/details/65783174.shtml)
+- 2026-06-29 14:44 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/008523164475.shtml)
+- 2026-06-29 14:36 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/34673678764.shtml)
+- 2026-06-29 14:32 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/849424400.shtml)
+- 2026-06-29 14:42 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/7934561.shtml)
+- 2026-06-29 14:39 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/152193.shtml)
+- 2026-06-29 14:34 - [绘画区你赢了](http://www.share.minike.top/Article/details/8084070.shtml)
+- 2026-06-29 14:49 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/47610285.shtml)
+- 2026-06-29 14:50 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/79602.shtml)
+- 2026-06-29 14:46 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/3046608828.shtml)

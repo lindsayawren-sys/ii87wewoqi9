@@ -1,61 +1,52 @@
-# 2026年广州国际航空货运枢纽高质量发展大会在穗启幕
+# 特朗普称“不在乎”与伊朗的谈判是否结束
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中新网广州6月2日电 (记者 郭军)2026年IATA北亚区CARGO DAY暨广州国际航空货运枢纽高质量发展大会2日在广州启幕。来自全球多个国家的数百名行业代表齐聚羊城，围绕航空枢纽能级跃升与区域经济赋能、空中丝绸之路拓展以及数智化重塑枢纽新能级等核心议题展开深度研讨。 在主旨演讲环节，业界代表分别围绕全球物流网络布局、超级货运枢纽构想、航空货运企业战略等主题，分享前沿洞察与
+美国总统唐纳德·特朗普周一淡化了与伊朗和平谈判可能破裂的消息，他对媒体表示：“老实说，我不在乎谈判是否结束。” 特朗普在周一中午接受记者Eamon Javers电话采访时说：“我真的不在乎，我一点也不关心。”他表示，他认为旷日持久的谈判“开始变得非常乏味”。责任编辑：张俊 SF065
 
 ## 正文
 
-中新网广州6月2日电 (记者 郭军)2026年IATA北亚区CARGO DAY暨广州国际航空货运枢纽高质量发展大会2日在广州启幕。
+美国总统唐纳德·特朗普周一淡化了与伊朗和平谈判可能破裂的消息，他对媒体表示：“老实说，我不在乎谈判是否结束。
 
-来自全球多个国家的数百名行业代表齐聚羊城，围绕航空枢纽能级跃升与区域经济赋能、空中丝绸之路拓展以及数智化重塑枢纽新能级等核心议题展开深度研讨。
+” 特朗普在周一中午接受记者Eamon Javers电话采访时说：“我真的不在乎，我一点也不关心。
 
-在主旨演讲环节，业界代表分别围绕全球物流网络布局、超级货运枢纽构想、航空货运企业战略等主题，分享前沿洞察与实践经验，系统阐述了以“智慧物流”为核心驱动、加速迈向“全球产供链中心”的发展蓝图。
+”他表示，他认为旷日持久的谈判“开始变得非常乏味”。
 
-随后的“货运三人行”研讨环节，三位嘉宾聚焦“全球背景下粤港澳大湾区航空货运市场发展趋势”，从跨境电商变局、贸易规则重塑与数智化转型切入展开深度对话。
-
-圆桌讨论中，国际航空运输协会(IATA)、国泰货运、山东航空货运、中数联及厦门电子口岸等单位专家共同探讨数字化趋势与最佳实践，为行业数字化转型提供了宝贵思路。
-
-当前，全球航空货运在跨境电商强劲驱动下持续走高。
-
-国际航空运输协会(IATA)数据显示，2025年全球航空货运需求较上一年增长3.4%，创历史新高；其中，亚太地区航空公司货运需求最为强劲，同比增长8.4%。
-
-这一旺盛需求正加速向粤港澳大湾区汇聚。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 14:38 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 14:40 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 14:47 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 14:43 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 14:25 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 14:39 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 14:44 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 14:43 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 14:47 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 14:40 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 14:34 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 14:44 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 14:46 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 14:22 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 14:39 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 14:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 14:28 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 14:30 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 14:52 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 14:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 14:27 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 14:47 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 14:44 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 14:37 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 14:27 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 14:26 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 14:48 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 14:43 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 14:24 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:19 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.kurohicncr.top/Article/details/46694.shtml)
-- 2026-06-29 14:42 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.minike.top/Article/details/6912981.shtml)
-- 2026-06-29 14:38 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/6815539545.shtml)
-- 2026-06-29 14:47 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/6514906.shtml)
-- 2026-06-29 14:27 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.kurohicncr.top/Article/details/33957.shtml)
-- 2026-06-29 14:37 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/33542303.shtml)
-- 2026-06-29 14:37 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/2464131.shtml)
-- 2026-06-29 14:41 - [赵露思爸爸拍vlog翻车了](https://www.share.kurohicncr.top/Article/details/681864946.shtml)
-- 2026-06-29 14:25 - [Mrbeast的30天不吃饭挑战](http://www.share.minike.top/Article/details/970182.shtml)
-- 2026-06-29 14:31 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/595047682986.shtml)
-- 2026-06-29 14:32 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.minike.top/Article/details/1516602652.shtml)
-- 2026-06-29 14:25 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/23811.shtml)
-- 2026-06-29 14:38 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/98131674.shtml)
-- 2026-06-29 14:19 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/3913616.shtml)
-- 2026-06-29 14:40 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/29063.shtml)
+- 2026-06-29 14:43 - [一见倾心](http://www.share.kurohicncr.top/Article/details/88335511.shtml)
+- 2026-06-29 14:24 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/3139382.shtml)
+- 2026-06-29 14:48 - [灿如繁星定档](https://www.share.kurohicncr.top/Article/details/033545823.shtml)
+- 2026-06-29 14:36 - [ENC瓦中国香港负印度数据图](http://www.share.kurohicncr.top/Article/details/16928162803.shtml)
+- 2026-06-29 14:25 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/81839512.shtml)
+- 2026-06-29 14:35 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/43596783912.shtml)
+- 2026-06-29 14:48 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/020396979.shtml)
+- 2026-06-29 14:52 - [四川宜宾地震](http://www.blog.minike.top/Article/details/586575.shtml)
+- 2026-06-29 14:36 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/729825.shtml)
+- 2026-06-29 14:24 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/6544689990.shtml)
+- 2026-06-29 14:41 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/56363.shtml)
+- 2026-06-29 14:26 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/074860.shtml)
+- 2026-06-29 14:49 - [当我回母校教书](http://www.blog.minike.top/Article/details/7153657117.shtml)
+- 2026-06-29 14:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/89479340767.shtml)
+- 2026-06-29 14:34 - [媒体评恋与深空争议](http://www.share.kurohicncr.top/Article/details/751880.shtml)

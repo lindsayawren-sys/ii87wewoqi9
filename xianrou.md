@@ -1,47 +1,50 @@
-# 中金：中银香港维持跑赢行业评级 目标价上调至50.40港元
+# 中国平安：将于6月10日实施2025年年度权益分派 每股派发1.75元
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中金发布研报称，维持中银香港（02388）盈利预测、跑赢行业评级不变。当前公司交易于1.4x/1.3x 2026E/2027E P/B，考虑近期资金偏好变化该行将目标价上调11.75%至50.4港元，对应 1.5x/1.4x 2026E/2027E P/B 与 5.1%上行空间。责任编辑：卢昱君
+6月1日金融一线消息，中国平安今日发布2025年年度权益分派实施公告称，本次利润分配以方案实施前的公司总股本18107641995股为基数，每股派发现金红利1.75元（含税），共计派发现金红利人民币31688373491.25元。其中，公司 A 股股本为10660065083 股，A 股共计派发现金红利人民币 18655113895.25 元。除息日为2026年6月10日。 责
 
 ## 正文
 
-中金发布研报称，维持中银香港（02388）盈利预测、跑赢行业评级不变。
+6月1日金融一线消息，中国平安今日发布2025年年度权益分派实施公告称，本次利润分配以方案实施前的公司总股本18107641995股为基数，每股派发现金红利1.75元（含税），共计派发现金红利人民币31688373491.25元。
 
-当前公司交易于1.4x/1.3x 2026E/2027E P/B，考虑近期资金偏好变化该行将目标价上调11.75%至50.4港元，对应 1.5x/1.4x 2026E/2027E P/B 与 5.1%上行空间。
+其中，公司 A 股股本为10660065083 股，A 股共计派发现金红利人民币 18655113895.25 元。
 
-责任编辑：卢昱君
+除息日为2026年6月10日。
+
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 14:38 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 14:37 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 14:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 14:23 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 14:42 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 14:44 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 14:20 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 14:28 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 14:25 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 14:38 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 14:41 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 14:44 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 14:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 14:51 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 14:48 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 14:47 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 14:27 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 14:35 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 14:40 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 14:31 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 14:53 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 14:42 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:43 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/025889826.shtml)
-- 2026-06-29 14:26 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/751569756.shtml)
-- 2026-06-29 14:39 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/4532769688.shtml)
-- 2026-06-29 14:43 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/16049353.shtml)
-- 2026-06-29 14:36 - [事关个税 明日截止请抓紧办理](http://www.share.kurohicncr.top/Article/details/18048.shtml)
-- 2026-06-29 14:20 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.kurohicncr.top/Article/details/03150358376.shtml)
-- 2026-06-29 14:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/894920544.shtml)
-- 2026-06-29 14:25 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/8400540288.shtml)
-- 2026-06-29 14:42 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/942892246779.shtml)
-- 2026-06-29 14:19 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/3191484.shtml)
-- 2026-06-29 14:35 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/4407649201.shtml)
-- 2026-06-29 14:36 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/39540259.shtml)
-- 2026-06-29 14:25 - [詹俊预测德国大胜巴拉圭](http://www.blog.minike.top/Article/details/045479829338.shtml)
-- 2026-06-29 14:33 - [Canna纳尔8-0对位单杀Doran](http://www.blog.kurohicncr.top/Article/details/880386281116.shtml)
-- 2026-06-29 14:25 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/24547565.shtml)
+- 2026-06-29 14:40 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/93500967.shtml)
+- 2026-06-29 14:41 - [俄军新型无人机战力如何](https://www.blog.minike.top/Article/details/33729.shtml)
+- 2026-06-29 14:35 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/628309301.shtml)
+- 2026-06-29 14:51 - [俄称继续推进 乌称打击俄军设施](https://www.share.kurohicncr.top/Article/details/986747.shtml)
+- 2026-06-29 14:32 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/54156298006.shtml)
+- 2026-06-29 14:52 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.kurohicncr.top/Article/details/02672.shtml)
+- 2026-06-29 14:51 - [以前不让妆女二可以艳压女主](http://www.share.minike.top/Article/details/1606034.shtml)
+- 2026-06-29 14:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/804545015806.shtml)
+- 2026-06-29 14:51 - [周杰伦演唱会真的好多人啊](https://www.blog.kurohicncr.top/Article/details/796239136782.shtml)
+- 2026-06-29 14:39 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.minike.top/Article/details/147071.shtml)
+- 2026-06-29 14:36 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/3469577.shtml)
+- 2026-06-29 14:32 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/8384897.shtml)
+- 2026-06-29 14:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/7934979017.shtml)
+- 2026-06-29 14:33 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/755000382849.shtml)
+- 2026-06-29 14:36 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/4771239023.shtml)

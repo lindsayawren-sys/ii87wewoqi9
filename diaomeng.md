@@ -1,58 +1,59 @@
-# 无盈利科技股年内狂飙57%，华尔街集体发出谨慎信号
+# 000820，被证监会立案
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-高盛追踪的一篮子无盈利科技股5月大涨27%，跑赢纳斯达克100指数达17个百分点，创下自2020年11月以来最大单月超额收益。今年以来，该投资组合已累计上涨57%，而同期标普500指数涨幅仅为11%。 这一强势表现主要由市场上最具投机性的科技股引领，包括太空与卫星领域的NextNav、小型AI公司BigBear.ai以及无人机制造商Unusual Machines等。其中，Un
+登录新浪财经APP 搜索【信披】查看更多考评等级 公告突发。 *ST节能（000820）6月2日晚间公告，公司今日收到中国证券监督管理委员会（简称“中国证监会”）《立案告知书》，因公司涉嫌信息披露违法违规，中国证监会决定对公司立案。在立案调查期间，公司将积极配合中国证监会的调查工作，并严格按照相关规定履行信息披露义务。 值得一提的是，*ST节能日前公告，公司于2026年4月28
 
 ## 正文
 
-高盛追踪的一篮子无盈利科技股5月大涨27%，跑赢纳斯达克100指数达17个百分点，创下自2020年11月以来最大单月超额收益。
+登录新浪财经APP 搜索【信披】查看更多考评等级 公告突发。
 
-今年以来，该投资组合已累计上涨57%，而同期标普500指数涨幅仅为11%。
+*ST节能（000820）6月2日晚间公告，公司今日收到中国证券监督管理委员会（简称“中国证监会”）《立案告知书》，因公司涉嫌信息披露违法违规，中国证监会决定对公司立案。
 
-这一强势表现主要由市场上最具投机性的科技股引领，包括太空与卫星领域的NextNav、小型AI公司BigBear.ai以及无人机制造商Unusual Machines等。
+在立案调查期间，公司将积极配合中国证监会的调查工作，并严格按照相关规定履行信息披露义务。
 
-其中，Unusual Machines在5月股价翻倍有余。
+值得一提的是，*ST节能日前公告，公司于2026年4月28日向深圳证券交易所提交了撤销退市风险警示的申请。
 
-然而，在经历了如此迅猛的上涨之后，华尔街多家机构开始向投资者发出警示。
+目前，公司正在积极推进申请撤销退市风险警示的工作进程，目前相关工作尚处于补充材料阶段，能否获得深圳证券交易所批准尚存在不确定性。
 
-由Andrew Tyler领导的摩根大通市场情报部门指出，鉴于债券收益率可能持续高企，投资者理应对科技股中风险最高的部分保持警惕。
+公司官网显示，公司致力于工业节能环保技术与资源综合利用技术的研发与推广，是工业节能环保与资源综合利用的技术方案提供商和工程总承包商。
 
-该机构主张将资金转向行业内更优质的大盘股，因为大型盈利科技股的回购活动有助于推动向优质企业的转型。
+业绩方面，公司2026年第一季度实现营业收入2967.24万元，归属于上市公司股东的扣除非经常性损益的净利润为-100.76万元。
 
-Nationwide首席市场策略师Mark Hackett表示，推动无盈利科技股上涨的力量与散户最爱股票篮子存在明显重叠，反映出投资者在市场上涨时追求最高杠杆敞口的心态。
+公司下属子公司受宏观经济、下游需求波动影响，订单与盈利存在不确定性。
 
 ## 相关推荐
 
-- 2026-06-29 14:36 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 14:26 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 14:41 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 14:42 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 14:46 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 14:27 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 14:40 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 14:46 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 14:46 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 14:18 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 14:46 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 14:40 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 14:31 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 14:45 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 14:28 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 14:43 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 14:51 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 14:26 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 14:41 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 14:29 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 14:24 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 14:38 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 14:36 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 14:29 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 14:32 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:40 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/24674955.shtml)
-- 2026-06-29 14:24 - [媒体：高考后消费应量力而行适度有度](https://www.share.minike.top/Article/details/59607923004.shtml)
-- 2026-06-29 14:21 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/645471754025.shtml)
-- 2026-06-29 14:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/308970.shtml)
-- 2026-06-29 14:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/831447.shtml)
-- 2026-06-29 14:28 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/46112612.shtml)
-- 2026-06-29 14:23 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.kurohicncr.top/Article/details/9059473.shtml)
-- 2026-06-29 14:32 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/9161008.shtml)
-- 2026-06-29 14:20 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/63976078492.shtml)
-- 2026-06-29 14:42 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/21056049796.shtml)
-- 2026-06-29 14:45 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/4044476155.shtml)
-- 2026-06-29 14:45 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/456063.shtml)
-- 2026-06-29 14:23 - [巴基斯坦军方打死29名武装分子](http://www.share.minike.top/Article/details/0784633.shtml)
-- 2026-06-29 14:27 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/3381192203.shtml)
-- 2026-06-29 14:23 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/3105093.shtml)
+- 2026-06-29 14:49 - [农发行总行专家委员会委员杜晓力被查](http://www.share.kurohicncr.top/Article/details/58043.shtml)
+- 2026-06-29 14:34 - [张一山回应与杨紫友情](http://www.share.kurohicncr.top/Article/details/31715899996.shtml)
+- 2026-06-29 14:53 - [四川宜宾地震](http://www.share.kurohicncr.top/Article/details/26949115190.shtml)
+- 2026-06-29 14:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/69053967490.shtml)
+- 2026-06-29 14:48 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/125164.shtml)
+- 2026-06-29 14:35 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/999428.shtml)
+- 2026-06-29 14:37 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/81301.shtml)
+- 2026-06-29 14:28 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.minike.top/Article/details/9040550852.shtml)
+- 2026-06-29 14:51 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/11780443673.shtml)
+- 2026-06-29 14:44 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/68218180.shtml)
+- 2026-06-29 14:53 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/1961127150.shtml)
+- 2026-06-29 14:25 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/3053503392.shtml)
+- 2026-06-29 14:51 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.minike.top/Article/details/34802.shtml)
+- 2026-06-29 14:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/73979420312.shtml)
+- 2026-06-29 14:25 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/64194.shtml)

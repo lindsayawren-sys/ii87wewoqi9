@@ -1,61 +1,60 @@
-# 京东成为国内首个境外旅客“网上离境退税商店”
+# 广西柳工第60万台装载机交付 见证中国制造成“智造”
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-“我买了一款手机，没想到在线上购物也可以发起退税，在酒店就有集中退付点，可以提前领取退税款，体验非常好。”5月31日，一位来自印度尼西亚的游客Angela，在北京市华侨大厦集中退付点，成功收到此前在京东APP购买手机的退税款208.71元，“太方便了！中国的服务真是太超前了！”。 我国实施境外旅客购物离境退税政策，此前均是在线下的退税商店享受退税优惠，而Angela这笔线上购物
+中新网柳州6月1日电 (林馨)“60年前，中国第一台轮式装载机Z435在广西柳州市下线，结束了中国无法自主生产装载机的历史。60年后，柳工第60万台装载机——一台纯电动装载机8110TE将奔赴矿山一线。”广西柳工集团有限公司(下称“柳工”)董事长郑津日前在柳州市表示。 5月31日，2026年柳工5·28全球客户节启幕，柳工第60万台装载机现场交付给海外客户。本次客户节吸引来自5
 
 ## 正文
 
-“我买了一款手机，没想到在线上购物也可以发起退税，在酒店就有集中退付点，可以提前领取退税款，体验非常好。
+中新网柳州6月1日电 (林馨)“60年前，中国第一台轮式装载机Z435在广西柳州市下线，结束了中国无法自主生产装载机的历史。
 
-”5月31日，一位来自印度尼西亚的游客Angela，在北京市华侨大厦集中退付点，成功收到此前在京东APP购买手机的退税款208.71元，“太方便了！
+60年后，柳工第60万台装载机——一台纯电动装载机8110TE将奔赴矿山一线。
 
-中国的服务真是太超前了！
+”广西柳工集团有限公司(下称“柳工”)董事长郑津日前在柳州市表示。
 
-”。
+5月31日，2026年柳工5·28全球客户节启幕，柳工第60万台装载机现场交付给海外客户。
 
-我国实施境外旅客购物离境退税政策，此前均是在线下的退税商店享受退税优惠，而Angela这笔线上购物的离境退税，标志着北京成为国内首个实现网上离境退税落地的城市，同时这也意味着京东成为国内首个境外旅客“网上离境退税商店”。
+本次客户节吸引来自50多个国家和地区的1200余名嘉宾参与。
 
-这一突破性创新实践，不仅是北京优化入境消费环境、落实国家离境退税政策的又一关键成果，也为全国推广线上离境退税提供了可复制、可推广的“京东方案”。
+在柳工挖掘机智慧工厂，5G智能生产线、AGV物流、机器人焊接装配等场景，让外国嘉宾零距离感受中国智能制造的魅力。
 
-据介绍，和传统离境退税服务相比，京东这次最大创新是实现了退税全程线上化，让境外旅客摆脱时空的限制。
+当天，柳工发布全场景电智数解决方案，涵盖纯电、混动、拖电、换电等多种动力路线，以及玄甲电池、电驱桥等核心技术。
 
-境外旅客入境后，可随时随地通过京东英文版和中文版APP的退税功能，选购带离境退税标识商品，或搜索“离境退税”直接进入退税好物专区，在下单时填写身份与出入境信息，系统将自动开具电子离境退税申请单与发票。
+其中，自主研发的智慧矿山管理系统4.0，通过“5G+人工智能+北斗技术”，实现全矿生产可视化管控与智能调度，作业效率提升20%以上。
 
 ## 相关推荐
 
-- 2026-06-29 14:31 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 14:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 14:21 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 14:30 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 14:45 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 14:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 14:44 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 14:42 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 14:23 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 14:41 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 14:26 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 14:25 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 14:39 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 14:43 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 14:42 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 14:41 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 14:50 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 14:33 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 14:48 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 14:44 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 14:31 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 14:43 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 14:28 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 14:44 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 14:42 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 14:52 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 14:53 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 14:38 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 14:51 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:27 - [王楚钦首轮赢下国乒德比](http://www.share.minike.top/Article/details/404390537419.shtml)
-- 2026-06-29 14:31 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/512896823.shtml)
-- 2026-06-29 14:44 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.kurohicncr.top/Article/details/327396946.shtml)
-- 2026-06-29 14:26 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.minike.top/Article/details/684519.shtml)
-- 2026-06-29 14:29 - [张真源解读相思锁](http://www.share.minike.top/Article/details/647748.shtml)
-- 2026-06-29 14:40 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/753411220371.shtml)
-- 2026-06-29 14:22 - [唐艺昕女儿接唐艺昕回家](https://www.share.kurohicncr.top/Article/details/5457246.shtml)
-- 2026-06-29 14:33 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/933311186901.shtml)
-- 2026-06-29 14:23 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/675702.shtml)
-- 2026-06-29 14:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/58908976918.shtml)
-- 2026-06-29 14:35 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/34849.shtml)
-- 2026-06-29 14:25 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/330285469658.shtml)
-- 2026-06-29 14:19 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/208537.shtml)
-- 2026-06-29 14:29 - [沙丘](http://www.blog.kurohicncr.top/Article/details/98649940310.shtml)
-- 2026-06-29 14:25 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/79487.shtml)
+- 2026-06-29 14:37 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/0972959.shtml)
+- 2026-06-29 14:34 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/0643508.shtml)
+- 2026-06-29 14:50 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/530990601086.shtml)
+- 2026-06-29 14:39 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/431551738306.shtml)
+- 2026-06-29 14:26 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/563521.shtml)
+- 2026-06-29 14:47 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/2680646.shtml)
+- 2026-06-29 14:42 - [欧洲人驾车200公里抢购中国空调](https://www.share.kurohicncr.top/Article/details/97076.shtml)
+- 2026-06-29 14:34 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/66992.shtml)
+- 2026-06-29 14:44 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/673271467767.shtml)
+- 2026-06-29 14:52 - [人民日报评“AI脸看腻了”](https://www.share.minike.top/Article/details/9017767.shtml)
+- 2026-06-29 14:40 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/72066.shtml)
+- 2026-06-29 14:26 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/47030676917.shtml)
+- 2026-06-29 14:32 - [国家体育总局政策法规司原副司长获刑](https://www.share.kurohicncr.top/Article/details/89312252534.shtml)
+- 2026-06-29 14:38 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/12015190008.shtml)
+- 2026-06-29 14:51 - [第一炉香](https://www.share.minike.top/Article/details/92683483.shtml)

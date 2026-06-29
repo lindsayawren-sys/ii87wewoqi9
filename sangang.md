@@ -1,58 +1,59 @@
-# Else Nutrition启动2026年第二季度生产计划，以解决断货问题
+# 你以为“友好”的信号，在狗眼里可能是“挑衅”！撸狗时千万不能做
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-Else Nutrition Holdings Inc．宣布启动一项生产计划，以应对美国和加拿大市场日益增长的消费需求，并解决过去一年中因库存不足而导致的多次断货问题。 该公司表示，此前的断货情况已严重影响了公司营收并延缓了增长。新启动的生产计划将确保2026年夏季期间在美国和加拿大市场维持充足库存。公司计划将这一生产势头延续整个夏季，为今年剩余时间储备足够货品。 Else N
+在六一国际儿童节来临之际，为扎实落地《伤害预防控制行动计划(2026-2030年)》，守护儿童健康平安成长，中国疾控中心慢病中心伤害防控与心理健康室聚焦道路交通伤害、溺水、烧烫伤、窒息、犬抓咬伤等儿童高发伤害类型，推出“童心庆六一，安全伴成长”系列预防儿童伤害科普文章。狗狗是人类的朋友，在社区、公园、道路上，我们经常能遇到各种形态可掬的狗狗，但也时常会听说有人被狗抓伤、咬伤的事
 
 ## 正文
 
-Else Nutrition Holdings Inc．宣布启动一项生产计划，以应对美国和加拿大市场日益增长的消费需求，并解决过去一年中因库存不足而导致的多次断货问题。
+在六一国际儿童节来临之际，为扎实落地《伤害预防控制行动计划(2026-2030年)》，守护儿童健康平安成长，中国疾控中心慢病中心伤害防控与心理健康室聚焦道路交通伤害、溺水、烧烫伤、窒息、犬抓咬伤等儿童高发伤害类型，推出“童心庆六一，安全伴成长”系列预防儿童伤害科普文章。
 
-该公司表示，此前的断货情况已严重影响了公司营收并延缓了增长。
+狗狗是人类的朋友，在社区、公园、道路上，我们经常能遇到各种形态可掬的狗狗，但也时常会听说有人被狗抓伤、咬伤的事情。
 
-新启动的生产计划将确保2026年夏季期间在美国和加拿大市场维持充足库存。
+被狗抓伤、咬伤可能造成出血，留下瘢痕，严重时会影响机体功能、造成残疾；如果被携带狂犬病病毒的狗抓伤、咬伤，还可能感染狂犬病毒，甚至导致死亡。
 
-公司计划将这一生产势头延续整个夏季，为今年剩余时间储备足够货品。
+因此，我们不应该轻视这类伤害，预防被狗抓伤、咬伤才是最好的办法。
 
-Else Nutrition首席执行官兼联合创始人Hamutal Yitzhak表示：“我非常高兴能够启动这项生产计划以避免断货。
+狗是人类的朋友，在社区、公园、道路上，我们经常能遇到狗，也时常会听说有人被狗抓伤、咬伤的事情。
 
-这将使我们能够支持美国市场不断增长的产品需求以及加拿大市场的产品重新推出。
+很多小朋友被狗抓伤、咬伤，是因为做出了让狗“误会”的行为，进而遭到狗的攻击。
 
-拥有充足的产品来满足不断增长的消费者需求，将使公司能够回归增长轨道并实现盈利目标。
+狗是食肉目、犬科属哺乳动物，与人类有着完全不同的行为方式。
 
-” Else Nutrition是一家专注于为婴儿、幼儿、儿童和成人开发全植物基营养产品的企业。
+我们用人类的行为习惯和狗接触时，可能无意间向狗发出错误信号，从而招致攻击。
 
 ## 相关推荐
 
-- 2026-06-29 14:30 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 14:34 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 14:39 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 14:30 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 14:26 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 14:24 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 14:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 14:19 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 14:44 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 14:25 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 14:45 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 14:18 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 14:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 14:43 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 14:25 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 14:41 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 14:26 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 14:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 14:45 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 14:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 14:31 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 14:34 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 14:41 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 14:46 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 14:25 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:24 - [AG 钟意](https://www.blog.minike.top/Article/details/09190.shtml)
-- 2026-06-29 14:46 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/3776437683.shtml)
-- 2026-06-29 14:19 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/1803232466.shtml)
-- 2026-06-29 14:42 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.kurohicncr.top/Article/details/99153583811.shtml)
-- 2026-06-29 14:43 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/3173337335.shtml)
-- 2026-06-29 14:46 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/42845817460.shtml)
-- 2026-06-29 14:35 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.minike.top/Article/details/62454851136.shtml)
-- 2026-06-29 14:20 - [血糖高的人能吃西瓜吗](http://www.blog.minike.top/Article/details/372497003877.shtml)
-- 2026-06-29 14:27 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/9804540376.shtml)
-- 2026-06-29 14:18 - [流金岁月](https://www.blog.minike.top/Article/details/860722241849.shtml)
-- 2026-06-29 14:27 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/907911965836.shtml)
-- 2026-06-29 14:45 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.share.kurohicncr.top/Article/details/15228640.shtml)
-- 2026-06-29 14:41 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/7387117.shtml)
-- 2026-06-29 14:26 - [永远保持对人民的赤子之心](http://www.share.minike.top/Article/details/141711.shtml)
-- 2026-06-29 14:38 - [TOP 无畏契约](http://www.blog.minike.top/Article/details/895383105611.shtml)
+- 2026-06-29 14:35 - [媒体评恋与深空争议](https://www.share.kurohicncr.top/Article/details/39203.shtml)
+- 2026-06-29 14:47 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/8790956321.shtml)
+- 2026-06-29 14:29 - [AG 钟意](https://www.share.minike.top/Article/details/94017.shtml)
+- 2026-06-29 14:25 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/75316851.shtml)
+- 2026-06-29 14:27 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/56935112522.shtml)
+- 2026-06-29 14:53 - [高考志愿今起开始填报](http://www.share.minike.top/Article/details/7967148989.shtml)
+- 2026-06-29 14:45 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/15554517648.shtml)
+- 2026-06-29 14:39 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/295284560824.shtml)
+- 2026-06-29 14:37 - [光与夜之恋](https://www.blog.minike.top/Article/details/66483.shtml)
+- 2026-06-29 14:30 - [异世界一点都不好玩！](https://www.blog.kurohicncr.top/Article/details/421767507.shtml)
+- 2026-06-29 14:26 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/51075650.shtml)
+- 2026-06-29 14:28 - [男孩复读一年减重20斤涨分111分](http://www.share.kurohicncr.top/Article/details/992276890872.shtml)
+- 2026-06-29 14:53 - [一见倾心](http://www.share.minike.top/Article/details/8028966.shtml)
+- 2026-06-29 14:48 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.kurohicncr.top/Article/details/392068993.shtml)
+- 2026-06-29 14:52 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/52104036.shtml)

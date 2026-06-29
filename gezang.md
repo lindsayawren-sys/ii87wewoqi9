@@ -1,49 +1,56 @@
-# 中国平安：将于6月10日实施2025年年度权益分派 每股派发1.75元
+# 湖南云端上的“守风人”：用青春点亮万家灯火
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-6月1日金融一线消息，中国平安今日发布2025年年度权益分派实施公告称，本次利润分配以方案实施前的公司总股本18107641995股为基数，每股派发现金红利1.75元（含税），共计派发现金红利人民币31688373491.25元。其中，公司 A 股股本为10660065083 股，A 股共计派发现金红利人民币 18655113895.25 元。除息日为2026年6月10日。 责
+中新网郴州6月1日电 题：湖南云端上的“守风人”：用青春点亮万家灯火 作者 张雪盈 徐志雄 六月的湘南山区，烈日灼灼，万里无云。在郴州市宜章县，华电新能湖南分公司太平里风电场的50组风力发电机组散落在群山之间，将山间劲风化为电能，点亮千家万户。出生于1999年的长沙小伙谭致垚，正穿上长袖检修工作服，系好安全绳，准备登机作业。 这位拥有硕士学位的“Z世代”，并未像大多数同龄人一样
 
 ## 正文
 
-6月1日金融一线消息，中国平安今日发布2025年年度权益分派实施公告称，本次利润分配以方案实施前的公司总股本18107641995股为基数，每股派发现金红利1.75元（含税），共计派发现金红利人民币31688373491.25元。
+中新网郴州6月1日电 题：湖南云端上的“守风人”：用青春点亮万家灯火 作者 张雪盈 徐志雄 六月的湘南山区，烈日灼灼，万里无云。
 
-其中，公司 A 股股本为10660065083 股，A 股共计派发现金红利人民币 18655113895.25 元。
+在郴州市宜章县，华电新能湖南分公司太平里风电场的50组风力发电机组散落在群山之间，将山间劲风化为电能，点亮千家万户。
 
-除息日为2026年6月10日。
+出生于1999年的长沙小伙谭致垚，正穿上长袖检修工作服，系好安全绳，准备登机作业。
 
-责任编辑：曹睿潼
+这位拥有硕士学位的“Z世代”，并未像大多数同龄人一样选择留在繁华的都市，而是逆向奔赴离家近400公里的深山之中，成为一名云端“守风人”。
+
+在他看来，相较于都市职场的快节奏生活，个人的成长离不开一线工作经验的积累，深山里的基层岗位更能沉淀心性、锤炼本领。
+
+风电运维工作远非吹吹风、看看景那般简单浪漫，而是一个集脑力与体力劳动于一体的“苦差事”。
+
+谭致垚与同事除了在场站控制室监控机组运行情况、总结抄送运行数据报表外，还需在发现异常时第一时间驱车赶往现场，进行查看或检修。
+
+风电机组内部空间狭小。
 
 ## 相关推荐
 
-- 2026-06-29 14:31 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 14:32 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 14:34 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 14:20 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 14:21 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 14:42 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 14:24 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 14:41 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 14:41 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 14:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 14:47 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 14:51 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 14:35 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 14:39 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 14:38 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 14:28 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 14:40 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 14:26 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 14:33 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 14:52 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 14:40 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:28 - [美人鱼](http://www.share.kurohicncr.top/Article/details/9814542.shtml)
-- 2026-06-29 14:37 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/250415582749.shtml)
-- 2026-06-29 14:30 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/49762.shtml)
-- 2026-06-29 14:42 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.kurohicncr.top/Article/details/91853380.shtml)
-- 2026-06-29 14:33 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/21836404.shtml)
-- 2026-06-29 14:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/558947012.shtml)
-- 2026-06-29 14:23 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/13863095.shtml)
-- 2026-06-29 14:31 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/96644.shtml)
-- 2026-06-29 14:36 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/71277248.shtml)
-- 2026-06-29 14:28 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/04977796.shtml)
-- 2026-06-29 14:37 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/9081872769.shtml)
-- 2026-06-29 14:48 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/87551.shtml)
-- 2026-06-29 14:18 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/80193.shtml)
-- 2026-06-29 14:20 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/5827207.shtml)
-- 2026-06-29 14:30 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/032288229.shtml)
+- 2026-06-29 14:34 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/90355704.shtml)
+- 2026-06-29 14:26 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/70952860.shtml)
+- 2026-06-29 14:27 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/7172730872.shtml)
+- 2026-06-29 14:49 - [美国近12万名科技员工被解雇](https://www.blog.minike.top/Article/details/06975870.shtml)
+- 2026-06-29 14:29 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/372123101973.shtml)
+- 2026-06-29 14:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/17657070135.shtml)
+- 2026-06-29 14:51 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/4973426996.shtml)
+- 2026-06-29 14:53 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/01705.shtml)
+- 2026-06-29 14:41 - [赵露思爸爸拍vlog翻车了](https://www.blog.kurohicncr.top/Article/details/4843828253.shtml)
+- 2026-06-29 14:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/67165532721.shtml)
+- 2026-06-29 14:53 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/3231082679.shtml)
+- 2026-06-29 14:39 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/777595.shtml)
+- 2026-06-29 14:51 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/697340407.shtml)
+- 2026-06-29 14:47 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/61321.shtml)
+- 2026-06-29 14:31 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/92705.shtml)

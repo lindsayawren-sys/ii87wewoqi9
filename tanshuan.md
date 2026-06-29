@@ -1,57 +1,50 @@
-# 建设银行：孙孝坤正式就任执行董事
+# 中国电力建设企业协会会长王思强：电力建设的核心逻辑已经改变
 
-> 更新时间：2026-06-29 14:48:02 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-6月2日金融一线消息，建设银行发布公告，2026年4月29日，中国建设银行股份有限公司2026年第一次临时股东会会议审议通过了关于选举孙孝坤担任建设银行执行董事的议案。国家金融监督管理总局现已核准孙孝坤的任职资格，孙孝坤正式就任建设银行执行董事。 简历显示，孙孝坤，1968年7月出生，中国国籍。自2026年3月起任建设银行党委副书记。2023年9月至2026年3月任中国农业发展
+6月2日消息，在今天举行的第十九届（2026）国际太阳能光伏和智慧能源（上海）大会开幕式上，中国电力建设企业协会会长，国际金融论坛（IFF）能源转型与发展委员会主席王思强在致辞中表示，电力建设行业正在经历从规模扩张向系统协同的深刻转型，过去追求的是装机容量的数字奇迹，今天在“十五五”规划的新周期下，电力建设的核心逻辑已经改变，无论是沙戈荒大基地还是海上风电，面临的最大挑战不再是
 
 ## 正文
 
-6月2日金融一线消息，建设银行发布公告，2026年4月29日，中国建设银行股份有限公司2026年第一次临时股东会会议审议通过了关于选举孙孝坤担任建设银行执行董事的议案。
+6月2日消息，在今天举行的第十九届（2026）国际太阳能光伏和智慧能源（上海）大会开幕式上，中国电力建设企业协会会长，国际金融论坛（IFF）能源转型与发展委员会主席王思强在致辞中表示，电力建设行业正在经历从规模扩张向系统协同的深刻转型，过去追求的是装机容量的数字奇迹，今天在“十五五”规划的新周期下，电力建设的核心逻辑已经改变，无论是沙戈荒大基地还是海上风电，面临的最大挑战不再是单一的设备安装，而是如何通过源网荷储的协同互动，解决高比例新能源接入后的消纳与稳定难题。
 
-国家金融监督管理总局现已核准孙孝坤的任职资格，孙孝坤正式就任建设银行执行董事。
+王思强指出，未来的电力建设工程不再是钢筋水泥的堆砌，而是物理电网与数字网络的深度融合。
 
-简历显示，孙孝坤，1968年7月出生，中国国籍。
+作为电力建设者，必须具备系统思维，将储能、氢能与传统电力施工有机结合，让每一度绿电都能送得出、用得好。
 
-自2026年3月起任建设银行党委副书记。
-
-2023年9月至2026年3月任中国农业发展银行副行长；2023年5月至2023年9月任国家开发银行信息科技部总经理；2020年8月至2023年5月任国开证券股份有限公司董事长；2019年4月至2020年8月任国家开发银行巡视工作领导小组办公室主任；2017年5月至2019年4月任国开证券股份有限公司监事长；2016年6月至2017年5月任中非发展基金有限公司监事长；2010年10月至2016年6月先后任国家开发银行风险管理局副局长、信息科技局副局长兼数据运行中心主任、信息科技局副局长兼开发测试中心主任、人事局副局长。
-
-孙孝坤是高级经济师，1990年获复旦大学理学学士学位，2004年获暨南大学经济学硕士学位。
-
-责任编辑：秦艺
+（刘丽丽）责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 14:30 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 14:20 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 14:24 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 14:20 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 14:38 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 14:42 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 14:36 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 14:23 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 14:20 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 14:31 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 14:36 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 14:38 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 14:42 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 14:30 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 14:43 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 14:25 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 14:35 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 14:25 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 14:30 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 14:25 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 14:41 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 14:47 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 14:33 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 14:28 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 14:44 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:37 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/097118360.shtml)
-- 2026-06-29 14:34 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/49535341.shtml)
-- 2026-06-29 14:42 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/48389511570.shtml)
-- 2026-06-29 14:28 - [未来5年全国能源体系将呈现这些特征](http://www.share.minike.top/Article/details/44770484704.shtml)
-- 2026-06-29 14:21 - [千与千寻](https://www.share.kurohicncr.top/Article/details/950997.shtml)
-- 2026-06-29 14:45 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/39897310.shtml)
-- 2026-06-29 14:40 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/7394724399.shtml)
-- 2026-06-29 14:27 - [下飞机后，我做了个很蠢的决定......](https://www.blog.kurohicncr.top/Article/details/905097.shtml)
-- 2026-06-29 14:45 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/699738.shtml)
-- 2026-06-29 14:18 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/189030.shtml)
-- 2026-06-29 14:31 - [南非老帅布罗斯的梦没能做完](http://www.blog.minike.top/Article/details/074175.shtml)
-- 2026-06-29 14:20 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/27080526.shtml)
-- 2026-06-29 14:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/09685046.shtml)
-- 2026-06-29 14:22 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/3391160.shtml)
-- 2026-06-29 14:37 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/5032956841.shtml)
+- 2026-06-29 14:40 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/7774089.shtml)
+- 2026-06-29 14:50 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/5492839128.shtml)
+- 2026-06-29 14:31 - [事关个税 明日截止请抓紧办理](http://www.blog.minike.top/Article/details/76557.shtml)
+- 2026-06-29 14:41 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/30054936.shtml)
+- 2026-06-29 14:48 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/28085716438.shtml)
+- 2026-06-29 14:36 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/7733107093.shtml)
+- 2026-06-29 14:34 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/973624.shtml)
+- 2026-06-29 14:46 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/5171978304.shtml)
+- 2026-06-29 14:44 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/2423547328.shtml)
+- 2026-06-29 14:25 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/86132.shtml)
+- 2026-06-29 14:34 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/27074797761.shtml)
+- 2026-06-29 14:50 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/4303572.shtml)
+- 2026-06-29 14:43 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/50248.shtml)
+- 2026-06-29 14:35 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/1714182153.shtml)
+- 2026-06-29 14:53 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/63110873.shtml)

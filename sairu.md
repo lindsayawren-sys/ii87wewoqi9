@@ -1,57 +1,61 @@
-# “侨助千企万品出海”经贸交流活动在成都举行
+# 圣保罗华星艺术团走过十周年
 
-> 更新时间：2026-06-29 14:48:03 UTC+8
+> 更新时间：2026-06-29 14:54:02 UTC+8
 
 ## 摘要
 
-中新网成都6月2日电 (记者 岳依桐)作为2026“一带一路”华侨华人合作发展大会的重要专场活动之一，“侨助千企万品出海”经贸交流活动6月2日在四川省成都市举行。本次活动旨在搭建海外侨商与内地企业的经贸交流平台，汇聚海外侨商组织力量，助力川渝企业、产品出海。 据了解，“侨助千企万品出海”行动以“一带一路”共建国家为重点，联动侨联组织、侨界社团、侨资企业，打通海内外对接通道，推动
+发布时间：2026年06月01日 22:26 来源：中国新闻网 当地时间5月31日晚，巴西圣保罗华星艺术团成立十周年暨原华声艺术团成立三十周年庆典在巴西圣保罗举行。中国驻圣保罗总领事余鹏，巴西华人协会会长叶周永，圣保罗华星艺术团团长李青霞，巴西友华人士，侨团、华文学校代表齐聚一堂，共庆华章。 晚会展演多个文艺节目，传承中华国粹经典韵味，又融合拉美本土文化特色。 圣保罗华星艺术团
 
 ## 正文
 
-中新网成都6月2日电 (记者 岳依桐)作为2026“一带一路”华侨华人合作发展大会的重要专场活动之一，“侨助千企万品出海”经贸交流活动6月2日在四川省成都市举行。
+发布时间：2026年06月01日 22:26 来源：中国新闻网 当地时间5月31日晚，巴西圣保罗华星艺术团成立十周年暨原华声艺术团成立三十周年庆典在巴西圣保罗举行。
 
-本次活动旨在搭建海外侨商与内地企业的经贸交流平台，汇聚海外侨商组织力量，助力川渝企业、产品出海。
+中国驻圣保罗总领事余鹏，巴西华人协会会长叶周永，圣保罗华星艺术团团长李青霞，巴西友华人士，侨团、华文学校代表齐聚一堂，共庆华章。
 
-据了解，“侨助千企万品出海”行动以“一带一路”共建国家为重点，联动侨联组织、侨界社团、侨资企业，打通海内外对接通道，推动高端化、智能化、绿色化产品出海，助力中国企业、品牌、制造与服务走向世界。
+晚会展演多个文艺节目，传承中华国粹经典韵味，又融合拉美本土文化特色。
 
-截至去年底，全国20余个省市区侨联已开展相关行动，对接国内企业7000余家、海外企业近5000家，促成万款产品出海，推动国内企业与100多个国家的2600余家海外侨商社团建立常态化联系，协助建成海外展销中心、海外仓500余个。
+圣保罗华星艺术团前身华声艺术团，由温州籍华侨李青霞等侨胞于1996年一手创立。
 
-中国侨联副主席余国春表示，希望强化引领，将“侨助千企万品出海”行动深度融入共建“一带一路”发展大局；完善服务体系，打造全链条、全周期、全方位出海支持平台；创新合作模式，推动产品出海向品牌、标准出海升级。
+国务院侨办于2016年授牌“文化中国·华星艺术团”，此后连续8年举办华星闪耀新春快闪活动，每年赴巴西多地举办文化节、春节联欢活动，多次受邀赴智利、阿根廷、苏里南等拉美国家演出。
 
-中国侨联将始终坚守“为侨服务”宗旨，持续深化“侨助千企万品出海”行动，积极搭建经贸交流、项目对接、资源共享等平台，全力为侨商赋能、为企业出海护航。
+现场还举行了表彰仪式。
 
-当日活动上，发布了“一带一路”海外侨商产业园区建设成果，并进行“侨助千企万品出海”代表性项目展示。
+余鹏向李青霞颁发“卓越成就奖”。
 
-据了解，本次展示项目涵盖智能制造、跨境贸易、外贸服务、智能产业园区和海外仓建设等多个领域，充分体现了广大华侨华人在出海拓市中的独特资源与渠道优势，彰显了四川在共建“一带一路”的枢纽作用。
+华星艺术团也向长期支持艺术团发展的侨团侨领、优秀教师及优秀学员颁发奖杯、锦旗和荣誉证书。
 
 ## 相关推荐
 
-- 2026-06-29 14:26 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 14:45 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 14:43 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 14:26 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 14:40 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 14:19 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 14:40 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 14:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 14:21 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 14:38 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 14:40 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 14:48 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 14:38 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 14:46 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 14:25 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 14:32 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 14:53 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 14:46 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 14:50 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 14:30 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 14:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 14:39 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 14:26 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 14:44 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 14:47 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 14:37 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:19 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/19435210.shtml)
-- 2026-06-29 14:30 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.minike.top/Article/details/304253931879.shtml)
-- 2026-06-29 14:33 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/010392995140.shtml)
-- 2026-06-29 14:34 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/199450500624.shtml)
-- 2026-06-29 14:34 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/695451816223.shtml)
-- 2026-06-29 14:32 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/0665186.shtml)
-- 2026-06-29 14:25 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/205953628451.shtml)
-- 2026-06-29 14:32 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/5709057.shtml)
-- 2026-06-29 14:46 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/3837736021.shtml)
-- 2026-06-29 14:28 - [第一炉香](https://www.blog.minike.top/Article/details/98620.shtml)
-- 2026-06-29 14:31 - [四川宜宾地震](http://www.share.kurohicncr.top/Article/details/23815187.shtml)
-- 2026-06-29 14:36 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/12268601510.shtml)
-- 2026-06-29 14:26 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/4955974671.shtml)
-- 2026-06-29 14:34 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/838243509066.shtml)
-- 2026-06-29 14:41 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/833930515.shtml)
+- 2026-06-29 14:33 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/19166902.shtml)
+- 2026-06-29 14:40 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/0177433.shtml)
+- 2026-06-29 14:53 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/06832176.shtml)
+- 2026-06-29 14:52 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.minike.top/Article/details/0540346231.shtml)
+- 2026-06-29 14:44 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/68179.shtml)
+- 2026-06-29 14:26 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/934962361.shtml)
+- 2026-06-29 14:25 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/846946411940.shtml)
+- 2026-06-29 14:42 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/89105307424.shtml)
+- 2026-06-29 14:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/154043.shtml)
+- 2026-06-29 14:46 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/67570.shtml)
+- 2026-06-29 14:40 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/887996663.shtml)
+- 2026-06-29 14:51 - [爸爸当家](https://www.share.minike.top/Article/details/922334624018.shtml)
+- 2026-06-29 14:25 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/9248237595.shtml)
+- 2026-06-29 14:27 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/7089865876.shtml)
+- 2026-06-29 14:37 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/48827.shtml)
