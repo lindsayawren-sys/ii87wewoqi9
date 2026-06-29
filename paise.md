@@ -1,60 +1,60 @@
-# 三峡水库去冬今春枯水期累计补水超百亿立方米
+# IPO前因《蓝皮书》疑遭行业协会批评，背后护家科技一年花10亿做推广
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-中新社湖北宜昌5月12日电 (郭晓莹 朱文丽)据三峡集团消息，三峡水库于2025年11月21日启动枯水期补水调度，截至2026年5月12日，已累计为长江中下游补水超100亿立方米。 每年冬季至来年春季是长江流域少雨时期，为有效应对枯水期挑战，三峡集团依据水利部长江水利委员会调度要求科学制定补水方案，持续加大三峡水库下泄流量，日均出库流量超7000立方米每秒，平均出库流量超自然平
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：风云IPO 港交所 化妆品营销边界在哪里？ 作者|郑佳 编辑|高远山 “为什么别人用着有效，我用就烂脸？”、“成分表里的‘王炸’，怎么到了脸上就哑火？” 这是无数在“早C晚A”、玻色因、胜肽等成分迷宫中反复试错的护肤爱好者的共同困惑。当消费者的信任阈值越来越高，品牌们意识到，过去那种依靠KOL（意见领袖）大喊“太好用了”的
 
 ## 正文
 
-中新社湖北宜昌5月12日电 (郭晓莹 朱文丽)据三峡集团消息，三峡水库于2025年11月21日启动枯水期补水调度，截至2026年5月12日，已累计为长江中下游补水超100亿立方米。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：风云IPO 港交所 化妆品营销边界在哪里？
 
-每年冬季至来年春季是长江流域少雨时期，为有效应对枯水期挑战，三峡集团依据水利部长江水利委员会调度要求科学制定补水方案，持续加大三峡水库下泄流量，日均出库流量超7000立方米每秒，平均出库流量超自然平均流量近六成。
+作者|郑佳 编辑|高远山 “为什么别人用着有效，我用就烂脸？
 
-根据国家统计局发布的《中华人民共和国2024年国民经济和社会发展统计公报》，2024年中国人均用水量为421立方米。
+”、“成分表里的‘王炸’，怎么到了脸上就哑火？
 
-按这一标准计算，三峡水库本轮枯水期补水量相当于约2375万人的全年用水量。
+” 这是无数在“早C晚A”、玻色因、胜肽等成分迷宫中反复试错的护肤爱好者的共同困惑。
 
-三峡集团负责人表示，目前长江流域正式进入汛期，三峡集团将密切监测水雨情变化，持续跟踪上游来水与中下游用水情况，按照主管部门统一调度，为防洪、补水、生态等效益充分发挥创造有利条件。
+当消费者的信任阈值越来越高，品牌们意识到，过去那种依靠KOL（意见领袖）大喊“太好用了”的粗暴营销已然失灵。
 
-三峡水库在每年汛末蓄水，在枯水期至次年汛前逐渐释放并腾出库容，以“蓄丰补枯”调度，为长江中下游沿线民生供水、农业生产、航运畅通及生态保护提供保障。
+于是，一种更高级、更隐晦的营销模式，“以报告之名，行营销之实”，正在将化妆品行业的战火，从种草直播间一路烧到实验室和行业协会的会议桌上。
 
-据三峡集团提供的数据显示，三峡水库建成以来，年均向下游补水220亿立方米，历年累计补水超3600亿立方米，使枯水期下游流量较常年天然流量增加33%以上，满足长江中下游民众生产生活用水需求，有效促进了长江水生态系统稳定。
+2026年1月，功效护肤品牌HBN母公司护家科技（集团）股份有限公司向港交所递交《招股书》。
 
-(完)
+《招股书》显示，2024年公司营收20.83亿元，净利润1.29亿元，凭借“早C晚A”概念和A醇系列产品，成立六年的HBN已跻身国货功效护肤第一梯队。
 
 ## 相关推荐
 
-- 2026-06-29 12:25 - [广西融安开展校园防震演练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:14 - [特朗普寻求暂停征收联邦汽油税 “直到合适的时候为止”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:37 - [2026年全国家庭教育宣传周活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:14 - [刘涛演妈祖火遍两岸 蒙曼：因为我们有共同的历史认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:35 - [什么软件可以看基金的实时估值？这款软件可以满足你的投资需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:27 - [“洪迪厄斯”号邮轮两名比利时乘客汉坦病毒检测结果呈阴性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:30 - [中央气象台：每 日 天 气 提 示（2026年05月12日）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:22 - [习近平会见文莱王储比拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:25 - [对冲基金押注生物燃料，欲从伊朗石油价格冲击中获利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:38 - [大涨后，多只牛股急发警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:41 - [陕西宝鸡：道岔之下绽芳华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:33 - [泽连斯基称俄罗斯无意结束冲突，停火期间前线战斗仍在继续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:34 - [国家统计局：4月居民消费价格指数同比上涨1.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:24 - [特朗普推迟下调牛肉进口关税计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:37 - [消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:46 - [自然资源部：已建成省级以上绿色矿山5500余家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:21 - [美国启动关税退款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:25 - [龙虎榜动向：7股获机构及北向资金集体净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:31 - [武汉出台城市更新条例 以法治护航城市品质提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:41 - [不止汽车！朱华荣：中国长安摩托车业务年销80万台，高端车型比汽车还贵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:40 - [第十三批在韩中国人民志愿军烈士遗骸启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:34 - [黄金后市走向何方？5044美元值得重点关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:27 - [人形机器人租赁市场多个交易环节缺乏标准 新行业需要适配新规则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:29 - [Web3嘉年华·新浪财经分论坛：香港以法治化推动数字金融发展 行业已进入常态化实际运营阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:35 - [美联航财报前瞻：原油暴涨、高端客群发力、并购传闻均成焦点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:21 - [库克宣布将卸任苹果CEO，特朗普、巴菲特、奥特曼等人这样说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:45 - [北京查处多起违规拼豆玩具案 严打无证产品筑牢儿童安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:37 - [亚马逊将推出GLP-1减肥药项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:13 - [湖北巴东成功救助国家一级保护动物白冠长尾雉](http://www.share.kurohicncr.top/Article/details/46632723.shtml)
-- 2026-06-29 12:15 - [中国金茂：附属订立新框架协议及提供贷款](http://www.share.kurohicncr.top/Article/details/3113425.shtml)
-- 2026-06-29 12:28 - [新疆伊犁：天山红花盛放 五月草原景色美](http://www.blog.minike.top/Article/details/329737.shtml)
-- 2026-06-29 12:25 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [融资25亿美元、产业链巨头站队：阶跃星辰的AI终端霸业与港股冲刺](http://www.share.kurohicncr.top/Article/details/6100895.shtml)
-- 2026-06-29 12:24 - [长江有色：12日铜价暴涨 现货成交仍表现谨慎](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [广东公布第三批以县城为重要载体的新型城镇化建设试点](http://www.share.kurohicncr.top/Article/details/09817.shtml)
-- 2026-06-29 12:37 - [（粤港澳大湾区）江西有24家企业在港交所上市 首发募资逾310亿元](http://www.blog.minike.top/Article/details/66281494928.shtml)
-- 2026-06-29 12:37 - [迈克尔・伯里：任何暴涨走抛物线行情的股票，都应清仓](http://www.share.kurohicncr.top/Article/details/41416087142.shtml)
-- 2026-06-29 12:12 - [具身智能机器人加速落地工业产线 业界冀构建协作生态](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [中美经贸磋商在韩国开始举行](http://www.blog.minike.top/Article/details/74648165.shtml)
-- 2026-06-29 12:27 - [探访福建福清百年侨厝群：文脉流芳 承载记忆](http://www.share.minike.top/Article/details/151173.shtml)
-- 2026-06-29 12:40 - [上海居民何时能去台湾本岛个人游？国台办回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [华宝基金红利风向标 | 华宝红利家族全线飘红，当下均衡红利策略或为较优解](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [南方人是怎么爱上北方奶茶的？](http://www.share.kurohicncr.top/Article/details/822079557657.shtml)
+- 2026-06-29 12:46 - [智能时代，我们还需要深度阅读吗？](http://www.share.minike.top/Article/details/3860684409.shtml)
+- 2026-06-29 12:29 - [湖南茶叶产量超30万吨 综合产值突破1250亿元](http://www.blog.minike.top/Article/details/32429562.shtml)
+- 2026-06-29 12:31 - [湖南永顺：山间云雾 人间烟火](http://www.share.minike.top/Article/details/114613.shtml)
+- 2026-06-29 12:43 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](http://www.blog.minike.top/Article/details/785403969279.shtml)
+- 2026-06-29 12:34 - [邵艺辉：建议年轻人多阅读多写作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [险资扎堆港股IPO！泰康、平安、大家、新华、阳光都在买什么？](http://www.blog.kurohicncr.top/Article/details/6400725170.shtml)
+- 2026-06-29 12:31 - [福耀玻璃一季度营收增5.08% 归母净利润同比下滑15.68%](http://www.share.minike.top/Article/details/598335.shtml)
+- 2026-06-29 12:31 - [金针菇概念股，净利润大增超7000%](http://www.blog.minike.top/Article/details/818145184.shtml)
+- 2026-06-29 12:37 - [“GNV·北极星”号豪华客滚船完成升级改造启航](http://www.share.kurohicncr.top/Article/details/69561914.shtml)
+- 2026-06-29 12:18 - [多型舰艇齐聚上海并对民众开放](http://www.blog.kurohicncr.top/Article/details/260023590.shtml)
+- 2026-06-29 12:20 - [长信化学IPO终止只是开始？核心技术人员王昭云等被天奈科技起诉，索赔总额达2.25亿元 | 长三角资本局](http://www.share.kurohicncr.top/Article/details/037524131037.shtml)
+- 2026-06-29 12:26 - [正确政绩观｜世昌里社区的“三问三答”](http://www.share.minike.top/Article/details/09825.shtml)
+- 2026-06-29 12:38 - [“六连涨”终结！国内油价今夜下调，加满一箱少花22元，下一轮调整是“二连跌”还是反弹？](http://www.blog.minike.top/Article/details/7302327650.shtml)
+- 2026-06-29 12:46 - [王毅出席全球共享发展行动论坛第三届高级别会议](http://www.blog.kurohicncr.top/Article/details/944049.shtml)
+- 2026-06-29 12:24 - [伊朗武装部队称已做好充分战斗准备](http://www.share.minike.top/Article/details/7922343.shtml)

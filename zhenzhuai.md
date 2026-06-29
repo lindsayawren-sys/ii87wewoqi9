@@ -1,59 +1,57 @@
-# 6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？
+# 香港应科院将于港深创科园成立联合研发实验室
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 每经记者|熊嘉楠 每经编辑|叶峰 近日，白酒上市公司全部公布了2025年年度业绩。20家A股白酒上市公司中，仅山西汾酒、*ST椰岛营收净利“双增”。行业整体寒意弥漫，去库存、稳价格成为摆在每一家酒企面前的紧迫课题。 压力之下，渠道结构的深层变化正在发生。 《每日经济新闻·将进酒》记者统计发现，在整体业绩承压下滑的背后，直
+中新网香港4月22日电 香港应用科技研究院(简称“香港应科院”)与香港电讯于21日签订合作备忘录，双方将于落马洲河套区港深创新及科技园(简称“港深创科园”)成立联合研发实验室。 根据合作备忘录，香港电讯将利用其光纤和流动网络优势以及系统整合经验，结合香港应用科技研究院的研究、开发及创新专业知识，共同开发新产品及方案，涵盖人工智能、5G/6G流动通讯科技、低轨卫星技术、低空经济方
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 每经记者|熊嘉楠 每经编辑|叶峰 近日，白酒上市公司全部公布了2025年年度业绩。
+中新网香港4月22日电 香港应用科技研究院(简称“香港应科院”)与香港电讯于21日签订合作备忘录，双方将于落马洲河套区港深创新及科技园(简称“港深创科园”)成立联合研发实验室。
 
-20家A股白酒上市公司中，仅山西汾酒、*ST椰岛营收净利“双增”。
+根据合作备忘录，香港电讯将利用其光纤和流动网络优势以及系统整合经验，结合香港应用科技研究院的研究、开发及创新专业知识，共同开发新产品及方案，涵盖人工智能、5G/6G流动通讯科技、低轨卫星技术、低空经济方案、网络安全和物联网等。
 
-行业整体寒意弥漫，去库存、稳价格成为摆在每一家酒企面前的紧迫课题。
+香港特区政府署理数字政策专员张宜伟表示，特区政府期望联合研发实验室研发成果有助推动具影响力及落地的创新方案，支持私营企业的数码转型，为企业注入新动能。
 
-压力之下，渠道结构的深层变化正在发生。
+香港电讯集团董事总经理许汉卿称，双方将就AI、5G/6G和低轨卫星技术等领域加强合作，同时主动对接国家“十五五”规划纲要，有助巩固香港国际创科中心的角色，并把香港创科优势转化为实质经济动能。
 
-《每日经济新闻·将进酒》记者统计发现，在整体业绩承压下滑的背后，直销渠道（含新兴渠道、电商等）却有着反向向上的趋势。
+香港应科院董事局主席李惠光表示，期望未来能与香港电讯携手合作开发人工智能赋能的先进资讯及通讯科技，协助香港及粤港澳大湾区的企业增强竞争力应对不同营商挑战。
 
-以贵州茅台、五粮液（维权）、山西汾酒、泸州老窖、洋河股份、古井贡酒等六家头部白酒上市公司为例，直销收入合计达到1042亿元。
-
-直销渠道总收入虽有微降，但其降幅明显小于整体营收降幅，收入占比相较于上一年提升约3个百分点；有酒企直销渠道占比甚至首次超过了经销渠道。
-
-消费者主权时代的到来，各大酒厂纷纷通过加码直营渠道“直面C端”“触达C端”。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:26 - [美国4月份通胀飙升后 金价小幅走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:41 - [Greystone Housing Impact Q1财报前瞻：市场关注能否扭转业绩不及预期颓势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:21 - [一颗草莓的科技之旅与一个村庄的融合之变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:34 - [壳牌和丰田警告地缘政治风险仍处高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:37 - [遇到消费纠纷不知道去哪投诉 这些渠道你应该知道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:31 - [中央网信办就规范短视频内容标注答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:40 - [中美元首会晤在即 专家：美方有责任慎重处理台湾问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:29 - [中国驻马里使馆提醒中国企业和公民切勿从事非法采矿活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:33 - [职业教育展示 看学生打造“微景观”如何“变废为宝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:33 - [Pulse Bio获内部人士超1300万美元大举买入，股价应声上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:25 - [金斯瑞生物科技盘中涨超5% 联营传奇生物一季度亏损收窄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:29 - [日经指数下跌0.6% 受芯片股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:19 - [新闻人物丨美国总统唐纳德·特朗普](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:26 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:39 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:43 - [国台办：坚决反对美国一些人搞“以台遏华”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:36 - [日本大分县陆上自卫队一训练场弹药爆炸 多人受波及](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:30 - [西贝正在“换号重生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:38 - [长城基金：新兴科技是主线，价值也有春天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:44 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:41 - [第十三批在韩中国人民志愿军烈士遗骸即将回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:37 - [年轻人如何理财？国泰基金联合发布《第四期全国大学生财富素养调查蓝皮书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:43 - [午后，集体拉升！太疯狂，一年暴涨超1000%！两则利好，突袭！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:42 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:23 - [商汤-W授出合共2.38亿份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:44 - [年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:31 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:30 - [酒价内参4月21日价格发布：飞天茅台保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [美国总统特朗普今起对中国进行国事访问](http://www.share.minike.top/Article/details/3239068724.shtml)
-- 2026-06-29 12:26 - [受AI热潮提振，日经指数或将上涨](http://www.share.minike.top/Article/details/04522335.shtml)
-- 2026-06-29 12:22 - [六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取](http://www.blog.minike.top/Article/details/19226879.shtml)
-- 2026-06-29 12:28 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](http://www.blog.kurohicncr.top/Article/details/37819926.shtml)
-- 2026-06-29 12:29 - [卓越教育集团获Soarise Bulex Limited增持139.5万股 每股作价3.19港元](http://www.share.minike.top/Article/details/3863994.shtml)
-- 2026-06-29 12:18 - [龙元建设：400亿PPP资产或将“冰山解冻”](http://www.blog.minike.top/Article/details/561803781.shtml)
-- 2026-06-29 12:32 - [FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [A股强势突破，创逾10年新高，科技成长板块领涨全场！| 华宝基金3A日报（2026.5.11）](http://www.share.minike.top/Article/details/1494300058.shtml)
-- 2026-06-29 12:27 - [伊朗外长与沙特外交大臣讨论美伊外交进程最新进展](http://www.share.minike.top/Article/details/772131.shtml)
-- 2026-06-29 12:41 - [香港将设“AI+与产业发展策略委员会” 聚焦具身智能推动产业升级](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [四川携手重庆协同提升“双圈”能级](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [剂泰科技港股上市在即：AI制药三小龙会师港股 贝莱德领衔基石 2025年收入增长靠首付款 长期仍具不确定性](http://www.share.minike.top/Article/details/4516788.shtml)
-- 2026-06-29 12:18 - [习近平会见文莱王储比拉](http://www.share.kurohicncr.top/Article/details/97216861610.shtml)
-- 2026-06-29 12:21 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](http://www.share.minike.top/Article/details/51445.shtml)
-- 2026-06-29 12:25 - [康特隆：呈请人撤回对附属公司的清盘呈请](http://www.blog.kurohicncr.top/Article/details/858775.shtml)
+- 2026-06-29 12:44 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](http://www.share.minike.top/Article/details/60729550.shtml)
+- 2026-06-29 12:18 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [外资转向加仓中国资产](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [河北辛集：70米长臂灌溉机器人助力春灌](http://www.blog.minike.top/Article/details/595195891640.shtml)
+- 2026-06-29 12:29 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.share.kurohicncr.top/Article/details/168372747.shtml)
+- 2026-06-29 12:27 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](http://www.blog.kurohicncr.top/Article/details/83181962704.shtml)
+- 2026-06-29 12:47 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](http://www.share.minike.top/Article/details/82573802.shtml)
+- 2026-06-29 12:38 - [四川2025年高价值发明专利拥有量达7.79万件](http://www.share.minike.top/Article/details/01303.shtml)
+- 2026-06-29 12:45 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [全民阅读活动周 各地举办多场活动](http://www.blog.kurohicncr.top/Article/details/555964193771.shtml)
+- 2026-06-29 12:43 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](http://www.share.kurohicncr.top/Article/details/4573044.shtml)
+- 2026-06-29 12:25 - [合并助力建筑公司CannonDesign实现全球布局](http://www.share.kurohicncr.top/Article/details/4999243.shtml)
+- 2026-06-29 12:38 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](http://www.blog.kurohicncr.top/Article/details/9126161816.shtml)
+- 2026-06-29 12:27 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](http://www.blog.kurohicncr.top/Article/details/76306198163.shtml)

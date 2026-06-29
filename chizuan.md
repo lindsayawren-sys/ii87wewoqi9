@@ -1,53 +1,56 @@
-# 中国金茂：附属订立新框架协议及提供贷款
+# 湖南茶叶产量超30万吨 综合产值突破1250亿元
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-中国金茂（00817）发布公告，于2026年5月12日，项目公司（包括青岛方辉置业有限公司、青岛方腾置业有限公司、青岛方跃置业有限公司、青岛方辰置业有限公司、青岛方川置业有限公司、青岛材茂置业有限公司、青岛德茂置业有限公司、青岛松茂置业有限公司、青岛腾茂置业有限公司、青岛茂章置业有限公司，均为本公司的间接非全资附属公司）与其股东（包括兴茂置业、凯喜、豪吉置业、豪庆置业及中海发展
+中新网长沙4月21日电(向一鹏 戚宁)截至2025年底，湖南茶园面积326.7万亩，茶叶产量30.16万吨，综合产值突破1250亿元，构建起覆盖种植、加工、流通、文旅、文创的全产业链发展格局。 21日在长沙举行的2026茶祖节暨湖南沅陵碣滩茶文化旅游节新闻发布会，对外透露了上述信息。 2026茶祖节组委会副主任、湖南省供销合作总社党组成员、理事会副主任张军介绍，此次活动于4月2
 
 ## 正文
 
-中国金茂（00817）发布公告，于2026年5月12日，项目公司（包括青岛方辉置业有限公司、青岛方腾置业有限公司、青岛方跃置业有限公司、青岛方辰置业有限公司、青岛方川置业有限公司、青岛材茂置业有限公司、青岛德茂置业有限公司、青岛松茂置业有限公司、青岛腾茂置业有限公司、青岛茂章置业有限公司，均为本公司的间接非全资附属公司）与其股东（包括兴茂置业、凯喜、豪吉置业、豪庆置业及中海发展）订立新框架协议，据此，项目公司将在新框架协议的期限内继续向各股东（或其各自指定的实体）提供贷款。
+中新网长沙4月21日电(向一鹏 戚宁)截至2025年底，湖南茶园面积326.7万亩，茶叶产量30.16万吨，综合产值突破1250亿元，构建起覆盖种植、加工、流通、文旅、文创的全产业链发展格局。
 
-新框架协议将自2026年5月13日起生效，为期3年。
+21日在长沙举行的2026茶祖节暨湖南沅陵碣滩茶文化旅游节新闻发布会，对外透露了上述信息。
 
-项目公司销售情况良好、销售回款充裕，董事认为，由项目公司向其股东提供贷款，可减少其现金结余的閒置状况，充分发挥资金优势，合理配置资源，提高资金使用率，满足本集团于其他开发项目的发展及财政需要。
+2026茶祖节组委会副主任、湖南省供销合作总社党组成员、理事会副主任张军介绍，此次活动于4月28日至5月20日举办，以“弘扬茶祖文化 促进茶旅融合”为主题，立足沅陵碣滩茶千年贡茶底蕴与生态优势，推动茶文化、茶产业、茶科技深度融合，联动生态旅游、乡村振兴全面发展，全力打响碣滩茶区域公用品牌，为湖南加快建设茶业强省注入强劲动力。
 
-项目公司所提供予其股东（或其各自指定的实体）的贷款，金额将与本公司（透过兴茂置业及凯喜）、中国平安（透过豪吉置业及豪庆置业）及中海发展所持项目公司的股权比例对等，且其他贷款交易的条款与条件亦相同。
+沅陵县副县长钟群英介绍，目前沅陵茶园面积18.3万亩，茶叶加工企业130余家，2025年产量1.53万吨，综合产值23亿元，辐射带动12万涉茶人口、5000余户脱贫户持续增收，人均年增收超800元，实现“一片叶子富一方百姓”。
 
-责任编辑：卢昱君
+本届茶祖节精心策划了开幕式、碣滩茶非遗展示展销暨全民品鉴活动、茶旅融合沉浸式体验暨采风活动等七大主题活动，兼顾文化性、专业性、体验性、传播性，为各界呈现一场特色鲜明、务实高效、影响广泛的茶文旅盛宴。
+
+近年来，湖南茶产业呈现规模稳步扩大、质量持续提升、品牌更加响亮、融合不断深化的良好态势，茶产业已成为湖南特色优势产业、乡村振兴支柱产业、富民增收民生产业。
+
+湖南省农业农村厅总农艺师张志刚表示，今年湖南将紧扣“强链、补链、延链”发展目标，重点实施推进品牌体系建设行动、推进龙头企业集聚行动、推进“湘茶出湘”拓展市场行动等六大行动，推动湖南茶产业在高质量发展上再创新佳绩。
+
+据了解，茶祖节是经文化和旅游部审批保留、湖南省重点打造的茶文化节庆品牌，自2009年创办以来已连续举办17届，成为全国极具影响力的茶事活动平台。
 
 ## 相关推荐
 
-- 2026-06-29 12:26 - [迈克尔・伯里：任何暴涨走抛物线行情的股票，都应清仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:34 - [具身智能机器人加速落地工业产线 业界冀构建协作生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:25 - [中美经贸磋商在韩国开始举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:16 - [探访福建福清百年侨厝群：文脉流芳 承载记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:40 - [上海居民何时能去台湾本岛个人游？国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:15 - [华宝基金红利风向标 | 华宝红利家族全线飘红，当下均衡红利策略或为较优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:33 - [南方人是怎么爱上北方奶茶的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:12 - [斯塔默在重要内阁会议前夕，权衡能否保住首相职位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:14 - [印度4月通胀连续第六个月攀升，但低于市场预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:33 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:34 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:32 - [摩根大通将对投行业务高层进行改组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:27 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:20 - [“GNV·北极星”号豪华客滚船完成升级改造启航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:21 - [多型舰艇齐聚上海并对民众开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:39 - [长信化学IPO终止只是开始？核心技术人员王昭云等被天奈科技起诉，索赔总额达2.25亿元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:44 - [正确政绩观｜世昌里社区的“三问三答”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:35 - [“六连涨”终结！国内油价今夜下调，加满一箱少花22元，下一轮调整是“二连跌”还是反弹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:38 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:21 - [伊朗武装部队称已做好充分战斗准备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:42 - [中国新闻社参评第36届中国新闻奖国际传播初评作品公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:34 - [上期所镍期货及期权引入境外交易者 20号胶期权、国际铜期权挂牌交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:45 - [乌鲁木齐河西煤层气探采项目进入勘探实施阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:17 - [日经指数下跌0.6% 受芯片股拖累](http://www.blog.kurohicncr.top/Article/details/733368275.shtml)
-- 2026-06-29 12:12 - [新闻人物丨美国总统唐纳德·特朗普](http://www.share.minike.top/Article/details/81844567161.shtml)
-- 2026-06-29 12:25 - [美国4月CPI报告对美联储意味著什么](http://www.blog.kurohicncr.top/Article/details/4041196.shtml)
-- 2026-06-29 12:36 - [酒价内参5月13日价格发布：古20下跌6元](http://www.blog.kurohicncr.top/Article/details/77718248.shtml)
-- 2026-06-29 12:38 - [美国得州起诉奈飞，指控其涉嫌监视儿童并诱使用户成瘾](http://www.share.kurohicncr.top/Article/details/296941555.shtml)
-- 2026-06-29 12:17 - [福州鼓岭：承载百年中美民间情谊的山间胜地](http://www.share.minike.top/Article/details/209767925250.shtml)
-- 2026-06-29 12:32 - [联播+｜“中国式安全感”如何炼成？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [南京审计大学通报“学生涉嫌偷拍他人隐私”：已成立专项工作组](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](http://www.blog.kurohicncr.top/Article/details/218693296.shtml)
-- 2026-06-29 12:40 - [88匹进口蒙古马为中国内地演艺市场发展添助力](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](http://www.blog.minike.top/Article/details/7294929280.shtml)
-- 2026-06-29 12:30 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](http://www.blog.minike.top/Article/details/91209298074.shtml)
+- 2026-06-29 12:29 - [商汤-W授出合共2.38亿份受限制股份单位](http://www.share.kurohicncr.top/Article/details/121789722.shtml)
+- 2026-06-29 12:27 - [年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时](http://www.share.kurohicncr.top/Article/details/16187775.shtml)
+- 2026-06-29 12:19 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [酒价内参4月21日价格发布：飞天茅台保持不变](http://www.share.kurohicncr.top/Article/details/3982215350.shtml)
+- 2026-06-29 12:29 - [浙江慈溪：老厂来了“新员工” 数字转型显成效](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [广州纪念詹天佑诞辰165周年](http://www.blog.kurohicncr.top/Article/details/70603.shtml)
+- 2026-06-29 12:24 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](http://www.share.kurohicncr.top/Article/details/27493394.shtml)
+- 2026-06-29 12:35 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](http://www.share.minike.top/Article/details/2940149607.shtml)
+- 2026-06-29 12:33 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](http://www.blog.kurohicncr.top/Article/details/4340512.shtml)
+- 2026-06-29 12:18 - [上海着力打造首个“次元友好街区”](http://www.share.minike.top/Article/details/7230504.shtml)
+- 2026-06-29 12:41 - [赛分科技：聘任顾楹瑶为公司证券事务代表](http://www.share.kurohicncr.top/Article/details/6209884141.shtml)

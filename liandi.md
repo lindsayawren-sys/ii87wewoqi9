@@ -1,57 +1,57 @@
-# Fluence二级市场抛售2300万股，股价应声暴跌16%
+# 让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-全球储能系统供应商Fluence Energy周二宣布，其现有控股股东启动了一项2000万股A类普通股的承销公开发行，预计可授予承销商额外购买300万股的超额配售权。 大股东抛售引发市场恐慌 根据招股说明书，在本次发行之前，AES公司和西门子集团各自持有Fluence约5150万股，卡塔尔投资局持有约1470万股。本次发行的股票全部由这些控股股东出售，Fluence公司自身不会
+中新网合肥4月22日电 (记者 张俊)从图纸上的技术构想，到生产线上的迭代产品；从实验室里的一束微光，到产业界的一片星火。中国科学技术大学先进技术研究院(以下简称“先研院”)自成立以来，便以体制机制改革为核心引擎，针对高校科技成果转化难、落地难、存活难的痛点，探索出一条从“书架”到“货架”的创新之路。 从学生到总经理的身份跨越 “以前在高校做成果转化，流程繁琐，耗时较长。但在先
 
 ## 正文
 
-全球储能系统供应商Fluence Energy周二宣布，其现有控股股东启动了一项2000万股A类普通股的承销公开发行，预计可授予承销商额外购买300万股的超额配售权。
+中新网合肥4月22日电 (记者 张俊)从图纸上的技术构想，到生产线上的迭代产品；从实验室里的一束微光，到产业界的一片星火。
 
-大股东抛售引发市场恐慌 根据招股说明书，在本次发行之前，AES公司和西门子集团各自持有Fluence约5150万股，卡塔尔投资局持有约1470万股。
+中国科学技术大学先进技术研究院(以下简称“先研院”)自成立以来，便以体制机制改革为核心引擎，针对高校科技成果转化难、落地难、存活难的痛点，探索出一条从“书架”到“货架”的创新之路。
 
-本次发行的股票全部由这些控股股东出售，Fluence公司自身不会从此次出售中获得任何收益。
+从学生到总经理的身份跨越 “以前在高校做成果转化，流程繁琐，耗时较长。
 
-二级市场的大量抛售直接引发了市场的强烈反应。
+但在先研院，从专利评估、作价入股到公司落地，我们只用了不到一年时间。
 
-在消息公布后的早盘交易中，Fluence股价一度重挫16%，至21.19美元附近。
+”合肥国科碳芯科技有限公司技术经理胥李志在接受记者采访时感慨道。
 
-短期涨幅过高后获利盘涌出 值得注意的是，尽管此次发行属于控股股东的获利减持而非公司融资，但由于发行规模较大（按市价计算价值约5亿美元），且近期股价经历了快速上涨——在此次下跌之前，Fluence股价在过去一周内上涨了66%。
+这位年轻的创业者，从硕士期间就开始投身生物质硬碳材料的研发。
 
-高位的获利盘叠加股东的减持行动，导致了集中抛售。
+“这种速度是非常快的，让我们能更快速地把技术从实验室推向产业化。
 
-承销商方面，巴克莱、高盛和摩根大通担任本次发行的联席账簿管理人。
+”胥李志说。
 
 ## 相关推荐
 
-- 2026-06-29 12:33 - [中美经贸磋商在韩国开始举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:28 - [探访福建福清百年侨厝群：文脉流芳 承载记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:37 - [上海居民何时能去台湾本岛个人游？国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:41 - [华宝基金红利风向标 | 华宝红利家族全线飘红，当下均衡红利策略或为较优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:21 - [南方人是怎么爱上北方奶茶的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:18 - [斯塔默在重要内阁会议前夕，权衡能否保住首相职位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:24 - [印度4月通胀连续第六个月攀升，但低于市场预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:16 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:22 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:41 - [摩根大通将对投行业务高层进行改组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:17 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:45 - [长信化学IPO终止只是开始？核心技术人员王昭云等被天奈科技起诉，索赔总额达2.25亿元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:30 - [正确政绩观｜世昌里社区的“三问三答”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:42 - [“六连涨”终结！国内油价今夜下调，加满一箱少花22元，下一轮调整是“二连跌”还是反弹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:25 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:46 - [伊朗武装部队称已做好充分战斗准备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:38 - [中国新闻社参评第36届中国新闻奖国际传播初评作品公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:40 - [上期所镍期货及期权引入境外交易者 20号胶期权、国际铜期权挂牌交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:45 - [乌鲁木齐河西煤层气探采项目进入勘探实施阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:44 - [工信部：开展人工智能中小企业创业支持计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:35 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:18 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [美国4月CPI报告对美联储意味著什么](http://www.blog.minike.top/Article/details/40285745199.shtml)
-- 2026-06-29 12:26 - [酒价内参5月13日价格发布：古20下跌6元](http://www.share.kurohicncr.top/Article/details/13412.shtml)
-- 2026-06-29 12:28 - [美国得州起诉奈飞，指控其涉嫌监视儿童并诱使用户成瘾](http://www.share.minike.top/Article/details/17298919.shtml)
-- 2026-06-29 12:27 - [福州鼓岭：承载百年中美民间情谊的山间胜地](http://www.blog.kurohicncr.top/Article/details/529454.shtml)
-- 2026-06-29 12:41 - [联播+｜“中国式安全感”如何炼成？](http://www.share.kurohicncr.top/Article/details/9842877557.shtml)
-- 2026-06-29 12:28 - [VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”](http://www.blog.kurohicncr.top/Article/details/142264922022.shtml)
-- 2026-06-29 12:29 - [南京审计大学通报“学生涉嫌偷拍他人隐私”：已成立专项工作组](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [美防长赫格塞思就国防预算出席国会听证会](http://www.share.minike.top/Article/details/791133.shtml)
-- 2026-06-29 12:32 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](http://www.blog.minike.top/Article/details/266318089122.shtml)
-- 2026-06-29 12:20 - [88匹进口蒙古马为中国内地演艺市场发展添助力](http://www.share.kurohicncr.top/Article/details/690178838.shtml)
-- 2026-06-29 12:22 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](http://www.share.kurohicncr.top/Article/details/595868202.shtml)
-- 2026-06-29 12:28 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](http://www.blog.minike.top/Article/details/25493.shtml)
-- 2026-06-29 12:32 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](http://www.share.kurohicncr.top/Article/details/938507.shtml)
+- 2026-06-29 12:28 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](http://www.share.kurohicncr.top/Article/details/43001909364.shtml)
+- 2026-06-29 12:40 - [酒价内参4月21日价格发布：飞天茅台保持不变](http://www.blog.kurohicncr.top/Article/details/64438.shtml)
+- 2026-06-29 12:26 - [浙江慈溪：老厂来了“新员工” 数字转型显成效](http://www.share.minike.top/Article/details/75573749179.shtml)
+- 2026-06-29 12:46 - [广州纪念詹天佑诞辰165周年](http://www.share.kurohicncr.top/Article/details/3514627861.shtml)
+- 2026-06-29 12:28 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](http://www.blog.kurohicncr.top/Article/details/6220845.shtml)
+- 2026-06-29 12:29 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](http://www.share.kurohicncr.top/Article/details/495493612.shtml)
+- 2026-06-29 12:33 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](http://www.blog.kurohicncr.top/Article/details/4795335.shtml)
+- 2026-06-29 12:22 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](http://www.share.kurohicncr.top/Article/details/277262652.shtml)
+- 2026-06-29 12:45 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](http://www.share.minike.top/Article/details/60956.shtml)
+- 2026-06-29 12:21 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [上海着力打造首个“次元友好街区”](http://www.blog.kurohicncr.top/Article/details/909458.shtml)
+- 2026-06-29 12:28 - [赛分科技：聘任顾楹瑶为公司证券事务代表](http://www.share.kurohicncr.top/Article/details/7818443624.shtml)
+- 2026-06-29 12:19 - [陪审团裁定优步负有责任](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [Tractor Supply第一财季盈利不及预期](http://www.blog.minike.top/Article/details/783156717.shtml)

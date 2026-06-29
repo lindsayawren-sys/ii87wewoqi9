@@ -1,58 +1,57 @@
-# 一江碧水 满目青绿 卫星视角看万里长江重焕生机
+# 沸腾！刚刚，突破2015年高点！更有一年暴涨10倍
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-长江，中华民族的母亲河，自唐古拉山的冰川发端，一路向东奔流6300多公里，滋养着沿岸11个省区市的锦绣山河，孕育了源远流长的中华文明。 如今，一江碧水重焕生机，城乡风貌日新月异。新闻频道特别节目《极目长江》带您沿着万里长江，见证变迁，记录守护。卫星瞰长江 共抓大保护的时代抉择 从污水直排、化工临江乱象丛生，到一江碧水穿城、岸线满目青绿。重庆、宜昌、鄱阳湖、洞庭湖岸线焕新，卫星视
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】创业板综指创历史新高了，新易盛一年涨10倍！ 中国基金报记者 泰勒 你们，相信光吗？ 今天，在光模块概念板块的带动下，创业板综指（注意，不是创业板指数），突破了2015年的高位，创下了历史新高！ 一起看看今天市场的亮点。 创业板综指创历史新高 4月22日，A股全天低开高走，沪指重返
 
 ## 正文
 
-长江，中华民族的母亲河，自唐古拉山的冰川发端，一路向东奔流6300多公里，滋养着沿岸11个省区市的锦绣山河，孕育了源远流长的中华文明。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-如今，一江碧水重焕生机，城乡风貌日新月异。
+来源：中国基金报 【导读】创业板综指创历史新高了，新易盛一年涨10倍！
 
-新闻频道特别节目《极目长江》带您沿着万里长江，见证变迁，记录守护。
+中国基金报记者 泰勒 你们，相信光吗？
 
-卫星瞰长江 共抓大保护的时代抉择 从污水直排、化工临江乱象丛生，到一江碧水穿城、岸线满目青绿。
+今天，在光模块概念板块的带动下，创业板综指（注意，不是创业板指数），突破了2015年的高位，创下了历史新高！
 
-重庆、宜昌、鄱阳湖、洞庭湖岸线焕新，卫星视角带你亲眼见证母亲河的华丽重生！
+一起看看今天市场的亮点。
 
-卫星俯瞰今天的长江，一江碧水横贯神州。
+创业板综指创历史新高 4月22日，A股全天低开高走，沪指重返4100点上方，创业板综指创历史新高。
 
-而当我们把时间的轴线往回溯： 江苏常州 岸线之上，化工企业沿江密布，散乱无序，污水直排入江。
+截至收盘，沪指涨0.52%，深成指涨1.3%，创业板指涨1.73%。
 
-湖北鄂州 砂石码头管理混乱，粉尘漫天，生态满目疮痍。
+市场2920只个股上涨，63只个股涨停，2433只个股下跌。
 
 ## 相关推荐
 
-- 2026-06-29 12:33 - [时代电气5月12日回购1303.78万港元，已连续10日回购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:30 - [英国政府借贷成本飙升至2008年以来最高，首相斯塔默遭遇下台压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:32 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:31 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:36 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:16 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:27 - [白银直线涨超6%，黄金翻红重回4730美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:34 - [RYOEX:金价反弹站上四千七百](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:26 - [桑火尧个展亮相浦东美术馆 展出52件新作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:40 - [美国4月份通胀飙升后 金价小幅走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:39 - [Greystone Housing Impact Q1财报前瞻：市场关注能否扭转业绩不及预期颓势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:26 - [一颗草莓的科技之旅与一个村庄的融合之变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:45 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:26 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:39 - [香港应科院将于港深创科园成立联合研发实验室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:28 - [苍山洱海间的健康慢生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:41 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:47 - [冷暖骤变 陕西多地迎四月春雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:46 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:31 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:20 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:27 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:26 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:37 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](http://www.blog.minike.top/Article/details/6091047.shtml)
-- 2026-06-29 12:12 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](http://www.blog.kurohicncr.top/Article/details/517950557.shtml)
-- 2026-06-29 12:27 - [贵阳银行：有条件时可以进行中期利润分配](http://www.blog.minike.top/Article/details/3588971.shtml)
-- 2026-06-29 12:16 - [英伟达宣布与康宁建立多年合作伙伴关系](http://www.share.kurohicncr.top/Article/details/3968519.shtml)
-- 2026-06-29 12:35 - [白衣天使，节日快乐！](http://www.share.kurohicncr.top/Article/details/60015720941.shtml)
-- 2026-06-29 12:25 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](http://www.blog.minike.top/Article/details/080830189.shtml)
-- 2026-06-29 12:15 - [美国能源信息署：美国2026年和2027年用电量将连创新高](http://www.share.minike.top/Article/details/412598150.shtml)
-- 2026-06-29 12:27 - [特斯拉机器人出租车扩张计划点燃股价涨势，马斯克设定2026年目标](http://www.share.kurohicncr.top/Article/details/638197553.shtml)
-- 2026-06-29 12:16 - [日本央行一名审议委员：可能在下次政策会议上加息](http://www.blog.minike.top/Article/details/85379.shtml)
-- 2026-06-29 12:19 - [美国总统特朗普今起对中国进行国事访问](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [受AI热潮提振，日经指数或将上涨](http://www.blog.minike.top/Article/details/3681669932.shtml)
-- 2026-06-29 12:27 - [六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取](http://www.share.minike.top/Article/details/816112721703.shtml)
-- 2026-06-29 12:12 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [卓越教育集团获Soarise Bulex Limited增持139.5万股 每股作价3.19港元](http://www.blog.minike.top/Article/details/79495377.shtml)
-- 2026-06-29 12:18 - [龙元建设：400亿PPP资产或将“冰山解冻”](http://www.share.kurohicncr.top/Article/details/820957999.shtml)
+- 2026-06-29 12:47 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](http://www.share.minike.top/Article/details/9807023.shtml)
+- 2026-06-29 12:22 - [俄Tuapse炼油厂遭无人机袭击后全面停产](http://www.blog.kurohicncr.top/Article/details/4970821926.shtml)
+- 2026-06-29 12:29 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](http://www.share.minike.top/Article/details/31887633.shtml)
+- 2026-06-29 12:43 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [截至3月底全国5G基站总数已达495.8万个](http://www.blog.minike.top/Article/details/47134873877.shtml)
+- 2026-06-29 12:48 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](http://www.blog.kurohicncr.top/Article/details/6531705583.shtml)
+- 2026-06-29 12:19 - [致敬！在繁花盛放的春天接英雄回家](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [万亿中原银行，变天了](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.share.minike.top/Article/details/96202520089.shtml)
+- 2026-06-29 12:27 - [外资转向加仓中国资产](http://www.share.minike.top/Article/details/683484653441.shtml)
+- 2026-06-29 12:42 - [河北辛集：70米长臂灌溉机器人助力春灌](http://www.blog.minike.top/Article/details/5573802427.shtml)
+- 2026-06-29 12:23 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.blog.minike.top/Article/details/186029992.shtml)
+- 2026-06-29 12:25 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](http://www.share.minike.top/Article/details/48554124.shtml)

@@ -1,58 +1,45 @@
-# 四川携手重庆协同提升“双圈”能级
+# 全民阅读活动周 各地举办多场活动
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-中新网成都5月11日电 (单鹏)“国家‘十五五’规划提出‘提升成渝地区双城经济圈发展能级’，四川把‘双圈’建设作为‘十五五’规划的首要战略任务。”11日，中共四川省委常委、省人民政府常务副省长董卫民在成都表示。11日，“开局起步‘十五五’”四川专场新闻发布会在成都举行。董卫民在会上表示，“十五五”时期是成渝地区双城经济圈建设的第二个五年，四川将携手重庆，锚定“一极一源、两中心两
+发布时间：2026年04月21日 16:43 来源：央视新闻客户端 责任编辑：【杨彦宇】
 
 ## 正文
 
-中新网成都5月11日电 (单鹏)“国家‘十五五’规划提出‘提升成渝地区双城经济圈发展能级’，四川把‘双圈’建设作为‘十五五’规划的首要战略任务。
-
-”11日，中共四川省委常委、省人民政府常务副省长董卫民在成都表示。
-
-11日，“开局起步‘十五五’”四川专场新闻发布会在成都举行。
-
-董卫民在会上表示，“十五五”时期是成渝地区双城经济圈建设的第二个五年，四川将携手重庆，锚定“一极一源、两中心两地”目标定位，聚力强化“四个功能”，联动提升发展能级。
-
-具体而言，川渝将携手共建世界级产业集群，不断增强经济承载和辐射带动功能。
-
-围绕成渝主轴经济走廊、成(绵)南达万经济带、岷江—长江上游经济带，优化产业布局，培育壮大电子信息、装备制造、先进材料等产业集群，提质建设成渝“氢走廊”“电走廊”“智行走廊”，联动发展人工智能、低空经济等新兴产业，夯实双城经济圈产业底座。
-
-在科创方面，两地共建成渝地区区域科技创新中心，不断增强创新资源集聚和转化功能。
-
-加快建设西部(成都)科学城、成渝(兴隆湖)综合性科学中心，高标准规划打造成渝中线科创大走廊、天府大道科创大走廊，加快建设成渝地区“一带一路”科技创新合作区和国际技术转移中心，打造西部地区创新高地。
+发布时间：2026年04月21日 16:43 来源：央视新闻客户端 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-29 12:26 - [长江有色：12日锌价大涨 整体成交难有亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:14 - [中国红基会在贵州开展“天使之旅”——先心病患儿筛查救助行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:33 - [特斯拉将向德国工厂注资2.5亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:24 - [美国4月通胀升至3.8%，美国人薪资购买力遭侵蚀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:29 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:26 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:17 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:21 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:13 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:15 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:21 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:16 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:18 - [中外科研团队发现约5.35亿年前环节动物祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:30 - [特朗普：如未能达成协议“几无可能”再延长停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:28 - [人民币兑美元中间价报6.8635，下调41点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:18 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:47 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:28 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:32 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:47 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:23 - [重回4100点！A股三大指数午后集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:24 - [学习新语｜山河永念 英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:41 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:40 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:34 - [广西仫佬山乡：多彩民俗展风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [金观平：千方百计稳住就业基本盘](http://www.share.minike.top/Article/details/8290965.shtml)
-- 2026-06-29 12:17 - [日本学者表示：日本政府修宪扩军路线破坏地区稳定](http://www.share.kurohicncr.top/Article/details/2008845258.shtml)
-- 2026-06-29 12:36 - [第四届老山国际春茶节专场活动在云南麻栗坡举行](http://www.share.minike.top/Article/details/911222840651.shtml)
-- 2026-06-29 12:15 - [委内瑞拉代总统否认该国将成为美国“第51州”](http://www.blog.minike.top/Article/details/04190788780.shtml)
-- 2026-06-29 12:32 - [简化程序而非自动归还 流落法国的各国文物何时“回家”？](http://www.share.minike.top/Article/details/689963282.shtml)
-- 2026-06-29 12:35 - [上海：“乘物游心”书画联展对公众开放](http://www.share.kurohicncr.top/Article/details/158311.shtml)
-- 2026-06-29 12:15 - [唐纳德·特朗普称伊朗停火协议已经岌岌可危](http://www.blog.minike.top/Article/details/61822.shtml)
-- 2026-06-29 12:13 - [文远知行-W午前涨超4% 中信建投维持“买入”评级](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [专家：警惕日本极右翼“借尸还魂” 中国将坚决遏制其妄动](http://www.blog.kurohicncr.top/Article/details/02492282704.shtml)
-- 2026-06-29 12:24 - [5月13日人民币对美元中间价报6.8431元 下调5个基点](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [华媒探访南宁微短剧产业：AI 赋能“出海” 光影联通东盟](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [REF HOLDINGS拟折让约19.82%配售最多5120万股 净筹约2271万港元](http://www.blog.minike.top/Article/details/803868316.shtml)
-- 2026-06-29 12:40 - [中英“乒乓外交”55周年纪念活动在伦敦举行](http://www.share.kurohicncr.top/Article/details/634331673.shtml)
-- 2026-06-29 12:31 - [门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号](http://www.share.minike.top/Article/details/940240127.shtml)
-- 2026-06-29 12:17 - [黑龙江第45届爱鸟周启动 东林校地联动守护飞羽精灵](http://www.blog.kurohicncr.top/Article/details/07991867515.shtml)
+- 2026-06-29 12:32 - [韩国与印度签署20项谅解备忘录，深化钢铁造船和能源等领域合作](http://www.blog.minike.top/Article/details/671501736965.shtml)
+- 2026-06-29 12:34 - [一季度净利暴降98%！国盛证券开盘后跌停，4.6万手封单背后，竟是趣店惹的祸？](http://www.share.kurohicncr.top/Article/details/969830827295.shtml)
+- 2026-06-29 12:32 - [纷美包装发布2025年度业绩 股东应占溢利5274.8万元同比下降80.5%](http://www.blog.minike.top/Article/details/280114721.shtml)
+- 2026-06-29 12:31 - [4月21日“农产品批发价格200指数”比昨天上升0.10个点](http://www.share.kurohicncr.top/Article/details/95884904500.shtml)
+- 2026-06-29 12:40 - [50余位海内外台胞台商齐聚海南 共探自贸港新机遇](http://www.share.minike.top/Article/details/4919619947.shtml)
+- 2026-06-29 12:29 - [一季度消费市场平稳增长 升级态势持续显现](http://www.share.minike.top/Article/details/6939545187.shtml)
+- 2026-06-29 12:46 - [日本气象厅解除对所有地区的海啸预警](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](http://www.blog.kurohicncr.top/Article/details/824149926066.shtml)
+- 2026-06-29 12:20 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](http://www.share.kurohicncr.top/Article/details/2661789765.shtml)
+- 2026-06-29 12:23 - [供奉祭品后，高市早苗又向靖国神社供奉“玉串料”](http://www.blog.minike.top/Article/details/92808.shtml)
+- 2026-06-29 12:45 - [库克亮相苹果员工大会 试图平息外界对卸任CEO原因的猜测](http://www.blog.minike.top/Article/details/90115.shtml)
+- 2026-06-29 12:23 - [南华期货：第一季度净利润同比增长138.82%](http://www.blog.minike.top/Article/details/3789025509.shtml)
+- 2026-06-29 12:24 - [紫金黄金国际第一季度实现归母净利润约8.07亿美元 同比增长约385.48%](http://www.blog.kurohicncr.top/Article/details/6804441661.shtml)
+- 2026-06-29 12:42 - [太和水（605081）再被立案，股民索赔可期](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [拍照识字、自动翻译 探索打开古籍的N种方式](http://www.blog.minike.top/Article/details/74821.shtml)

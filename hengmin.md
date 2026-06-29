@@ -1,58 +1,53 @@
-# *ST沪科锁定退市，投资者索赔通道开启
+# 人民海军成立77周年系列报道之：沧海·初心如磐
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:05 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 *ST沪科（维权）公告称，公司收到上海证券交易所下发的《关于拟终止上海宽频科技股份有限公司股票上市的事先告知书》。因公司2025年度经审计的扣非净利润为负值且营收低于3亿元、财务会计报告被出具保留意见审计报告、内部控制被出具无法表示意见审计报告，触及终止上市条件。上交所将据此作出终止上市决定。 而早在2025年12月12日，*S
+发布时间：2026年04月22日 13:25 来源：中国新闻网 1949年4月23日，江苏泰州白马庙，在渡江战役的隆隆炮声中，人民海军宣告成立。从长江之畔到万里深蓝，从初创起步到五大兵种齐全，从木船小舰到铁甲巨舰，77年风雨兼程，人民海军从近岸防御到远海护卫，从平台作战到体系制胜，一路劈波斩浪、一路向海图强，书写了一部从无到有、从小到大、从弱到强的史诗。今天，让我们穿越历史烟云
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 *ST沪科（维权）公告称，公司收到上海证券交易所下发的《关于拟终止上海宽频科技股份有限公司股票上市的事先告知书》。
+发布时间：2026年04月22日 13:25 来源：中国新闻网 1949年4月23日，江苏泰州白马庙，在渡江战役的隆隆炮声中，人民海军宣告成立。
 
-因公司2025年度经审计的扣非净利润为负值且营收低于3亿元、财务会计报告被出具保留意见审计报告、内部控制被出具无法表示意见审计报告，触及终止上市条件。
+从长江之畔到万里深蓝，从初创起步到五大兵种齐全，从木船小舰到铁甲巨舰，77年风雨兼程，人民海军从近岸防御到远海护卫，从平台作战到体系制胜，一路劈波斩浪、一路向海图强，书写了一部从无到有、从小到大、从弱到强的史诗。
 
-上交所将据此作出终止上市决定。
+今天，让我们穿越历史烟云，回望人民海军启航、成长、跨越、奋进的征程。
 
-而早在2025年12月12日，*ST沪科就因涉嫌信息披露违法违规收到中国证监会下发的《立案告知书》。
-
-随后拉开了索赔序幕。
-
-暂定于2025年12月12日（含当日）之前买入，并在2025年12月13日之后卖出或仍持有而亏损的即可参与维权，挽回损失。
-
-（*ST沪科维权入口） 梳理公司过往公告发现，截至2025年10月底，*ST沪科原控股股东南京斯威特集团有限公司及其关联方违规占用上市公司资金余额高达3.49亿元，占公司最近一期经审计净资产的921.63%。
-
-公司虽已通过诉讼、司法执行等方式追偿，但由于原控股股东南京斯威特集团生产经营基本停止，资产已被轮候查封冻结，法院未能查找到可供执行的财产，追偿工作陷入停滞。
+(李纯 程嘉豪 宁鑫 王欢 制作 卢晓娜 素材来源：海政宣传局) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 12:12 - [委内瑞拉代总统否认该国将成为美国“第51州”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:14 - [简化程序而非自动归还 流落法国的各国文物何时“回家”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:18 - [上海：“乘物游心”书画联展对公众开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:36 - [唐纳德·特朗普称伊朗停火协议已经岌岌可危](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:19 - [文远知行-W午前涨超4% 中信建投维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:25 - [专家：警惕日本极右翼“借尸还魂” 中国将坚决遏制其妄动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:36 - [5月13日人民币对美元中间价报6.8431元 下调5个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:39 - [华媒探访南宁微短剧产业：AI 赋能“出海” 光影联通东盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:18 - [REF HOLDINGS拟折让约19.82%配售最多5120万股 净筹约2271万港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:40 - [中英“乒乓外交”55周年纪念活动在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:30 - [门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:39 - [黑龙江第45届爱鸟周启动 东林校地联动守护飞羽精灵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:21 - [4月21日“农产品批发价格200指数”比昨天上升0.10个点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:28 - [50余位海内外台胞台商齐聚海南 共探自贸港新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:40 - [一季度消费市场平稳增长 升级态势持续显现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:24 - [日本气象厅解除对所有地区的海啸预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:42 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:39 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:29 - [供奉祭品后，高市早苗又向靖国神社供奉“玉串料”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:45 - [库克亮相苹果员工大会 试图平息外界对卸任CEO原因的猜测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:20 - [南华期货：第一季度净利润同比增长138.82%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:30 - [紫金黄金国际第一季度实现归母净利润约8.07亿美元 同比增长约385.48%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:34 - [太和水（605081）再被立案，股民索赔可期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:26 - [拍照识字、自动翻译 探索打开古籍的N种方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:27 - [特朗普称预计停火到期后将继续轰炸伊朗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:44 - [中国长安朱华荣：汽车产业必须打破边界、跨界融合，从“制造”向“生态”跃迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:30 - [先锋集团逆势加仓美债：4.25%以上收益率即是“黄金坑”，押注美联储今年降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:33 - [全国人大常委会办公厅在郑州举办地方人大常委会负责同志专题学习班](http://www.blog.minike.top/Article/details/54337.shtml)
-- 2026-06-29 12:26 - [特朗普访华期间是否会讨论台湾和香港有关问题？外交部回应](http://www.share.minike.top/Article/details/0197179.shtml)
-- 2026-06-29 12:36 - [宣称“纯棉”内裤实为100%聚酯纤维 “假一赔十”能落实吗？](http://www.blog.kurohicncr.top/Article/details/0012659219.shtml)
-- 2026-06-29 12:15 - [石油直线飙升！美伊谈判，最新变数](http://www.blog.minike.top/Article/details/33123830.shtml)
-- 2026-06-29 12:14 - [农家书屋不止于书 探索“阅”见乡村新方式](http://www.share.minike.top/Article/details/34916788165.shtml)
-- 2026-06-29 12:26 - [歌礼制药-B获GIC Private Limited增持12.2万股 每股作价16.612港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [东北证券：中国宏桥首予“买入”评级 目标价42港元](http://www.share.minike.top/Article/details/3046850.shtml)
-- 2026-06-29 12:14 - [黄金生产商Caledonia Mining派发每股0.14美元季度股息，金价大涨抵消产量下滑影响](http://www.share.kurohicncr.top/Article/details/46732489.shtml)
-- 2026-06-29 12:17 - [日本北海道发生4.8级地震](http://www.share.minike.top/Article/details/85035.shtml)
-- 2026-06-29 12:41 - [湖北武汉：防灾减灾教育进校园](http://www.blog.minike.top/Article/details/82105.shtml)
-- 2026-06-29 12:17 - [湖南“云签发”首票供港活猪《动物卫生证书》](http://www.blog.minike.top/Article/details/427844042.shtml)
-- 2026-06-29 12:39 - [既生瑜何生亮！月之暗面与 DeepSeek的“终局之战”到来了](http://www.blog.kurohicncr.top/Article/details/9130323487.shtml)
-- 2026-06-29 12:39 - [韩国官员提议以人工智能税收向发放公民红利 引发股市盘中巨震](http://www.share.minike.top/Article/details/42457.shtml)
-- 2026-06-29 12:25 - [韩国基准股指触及历史高点后大幅跳水，收盘跌逾2%](http://www.blog.kurohicncr.top/Article/details/622201145762.shtml)
-- 2026-06-29 12:39 - [河南灵宝：天清云淡冠山翠 草浅风柔岁月闲](http://www.share.minike.top/Article/details/76978811422.shtml)
+- 2026-06-29 12:39 - [东西问丨吴强：亚沙会，为什么选择三亚？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [莫桑比克总统访华：登青藏高原见证绿色发展 期盼更大合作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [停火截止日期逼近，特朗普再次威胁伊朗，美国筹备和平谈判](http://www.share.kurohicncr.top/Article/details/0485853.shtml)
+- 2026-06-29 12:18 - [“院士讲课本里的百科·一讲就懂的人工智能”系列丛书为孩子启蒙AI](http://www.share.minike.top/Article/details/75207270409.shtml)
+- 2026-06-29 12:37 - [瑞银：智谱首予“买入”评级 目标价1,160港元](http://www.blog.kurohicncr.top/Article/details/78800607.shtml)
+- 2026-06-29 12:43 - [西贝部分门店换牌“天边”加速自救](http://www.share.kurohicncr.top/Article/details/586047205703.shtml)
+- 2026-06-29 12:25 - [一季度我国邮政行业寄递业务量同比增长4.5%](http://www.share.minike.top/Article/details/827183.shtml)
+- 2026-06-29 12:35 - [美国国家安全局被曝使用Anthropic受限模型](http://www.blog.kurohicncr.top/Article/details/996463470.shtml)
+- 2026-06-29 12:23 - [华泰期货：市场情绪波动，双焦震荡运行](http://www.blog.kurohicncr.top/Article/details/132145197.shtml)
+- 2026-06-29 12:24 - [快讯：恒指高开0.31% 科指涨0.53% 科网股活跃 锂电池股高开 胜宏科技首日高开逾57%](http://www.share.kurohicncr.top/Article/details/11604574482.shtml)
+- 2026-06-29 12:38 - [国台办：民进党当局应取消针对大陆居民赴台旅游不合理限制](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [机器人跑赢人类，留给我们的“赛道”又少一个？](http://www.blog.kurohicncr.top/Article/details/0040416.shtml)
+- 2026-06-29 12:43 - [12位志愿军烈士遗骸归国 冲锋号角再次嘹亮](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [连战之子回福建漳州寻根谒祖](http://www.share.kurohicncr.top/Article/details/699307393.shtml)
+- 2026-06-29 12:45 - [重庆电动摩托车热销海外 一季度出口额同比增23.6%](http://www.share.minike.top/Article/details/10873673660.shtml)

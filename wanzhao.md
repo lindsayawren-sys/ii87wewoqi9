@@ -1,57 +1,61 @@
-# Lumen Tech新建美国北部光缆干线，加速AI数据迁移
+# 俄Tuapse炼油厂遭无人机袭击后全面停产
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-Lumen Technologies周二宣布，将建设一条连接西雅图至明尼阿波利斯的全新长途光纤干线，这是该公司数十年来首次新建此类重大光缆线路。 NorthLine项目：应对东部数据增长 这条被称为“NorthLine”的新线路全长约2000英里，预计于2026年底投入使用。它将与Lumen现有的美国网络基础设施集成，提供100G和400G波长服务，并可平滑升级至未来的800G
+俄罗斯罗斯涅夫公司旗下位于黑海沿岸的Tuapse炼油厂在4月16日遭到无人机袭击后，已全面停止原油加工业务。该炼油厂是俄黑海地区唯一的石油加工企业，年设计加工能力为1200万吨。 据知情人士透露，4月16日的袭击导致炼油厂关键设施受损，大火持续燃烧了三天，动用超过150名消防员和近50台设备才将明火扑灭。就在火势于4月19日刚刚得到控制之际，乌克兰部队于4月20日凌晨再次对该炼
 
 ## 正文
 
-Lumen Technologies周二宣布，将建设一条连接西雅图至明尼阿波利斯的全新长途光纤干线，这是该公司数十年来首次新建此类重大光缆线路。
+俄罗斯罗斯涅夫公司旗下位于黑海沿岸的Tuapse炼油厂在4月16日遭到无人机袭击后，已全面停止原油加工业务。
 
-NorthLine项目：应对东部数据增长 这条被称为“NorthLine”的新线路全长约2000英里，预计于2026年底投入使用。
+该炼油厂是俄黑海地区唯一的石油加工企业，年设计加工能力为1200万吨。
 
-它将与Lumen现有的美国网络基础设施集成，提供100G和400G波长服务，并可平滑升级至未来的800G和1.6T。
+据知情人士透露，4月16日的袭击导致炼油厂关键设施受损，大火持续燃烧了三天，动用超过150名消防员和近50台设备才将明火扑灭。
 
-Lumen网络规划高级副总裁Shannon Griffith表示，AI正在改变数据流动的方向，网络必须随之演进。
+就在火势于4月19日刚刚得到控制之际，乌克兰部队于4月20日凌晨再次对该炼油厂及附近港口发动第二轮袭击，造成一人死亡、一人受伤，储油区再次燃起大火。
 
-新线路的规划紧跟美国北部新兴的数据中心走廊，这些区域日益增长的电力容量为AI基础设施的扩张提供了关键支撑。
+分析显示，此次袭击后储油罐区出现超过10处起火点。
 
-AI流量驱动网络重构 Griffith指出，AI的发展正驱动美国市场对“东西向”流量路线的巨大需求。
+Tuapse炼油厂此前已成为乌克兰方面的重要打击目标。
 
-不同于传统的“南北向”流量（从企业进入云端），AI模型训练所需的“东西向”流量（数据中心之间的数据交换）正呈爆发式增长。
+在4月16日首次袭击之前，该厂已于2025年3月、11月和12月多次遭袭。
 
-为加速部署，NorthLine将采用Lumen RapidRoutes机制，客户可在约20天内完成传输能力的部署和上线。
+乌克兰方面证实，这两次打击是由无人系统部队、特种作战部队和军事情报部门联合执行的。
 
 ## 相关推荐
 
-- 2026-06-29 12:29 - [日本央行一名审议委员：可能在下次政策会议上加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:18 - [美国总统特朗普今起对中国进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:22 - [受AI热潮提振，日经指数或将上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:23 - [六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:30 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:28 - [卓越教育集团获Soarise Bulex Limited增持139.5万股 每股作价3.19港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:16 - [龙元建设：400亿PPP资产或将“冰山解冻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:38 - [FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:40 - [A股强势突破，创逾10年新高，科技成长板块领涨全场！| 华宝基金3A日报（2026.5.11）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:36 - [伊朗外长与沙特外交大臣讨论美伊外交进程最新进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:33 - [香港将设“AI+与产业发展策略委员会” 聚焦具身智能推动产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:47 - [万亿中原银行，变天了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:35 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:43 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:37 - [外资转向加仓中国资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:19 - [河北辛集：70米长臂灌溉机器人助力春灌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:47 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:47 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:47 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:21 - [四川2025年高价值发明专利拥有量达7.79万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:29 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:27 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:37 - [全民阅读活动周 各地举办多场活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:24 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:27 - [合并助力建筑公司CannonDesign实现全球布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:21 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:28 - [“为AI发电”组合逆市走强！华宝基金创业板人工智能ETF、电力ETF携手涨超1%！硬科技宽基双创50ETF续创新高](http://www.share.minike.top/Article/details/699640123.shtml)
-- 2026-06-29 12:27 - [韩国生物制药公司Celltrion收购法国Gifrer](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](http://www.blog.kurohicncr.top/Article/details/14767392177.shtml)
-- 2026-06-29 12:38 - [双向奔赴！两岸媒体人镜头里的和平与相融](http://www.share.minike.top/Article/details/37216420.shtml)
-- 2026-06-29 12:15 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](http://www.share.minike.top/Article/details/19524709226.shtml)
-- 2026-06-29 12:39 - [海地总理：安全状况导致该国大选无法于8月如期举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [厄瓜多尔前外长埃斯皮诺萨角逐下一任联合国秘书长](http://www.blog.minike.top/Article/details/308823962934.shtml)
-- 2026-06-29 12:38 - [大族数控午前大涨超15% PCB设备板块业绩高速增长](http://www.share.kurohicncr.top/Article/details/05116.shtml)
-- 2026-06-29 12:23 - [湖南残疾人代表讲述“追光”人生：梦想属于每一个勇者](http://www.share.minike.top/Article/details/0255131.shtml)
-- 2026-06-29 12:20 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：26名涉疫邮轮人员抵达荷兰接受安置](http://www.share.minike.top/Article/details/3480019007.shtml)
-- 2026-06-29 12:17 - [研究成果合集 | 表现力指数 • 2026商办暨资管卓越表现](http://www.blog.kurohicncr.top/Article/details/502427.shtml)
-- 2026-06-29 12:34 - [Monday.com大涨13%，此前公布一季度业绩全面超预期](http://www.blog.minike.top/Article/details/13774612212.shtml)
-- 2026-06-29 12:17 - [因七腾机器人股价大涨四倍背后：胜通能源实际控制人豁免减持的股东会决议遭起诉 理由是应遵守减持规定](http://www.blog.minike.top/Article/details/9389975138.shtml)
-- 2026-06-29 12:35 - [“盈尺清芬——清代花鸟画扇面展”在广西南宁开展](http://www.share.minike.top/Article/details/2095073820.shtml)
-- 2026-06-29 12:39 - [*ST沪科锁定退市，投资者索赔通道开启](http://www.share.kurohicncr.top/Article/details/28702075196.shtml)
+- 2026-06-29 12:24 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](http://www.share.minike.top/Article/details/406344708.shtml)
+- 2026-06-29 12:23 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](http://www.share.kurohicncr.top/Article/details/3947484.shtml)
+- 2026-06-29 12:25 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](http://www.share.minike.top/Article/details/391121156575.shtml)
+- 2026-06-29 12:24 - [贵州梵净山：夕阳映照落日如画](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.blog.kurohicncr.top/Article/details/9318862.shtml)
+- 2026-06-29 12:22 - [4月22日央行开展60亿元7天期逆回购操作](http://www.blog.kurohicncr.top/Article/details/0265124218.shtml)
+- 2026-06-29 12:31 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](http://www.blog.kurohicncr.top/Article/details/34657256010.shtml)
+- 2026-06-29 12:48 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](http://www.share.kurohicncr.top/Article/details/240763.shtml)
+- 2026-06-29 12:33 - [广西交易团“智”造出海出圈 广交会斩获颇丰](http://www.share.minike.top/Article/details/99412985442.shtml)
+- 2026-06-29 12:45 - [第六届亚洲沙滩运动会迎来首个比赛日](http://www.blog.minike.top/Article/details/84728987.shtml)
+- 2026-06-29 12:41 - [日本“再军事化”动作持续引发日本民众大规模抗议](http://www.blog.minike.top/Article/details/71942.shtml)
+- 2026-06-29 12:23 - [中芯国际获南向资金连续3天净买入](http://www.share.minike.top/Article/details/755172016.shtml)
+- 2026-06-29 12:34 - [一场展览，看香港工程的过去与未来](http://www.blog.kurohicncr.top/Article/details/59493590.shtml)
+- 2026-06-29 12:27 - [伊朗拒绝出席谈判 美国宣布延长停火](http://www.blog.minike.top/Article/details/78974.shtml)
+- 2026-06-29 12:46 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.share.kurohicncr.top/Article/details/45621417750.shtml)

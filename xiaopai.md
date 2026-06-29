@@ -1,54 +1,57 @@
-# 特朗普推迟下调牛肉进口关税计划
+# 亚马逊将推出GLP-1减肥药项目
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-特朗普政府表示，将推迟一项旨在平抑牛肉高价的方案，该方案原本计划暂停征收进口牛肉关税。特朗普原定于周一签署两项行政令，下调牛肉进口关税，并放宽对美国肉牛养殖户的监管限制。周一晚间，白宫官员称，相关举措已被推迟，政府正敲定最终细则。此次推迟，源于国会部分共和党议员以及肉牛牧场主的强烈反对，而牧场主群体历来是特朗普稳固的支持者基本盘。媒体周一早些时候曾报道特朗普拟签署相关行政令的计
+亚马逊将推出一项GLP-1减肥项目，将初级保健服务与这家科技公司的药房业务相结合。 该公司周二表示，与其他供应商提供的一次性体重管理方案不同，这项新项目旨在提供持续的医疗监督。通过该项目，临床医生将能够监测患者进展、调整治疗方案并处理相关的健康问题。 通过该项目，Amazon One Medical的会员可以获取诺和诺德的Wegovy和礼来公司的Foundayo GLP-1口服
 
 ## 正文
 
-特朗普政府表示，将推迟一项旨在平抑牛肉高价的方案，该方案原本计划暂停征收进口牛肉关税。
+亚马逊将推出一项GLP-1减肥项目，将初级保健服务与这家科技公司的药房业务相结合。
 
-特朗普原定于周一签署两项行政令，下调牛肉进口关税，并放宽对美国肉牛养殖户的监管限制。
+该公司周二表示，与其他供应商提供的一次性体重管理方案不同，这项新项目旨在提供持续的医疗监督。
 
-周一晚间，白宫官员称，相关举措已被推迟，政府正敲定最终细则。
+通过该项目，临床医生将能够监测患者进展、调整治疗方案并处理相关的健康问题。
 
-此次推迟，源于国会部分共和党议员以及肉牛牧场主的强烈反对，而牧场主群体历来是特朗普稳固的支持者基本盘。
+通过该项目，Amazon One Medical的会员可以获取诺和诺德的Wegovy和礼来公司的Foundayo GLP-1口服减肥药。
 
-媒体周一早些时候曾报道特朗普拟签署相关行政令的计划。
+有保险覆盖的会员每月最低支付25美元，自费选项则为每月149美元。
 
-责任编辑：王永生
+每月149美元的起始剂量自付价格与Hims & Hers Health、Walgreens和和Weight Watchers等公司项目提供的价格一致。
+
+不过，所需的会员费和就诊费可能有所不同。
+
+Amazon One Medical对Prime会员的年费为99美元。
 
 ## 相关推荐
 
-- 2026-06-29 12:25 - [“小童装”奔赴大市场 浙江织里“全球揽客”拓外贸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:31 - [北京幸福东方剧院启幕 央地联手打造城市文化客厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:18 - [王毅同巴基斯坦副总理兼外长通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:12 - [中国逊克口岸2026年明水期正式开关通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:16 - [“AI水果”“酱板鸭”火到台湾 业者盼拓展两岸微短剧合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:26 - [关注俄乌冲突：俄乌互指对方违反停火 并称作出对等回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:39 - [枪声震天！直击武警官兵实战化射击超燃瞬间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:19 - [韩国官员称以AI收益发放公民红利的言论仅代表发言者个人观点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:20 - [拒绝伊朗回应 美方称停火“有效但脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:36 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:23 - [加密货币立法再遇阻碍：工会阵营出面反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:22 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:40 - [龙蟠科技拟1485万澳元收购位于澳大利亚的锂矿勘探租约及相关资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:37 - [智达藏语大模型及系列应用产品成果发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:43 - [法国官方宣布财政节支措施以应对中东局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:43 - [美国财长贝森特：财政部将继续对伊朗施压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:31 - [特朗普称将“记住”不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:41 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:22 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:25 - [摩根士丹利下调黄金前景预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:41 - [花6000元打玻尿酸出现动脉栓塞，医美消费前这一步能救命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:26 - [一季度公募规模增长TOP30：景顺长城增542亿居首，永赢、国泰增超300亿，华商、安信环比增长超20%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:21 - [瞄准、击发 直击官兵轻武器实弹射击训练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:15 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](http://www.share.minike.top/Article/details/9299674.shtml)
-- 2026-06-29 12:21 - [内蒙古厅官马保国、房瑞夜间官宣被查](http://www.share.kurohicncr.top/Article/details/822087450364.shtml)
-- 2026-06-29 12:39 - [24项改革措施，推动综合保税区扩能提质（政策解读）](http://www.blog.minike.top/Article/details/83556908716.shtml)
-- 2026-06-29 12:32 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](http://www.share.minike.top/Article/details/936714.shtml)
-- 2026-06-29 12:22 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](http://www.share.minike.top/Article/details/72947.shtml)
-- 2026-06-29 12:19 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](http://www.share.minike.top/Article/details/90308296.shtml)
-- 2026-06-29 12:17 - [谷歌深化布局印度AI基础设施热潮](http://www.blog.kurohicncr.top/Article/details/4319667.shtml)
-- 2026-06-29 12:22 - [时代电气5月12日回购1303.78万港元，已连续10日回购](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [英国政府借贷成本飙升至2008年以来最高，首相斯塔默遭遇下台压力](http://www.share.minike.top/Article/details/85287955827.shtml)
-- 2026-06-29 12:20 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](http://www.share.minike.top/Article/details/142963519092.shtml)
-- 2026-06-29 12:17 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](http://www.share.minike.top/Article/details/265736582547.shtml)
-- 2026-06-29 12:18 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](http://www.blog.kurohicncr.top/Article/details/854396446.shtml)
-- 2026-06-29 12:30 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](http://www.share.minike.top/Article/details/238732.shtml)
-- 2026-06-29 12:35 - [白银直线涨超6%，黄金翻红重回4730美元](http://www.blog.kurohicncr.top/Article/details/89432.shtml)
-- 2026-06-29 12:28 - [RYOEX:金价反弹站上四千七百](http://www.share.minike.top/Article/details/34462.shtml)
+- 2026-06-29 12:21 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](http://www.blog.minike.top/Article/details/77470.shtml)
+- 2026-06-29 12:35 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂](http://www.share.kurohicncr.top/Article/details/13894812.shtml)
+- 2026-06-29 12:47 - [福建武夷山：春茶开山 仪式感满满](http://www.share.minike.top/Article/details/998077.shtml)
+- 2026-06-29 12:21 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](http://www.blog.minike.top/Article/details/648220.shtml)
+- 2026-06-29 12:33 - [【理响中国】今天，如何培养青少年阅读习惯](http://www.share.kurohicncr.top/Article/details/7757944.shtml)
+- 2026-06-29 12:32 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](http://www.blog.kurohicncr.top/Article/details/733058.shtml)
+- 2026-06-29 12:25 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [香港应科院将于港深创科园成立联合研发实验室](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [苍山洱海间的健康慢生活](http://www.blog.kurohicncr.top/Article/details/80022.shtml)
+- 2026-06-29 12:43 - [春播春管进行时——各地农业高质量发展一线观察](http://www.share.kurohicncr.top/Article/details/245759434147.shtml)
+- 2026-06-29 12:42 - [冷暖骤变 陕西多地迎四月春雪](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](http://www.share.minike.top/Article/details/43477170.shtml)
+- 2026-06-29 12:19 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](http://www.share.kurohicncr.top/Article/details/283194388853.shtml)

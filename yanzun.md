@@ -1,56 +1,49 @@
-# 中国驻马里使馆提醒中国企业和公民切勿从事非法采矿活动
+# 第十三批在韩中国人民志愿军烈士遗骸即将回国
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-中新网5月12日电 据中国驻马里大使馆微信公众号消息，近期，马里全境多地发生协同恐袭事件，造成设施损毁、人员伤亡等重大损失。在布古尼、锡加索、库利克罗、卡伊等大区，恐怖分子仍频繁袭击外国企业、绑架外国公民。首都巴马科以外地区安全形势十分严峻，安全风险高企。马里政府对矿业领域开展强力整治行动，成立矿业署、贵金属办公室、矿业稽查大队等部门，重点打击非法采矿活动，包括查封无证开采矿点
+发布时间：2026年04月21日 16:38 来源：中国新闻网 日前，由退役军人事务部等部门组成的在韩中国人民志愿军烈士遗骸交接工作代表团组已前往韩国，将于4月22日接运第十三批12位在韩中国人民志愿军烈士遗骸及相关遗物归国。自2014年以来，中韩双方遵循国际法和人道主义原则，已连续成功交接12批共1011位在韩中国人民志愿军烈士遗骸及相关遗物。(韩浩天） 责任编辑：【于晓】
 
 ## 正文
 
-中新网5月12日电 据中国驻马里大使馆微信公众号消息，近期，马里全境多地发生协同恐袭事件，造成设施损毁、人员伤亡等重大损失。
+发布时间：2026年04月21日 16:38 来源：中国新闻网 日前，由退役军人事务部等部门组成的在韩中国人民志愿军烈士遗骸交接工作代表团组已前往韩国，将于4月22日接运第十三批12位在韩中国人民志愿军烈士遗骸及相关遗物归国。
 
-在布古尼、锡加索、库利克罗、卡伊等大区，恐怖分子仍频繁袭击外国企业、绑架外国公民。
+自2014年以来，中韩双方遵循国际法和人道主义原则，已连续成功交接12批共1011位在韩中国人民志愿军烈士遗骸及相关遗物。
 
-首都巴马科以外地区安全形势十分严峻，安全风险高企。
-
-马里政府对矿业领域开展强力整治行动，成立矿业署、贵金属办公室、矿业稽查大队等部门，重点打击非法采矿活动，包括查封无证开采矿点、没收采矿设备、羁押相关人员等。
-
-驻马里使馆严肃提醒在马中国企业和公民务必高度重视当前形势，切勿冒生命危险从事非法采矿活动，在肯涅巴、扬福利拉、富鲁、康加巴、纳雷纳等地区的中国公民立即以安全稳妥方式撤离。
-
-撤离时，如遇危急情况，应保持冷静，务必将确保人身安全放在首位，在保证自身安全前提下及时报警并与中国驻马里使馆取得联系。
-
-心有侥幸，拒不撤离者将面临严重后果。
-
-马里报警电话：101、111、80001115、60603572 驻马里使馆领事保护电话：+223-78110040 外交部全球领事保护与服务应急呼叫中心电话：+86-10-12308或+86-10-65612308
+(韩浩天） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-29 12:24 - [酒价内参5月13日价格发布：古20下跌6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:41 - [美国得州起诉奈飞，指控其涉嫌监视儿童并诱使用户成瘾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:31 - [福州鼓岭：承载百年中美民间情谊的山间胜地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:18 - [联播+｜“中国式安全感”如何炼成？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:27 - [VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:34 - [南京审计大学通报“学生涉嫌偷拍他人隐私”：已成立专项工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:21 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:14 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:40 - [88匹进口蒙古马为中国内地演艺市场发展添助力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:36 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:20 - [酒价内参4月21日价格发布：飞天茅台保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:31 - [浙江慈溪：老厂来了“新员工” 数字转型显成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:47 - [广州纪念詹天佑诞辰165周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:30 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:45 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:46 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:42 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:34 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:41 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:38 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:42 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:42 - [赛分科技：聘任顾楹瑶为公司证券事务代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:29 - [陪审团裁定优步负有责任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:35 - [康特隆：呈请人撤回对附属公司的清盘呈请](http://www.blog.minike.top/Article/details/1572882.shtml)
-- 2026-06-29 12:30 - [中新健康｜医生提醒：体重正常但肚子大更危险](http://www.share.kurohicncr.top/Article/details/295627.shtml)
-- 2026-06-29 12:13 - [电影总票房破140亿！五月观影热潮持续升温](http://www.blog.kurohicncr.top/Article/details/63964.shtml)
-- 2026-06-29 12:19 - [长江有色：12日锌价大涨 整体成交难有亮点](http://www.blog.minike.top/Article/details/3320818464.shtml)
-- 2026-06-29 12:27 - [中国红基会在贵州开展“天使之旅”——先心病患儿筛查救助行动](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [特斯拉将向德国工厂注资2.5亿美元](http://www.blog.minike.top/Article/details/10772200.shtml)
-- 2026-06-29 12:14 - [美国4月通胀升至3.8%，美国人薪资购买力遭侵蚀](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](http://www.share.minike.top/Article/details/29844722.shtml)
-- 2026-06-29 12:16 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](http://www.share.minike.top/Article/details/33286247550.shtml)
-- 2026-06-29 12:26 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](http://www.share.minike.top/Article/details/7234697.shtml)
-- 2026-06-29 12:41 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](http://www.share.kurohicncr.top/Article/details/17979.shtml)
-- 2026-06-29 12:40 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](http://www.blog.kurohicncr.top/Article/details/393009.shtml)
-- 2026-06-29 12:37 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](http://www.blog.minike.top/Article/details/4472953.shtml)
-- 2026-06-29 12:31 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](http://www.blog.minike.top/Article/details/15093431.shtml)
+- 2026-06-29 12:39 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](http://www.share.minike.top/Article/details/2048446045.shtml)
+- 2026-06-29 12:23 - [特朗普：我会记住不寻求退还关税的公司](http://www.blog.minike.top/Article/details/74214621384.shtml)
+- 2026-06-29 12:38 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [中外科研团队发现约5.35亿年前环节动物祖先](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [特朗普：如未能达成协议“几无可能”再延长停火](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [人民币兑美元中间价报6.8635，下调41点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](http://www.blog.minike.top/Article/details/21776.shtml)
+- 2026-06-29 12:29 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](http://www.blog.minike.top/Article/details/4147717660.shtml)
+- 2026-06-29 12:20 - [日本通过内阁决议正式允许出口杀伤性武器](http://www.share.minike.top/Article/details/5821888.shtml)
+- 2026-06-29 12:27 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](http://www.blog.minike.top/Article/details/6242605.shtml)
+- 2026-06-29 12:42 - [重回4100点！A股三大指数午后集体大涨](http://www.blog.minike.top/Article/details/6069455204.shtml)
+- 2026-06-29 12:47 - [学习新语｜山河永念 英雄回家](http://www.share.minike.top/Article/details/2800750.shtml)
+- 2026-06-29 12:40 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](http://www.blog.minike.top/Article/details/72772.shtml)
+- 2026-06-29 12:45 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](https://github.com/lisacumin64-arch)

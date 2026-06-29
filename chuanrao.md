@@ -1,57 +1,57 @@
-# 88匹进口蒙古马为中国内地演艺市场发展添助力
+# 广西出现今年首轮超警洪水 多地发布暴雨橙色预警
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-中新网二连浩特5月11日电 (李爱平 梁晓虹)二连海关11日对外发布消息称，二连浩特公路口岸迎来今年首批88匹进口蒙古马。 这些来自蒙古国的蒙古马，正在为中国内地的演艺市场蓬勃发展增添助力。在内蒙古二连浩特市上演的《天骄传奇》大型实景剧、锡林郭勒盟上演的《蒙古马》大型实景剧，以及鄂尔多斯市杭锦旗上演的《英雄》大型实景剧中，骑手们表演所用的马匹，八成来自蒙古国。 中新网记者获悉，
+中新社南宁4月21日电 (陈秋霞)广西壮族自治区水文中心21日提供的信息显示，4月20日8时至21日8时，桂林、柳州、河池、百色、贺州、梧州等市降大到暴雨，局部大暴雨到特大暴雨。 受强降雨影响，广西共有古宜河及支流六漫河，大溶江，湘江支流万乡河，资江等8条河流12个水文站出现超警0.05米至2.61米的洪水，为广西今年首轮超警洪水过程。 受归春河上游强降雨影响，近日广西崇左市大
 
 ## 正文
 
-中新网二连浩特5月11日电 (李爱平 梁晓虹)二连海关11日对外发布消息称，二连浩特公路口岸迎来今年首批88匹进口蒙古马。
+中新社南宁4月21日电 (陈秋霞)广西壮族自治区水文中心21日提供的信息显示，4月20日8时至21日8时，桂林、柳州、河池、百色、贺州、梧州等市降大到暴雨，局部大暴雨到特大暴雨。
 
-这些来自蒙古国的蒙古马，正在为中国内地的演艺市场蓬勃发展增添助力。
+受强降雨影响，广西共有古宜河及支流六漫河，大溶江，湘江支流万乡河，资江等8条河流12个水文站出现超警0.05米至2.61米的洪水，为广西今年首轮超警洪水过程。
 
-在内蒙古二连浩特市上演的《天骄传奇》大型实景剧、锡林郭勒盟上演的《蒙古马》大型实景剧，以及鄂尔多斯市杭锦旗上演的《英雄》大型实景剧中，骑手们表演所用的马匹，八成来自蒙古国。
+受归春河上游强降雨影响，近日广西崇左市大新县境内的德天跨国瀑布景区呈现“黄金瀑布”壮观景象。
 
-中新网记者获悉，这些实景剧每年旅游旺季的演出场次均为百余次，演出场景、内容和效果受到国内外游客的高度称赞。
+广西壮族自治区水文中心预测，未来24小时，柳江、桂江、湘江，龙江及支流环江、中洲小江等江河将出现1米至3米的涨水过程，桂林、柳州及河池等市部分中小河流可能出现超警洪水。
 
-此次进口的蒙古马由二连浩特市一家文化传播公司引进。
+广西水利厅和广西气象局联合发布山洪灾害气象预警，预计至4月21日20时，柳州市北部、桂林市西部、河池市东部发生山洪灾害可能性大。
 
-该公司相关负责人马洪艳表示，近年来中国马术赛事、马文化演艺等市场需求持续攀升，专业赛事场馆、文旅景区对优质马匹的需求量不断上涨。
+21日，广西气象部门预报，未来三天广西依旧多降雨，局地雨势强并伴有强对流天气。
 
-二连浩特口岸地处中国正北方，是中国对蒙古国开放的最大陆路口岸，承担着蒙古国70%以上日常生活用品的陆路运输任务。
+桂林市永福县、临桂区，柳州市三江侗族自治县、融安县、融水苗族自治县发布暴雨橙色预警。
 
-二连海关公路监管五科副科长辛恒缘介绍，近年来，二连浩特口岸累计入境蒙古国活马十余批次，总量500余匹，是中蒙口岸中入境蒙古马数量最多的口岸。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:19 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:18 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:15 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:20 - [贵阳银行：有条件时可以进行中期利润分配](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:40 - [英伟达宣布与康宁建立多年合作伙伴关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:25 - [白衣天使，节日快乐！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:34 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:25 - [美国能源信息署：美国2026年和2027年用电量将连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:37 - [特斯拉机器人出租车扩张计划点燃股价涨势，马斯克设定2026年目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:37 - [日本央行一名审议委员：可能在下次政策会议上加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:27 - [美国总统特朗普今起对中国进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:26 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:30 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:37 - [俄Tuapse炼油厂遭无人机袭击后全面停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:47 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:35 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:26 - [截至3月底全国5G基站总数已达495.8万个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:28 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:21 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:43 - [致敬！在繁花盛放的春天接英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:46 - [万亿中原银行，变天了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:28 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:41 - [2026基金投资，这款APP对新手特别友好！值得拥有！](http://www.blog.kurohicncr.top/Article/details/7248189537.shtml)
-- 2026-06-29 12:15 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](http://www.share.kurohicncr.top/Article/details/09701792566.shtml)
-- 2026-06-29 12:15 - [一见·中美两个“大块头”如何相处？](http://www.blog.kurohicncr.top/Article/details/732485816092.shtml)
-- 2026-06-29 12:35 - [新型“职业闭店人”骗局调查](http://www.blog.kurohicncr.top/Article/details/04737.shtml)
-- 2026-06-29 12:36 - [涉疫邮轮疏散乘客后前往荷兰 2名乘客离船后确诊](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [美国国税局或欠数百万纳税人疫情时代罚款减免退税 如何申请](http://www.share.minike.top/Article/details/96967685.shtml)
-- 2026-06-29 12:34 - [华宝基金红利风向标 | 创新高后三大指数涨跌不一，低波红利彰显防御力](http://www.blog.minike.top/Article/details/79639824660.shtml)
-- 2026-06-29 12:41 - [长江有色：12日铅价下跌 现货畏跌观望刚需采购为主](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [“为AI发电”组合逆市走强！华宝基金创业板人工智能ETF、电力ETF携手涨超1%！硬科技宽基双创50ETF续创新高](http://www.blog.kurohicncr.top/Article/details/82949204.shtml)
-- 2026-06-29 12:16 - [韩国生物制药公司Celltrion收购法国Gifrer](http://www.share.minike.top/Article/details/67870159.shtml)
-- 2026-06-29 12:15 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](http://www.share.minike.top/Article/details/3279871.shtml)
-- 2026-06-29 12:25 - [双向奔赴！两岸媒体人镜头里的和平与相融](http://www.blog.kurohicncr.top/Article/details/0492757.shtml)
-- 2026-06-29 12:32 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [海地总理：安全状况导致该国大选无法于8月如期举行](http://www.share.minike.top/Article/details/1334418233.shtml)
+- 2026-06-29 12:35 - [广西仫佬山乡：多彩民俗展风情](http://www.share.minike.top/Article/details/52577847.shtml)
+- 2026-06-29 12:44 - [乌力格尔：蒙古族说唱里的一部民族交融史](http://www.blog.minike.top/Article/details/32610.shtml)
+- 2026-06-29 12:38 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](http://www.blog.kurohicncr.top/Article/details/261270760.shtml)
+- 2026-06-29 12:46 - [日本放宽武器出口限制引发各界批评](http://www.blog.minike.top/Article/details/9127632.shtml)
+- 2026-06-29 12:27 - [第十九届北京车展将开幕 中国车企如何突破超越](http://www.share.kurohicncr.top/Article/details/162954419104.shtml)
+- 2026-06-29 12:24 - [售价29999元，华为星钻手镯表5月15日开售](http://www.share.minike.top/Article/details/032171136505.shtml)
+- 2026-06-29 12:37 - [上海期货交易所镍期货及期权正式引入境外交易者参与交易](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [聚焦新兴领域与文化产业 陕西检察去年办理知识产权案件328件](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](http://www.share.kurohicncr.top/Article/details/28937332.shtml)
+- 2026-06-29 12:46 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](http://www.share.kurohicncr.top/Article/details/62396148.shtml)
+- 2026-06-29 12:42 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](http://www.blog.minike.top/Article/details/795212.shtml)
+- 2026-06-29 12:46 - [贵州梵净山：夕阳映照落日如画](http://www.share.minike.top/Article/details/0015644700.shtml)
+- 2026-06-29 12:24 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.share.minike.top/Article/details/1256328769.shtml)
+- 2026-06-29 12:47 - [4月22日央行开展60亿元7天期逆回购操作](http://www.share.minike.top/Article/details/105925138686.shtml)

@@ -1,60 +1,60 @@
-# 探访福建福清百年侨厝群：文脉流芳 承载记忆
+# 正确政绩观｜世昌里社区的“三问三答”
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 22:19 来源：中国新闻网 福州是全国著名侨乡，侨厝众多，特色鲜明。福清市江镜镇南宵村下和洋自然村保留了一整片连着的侨厝和老民居，传承着一段“尊师重教、耕读传家”的百年佳话。 20世纪初，村里的许多男儿下南洋打拼。一封封侨批不断寄回。家书里包裹着的血汗钱，让他们在家乡起了大厝。斗转星移，这些大厝形成了现在的南宵村下和洋古民居群。 下和洋世代重
+津云新闻讯：在天津市和平区，有一个叫世昌里的老社区。过去，这里汽车塞满路，杂物堆满角，地锁像野草一样，清了又长。2025年底，社区“两委”换届，来了新班子。居民们管他们叫“那帮年轻人”，一开始谁也没当回事。可正是这群“不被看好”的年轻人，用半年多的时间回答了一个根本问题：什么是正确的政绩观？ 他们的答案，可以概括为“三问三答”。一问：社区治理为了谁？ 新班子做的第一件事，不是定
 
 ## 正文
 
-发布时间：2026年05月12日 22:19 来源：中国新闻网 福州是全国著名侨乡，侨厝众多，特色鲜明。
+津云新闻讯：在天津市和平区，有一个叫世昌里的老社区。
 
-福清市江镜镇南宵村下和洋自然村保留了一整片连着的侨厝和老民居，传承着一段“尊师重教、耕读传家”的百年佳话。
+过去，这里汽车塞满路，杂物堆满角，地锁像野草一样，清了又长。
 
-20世纪初，村里的许多男儿下南洋打拼。
+2025年底，社区“两委”换届，来了新班子。
 
-一封封侨批不断寄回。
+居民们管他们叫“那帮年轻人”，一开始谁也没当回事。
 
-家书里包裹着的血汗钱，让他们在家乡起了大厝。
+可正是这群“不被看好”的年轻人，用半年多的时间回答了一个根本问题：什么是正确的政绩观？
 
-斗转星移，这些大厝形成了现在的南宵村下和洋古民居群。
+他们的答案，可以概括为“三问三答”。
 
-下和洋世代重视教育，村里第一代学堂至今保留完好，里头还设置了人物雕像，还原了当时的学习场景。
+一问：社区治理为了谁？
 
-在这座仅有10多平方米的小学堂里，走出了福清第一位中国科学院院士、著名气象学家高由禧。
+新班子做的第一件事，不是定规划，而是听骂声。
 
 ## 相关推荐
 
-- 2026-06-29 12:27 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:39 - [摩根大通将对投行业务高层进行改组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:26 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:21 - [内蒙古厅官马保国、房瑞夜间官宣被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:29 - [24项改革措施，推动综合保税区扩能提质（政策解读）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:32 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:21 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:26 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:31 - [谷歌深化布局印度AI基础设施热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:39 - [时代电气5月12日回购1303.78万港元，已连续10日回购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:35 - [英国政府借贷成本飙升至2008年以来最高，首相斯塔默遭遇下台压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:13 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:40 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:25 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:19 - [工信部：开展人工智能中小企业创业支持计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:38 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:47 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:18 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:24 - [降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:25 - [福建武夷山：春茶开山 仪式感满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:20 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:46 - [【理响中国】今天，如何培养青少年阅读习惯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:36 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:38 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:42 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:34 - [香港应科院将于港深创科园成立联合研发实验室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:37 - [苍山洱海间的健康慢生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:43 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:24 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](http://www.share.kurohicncr.top/Article/details/02758.shtml)
-- 2026-06-29 12:35 - [88匹进口蒙古马为中国内地演艺市场发展添助力](http://www.share.minike.top/Article/details/936695910830.shtml)
-- 2026-06-29 12:32 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](http://www.share.minike.top/Article/details/803751.shtml)
-- 2026-06-29 12:18 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](http://www.blog.kurohicncr.top/Article/details/9698183909.shtml)
-- 2026-06-29 12:34 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](http://www.blog.kurohicncr.top/Article/details/5275841036.shtml)
-- 2026-06-29 12:38 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](http://www.share.minike.top/Article/details/11165297.shtml)
-- 2026-06-29 12:41 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](http://www.share.minike.top/Article/details/0093954.shtml)
-- 2026-06-29 12:19 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](http://www.blog.kurohicncr.top/Article/details/75284921769.shtml)
-- 2026-06-29 12:31 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](http://www.share.minike.top/Article/details/865017259382.shtml)
-- 2026-06-29 12:36 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](http://www.blog.minike.top/Article/details/672315.shtml)
-- 2026-06-29 12:30 - [贵阳银行：有条件时可以进行中期利润分配](http://www.blog.minike.top/Article/details/2666693712.shtml)
-- 2026-06-29 12:33 - [英伟达宣布与康宁建立多年合作伙伴关系](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [白衣天使，节日快乐！](http://www.blog.kurohicncr.top/Article/details/315618337447.shtml)
-- 2026-06-29 12:32 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](http://www.share.minike.top/Article/details/2744184363.shtml)
+- 2026-06-29 12:35 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [上海着力打造首个“次元友好街区”](http://www.blog.minike.top/Article/details/290602347.shtml)
+- 2026-06-29 12:22 - [赛分科技：聘任顾楹瑶为公司证券事务代表](http://www.share.minike.top/Article/details/609558.shtml)
+- 2026-06-29 12:20 - [陪审团裁定优步负有责任](http://www.share.kurohicncr.top/Article/details/13747658233.shtml)
+- 2026-06-29 12:46 - [Tractor Supply第一财季盈利不及预期](http://www.share.minike.top/Article/details/56334476.shtml)
+- 2026-06-29 12:27 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](http://www.blog.kurohicncr.top/Article/details/19246745465.shtml)
+- 2026-06-29 12:35 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](http://www.share.kurohicncr.top/Article/details/410839.shtml)
+- 2026-06-29 12:39 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](http://www.share.minike.top/Article/details/36189316.shtml)
+- 2026-06-29 12:20 - [俄Tuapse炼油厂遭无人机袭击后全面停产](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](http://www.share.minike.top/Article/details/902196590.shtml)
+- 2026-06-29 12:39 - [截至3月底全国5G基站总数已达495.8万个](http://www.share.minike.top/Article/details/29053396638.shtml)
+- 2026-06-29 12:23 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](http://www.blog.kurohicncr.top/Article/details/868533851192.shtml)

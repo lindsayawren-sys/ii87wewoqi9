@@ -1,57 +1,56 @@
-# 印度4月通胀连续第六个月攀升，但低于市场预期
+# 上期所镍期货及期权引入境外交易者 20号胶期权、国际铜期权挂牌交易
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-核心要点 印度储备银行警示，中东局势紧张可能拖累经济增长、加剧通胀压力。 印度卢比汇率徘徊历史低位附近，能源成本走高预计将大幅扩大该国贸易逆差与经常账户逆差。 印度 4 月消费者物价通胀由 3 月的 3.40% 升至3.48%，连续第六个月上行；印度政府维持成品油零售价稳定，以隔绝国际油价上涨对民众的冲击。 路透社调查，市场经济学家此前预期 4 月 CPI 涨幅达 3.80%，
+中新网上海4月22日电 (高志苗 康玉湛)21日晚间，上海期货交易所镍期货及期权正式引入境外交易者参与交易，同步向合格境外投资者开放。同时，上期所子公司上海国际能源交易中心上市20号胶和国际铜期权，并引入境外交易者参与交易，同步向合格境外投资者开放。 镍期货及期权是上期所挂牌的首个对外开放的期货及期权品种，推进镍品种的国际化，是上期所顺应全球镍产业发展趋势、服务实体经济高质量发
 
 ## 正文
 
-核心要点 印度储备银行警示，中东局势紧张可能拖累经济增长、加剧通胀压力。
+中新网上海4月22日电 (高志苗 康玉湛)21日晚间，上海期货交易所镍期货及期权正式引入境外交易者参与交易，同步向合格境外投资者开放。
 
-印度卢比汇率徘徊历史低位附近，能源成本走高预计将大幅扩大该国贸易逆差与经常账户逆差。
+同时，上期所子公司上海国际能源交易中心上市20号胶和国际铜期权，并引入境外交易者参与交易，同步向合格境外投资者开放。
 
-印度 4 月消费者物价通胀由 3 月的 3.40% 升至3.48%，连续第六个月上行；印度政府维持成品油零售价稳定，以隔绝国际油价上涨对民众的冲击。
+镍期货及期权是上期所挂牌的首个对外开放的期货及期权品种，推进镍品种的国际化，是上期所顺应全球镍产业发展趋势、服务实体经济高质量发展的重要举措。
 
-路透社调查，市场经济学家此前预期 4 月 CPI 涨幅达 3.80%，而实际整体通胀数据低于预期。
+当前，全球镍市场在矿产资源、生产及消费等方面正加速演进，镍产业相关企业的风险管理需求显著提升。
 
-印度统计和计划执行部发布数据显示，作为消费者物价指数核心构成的食品通胀升至 4.2%，高于 3 月的 3.87%。
+引入境外投资者，将进一步优化市场结构，增强市场深度和流动性，为全球镍产业链企业提供高效的价格风险管理工具，助力产业链供应链稳健运营，同时也将为上期所持续深入推进国际化建设积累重要经验。
 
-印度储备银行前行长杜武鲁里・苏巴拉奥周二在 CNBC《印度观察》节目中表示，相比单次通胀数据，通胀走势更为关键。
+自2018年以来，上期能源以特定品种方式陆续上市原油期货、20号胶、国际铜期货以及原油期权等衍生产品，直接向境外投资者开放，经过多年市场培育，已成为产业链企业套期保值的核心工具。
 
-他称：“若通胀持续时间过长，通胀预期将固化，当前的供给冲击可能演变为需求冲击。
+此次20号胶期权、国际铜期权同步上市，有助于加快实现上期能源成熟品种期权全覆盖，进一步丰富企业风险管理工具箱，支持企业开展精细化、个性化套保操作，提升稳健经营能力，有利于期货市场功能发挥。
 
-” 他补充道，这将是印度储备银行尤为担忧的风险。
+中共上海市委金融委员会办公室副主任曹艳文表示，20号胶、国际铜期权的上市，与镍期货及期权国际化同步推进，将吸引更多国际投资者参与，有助于扩大现有品种开放，有助于推动上期所加快建成世界一流交易所，有助于巩固上海在全球大宗商品市场的地位。
 
 ## 相关推荐
 
-- 2026-06-29 12:14 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:27 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:27 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:26 - [谷歌深化布局印度AI基础设施热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:21 - [时代电气5月12日回购1303.78万港元，已连续10日回购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:32 - [英国政府借贷成本飙升至2008年以来最高，首相斯塔默遭遇下台压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:15 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:17 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:35 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:38 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:29 - [白银直线涨超6%，黄金翻红重回4730美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:27 - [福建武夷山：春茶开山 仪式感满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:26 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:21 - [【理响中国】今天，如何培养青少年阅读习惯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:31 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:26 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:36 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:37 - [香港应科院将于港深创科园成立联合研发实验室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:36 - [苍山洱海间的健康慢生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:37 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:24 - [冷暖骤变 陕西多地迎四月春雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:38 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](http://www.blog.kurohicncr.top/Article/details/41400648.shtml)
-- 2026-06-29 12:20 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](http://www.blog.kurohicncr.top/Article/details/68041.shtml)
-- 2026-06-29 12:30 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](http://www.share.kurohicncr.top/Article/details/610962684.shtml)
-- 2026-06-29 12:39 - [贵阳银行：有条件时可以进行中期利润分配](http://www.blog.minike.top/Article/details/438952677254.shtml)
-- 2026-06-29 12:17 - [英伟达宣布与康宁建立多年合作伙伴关系](http://www.share.kurohicncr.top/Article/details/66686.shtml)
-- 2026-06-29 12:42 - [白衣天使，节日快乐！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](http://www.blog.kurohicncr.top/Article/details/95066242.shtml)
-- 2026-06-29 12:23 - [美国能源信息署：美国2026年和2027年用电量将连创新高](http://www.blog.kurohicncr.top/Article/details/95944327.shtml)
-- 2026-06-29 12:38 - [特斯拉机器人出租车扩张计划点燃股价涨势，马斯克设定2026年目标](http://www.blog.minike.top/Article/details/52103038187.shtml)
-- 2026-06-29 12:39 - [日本央行一名审议委员：可能在下次政策会议上加息](http://www.blog.minike.top/Article/details/32791543488.shtml)
-- 2026-06-29 12:41 - [美国总统特朗普今起对中国进行国事访问](http://www.share.kurohicncr.top/Article/details/12551.shtml)
-- 2026-06-29 12:25 - [受AI热潮提振，日经指数或将上涨](http://www.blog.kurohicncr.top/Article/details/9402521.shtml)
+- 2026-06-29 12:32 - [陪审团裁定优步负有责任](http://www.share.minike.top/Article/details/57931518408.shtml)
+- 2026-06-29 12:41 - [Tractor Supply第一财季盈利不及预期](http://www.blog.minike.top/Article/details/3056118461.shtml)
+- 2026-06-29 12:20 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](http://www.share.kurohicncr.top/Article/details/4575450132.shtml)
+- 2026-06-29 12:41 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](http://www.blog.kurohicncr.top/Article/details/93182.shtml)
+- 2026-06-29 12:38 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](http://www.share.kurohicncr.top/Article/details/61061.shtml)
+- 2026-06-29 12:47 - [俄Tuapse炼油厂遭无人机袭击后全面停产](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](http://www.blog.minike.top/Article/details/400835.shtml)
+- 2026-06-29 12:47 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](http://www.share.kurohicncr.top/Article/details/3701914042.shtml)
+- 2026-06-29 12:19 - [截至3月底全国5G基站总数已达495.8万个](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](http://www.share.kurohicncr.top/Article/details/68704151.shtml)
+- 2026-06-29 12:38 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](http://www.share.kurohicncr.top/Article/details/62980365181.shtml)
+- 2026-06-29 12:26 - [致敬！在繁花盛放的春天接英雄回家](http://www.blog.kurohicncr.top/Article/details/11326578.shtml)
+- 2026-06-29 12:38 - [万亿中原银行，变天了](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](http://www.share.minike.top/Article/details/8843849559.shtml)
+- 2026-06-29 12:32 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.share.kurohicncr.top/Article/details/31212.shtml)

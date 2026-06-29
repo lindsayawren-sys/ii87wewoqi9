@@ -1,60 +1,43 @@
-# 地缘局势不确定性加剧市场担忧，国际油价持续走高
+# 日本通过内阁决议正式允许出口杀伤性武器
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-受美伊和平协议谈判陷入僵局及市场对能源供应风险担忧加剧影响，国际原油价格周二延续涨势，两大基准油价涨幅均约2%。 截至格林尼治时间12日7时26分，布伦特原油期货价格上涨2美元，报每桶106.21美元，涨幅1.9%；美国西德克萨斯中质原油（WTI）期货价格上涨2.31美元，报每桶100.38美元，涨幅2.4%。此前，两项指标在周一均已录得近2.8%的涨幅。 谈判陷入僵局 战略要
+据日本方面消息，日本政府21日在内阁会议上正式修改了“防卫装备转移三原则”及其运用指南，原则上将允许出口杀伤性武器。
 
 ## 正文
 
-受美伊和平协议谈判陷入僵局及市场对能源供应风险担忧加剧影响，国际原油价格周二延续涨势，两大基准油价涨幅均约2%。
-
-截至格林尼治时间12日7时26分，布伦特原油期货价格上涨2美元，报每桶106.21美元，涨幅1.9%；美国西德克萨斯中质原油（WTI）期货价格上涨2.31美元，报每桶100.38美元，涨幅2.4%。
-
-此前，两项指标在周一均已录得近2.8%的涨幅。
-
-谈判陷入僵局 战略要道风险凸显 特朗普11日表示，美伊停火协议目前已处于“维系生命”的脆弱状态。
-
-据悉，美伊双方在多项核心诉求上存在严重分歧，包括停止全线敌对行动、解除美方海上封锁、恢复伊朗原油外销以及战争赔偿等问题。
-
-同时，伊朗方面重申了其对霍尔木兹海峡的主权。
-
-该海峡承担着全球约五分之一的石油及液化天然气运量，地缘博弈的升级直接推升了市场的风险溢价。
-
-产油国减产 供应端压力持续 行业观察人士指出，和平谈判前景暗淡令市场信心受挫。
+据日本方面消息，日本政府21日在内阁会议上正式修改了“防卫装备转移三原则”及其运用指南，原则上将允许出口杀伤性武器。
 
 ## 相关推荐
 
-- 2026-06-29 12:30 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:14 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:34 - [一见·中美两个“大块头”如何相处？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:22 - [新型“职业闭店人”骗局调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:33 - [涉疫邮轮疏散乘客后前往荷兰 2名乘客离船后确诊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:31 - [美国国税局或欠数百万纳税人疫情时代罚款减免退税 如何申请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:41 - [华宝基金红利风向标 | 创新高后三大指数涨跌不一，低波红利彰显防御力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:33 - [长江有色：12日铅价下跌 现货畏跌观望刚需采购为主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:27 - [“为AI发电”组合逆市走强！华宝基金创业板人工智能ETF、电力ETF携手涨超1%！硬科技宽基双创50ETF续创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:24 - [韩国生物制药公司Celltrion收购法国Gifrer](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:21 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:33 - [双向奔赴！两岸媒体人镜头里的和平与相融](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:38 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:39 - [海地总理：安全状况导致该国大选无法于8月如期举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:26 - [乌力格尔：蒙古族说唱里的一部民族交融史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:43 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:20 - [日本放宽武器出口限制引发各界批评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:34 - [第十九届北京车展将开幕 中国车企如何突破超越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:23 - [售价29999元，华为星钻手镯表5月15日开售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:43 - [上海期货交易所镍期货及期权正式引入境外交易者参与交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:41 - [聚焦新兴领域与文化产业 陕西检察去年办理知识产权案件328件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:43 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:39 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:44 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:32 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:14 - [门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号](http://www.blog.minike.top/Article/details/3670820.shtml)
-- 2026-06-29 12:26 - [黑龙江第45届爱鸟周启动 东林校地联动守护飞羽精灵](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [华泰期货：原油市场处于暴风雨前的平静](http://www.blog.minike.top/Article/details/333975620599.shtml)
-- 2026-06-29 12:22 - [习近平同塔吉克斯坦总统拉赫蒙会谈](http://www.blog.kurohicncr.top/Article/details/60384.shtml)
-- 2026-06-29 12:15 - [张凌赫、刘宇宁受欢迎 台演艺界人士说“非常希望请到台湾演出”](http://www.blog.kurohicncr.top/Article/details/5254564.shtml)
-- 2026-06-29 12:30 - [国产算力爆发，新手怎么布局？一次讲清芯片产业链四只指数](http://www.blog.minike.top/Article/details/45862729968.shtml)
-- 2026-06-29 12:20 - [国产芯片彻底爆发，3000亿存储巨头狂飙！华宝基金科创芯片ETF（589190）上探6.5%再创新高，行情到哪了？](http://www.share.kurohicncr.top/Article/details/01490123.shtml)
-- 2026-06-29 12:21 - [新接订单量暴涨近2倍，中船系逆市走强！华宝基金军工ETF（512810）水下拉起翻红，中国动力涨停封板](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [AI会取代哪些职业？多个AI意见不统一](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [酒价内参5月12日价格发布：习酒君品下跌6元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [晋级四强！U17女足亚洲杯中国队3∶0战胜印度队](http://www.blog.kurohicncr.top/Article/details/58146326.shtml)
-- 2026-06-29 12:37 - [贵港海关缉私分局2026年公务租车定点服务比选采购公告](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [河南迎入夏首轮大范围高温天气](http://www.share.kurohicncr.top/Article/details/518646306821.shtml)
-- 2026-06-29 12:36 - [燃料价格居高不下 特朗普支持暂停联邦汽油税](http://www.share.kurohicncr.top/Article/details/051619070.shtml)
-- 2026-06-29 12:13 - [香港富豪孙女遭绑架，被囚山洞4天，绑匪拿到2800万后逃跑，警方最新透露：她记得吃过什么、喝过什么，成为破案关键](http://www.blog.kurohicncr.top/Article/details/524648901.shtml)
+- 2026-06-29 12:37 - [太和水（605081）再被立案，股民索赔可期](http://www.share.kurohicncr.top/Article/details/326498413501.shtml)
+- 2026-06-29 12:26 - [拍照识字、自动翻译 探索打开古籍的N种方式](http://www.blog.minike.top/Article/details/32298.shtml)
+- 2026-06-29 12:47 - [特朗普称预计停火到期后将继续轰炸伊朗](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [中国长安朱华荣：汽车产业必须打破边界、跨界融合，从“制造”向“生态”跃迁](http://www.share.kurohicncr.top/Article/details/2730487.shtml)
+- 2026-06-29 12:28 - [先锋集团逆势加仓美债：4.25%以上收益率即是“黄金坑”，押注美联储今年降息](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [研究显示，伊朗战争引发的燃油价格上涨使长途航班成本增加100美元](http://www.share.kurohicncr.top/Article/details/96388.shtml)
+- 2026-06-29 12:40 - [吉林法院2025年审结各类知识产权案4342件](http://www.share.minike.top/Article/details/3711330.shtml)
+- 2026-06-29 12:20 - [甘肃一季度对东盟进出口货值同比增长逾四成](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [第三届国际核技术应用产业发展大会开幕](http://www.share.minike.top/Article/details/847997129427.shtml)
+- 2026-06-29 12:31 - [中信建投期货：4月22日工业品早报](http://www.share.minike.top/Article/details/401225862.shtml)
+- 2026-06-29 12:46 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.share.kurohicncr.top/Article/details/454854.shtml)
+- 2026-06-29 12:48 - [景顺长城赵思轩：权益板块轮动或加速，借助FOF实现多元资产配置](http://www.blog.kurohicncr.top/Article/details/945436906942.shtml)
+- 2026-06-29 12:38 - [中国驻新加坡使馆提醒五一假期来新游客注意旅行安全](http://www.blog.minike.top/Article/details/565826496.shtml)
+- 2026-06-29 12:40 - [马克龙访问波兰 聚焦法波防务及核能合作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [【理响中国】文化建设要着眼于人、落脚于人](http://www.blog.minike.top/Article/details/849339.shtml)

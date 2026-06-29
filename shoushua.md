@@ -1,58 +1,58 @@
-# 长江有色：12日铅价下跌 现货畏跌观望刚需采购为主
+# 消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:05 UTC+8
 
 ## 摘要
 
-长江有色金属网 今日沪期铅走势：今日沪期铅下跌，沪铅主力合约2606开盘报16695元，高点报16710元，低点16500元，结算价16590元，收盘16580元/吨，跌115元，跌幅为0.69%。 今日ccmn铅价统计，今日ccmn长江综合1#铅价报16450-16550元/吨，均价16500元，较前一日价格下跌110元；广东现货市场1#铅价报16410-16510元/吨，均
+据三位知情人士透露，Anthropic计划很快向欧洲的银行开放其Mythos人工智能（AI）模型的使用权限。在美国大型银行已率先获得该模型的初步使用权限后，全球各大银行正争相测试这项技术。 网络安全专家认为，Mythos给银行业及其传统技术系统带来了重大挑战，这促使上周在华盛顿举行的国际货币基金组织（IMF）春季会议上监管机构和决策者们发出了一系列警告。目前，美国已有多家银行获
 
 ## 正文
 
-长江有色金属网 今日沪期铅走势：今日沪期铅下跌，沪铅主力合约2606开盘报16695元，高点报16710元，低点16500元，结算价16590元，收盘16580元/吨，跌115元，跌幅为0.69%。
+据三位知情人士透露，Anthropic计划很快向欧洲的银行开放其Mythos人工智能（AI）模型的使用权限。
 
-今日ccmn铅价统计，今日ccmn长江综合1#铅价报16450-16550元/吨，均价16500元，较前一日价格下跌110元；广东现货市场1#铅价报16410-16510元/吨，均价16460元，较前一日价格下跌125元。
+在美国大型银行已率先获得该模型的初步使用权限后，全球各大银行正争相测试这项技术。
 
-今日现货铅市场报价在16350-16550元/吨之间，对比沪期铅2605合约贴水150-升水50元/吨，沪期铅2606合约贴水150-升水50元/吨。
+网络安全专家认为，Mythos给银行业及其传统技术系统带来了重大挑战，这促使上周在华盛顿举行的国际货币基金组织（IMF）春季会议上监管机构和决策者们发出了一系列警告。
 
-宏观面影响因素 2026 年 5 月 12 日铅价整体呈现震荡走弱格局，外部美元指数小幅走高站稳高位，非美货币普遍走弱削弱伦铅计价吸引力；美股小幅收涨但工业金属板块表现低迷，国际油价反弹抬升通胀预期，美联储降息预期持续降温，市场流动性趋于收紧。
+目前，美国已有多家银行获得了Mythos的使用权限。
 
-国内制造业景气度环比回落，铅蓄电池步入传统消费淡季，行业开工水平明显下滑，下游需求扩张放缓，仅维持刚需采购，内外宏观多重利空共振，拖累铅价走势偏弱运行。
+一位知情人士向路透透露，Anthropic计划将Mythos AI的接入范围扩展至欧洲和英国的银行及其他机构。
 
-供应端，原生铅矿供应稳定，再生铅产能有序释放，原料供应偏宽松，冶炼厂生产积极性较高。
+该消息人士匿名表示，这一过程包括一系列审查，以确保推广以安全方式进行。
 
-需求端，铅酸蓄电池作为主要消费领域，汽车与储能电池需求增长不及预期，终端采购多以刚需为主，对价格支撑有限。
+另一位知情消息人士表示，欧洲的银行可能在数日内获得接入权限，而第一位知情人士则称，推广过程可能需要数天或数周时间。
 
-产业链整体呈 “供稳需弱” 格局，基本面缺乏利好驱动。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 12:17 - [厄瓜多尔前外长埃斯皮诺萨角逐下一任联合国秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:31 - [大族数控午前大涨超15% PCB设备板块业绩高速增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:29 - [湖南残疾人代表讲述“追光”人生：梦想属于每一个勇者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:12 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：26名涉疫邮轮人员抵达荷兰接受安置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:32 - [研究成果合集 | 表现力指数 • 2026商办暨资管卓越表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:24 - [Monday.com大涨13%，此前公布一季度业绩全面超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:28 - [因七腾机器人股价大涨四倍背后：胜通能源实际控制人豁免减持的股东会决议遭起诉 理由是应遵守减持规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:19 - [“盈尺清芬——清代花鸟画扇面展”在广西南宁开展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:38 - [*ST沪科锁定退市，投资者索赔通道开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:33 - [开盘：美股周二低开 美国4月CPI创3年以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:27 - [韩国前总统尹锡悦涉嫌免费收受舆论调查服务一案被求刑4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:36 - [国泰君安期货：美国总统访华，哪些板块会蹭热度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:47 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:30 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:31 - [广西交易团“智”造出海出圈 广交会斩获颇丰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:44 - [第六届亚洲沙滩运动会迎来首个比赛日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:18 - [日本“再军事化”动作持续引发日本民众大规模抗议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:25 - [中芯国际获南向资金连续3天净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:20 - [一场展览，看香港工程的过去与未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:33 - [伊朗拒绝出席谈判 美国宣布延长停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:43 - [人民海军成立77周年系列报道之：沧海·初心如磐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:37 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:40 - [克里夫兰-克利夫斯CEO：与浦项制铁的交易“不再急于求成”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:30 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:35 - [香港富豪孙女遭绑架，被囚山洞4天，绑匪拿到2800万后逃跑，警方最新透露：她记得吃过什么、喝过什么，成为破案关键](http://www.blog.minike.top/Article/details/275358091329.shtml)
-- 2026-06-29 12:32 - [On Holding业绩亮眼却股价大跌，市场聚焦关税隐忧](http://www.share.kurohicncr.top/Article/details/2320792.shtml)
-- 2026-06-29 12:39 - [海地总理表示 8月无法如期大选 希望年底举行](http://www.blog.minike.top/Article/details/922132.shtml)
-- 2026-06-29 12:32 - [一箭18星 中国成功发射千帆极轨09组卫星](http://www.blog.kurohicncr.top/Article/details/1040212925.shtml)
-- 2026-06-29 12:32 - [CGBD计划年内再发两期CLO，基础股息重置为0.35美元](http://www.share.minike.top/Article/details/781463860533.shtml)
-- 2026-06-29 12:38 - [普及防灾避险知识 西藏日喀则消防守护民生安全](http://www.share.minike.top/Article/details/775997414871.shtml)
-- 2026-06-29 12:20 - [背弃和平、轻视宪法、无视民意！日媒批高市政权激进修宪](http://www.blog.minike.top/Article/details/3569906651.shtml)
-- 2026-06-29 12:22 - [日本加息已箭在弦上？OECD预计：到明年底利率将大幅上升至2%](http://www.share.minike.top/Article/details/97995.shtml)
-- 2026-06-29 12:21 - [Sally Beauty发布全年及第三季度业绩指引，股价承压](http://www.blog.minike.top/Article/details/853315.shtml)
-- 2026-06-29 12:34 - [特朗普拒绝伊朗关于停战协议草案回应，双方立场对立致外交进程陷入僵局](http://www.blog.kurohicncr.top/Article/details/752341363659.shtml)
-- 2026-06-29 12:27 - [伊朗战事持续之际，第二艘卡塔尔液化天然气油轮经霍尔木兹海峡驶往巴基斯坦](http://www.blog.minike.top/Article/details/29872.shtml)
-- 2026-06-29 12:13 - [A股午评：超4200只个股飘绿，三大指数集体收跌](http://www.blog.minike.top/Article/details/308249004.shtml)
-- 2026-06-29 12:30 - [瑞士研发出“熊脸识别”人工智能模型](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [67家人身险公司仅212.6万个险代理人！人数见底，行业行至分水岭](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [英国政治危机进一步加剧 国债与英镑双双重挫](http://www.blog.kurohicncr.top/Article/details/88463.shtml)
+- 2026-06-29 12:44 - [【理响中国】文化建设要着眼于人、落脚于人](http://www.blog.kurohicncr.top/Article/details/52143688.shtml)
+- 2026-06-29 12:38 - [关键词读懂一季度工业和信息化亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/55529336.shtml)
+- 2026-06-29 12:41 - [Van Oord完成波兰首座海上风电场单桩基础安装](http://www.share.minike.top/Article/details/0465522.shtml)
+- 2026-06-29 12:47 - [第六届亚洲沙滩运动会男子沙滩手球开赛 泰国队2比0战胜约旦队](http://www.share.kurohicncr.top/Article/details/24301.shtml)
+- 2026-06-29 12:40 - [酒价内参4月21日价格发布：五粮液1618小幅回落1元](http://www.share.minike.top/Article/details/8011678649.shtml)
+- 2026-06-29 12:35 - [机械车位闲置，如何盘活改造？](http://www.blog.kurohicncr.top/Article/details/42501.shtml)
+- 2026-06-29 12:44 - [波兰想卖黄金换军费？财长怒批：这方案根本不切实际！](http://www.share.kurohicncr.top/Article/details/1921523.shtml)
+- 2026-06-29 12:46 - [国家医保局：价格立项助推脑机接口等创新技术走向临床](http://www.blog.kurohicncr.top/Article/details/287624.shtml)
+- 2026-06-29 12:43 - [Revolut目标估值2000亿美元，IPO计划初具雏形](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [直播海报：国新办就2026年一季度农业农村经济运行情况举行新闻发布会](http://www.share.minike.top/Article/details/83921.shtml)
+- 2026-06-29 12:33 - [从生活成本到社会焦虑，伊朗战事持续冲击特朗普支持率](http://www.blog.kurohicncr.top/Article/details/079903532780.shtml)
+- 2026-06-29 12:28 - [多部门协同发力 陕西持续优化老年人优待服务](http://www.share.kurohicncr.top/Article/details/5074147.shtml)
+- 2026-06-29 12:32 - [习近平同莫桑比克总统查波会谈](http://www.share.minike.top/Article/details/97230.shtml)
+- 2026-06-29 12:43 - [下班后仅占用“几分钟”处理工作 算加班吗？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [投资者对参议院美联储主席候选人沃什听证会的反应汇总](http://www.blog.minike.top/Article/details/086555.shtml)

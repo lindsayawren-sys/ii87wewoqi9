@@ -1,42 +1,60 @@
-# 关注俄乌冲突：俄乌互指对方违反停火 并称作出对等回应
+# 操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 09:07 来源：央视新闻 责任编辑：【王祎】
+专题：风险溢价回落 看好中国制造与科技出海 影响股市利好与利空消息 宏观新闻 1、国务院日前印发《关于推进服务业扩能提质的意见》。意见明确，到2030年，服务业总规模迈上100万亿元台阶。意见指出，建设一批高质量行业数据集，有序推进算力布局与边缘算力建设。意见还指出，深入实施“人工智能+”行动，加快智能编程工具研发使用，支持采购大模型、智能体服务。 2、外交部发言人郭嘉昆昨日主
 
 ## 正文
 
-发布时间：2026年05月12日 09:07 来源：央视新闻 责任编辑：【王祎】
+专题：风险溢价回落 看好中国制造与科技出海 影响股市利好与利空消息 宏观新闻 1、国务院日前印发《关于推进服务业扩能提质的意见》。
+
+意见明确，到2030年，服务业总规模迈上100万亿元台阶。
+
+意见指出，建设一批高质量行业数据集，有序推进算力布局与边缘算力建设。
+
+意见还指出，深入实施“人工智能+”行动，加快智能编程工具研发使用，支持采购大模型、智能体服务。
+
+2、外交部发言人郭嘉昆昨日主持例行记者会。
+
+美国前常驻联合国代表黑莉发帖称，美国在霍尔木兹海峡扣押的船只是从中国开往伊朗的，与用于制造导弹的化学品运输有关。
+
+郭嘉昆表示，据了解，这是一艘外籍集装箱船。
+
+中方反对任何的恶意关联和炒作。
 
 ## 相关推荐
 
-- 2026-06-29 12:36 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:27 - [Meta因虚假广告面临审查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:29 - [台湾青年在抗震烈士塑像前落泪：这就是抛头颅洒热血的救灾精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:23 - [微视频｜总书记引领美丽中国建设迈出新步伐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:13 - [水口海关关于开展2026年5月份“关长接待日”的公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:30 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:13 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:21 - [湖北巴东成功救助国家一级保护动物白冠长尾雉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:20 - [中国金茂：附属订立新框架协议及提供贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:14 - [新疆伊犁：天山红花盛放 五月草原景色美](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:30 - [视频丨演唱会门票、车票都能用！小小票根联动激活假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:34 - [美伊停火最后24小时口水战升级，和平仍存一线希望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:36 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:45 - [牧原股份一季度净亏损12.15亿元，同比转亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:22 - [每一帧都很治愈，你读书的样子真好看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:32 - [长江有色：22日铸造铝期价微涨0.15% 下游入市采购谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:27 - [GTC泽汇:北欧黄金并购加速布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:22 - [智能时代，我们还需要深度阅读吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:28 - [湖南茶叶产量超30万吨 综合产值突破1250亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:43 - [湖南永顺：山间云雾 人间烟火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:32 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:46 - [邵艺辉：建议年轻人多阅读多写作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:20 - [险资扎堆港股IPO！泰康、平安、大家、新华、阳光都在买什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:31 - [福耀玻璃一季度营收增5.08% 归母净利润同比下滑15.68%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:37 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](http://www.blog.kurohicncr.top/Article/details/07377866.shtml)
-- 2026-06-29 12:17 - [白银直线涨超6%，黄金翻红重回4730美元](http://www.blog.kurohicncr.top/Article/details/55617.shtml)
-- 2026-06-29 12:36 - [RYOEX:金价反弹站上四千七百](http://www.share.minike.top/Article/details/68695482.shtml)
-- 2026-06-29 12:29 - [桑火尧个展亮相浦东美术馆 展出52件新作](http://www.share.kurohicncr.top/Article/details/02392264.shtml)
-- 2026-06-29 12:16 - [美国4月份通胀飙升后 金价小幅走高](http://www.blog.minike.top/Article/details/769122733.shtml)
-- 2026-06-29 12:25 - [Greystone Housing Impact Q1财报前瞻：市场关注能否扭转业绩不及预期颓势](http://www.blog.minike.top/Article/details/186345411.shtml)
-- 2026-06-29 12:35 - [一颗草莓的科技之旅与一个村庄的融合之变](http://www.blog.kurohicncr.top/Article/details/516770.shtml)
-- 2026-06-29 12:28 - [壳牌和丰田警告地缘政治风险仍处高位](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [遇到消费纠纷不知道去哪投诉 这些渠道你应该知道](http://www.blog.kurohicncr.top/Article/details/387108641006.shtml)
-- 2026-06-29 12:30 - [中央网信办就规范短视频内容标注答记者问](http://www.blog.kurohicncr.top/Article/details/1126261.shtml)
-- 2026-06-29 12:36 - [中美元首会晤在即 专家：美方有责任慎重处理台湾问题](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [中国驻马里使馆提醒中国企业和公民切勿从事非法采矿活动](http://www.blog.kurohicncr.top/Article/details/991182824888.shtml)
-- 2026-06-29 12:39 - [职业教育展示 看学生打造“微景观”如何“变废为宝”](http://www.share.kurohicncr.top/Article/details/270295.shtml)
-- 2026-06-29 12:27 - [Pulse Bio获内部人士超1300万美元大举买入，股价应声上涨](http://www.share.minike.top/Article/details/3843355910.shtml)
-- 2026-06-29 12:12 - [金斯瑞生物科技盘中涨超5% 联营传奇生物一季度亏损收窄](http://www.share.kurohicncr.top/Article/details/394215.shtml)
+- 2026-06-29 12:30 - [冷暖骤变 陕西多地迎四月春雪](http://www.share.minike.top/Article/details/02237436.shtml)
+- 2026-06-29 12:44 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](http://www.blog.kurohicncr.top/Article/details/198404.shtml)
+- 2026-06-29 12:38 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](http://www.share.kurohicncr.top/Article/details/132387718593.shtml)
+- 2026-06-29 12:42 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](http://www.blog.minike.top/Article/details/4236187153.shtml)
+- 2026-06-29 12:31 - [厦门举办连横逝世九十周年纪念座谈会](http://www.share.kurohicncr.top/Article/details/32924.shtml)
+- 2026-06-29 12:26 - [国台办：坚决反对美国一些人搞“以台遏华”](http://www.share.kurohicncr.top/Article/details/4364237.shtml)
+- 2026-06-29 12:47 - [日本大分县陆上自卫队一训练场弹药爆炸 多人受波及](http://www.share.minike.top/Article/details/54761.shtml)
+- 2026-06-29 12:47 - [西贝正在“换号重生”](http://www.share.minike.top/Article/details/28607685839.shtml)
+- 2026-06-29 12:35 - [长城基金：新兴科技是主线，价值也有春天](http://www.blog.kurohicncr.top/Article/details/2994217521.shtml)
+- 2026-06-29 12:31 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](http://www.blog.kurohicncr.top/Article/details/47467252148.shtml)
+- 2026-06-29 12:32 - [第十三批在韩中国人民志愿军烈士遗骸即将回国](http://www.blog.minike.top/Article/details/89145569926.shtml)
+- 2026-06-29 12:43 - [年轻人如何理财？国泰基金联合发布《第四期全国大学生财富素养调查蓝皮书》](http://www.share.kurohicncr.top/Article/details/0229261.shtml)
+- 2026-06-29 12:42 - [午后，集体拉升！太疯狂，一年暴涨超1000%！两则利好，突袭！](http://www.blog.minike.top/Article/details/91555000300.shtml)
+- 2026-06-29 12:24 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](http://www.blog.kurohicncr.top/Article/details/8459159.shtml)

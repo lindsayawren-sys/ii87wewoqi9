@@ -1,48 +1,58 @@
-# Meta因虚假广告面临审查
+# 美伊停火最后24小时口水战升级，和平仍存一线希望
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-一份报告称，重复性虚假广告商在Facebook上以老年人为目标；同时，圣克拉拉县起诉Meta Platforms，指控其从欺诈性广告中获利；Meta称已移除去年1.59亿条虚假广告。责任编辑：张俊 SF065
+来源：汇通网 汇通财经APP讯——美国与伊朗之间的口水战持续升级，而脆弱的停火协议正接近到期期限。双方均在新一轮和平谈判尝试前不断提高筹码，紧张局势进一步加剧。 伊朗议会发言人穆罕默德·巴格尔·加利巴夫（Mohammad Bagher Ghalibaf）周二（4月21日）在社交媒体上发文，似乎进一步提高了赌注。他批评美国总统特朗普“实施围困并违反停火协议”，并试图将谈判变成“投
 
 ## 正文
 
-一份报告称，重复性虚假广告商在Facebook上以老年人为目标；同时，圣克拉拉县起诉Meta Platforms，指控其从欺诈性广告中获利；Meta称已移除去年1.59亿条虚假广告。
+来源：汇通网 汇通财经APP讯——美国与伊朗之间的口水战持续升级，而脆弱的停火协议正接近到期期限。
 
-责任编辑：张俊 SF065
+双方均在新一轮和平谈判尝试前不断提高筹码，紧张局势进一步加剧。
+
+伊朗议会发言人穆罕默德·巴格尔·加利巴夫（Mohammad Bagher Ghalibaf）周二（4月21日）在社交媒体上发文，似乎进一步提高了赌注。
+
+他批评美国总统特朗普“实施围困并违反停火协议”，并试图将谈判变成“投降桌”，或为重新发动战争寻找借口。
+
+加利巴夫还暗示伊朗在当前对峙中掌握新的筹码。
+
+他表示：“在过去两周，我们已经准备好在战场上打出新的牌。
+
+”他补充说：“我们不接受在威胁阴影下进行谈判。
+
+” 这一尖锐言论出现在特朗普重申威胁之后。
 
 ## 相关推荐
 
-- 2026-06-29 12:32 - [中国金茂：附属订立新框架协议及提供贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:17 - [新疆伊犁：天山红花盛放 五月草原景色美](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:31 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:23 - [融资25亿美元、产业链巨头站队：阶跃星辰的AI终端霸业与港股冲刺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:41 - [长江有色：12日铜价暴涨 现货成交仍表现谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:39 - [广东公布第三批以县城为重要载体的新型城镇化建设试点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:20 - [（粤港澳大湾区）江西有24家企业在港交所上市 首发募资逾310亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:14 - [迈克尔・伯里：任何暴涨走抛物线行情的股票，都应清仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:24 - [具身智能机器人加速落地工业产线 业界冀构建协作生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:34 - [中美经贸磋商在韩国开始举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:29 - [探访福建福清百年侨厝群：文脉流芳 承载记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:16 - [上海居民何时能去台湾本岛个人游？国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:35 - [华宝基金红利风向标 | 华宝红利家族全线飘红，当下均衡红利策略或为较优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:38 - [南方人是怎么爱上北方奶茶的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:23 - [湖南茶叶产量超30万吨 综合产值突破1250亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:20 - [湖南永顺：山间云雾 人间烟火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:31 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:45 - [邵艺辉：建议年轻人多阅读多写作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:47 - [险资扎堆港股IPO！泰康、平安、大家、新华、阳光都在买什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:23 - [福耀玻璃一季度营收增5.08% 归母净利润同比下滑15.68%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:43 - [金针菇概念股，净利润大增超7000%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:26 - [“GNV·北极星”号豪华客滚船完成升级改造启航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:27 - [多型舰艇齐聚上海并对民众开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:27 - [长信化学IPO终止只是开始？核心技术人员王昭云等被天奈科技起诉，索赔总额达2.25亿元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:29 - [正确政绩观｜世昌里社区的“三问三答”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:39 - [“六连涨”终结！国内油价今夜下调，加满一箱少花22元，下一轮调整是“二连跌”还是反弹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:18 - [遇到消费纠纷不知道去哪投诉 这些渠道你应该知道](http://www.share.minike.top/Article/details/078333.shtml)
-- 2026-06-29 12:22 - [中央网信办就规范短视频内容标注答记者问](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [中美元首会晤在即 专家：美方有责任慎重处理台湾问题](http://www.blog.minike.top/Article/details/185981722.shtml)
-- 2026-06-29 12:22 - [中国驻马里使馆提醒中国企业和公民切勿从事非法采矿活动](http://www.blog.kurohicncr.top/Article/details/216723.shtml)
-- 2026-06-29 12:30 - [职业教育展示 看学生打造“微景观”如何“变废为宝”](http://www.share.minike.top/Article/details/328742218.shtml)
-- 2026-06-29 12:24 - [Pulse Bio获内部人士超1300万美元大举买入，股价应声上涨](http://www.blog.kurohicncr.top/Article/details/9107392.shtml)
-- 2026-06-29 12:26 - [金斯瑞生物科技盘中涨超5% 联营传奇生物一季度亏损收窄](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [日经指数下跌0.6% 受芯片股拖累](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [新闻人物丨美国总统唐纳德·特朗普](http://www.blog.kurohicncr.top/Article/details/011075151195.shtml)
-- 2026-06-29 12:22 - [美国4月CPI报告对美联储意味著什么](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [酒价内参5月13日价格发布：古20下跌6元](http://www.share.minike.top/Article/details/079811.shtml)
-- 2026-06-29 12:17 - [美国得州起诉奈飞，指控其涉嫌监视儿童并诱使用户成瘾](http://www.blog.kurohicncr.top/Article/details/63176467406.shtml)
-- 2026-06-29 12:31 - [福州鼓岭：承载百年中美民间情谊的山间胜地](http://www.blog.minike.top/Article/details/21094963.shtml)
-- 2026-06-29 12:20 - [联播+｜“中国式安全感”如何炼成？](http://www.share.kurohicncr.top/Article/details/71751447.shtml)
-- 2026-06-29 12:38 - [VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [西贝正在“换号重生”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [长城基金：新兴科技是主线，价值也有春天](http://www.share.minike.top/Article/details/29166.shtml)
+- 2026-06-29 12:42 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](http://www.share.minike.top/Article/details/18135511839.shtml)
+- 2026-06-29 12:26 - [第十三批在韩中国人民志愿军烈士遗骸即将回国](http://www.blog.minike.top/Article/details/56760047260.shtml)
+- 2026-06-29 12:25 - [年轻人如何理财？国泰基金联合发布《第四期全国大学生财富素养调查蓝皮书》](http://www.share.kurohicncr.top/Article/details/6149775138.shtml)
+- 2026-06-29 12:42 - [午后，集体拉升！太疯狂，一年暴涨超1000%！两则利好，突袭！](http://www.blog.kurohicncr.top/Article/details/78925546.shtml)
+- 2026-06-29 12:23 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](http://www.blog.kurohicncr.top/Article/details/311335514.shtml)
+- 2026-06-29 12:48 - [商汤-W授出合共2.38亿份受限制股份单位](http://www.blog.kurohicncr.top/Article/details/236946626322.shtml)
+- 2026-06-29 12:38 - [年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](http://www.share.kurohicncr.top/Article/details/820539466629.shtml)
+- 2026-06-29 12:38 - [酒价内参4月21日价格发布：飞天茅台保持不变](http://www.blog.kurohicncr.top/Article/details/52456.shtml)
+- 2026-06-29 12:23 - [浙江慈溪：老厂来了“新员工” 数字转型显成效](http://www.blog.minike.top/Article/details/178984771408.shtml)
+- 2026-06-29 12:20 - [广州纪念詹天佑诞辰165周年](http://www.blog.kurohicncr.top/Article/details/03960.shtml)
+- 2026-06-29 12:34 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](http://www.blog.kurohicncr.top/Article/details/12675112915.shtml)
+- 2026-06-29 12:23 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](http://www.blog.kurohicncr.top/Article/details/76520.shtml)

@@ -1,50 +1,59 @@
-# 日本央行一名审议委员：可能在下次政策会议上加息
+# 万亿中原银行，变天了
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-根据周二发布的4月27日至28日政策会议意见摘要，日本央行一名审议委员表示，央行完全有可能在下次会议或之后的会议上加息。一名委员表示，如果通胀上行风险加大，当局需要以更快速度加息；一名委员表示，如果伊朗冲突持续，需要将政策利率提高至中性水平；一名委员表示，除非经济出现明确放缓迹象，否则央行应尽快加息；一名委员指出，日本实际利率处于全球最低水平之列；一名委员表示，根据经济和通胀形
+文/瑞财经 许淑敏 周锋也算是火速升职。 2025年10月担任中原银行行长，同年11月担任副董事长，其任职资格2026年1月才正式获批。 距今不过半年时间，周锋就成为了中原银行的一把手。 4月21日，中原银行官宣将帅齐换。 郭浩因工作调动辞任中原银行董事长，周锋接替这一职位，并辞去行长、副董事长职务，张涛成为该行行长。 周锋出生于1977年，博士研究生学历，在加入中原银行之前，
 
 ## 正文
 
-根据周二发布的4月27日至28日政策会议意见摘要，日本央行一名审议委员表示，央行完全有可能在下次会议或之后的会议上加息。
+文/瑞财经 许淑敏 周锋也算是火速升职。
 
-一名委员表示，如果通胀上行风险加大，当局需要以更快速度加息；一名委员表示，如果伊朗冲突持续，需要将政策利率提高至中性水平；一名委员表示，除非经济出现明确放缓迹象，否则央行应尽快加息；一名委员指出，日本实际利率处于全球最低水平之列；一名委员表示，根据经济和通胀形势发展来上调利率是合适的；一名委员表示，经济面临的主要下行风险来自通胀；另一名委员表示，鉴于中东冲突，央行需要观望。
+2025年10月担任中原银行行长，同年11月担任副董事长，其任职资格2026年1月才正式获批。
 
-责任编辑：王永生
+距今不过半年时间，周锋就成为了中原银行的一把手。
+
+4月21日，中原银行官宣将帅齐换。
+
+郭浩因工作调动辞任中原银行董事长，周锋接替这一职位，并辞去行长、副董事长职务，张涛成为该行行长。
+
+周锋出生于1977年，博士研究生学历，在加入中原银行之前，他曾任河南省人民政府副秘书长、河南省濮阳市副市长，也曾在原中国银行保险监督管理委员会河南监管局工作过。
+
+他跟前任郭浩一样，兼具地方政府治理与金融监管的经验。
+
+从履历上看，郭浩也是博士，加入中原银行前，曾任河南省鹤壁市委副书记、市长，河南省政府副秘书长，河南省政府金融服务办公室副主任等职。
 
 ## 相关推荐
 
-- 2026-06-29 12:36 - [FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:37 - [A股强势突破，创逾10年新高，科技成长板块领涨全场！| 华宝基金3A日报（2026.5.11）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:31 - [伊朗外长与沙特外交大臣讨论美伊外交进程最新进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:19 - [香港将设“AI+与产业发展策略委员会” 聚焦具身智能推动产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:41 - [四川携手重庆协同提升“双圈”能级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:22 - [剂泰科技港股上市在即：AI制药三小龙会师港股 贝莱德领衔基石 2025年收入增长靠首付款 长期仍具不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:28 - [习近平会见文莱王储比拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:12 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:27 - [康特隆：呈请人撤回对附属公司的清盘呈请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:16 - [中新健康｜医生提醒：体重正常但肚子大更危险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:34 - [电影总票房破140亿！五月观影热潮持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:40 - [长江有色：12日锌价大涨 整体成交难有亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:39 - [中国红基会在贵州开展“天使之旅”——先心病患儿筛查救助行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:20 - [特斯拉将向德国工厂注资2.5亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:24 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:22 - [四川2025年高价值发明专利拥有量达7.79万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:30 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:30 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:41 - [全民阅读活动周 各地举办多场活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:22 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:18 - [合并助力建筑公司CannonDesign实现全球布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:38 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:35 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:28 - [特朗普：我会记住不寻求退还关税的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:28 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:32 - [中外科研团队发现约5.35亿年前环节动物祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:43 - [特朗普：如未能达成协议“几无可能”再延长停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:12 - [大族数控午前大涨超15% PCB设备板块业绩高速增长](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [湖南残疾人代表讲述“追光”人生：梦想属于每一个勇者](http://www.share.minike.top/Article/details/32875760334.shtml)
-- 2026-06-29 12:23 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：26名涉疫邮轮人员抵达荷兰接受安置](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [研究成果合集 | 表现力指数 • 2026商办暨资管卓越表现](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [Monday.com大涨13%，此前公布一季度业绩全面超预期](http://www.share.minike.top/Article/details/4175243469.shtml)
-- 2026-06-29 12:22 - [因七腾机器人股价大涨四倍背后：胜通能源实际控制人豁免减持的股东会决议遭起诉 理由是应遵守减持规定](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [“盈尺清芬——清代花鸟画扇面展”在广西南宁开展](http://www.blog.kurohicncr.top/Article/details/1588638833.shtml)
-- 2026-06-29 12:24 - [*ST沪科锁定退市，投资者索赔通道开启](http://www.blog.kurohicncr.top/Article/details/4380163662.shtml)
-- 2026-06-29 12:25 - [开盘：美股周二低开 美国4月CPI创3年以来新高](http://www.share.minike.top/Article/details/07986014146.shtml)
-- 2026-06-29 12:37 - [韩国前总统尹锡悦涉嫌免费收受舆论调查服务一案被求刑4年](http://www.blog.minike.top/Article/details/24608.shtml)
-- 2026-06-29 12:22 - [国泰君安期货：美国总统访华，哪些板块会蹭热度？](http://www.blog.kurohicncr.top/Article/details/488096.shtml)
-- 2026-06-29 12:38 - [金观平：千方百计稳住就业基本盘](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [日本学者表示：日本政府修宪扩军路线破坏地区稳定](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [第四届老山国际春茶节专场活动在云南麻栗坡举行](http://www.share.kurohicncr.top/Article/details/198673699553.shtml)
-- 2026-06-29 12:23 - [委内瑞拉代总统否认该国将成为美国“第51州”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](http://www.blog.kurohicncr.top/Article/details/86043425419.shtml)
+- 2026-06-29 12:41 - [广西交易团“智”造出海出圈 广交会斩获颇丰](http://www.blog.minike.top/Article/details/12031445432.shtml)
+- 2026-06-29 12:30 - [第六届亚洲沙滩运动会迎来首个比赛日](http://www.share.minike.top/Article/details/633671060.shtml)
+- 2026-06-29 12:24 - [日本“再军事化”动作持续引发日本民众大规模抗议](http://www.blog.minike.top/Article/details/66675712365.shtml)
+- 2026-06-29 12:34 - [中芯国际获南向资金连续3天净买入](http://www.share.kurohicncr.top/Article/details/95548052014.shtml)
+- 2026-06-29 12:38 - [一场展览，看香港工程的过去与未来](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [伊朗拒绝出席谈判 美国宣布延长停火](http://www.share.minike.top/Article/details/25578.shtml)
+- 2026-06-29 12:24 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.blog.minike.top/Article/details/37983.shtml)
+- 2026-06-29 12:29 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](http://www.blog.kurohicncr.top/Article/details/7277586034.shtml)
+- 2026-06-29 12:44 - [克里夫兰-克利夫斯CEO：与浦项制铁的交易“不再急于求成”](http://www.share.kurohicncr.top/Article/details/69907405.shtml)
+- 2026-06-29 12:41 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [韩国与印度签署20项谅解备忘录，深化钢铁造船和能源等领域合作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [一季度净利暴降98%！国盛证券开盘后跌停，4.6万手封单背后，竟是趣店惹的祸？](http://www.share.minike.top/Article/details/5912607717.shtml)
+- 2026-06-29 12:19 - [纷美包装发布2025年度业绩 股东应占溢利5274.8万元同比下降80.5%](http://www.share.minike.top/Article/details/100067939166.shtml)
+- 2026-06-29 12:27 - [4月21日“农产品批发价格200指数”比昨天上升0.10个点](http://www.blog.kurohicncr.top/Article/details/24896.shtml)

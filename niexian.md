@@ -1,61 +1,56 @@
-# 表演艺术家何赛飞：行走艺途数十载 以文字留存心声
+# 网达软件（603189）投资者索赔分析
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-中新网广州5月12日电 (程景伟 黄依妮)据花城出版社11日消息，由该出版社出版的表演艺术家何赛飞《春江花月：赛飞随感录》一书近日首发。 谈及成书缘起，何赛飞坦言自己本非文字从业者，起初几度犹豫是否提笔。随着年岁渐长，行走艺途数十载，她心中积攒下了诸多生活感悟与艺术心得，在友人鼓励下，决意以文字留存心声。 《春江花月：赛飞随感录》是一本赤诚真挚的艺术谈艺录。该书以江南诗意落笔，
+2026年4月16日晚，网达软件（维权）（603189）发布公告对业绩进行了修正。在这份修正公告中，预计2025年扣非净利润为亏损250万元至100万元（此前预计盈利360万-600万元），且营收确认低于3亿元，触及*ST标准。部分股民或许存在索赔机会。 徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致损
 
 ## 正文
 
-中新网广州5月12日电 (程景伟 黄依妮)据花城出版社11日消息，由该出版社出版的表演艺术家何赛飞《春江花月：赛飞随感录》一书近日首发。
+2026年4月16日晚，网达软件（维权）（603189）发布公告对业绩进行了修正。
 
-谈及成书缘起，何赛飞坦言自己本非文字从业者，起初几度犹豫是否提笔。
+在这份修正公告中，预计2025年扣非净利润为亏损250万元至100万元（此前预计盈利360万-600万元），且营收确认低于3亿元，触及*ST标准。
 
-随着年岁渐长，行走艺途数十载，她心中积攒下了诸多生活感悟与艺术心得，在友人鼓励下，决意以文字留存心声。
+部分股民或许存在索赔机会。
 
-《春江花月：赛飞随感录》是一本赤诚真挚的艺术谈艺录。
+徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致损失，可以向有管辖权的法院提起民事赔偿诉讼以维护自己的合法权益，可索赔损失范围包括投资差额损失、印花税及佣金损失。
 
-该书以江南诗意落笔，记录何赛飞四十余年艺途行迹：从越剧戏台起步，辗转影视、话剧舞台，在一次次角色交付中守持本心。
+（徐劲律师专栏） 暂定索赔条件： 在2026年1月31日至2026年4月16日（含当日）期间买入，并在2026年4月17日后卖出或仍持有而亏损的投资者（最终索赔结果以法院判决为准）。
 
-书中收录何赛飞在《五女拜寿》《大宅门》《日出》等经典作品的幕后故事，书写其海岛童年、姐妹情谊与舞台内外的合作往事，袒露其对行业、对表演、对戏曲的纯粹思考。
+（网达软件维权入口） 投资者应准备下列材料：身份证复印件，证券账户开户信息确认单（原件加盖证券公司营业部印章），证券交易记录流水（从首次买入该股票至今并加盖证券公司营业部印章，有库存股的还要打印出库存股数）。
 
-谈及写作难点，何赛飞直言最难的是以文字形式回忆表演段落，“因为有时候表演技巧是用语言、用话说不清楚的。
+（本文由北京市盈科（深圳）律师事务所徐劲律师（执业证号14403200610948623）供稿，不代表新浪财经的立场。
 
-”书中影像均从私人珍藏中反复筛选而来。
+徐劲律师擅长在上市公司虚假陈述案件中为股民维权索赔，执业十余年来，曾代理投资者起诉多家上市公司成功索赔。
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [【星访谈】蒋龙：《10间敢死队》是我的“表演考试” 喜剧分寸要“润物细无声”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:32 - [Brookfield拟向OpenAI部署平台投资5亿美元，加速AI从试点走向规模化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:40 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:41 - [5月13日热门中概股多数下跌 奇景光电跌7.46%，金山云跌6.36%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:20 - [获刑十三年！荐股“杀猪盘”被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:41 - [再鼎医药盘中涨超5% zoci获FDA快速通道资格认定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:29 - [民调指超半数台湾女性担忧男性亲属需上战场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:31 - [（文化中国行）从织机到云端：新疆艾德莱斯绸的“数字蝶变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:28 - [今年前4个月全国食品贸易进出口同比增长6.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:30 - [男子施工时坠崖身亡 仅口头约定雇佣方该担何责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:33 - [OpenAI推出“Daybreak”网络安全倡议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:24 - [白酒年报| 白酒行业整体盈利能力下滑 酒鬼酒亏损、水井坊、洋河股份净利润降幅超60%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:26 - [高油价阴云笼罩！日本20年期国债收益率创近30年新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:29 - [塔吉克斯坦总统拉赫蒙向人民英雄纪念碑敬献花圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:28 - [“人工胚胎”首次进入太空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:35 - [以树为媒、以情为桥 京藏少年“共植同心树”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:23 - [国内油价，今年首次下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:35 - [日经指数上涨0.9% 受电子和科技股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:43 - [别再问“周末过得怎么样？” 公共演讲专家建议这样做：“不必刻意深刻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:23 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:20 - [酒价内参4月22日价格发布：国窖1573上涨5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:40 - [刘海星会见孟加拉国民族主义党高级干部考察团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:32 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:33 - [*ST太和（605081）立案调查+监管！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:20 - [奋进“十五五” 实干挑大梁——“中国经济圆桌会”共话经济大省担当与作为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:30 - [豪买16亿元后，裘国根罕见现身](http://www.share.kurohicncr.top/Article/details/2901341.shtml)
-- 2026-06-29 12:17 - [Fugro获得苏格兰海上风电场勘测合同](http://www.blog.minike.top/Article/details/82920206013.shtml)
-- 2026-06-29 12:12 - [2026金砖国家工业创新大赛决赛在厦门开幕](http://www.share.minike.top/Article/details/7468060.shtml)
-- 2026-06-29 12:29 - [“小童装”奔赴大市场 浙江织里“全球揽客”拓外贸](http://www.share.minike.top/Article/details/78900197.shtml)
-- 2026-06-29 12:31 - [北京幸福东方剧院启幕 央地联手打造城市文化客厅](http://www.share.kurohicncr.top/Article/details/888647972337.shtml)
-- 2026-06-29 12:34 - [王毅同巴基斯坦副总理兼外长通电话](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [中国逊克口岸2026年明水期正式开关通航](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [“AI水果”“酱板鸭”火到台湾 业者盼拓展两岸微短剧合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [关注俄乌冲突：俄乌互指对方违反停火 并称作出对等回应](http://www.share.kurohicncr.top/Article/details/680390377676.shtml)
-- 2026-06-29 12:24 - [枪声震天！直击武警官兵实战化射击超燃瞬间](http://www.share.kurohicncr.top/Article/details/21094.shtml)
-- 2026-06-29 12:29 - [韩国官员称以AI收益发放公民红利的言论仅代表发言者个人观点](http://www.blog.minike.top/Article/details/358870900101.shtml)
-- 2026-06-29 12:36 - [拒绝伊朗回应 美方称停火“有效但脆弱”](http://www.blog.kurohicncr.top/Article/details/2372798.shtml)
-- 2026-06-29 12:17 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.share.minike.top/Article/details/74388993722.shtml)
-- 2026-06-29 12:27 - [加密货币立法再遇阻碍：工会阵营出面反对](http://www.share.kurohicncr.top/Article/details/0285935.shtml)
-- 2026-06-29 12:29 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](http://www.share.kurohicncr.top/Article/details/00935.shtml)
+- 2026-06-29 12:18 - [吴凯院士谈新能源汽车电池：每种材料都有自身局限 要坚持多元化学体系](http://www.share.minike.top/Article/details/07152306.shtml)
+- 2026-06-29 12:36 - [大美边疆看我家丨内蒙古敖汉：山野杏花 如霞似雪](http://www.blog.minike.top/Article/details/3029372305.shtml)
+- 2026-06-29 12:29 - [诺比侃与浪潮智慧城市签订《战略合作框架协议书》](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [龙蟠科技拟1485万澳元收购位于澳大利亚的锂矿勘探租约及相关资产](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [智达藏语大模型及系列应用产品成果发布](http://www.blog.kurohicncr.top/Article/details/65014731048.shtml)
+- 2026-06-29 12:35 - [法国官方宣布财政节支措施以应对中东局势](http://www.share.minike.top/Article/details/6730547664.shtml)
+- 2026-06-29 12:36 - [美国财长贝森特：财政部将继续对伊朗施压](http://www.share.minike.top/Article/details/605791348681.shtml)
+- 2026-06-29 12:33 - [特朗普称将“记住”不申请关税退款的公司](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](http://www.share.minike.top/Article/details/484930695.shtml)
+- 2026-06-29 12:27 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](http://www.share.kurohicncr.top/Article/details/83604848396.shtml)
+- 2026-06-29 12:32 - [摩根士丹利下调黄金前景预期](http://www.share.kurohicncr.top/Article/details/776297508002.shtml)
+- 2026-06-29 12:30 - [花6000元打玻尿酸出现动脉栓塞，医美消费前这一步能救命](http://www.blog.minike.top/Article/details/505411540408.shtml)
+- 2026-06-29 12:43 - [一季度公募规模增长TOP30：景顺长城增542亿居首，永赢、国泰增超300亿，华商、安信环比增长超20%](http://www.share.minike.top/Article/details/6266475091.shtml)
+- 2026-06-29 12:42 - [瞄准、击发 直击官兵轻武器实弹射击训练](http://www.blog.kurohicncr.top/Article/details/790476664.shtml)
+- 2026-06-29 12:24 - [“双20”五机编队列阵长空 以最高礼仪告慰先烈](http://www.share.kurohicncr.top/Article/details/84841402.shtml)

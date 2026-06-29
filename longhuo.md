@@ -1,61 +1,47 @@
-# 华泰期货：供需持续偏紧，碳酸锂价格强势上涨
+# 陪审团裁定优步负有责任
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 师橙 市场分析 2026-05-11，碳酸锂主力合约2609开于196560元/吨，收于205020元/吨，当日收盘价较昨日结算价变化3.51%。当日成交量为236895手，持仓量为540666手，前一交易日持仓量513252手，根据SMM现货报价，目前基差为-7870元/吨（电碳均价-期货）。当日碳酸锂仓单43880手，较上个交易日变化-50手。 碳酸
+一个联邦陪审团裁定优步（UBER）对北卡罗来纳州一名司机的殴打行为负有责任，并判给5000美元赔偿。此前有一项裁决认定优步对乘客负有“不可委托”的照管义务，目前更广泛的性侵诉讼仍在进行中。责任编辑：张俊 SF065
 
 ## 正文
 
-来源：华泰期货 作者： 师橙 市场分析 2026-05-11，碳酸锂主力合约2609开于196560元/吨，收于205020元/吨，当日收盘价较昨日结算价变化3.51%。
+一个联邦陪审团裁定优步（UBER）对北卡罗来纳州一名司机的殴打行为负有责任，并判给5000美元赔偿。
 
-当日成交量为236895手，持仓量为540666手，前一交易日持仓量513252手，根据SMM现货报价，目前基差为-7870元/吨（电碳均价-期货）。
+此前有一项裁决认定优步对乘客负有“不可委托”的照管义务，目前更广泛的性侵诉讼仍在进行中。
 
-当日碳酸锂仓单43880手，较上个交易日变化-50手。
-
-碳酸锂现货：根据SMM数据，电池级碳酸锂报价191500-199000元/吨，较前一交易日变化1250元/吨，工业级碳酸锂报价187500-194000元/吨，较前一交易日变化1250元/吨。
-
-6%锂精矿价格2900美元/吨，较前一日变化70美元/吨。
-
-供应：据 SMM 统计，碳酸锂周度总产量25894吨，其中辉石产碳酸锂14950吨，云母产碳酸锂3301吨，盐湖产碳酸锂4655吨，回收产碳酸锂2988吨。
-
-库存：根据SMM最新统计数据，现货库存为102673吨，环比-920吨。
-
-其中冶炼厂库存为18795吨，环比-36吨；下游库存为40568吨，环比-1634吨；其他库存为43310吨，环比+750吨。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 12:24 - [英伟达宣布与康宁建立多年合作伙伴关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:24 - [白衣天使，节日快乐！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:13 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:26 - [美国能源信息署：美国2026年和2027年用电量将连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:29 - [特斯拉机器人出租车扩张计划点燃股价涨势，马斯克设定2026年目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:33 - [日本央行一名审议委员：可能在下次政策会议上加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:24 - [美国总统特朗普今起对中国进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:37 - [受AI热潮提振，日经指数或将上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:26 - [六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:17 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:25 - [卓越教育集团获Soarise Bulex Limited增持139.5万股 每股作价3.19港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:26 - [龙元建设：400亿PPP资产或将“冰山解冻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:17 - [FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:15 - [A股强势突破，创逾10年新高，科技成长板块领涨全场！| 华宝基金3A日报（2026.5.11）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:21 - [伊朗外长与沙特外交大臣讨论美伊外交进程最新进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:44 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:25 - [截至3月底全国5G基站总数已达495.8万个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:39 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:47 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:25 - [致敬！在繁花盛放的春天接英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:24 - [万亿中原银行，变天了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:27 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:36 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:19 - [外资转向加仓中国资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:34 - [河北辛集：70米长臂灌溉机器人助力春灌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:25 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:33 - [新型“职业闭店人”骗局调查](http://www.blog.kurohicncr.top/Article/details/07010857.shtml)
-- 2026-06-29 12:30 - [涉疫邮轮疏散乘客后前往荷兰 2名乘客离船后确诊](http://www.share.minike.top/Article/details/622754693.shtml)
-- 2026-06-29 12:14 - [美国国税局或欠数百万纳税人疫情时代罚款减免退税 如何申请](http://www.share.kurohicncr.top/Article/details/95638781235.shtml)
-- 2026-06-29 12:23 - [华宝基金红利风向标 | 创新高后三大指数涨跌不一，低波红利彰显防御力](http://www.blog.minike.top/Article/details/95195187.shtml)
-- 2026-06-29 12:24 - [长江有色：12日铅价下跌 现货畏跌观望刚需采购为主](http://www.blog.kurohicncr.top/Article/details/53357.shtml)
-- 2026-06-29 12:26 - [“为AI发电”组合逆市走强！华宝基金创业板人工智能ETF、电力ETF携手涨超1%！硬科技宽基双创50ETF续创新高](http://www.share.minike.top/Article/details/51985.shtml)
-- 2026-06-29 12:21 - [韩国生物制药公司Celltrion收购法国Gifrer](http://www.blog.minike.top/Article/details/33098.shtml)
-- 2026-06-29 12:32 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](http://www.blog.kurohicncr.top/Article/details/3799257026.shtml)
-- 2026-06-29 12:14 - [双向奔赴！两岸媒体人镜头里的和平与相融](http://www.share.kurohicncr.top/Article/details/9678085826.shtml)
-- 2026-06-29 12:26 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](http://www.share.minike.top/Article/details/76008.shtml)
-- 2026-06-29 12:40 - [海地总理：安全状况导致该国大选无法于8月如期举行](http://www.blog.kurohicncr.top/Article/details/221137.shtml)
-- 2026-06-29 12:39 - [厄瓜多尔前外长埃斯皮诺萨角逐下一任联合国秘书长](http://www.share.minike.top/Article/details/5717074919.shtml)
-- 2026-06-29 12:23 - [大族数控午前大涨超15% PCB设备板块业绩高速增长](http://www.blog.minike.top/Article/details/837582.shtml)
-- 2026-06-29 12:39 - [湖南残疾人代表讲述“追光”人生：梦想属于每一个勇者](http://www.share.kurohicncr.top/Article/details/623380.shtml)
-- 2026-06-29 12:17 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：26名涉疫邮轮人员抵达荷兰接受安置](http://www.blog.minike.top/Article/details/17231741.shtml)
+- 2026-06-29 12:25 - [第十九届北京车展将开幕 中国车企如何突破超越](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [售价29999元，华为星钻手镯表5月15日开售](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [上海期货交易所镍期货及期权正式引入境外交易者参与交易](http://www.share.minike.top/Article/details/650125175961.shtml)
+- 2026-06-29 12:25 - [聚焦新兴领域与文化产业 陕西检察去年办理知识产权案件328件](http://www.blog.minike.top/Article/details/0918828.shtml)
+- 2026-06-29 12:45 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](http://www.blog.kurohicncr.top/Article/details/618429100.shtml)
+- 2026-06-29 12:43 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](http://www.share.minike.top/Article/details/253899451.shtml)
+- 2026-06-29 12:46 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](http://www.share.minike.top/Article/details/579972478268.shtml)
+- 2026-06-29 12:40 - [贵州梵净山：夕阳映照落日如画](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.blog.minike.top/Article/details/551093814792.shtml)
+- 2026-06-29 12:31 - [4月22日央行开展60亿元7天期逆回购操作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](http://www.blog.kurohicncr.top/Article/details/8634662.shtml)
+- 2026-06-29 12:39 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](http://www.blog.kurohicncr.top/Article/details/808715107880.shtml)
+- 2026-06-29 12:29 - [广西交易团“智”造出海出圈 广交会斩获颇丰](http://www.blog.minike.top/Article/details/3810087.shtml)
+- 2026-06-29 12:32 - [第六届亚洲沙滩运动会迎来首个比赛日](http://www.blog.minike.top/Article/details/299656384.shtml)

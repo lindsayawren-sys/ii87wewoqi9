@@ -1,58 +1,59 @@
-# 新闻人物丨美国总统唐纳德·特朗普
+# 年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-新华社北京5月12日电 题：美国总统唐纳德·特朗普 应国家主席习近平邀请，美国总统唐纳德·特朗普于5月13日至15日对中国进行国事访问。 特朗普1946年6月出生于美国纽约市，1968年获宾夕法尼亚大学沃顿商学院经济学学士学位，随后任职于房地产公司。 特朗普2016年11月当选美国第四十五任总统，2017年1月20日宣誓就职。2024年11月再次赢得总统大选。2025年1月20
+4月21日消息，指数震荡走强，三大股指尾盘再度翻红。在此带动下，红利低波ETF华泰柏瑞（512890）涨0.59%，现价1.197元，换手率1.95%，成交额5.99亿元，居同类标的ETF首位。 规模方面，截止4月20日，红利低波ETF华泰柏瑞（512890）最新份额为256.04亿份，最新规模为304.71亿元。该基金今年以来份额增加12.40%，规模增加13.89%。流动性
 
 ## 正文
 
-新华社北京5月12日电 题：美国总统唐纳德·特朗普 应国家主席习近平邀请，美国总统唐纳德·特朗普于5月13日至15日对中国进行国事访问。
+4月21日消息，指数震荡走强，三大股指尾盘再度翻红。
 
-特朗普1946年6月出生于美国纽约市，1968年获宾夕法尼亚大学沃顿商学院经济学学士学位，随后任职于房地产公司。
+在此带动下，红利低波ETF华泰柏瑞（512890）涨0.59%，现价1.197元，换手率1.95%，成交额5.99亿元，居同类标的ETF首位。
 
-特朗普2016年11月当选美国第四十五任总统，2017年1月20日宣誓就职。
+规模方面，截止4月20日，红利低波ETF华泰柏瑞（512890）最新份额为256.04亿份，最新规模为304.71亿元。
 
-2024年11月再次赢得总统大选。
+该基金今年以来份额增加12.40%，规模增加13.89%。
 
-2025年1月20日宣誓就职，成为美国第四十七任总统。
+流动性方面，截止4月21日，红利低波ETF华泰柏瑞（512890）近20个交易日累计成交金额145.51亿元，日均成交金额7.28亿元。
 
-夫人梅拉尼娅。
+消息面上，A股年报披露进入加速期。
 
-有3子2女。
+数据显示，截至4月20日晚，A股共有2285家上市公司披露2025年年报，1745家公司计划进行2025年度现金分红，占比约为76.37%。
+
+行业头部公司频现大额分红，向市场传递出业绩扎实、盈利能力稳定与稳健的现金流信息。
 
 ## 相关推荐
 
-- 2026-06-29 12:32 - [南京审计大学通报“学生涉嫌偷拍他人隐私”：已成立专项工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:29 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:36 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:20 - [88匹进口蒙古马为中国内地演艺市场发展添助力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:37 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:20 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:38 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:31 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:27 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:38 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:36 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:13 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:13 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:15 - [贵阳银行：有条件时可以进行中期利润分配](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:48 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:30 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:19 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:24 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:45 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:26 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:47 - [赛分科技：聘任顾楹瑶为公司证券事务代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:27 - [陪审团裁定优步负有责任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:26 - [Tractor Supply第一财季盈利不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:21 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:31 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:18 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:41 - [俄Tuapse炼油厂遭无人机袭击后全面停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [特斯拉将向德国工厂注资2.5亿美元](http://www.share.minike.top/Article/details/115055412504.shtml)
-- 2026-06-29 12:29 - [美国4月通胀升至3.8%，美国人薪资购买力遭侵蚀](http://www.share.kurohicncr.top/Article/details/00089488985.shtml)
-- 2026-06-29 12:34 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](http://www.blog.kurohicncr.top/Article/details/629510264033.shtml)
-- 2026-06-29 12:35 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](http://www.blog.kurohicncr.top/Article/details/256070.shtml)
-- 2026-06-29 12:18 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](http://www.share.kurohicncr.top/Article/details/221032650.shtml)
-- 2026-06-29 12:14 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](http://www.share.kurohicncr.top/Article/details/7541289025.shtml)
-- 2026-06-29 12:28 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](http://www.share.kurohicncr.top/Article/details/01963502.shtml)
-- 2026-06-29 12:19 - [2026基金投资，这款APP对新手特别友好！值得拥有！](http://www.blog.minike.top/Article/details/838673.shtml)
-- 2026-06-29 12:35 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](http://www.share.kurohicncr.top/Article/details/2873460656.shtml)
-- 2026-06-29 12:39 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](http://www.share.minike.top/Article/details/0032239943.shtml)
-- 2026-06-29 12:34 - [一见·中美两个“大块头”如何相处？](http://www.share.kurohicncr.top/Article/details/161786569703.shtml)
-- 2026-06-29 12:13 - [新型“职业闭店人”骗局调查](http://www.share.kurohicncr.top/Article/details/809786.shtml)
+- 2026-06-29 12:37 - [人民币兑美元中间价报6.8635，下调41点](http://www.share.kurohicncr.top/Article/details/0849031894.shtml)
+- 2026-06-29 12:40 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](http://www.share.minike.top/Article/details/07305502.shtml)
+- 2026-06-29 12:40 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](http://www.share.kurohicncr.top/Article/details/6495407212.shtml)
+- 2026-06-29 12:42 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [日本通过内阁决议正式允许出口杀伤性武器](http://www.share.minike.top/Article/details/65579.shtml)
+- 2026-06-29 12:20 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](http://www.share.minike.top/Article/details/126357175.shtml)
+- 2026-06-29 12:19 - [重回4100点！A股三大指数午后集体大涨](http://www.share.kurohicncr.top/Article/details/7227215.shtml)
+- 2026-06-29 12:34 - [学习新语｜山河永念 英雄回家](http://www.share.kurohicncr.top/Article/details/301415.shtml)
+- 2026-06-29 12:21 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](http://www.blog.kurohicncr.top/Article/details/230349635822.shtml)
+- 2026-06-29 12:33 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](http://www.blog.kurohicncr.top/Article/details/69769447.shtml)
+- 2026-06-29 12:38 - [广西仫佬山乡：多彩民俗展风情](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [乌力格尔：蒙古族说唱里的一部民族交融史](http://www.blog.kurohicncr.top/Article/details/7470906247.shtml)
+- 2026-06-29 12:21 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](http://www.blog.kurohicncr.top/Article/details/04115836.shtml)
+- 2026-06-29 12:44 - [日本放宽武器出口限制引发各界批评](http://www.blog.minike.top/Article/details/38486171.shtml)
+- 2026-06-29 12:21 - [第十九届北京车展将开幕 中国车企如何突破超越](http://www.blog.minike.top/Article/details/192072012.shtml)

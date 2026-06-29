@@ -1,56 +1,54 @@
-# 一颗草莓的科技之旅与一个村庄的融合之变
+# 国台办：坚决反对美国一些人搞“以台遏华”
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-中新网乌兰察布5月12日电 题：一颗草莓的科技之旅与一个村庄的融合之变 中新网记者 张林虎 清晨，内蒙古自治区乌兰察布市察右前旗的草莓植物工厂里，工作人员正忙着移栽新一季的草莓苗；十几公里外的平地泉镇南村，种植户赵宝成也在大棚里采摘鲜红的草莓。 从智能种植间到传统日光温室，从一颗草莓到一个村庄，科技与产业、治理与民生正在这片塞北大地发生着深刻的化学反应。近日，中新网记者走进察右
+4月22日，国务院台办举行例行新闻发布会。有记者问：美国国会跨党派参议员日前致函台湾民意机构，敦促其通过台湾所谓“国防特别预算”，以“强化台湾防卫能力”，并加速采购美国军备，并有议员呼吁美国行政部门继续推进美国对台军售程序，请问发言人对此有何评论？发言人张晗表示，一段时间以来，美国一些人妄图“打台湾牌”，搞“以台遏华”，阻挠中国统一，我们对此坚决反对。民进党当局图谋“以武谋独”
 
 ## 正文
 
-中新网乌兰察布5月12日电 题：一颗草莓的科技之旅与一个村庄的融合之变 中新网记者 张林虎 清晨，内蒙古自治区乌兰察布市察右前旗的草莓植物工厂里，工作人员正忙着移栽新一季的草莓苗；十几公里外的平地泉镇南村，种植户赵宝成也在大棚里采摘鲜红的草莓。
+4月22日，国务院台办举行例行新闻发布会。
 
-从智能种植间到传统日光温室，从一颗草莓到一个村庄，科技与产业、治理与民生正在这片塞北大地发生着深刻的化学反应。
+有记者问：美国国会跨党派参议员日前致函台湾民意机构，敦促其通过台湾所谓“国防特别预算”，以“强化台湾防卫能力”，并加速采购美国军备，并有议员呼吁美国行政部门继续推进美国对台军售程序，请问发言人对此有何评论？
 
-近日，中新网记者走进察右前旗，探访现代农业与和美乡村的振兴故事。
+发言人张晗表示，一段时间以来，美国一些人妄图“打台湾牌”，搞“以台遏华”，阻挠中国统一，我们对此坚决反对。
 
-一颗草莓的科技范儿 在察右前旗草莓植物工厂，17座智能种植间整齐排列，四列八层立体种植架上，新移栽的草莓苗青翠欲滴，工作人员正在换茬定植。
+民进党当局图谋“以武谋独”“倚外谋独”，甘当美国军火商的“提款机”，最终只会将台岛变成“火药桶”“弹药库”，毁台、害台，自取灭亡。
 
-这座工厂采用立体集约栽培模式，可种植草莓8000余株，旺季日产鲜果500公斤。
-
-依托定制 LED光谱精准补光、智能滴灌水肥一体化系统，搭配24小时环境传感监控，每一株草莓都在数字化管护下，实现温、光、水、肥、气全周期精细化管理。
-
-“立体种植、智能水肥、精准补光，绿电全程保障，科技让种植更高效，让生活更有奔头。
-
-”基地生产班长王红说。
+(总台央视记者 赵超逸 张立雷)
 
 ## 相关推荐
 
-- 2026-06-29 12:17 - [Pulse Bio获内部人士超1300万美元大举买入，股价应声上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:40 - [金斯瑞生物科技盘中涨超5% 联营传奇生物一季度亏损收窄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:26 - [日经指数下跌0.6% 受芯片股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:23 - [新闻人物丨美国总统唐纳德·特朗普](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:39 - [美国4月CPI报告对美联储意味著什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:36 - [酒价内参5月13日价格发布：古20下跌6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:15 - [美国得州起诉奈飞，指控其涉嫌监视儿童并诱使用户成瘾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:33 - [福州鼓岭：承载百年中美民间情谊的山间胜地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:34 - [联播+｜“中国式安全感”如何炼成？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:20 - [VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:31 - [午后，集体拉升！太疯狂，一年暴涨超1000%！两则利好，突袭！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:28 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:44 - [商汤-W授出合共2.38亿份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:23 - [年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:19 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:25 - [酒价内参4月21日价格发布：飞天茅台保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:43 - [浙江慈溪：老厂来了“新员工” 数字转型显成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:41 - [广州纪念詹天佑诞辰165周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:21 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:24 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:18 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:47 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:33 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:27 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:31 - [香港将设“AI+与产业发展策略委员会” 聚焦具身智能推动产业升级](http://www.share.minike.top/Article/details/41707886.shtml)
-- 2026-06-29 12:36 - [四川携手重庆协同提升“双圈”能级](http://www.share.minike.top/Article/details/743544483639.shtml)
-- 2026-06-29 12:37 - [剂泰科技港股上市在即：AI制药三小龙会师港股 贝莱德领衔基石 2025年收入增长靠首付款 长期仍具不确定性](http://www.blog.minike.top/Article/details/27165983845.shtml)
-- 2026-06-29 12:15 - [习近平会见文莱王储比拉](http://www.share.kurohicncr.top/Article/details/6245165.shtml)
-- 2026-06-29 12:17 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [康特隆：呈请人撤回对附属公司的清盘呈请](http://www.blog.minike.top/Article/details/66430126.shtml)
-- 2026-06-29 12:40 - [中新健康｜医生提醒：体重正常但肚子大更危险](http://www.blog.kurohicncr.top/Article/details/10188.shtml)
-- 2026-06-29 12:22 - [电影总票房破140亿！五月观影热潮持续升温](http://www.blog.kurohicncr.top/Article/details/2968229999.shtml)
-- 2026-06-29 12:27 - [长江有色：12日锌价大涨 整体成交难有亮点](http://www.share.minike.top/Article/details/524481998.shtml)
-- 2026-06-29 12:13 - [中国红基会在贵州开展“天使之旅”——先心病患儿筛查救助行动](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [特斯拉将向德国工厂注资2.5亿美元](http://www.blog.kurohicncr.top/Article/details/3106519.shtml)
-- 2026-06-29 12:33 - [美国4月通胀升至3.8%，美国人薪资购买力遭侵蚀](http://www.blog.minike.top/Article/details/831800123938.shtml)
-- 2026-06-29 12:40 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](http://www.blog.kurohicncr.top/Article/details/21286211.shtml)
-- 2026-06-29 12:40 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](http://www.share.kurohicncr.top/Article/details/7051550320.shtml)
+- 2026-06-29 12:47 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](http://www.share.minike.top/Article/details/3043364.shtml)
+- 2026-06-29 12:25 - [全民阅读活动周 各地举办多场活动](http://www.blog.kurohicncr.top/Article/details/410104.shtml)
+- 2026-06-29 12:33 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](http://www.blog.minike.top/Article/details/884495335.shtml)
+- 2026-06-29 12:22 - [合并助力建筑公司CannonDesign实现全球布局](http://www.share.kurohicncr.top/Article/details/5272145151.shtml)
+- 2026-06-29 12:18 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](http://www.share.minike.top/Article/details/6111234.shtml)
+- 2026-06-29 12:25 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](http://www.share.minike.top/Article/details/9872160.shtml)
+- 2026-06-29 12:31 - [特朗普：我会记住不寻求退还关税的公司](http://www.blog.kurohicncr.top/Article/details/6291027.shtml)
+- 2026-06-29 12:46 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](http://www.blog.minike.top/Article/details/10047874596.shtml)
+- 2026-06-29 12:22 - [中外科研团队发现约5.35亿年前环节动物祖先](http://www.blog.minike.top/Article/details/75298344.shtml)
+- 2026-06-29 12:33 - [特朗普：如未能达成协议“几无可能”再延长停火](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [人民币兑美元中间价报6.8635，下调41点](http://www.share.minike.top/Article/details/9368905902.shtml)
+- 2026-06-29 12:28 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](http://www.blog.minike.top/Article/details/90825.shtml)
+- 2026-06-29 12:41 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](http://www.share.minike.top/Article/details/49752.shtml)
+- 2026-06-29 12:20 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lisacumin64-arch)

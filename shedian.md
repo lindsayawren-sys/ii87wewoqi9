@@ -1,59 +1,42 @@
-# “盈尺清芬——清代花鸟画扇面展”在广西南宁开展
+# 伊朗拒绝出席谈判 美国宣布延长停火
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:05 UTC+8
 
 ## 摘要
 
-中新网南宁5月12日电(张广权 周志方)近日，“盈尺清芬——清代花鸟画扇面展”在广西壮族自治区博物馆(以下简称：广西博物馆)开展。 展览汇聚该馆与桂林博物馆馆藏的精品清代花鸟画扇面，共计展出文物76件/套，免费向公众开放至8月23日。 本次展览从技法传承、题材寄寓、地域融合三大维度切入，通过“研古出新 追摹传承”“君子比德 心物交融”“八桂风雅 岭南新境”三大部分，勾勒清代花鸟
+发布时间：2026年04月22日 14:22 来源：央视新闻客户端 责任编辑：【杜晓姣】
 
 ## 正文
 
-中新网南宁5月12日电(张广权 周志方)近日，“盈尺清芬——清代花鸟画扇面展”在广西壮族自治区博物馆(以下简称：广西博物馆)开展。
-
-展览汇聚该馆与桂林博物馆馆藏的精品清代花鸟画扇面，共计展出文物76件/套，免费向公众开放至8月23日。
-
-本次展览从技法传承、题材寄寓、地域融合三大维度切入，通过“研古出新 追摹传承”“君子比德 心物交融”“八桂风雅 岭南新境”三大部分，勾勒清代花鸟画百年发展脉络。
-
-从恽寿平发扬没骨、开宗立派，到李吉寿创墨梅新风，再到居廉在广西的学艺经历为技法创新与画派生成积蓄力量……一扇一画间，既是文人笔墨的风雅传承，也是地域文化的交融共生，尽显清代花鸟画在“追摹之中见创变，传承之际开新境”的独特魅力。
-
-展览策展人田曜诚介绍，展览的匠心体现在三方面：学术上，以扎实研究呈现广西作为岭南花鸟画风重要孕育地的历史地位；展陈上，依托画作创作背景再现“拜坡公生日”雅集，让观众沉浸式体验文人风雅；叙事上，从技法、题材、地域三个维度，让盈尺扇面成为可感可知的文化载体。
-
-这三者共同体现了广西博物馆守护文脉、让文物活起来的专业态度与文化担当。
-
-田曜诚表示，要让扇面成为可感、可知的文化载体，讲好广西故事。
-
-这既是对中华优秀传统文化的创造性转化，也是广西博物馆推动区域文博事业发展、坚定文化自信的具体实践，进一步扩大中华文化的影响力。
+发布时间：2026年04月22日 14:22 来源：央视新闻客户端 责任编辑：【杜晓姣】
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [第四届老山国际春茶节专场活动在云南麻栗坡举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:15 - [委内瑞拉代总统否认该国将成为美国“第51州”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:32 - [简化程序而非自动归还 流落法国的各国文物何时“回家”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:26 - [上海：“乘物游心”书画联展对公众开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:13 - [唐纳德·特朗普称伊朗停火协议已经岌岌可危](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:22 - [文远知行-W午前涨超4% 中信建投维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:23 - [专家：警惕日本极右翼“借尸还魂” 中国将坚决遏制其妄动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:15 - [5月13日人民币对美元中间价报6.8431元 下调5个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:30 - [华媒探访南宁微短剧产业：AI 赋能“出海” 光影联通东盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:21 - [REF HOLDINGS拟折让约19.82%配售最多5120万股 净筹约2271万港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:27 - [中英“乒乓外交”55周年纪念活动在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:38 - [门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:16 - [黑龙江第45届爱鸟周启动 东林校地联动守护飞羽精灵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:46 - [纷美包装发布2025年度业绩 股东应占溢利5274.8万元同比下降80.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:38 - [4月21日“农产品批发价格200指数”比昨天上升0.10个点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:37 - [50余位海内外台胞台商齐聚海南 共探自贸港新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:39 - [一季度消费市场平稳增长 升级态势持续显现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:34 - [日本气象厅解除对所有地区的海啸预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:29 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:41 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:38 - [供奉祭品后，高市早苗又向靖国神社供奉“玉串料”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:47 - [库克亮相苹果员工大会 试图平息外界对卸任CEO原因的猜测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:34 - [南华期货：第一季度净利润同比增长138.82%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:25 - [英国政治危机进一步加剧 国债与英镑双双重挫](http://www.blog.minike.top/Article/details/97550.shtml)
-- 2026-06-29 12:16 - [全国人大常委会办公厅在郑州举办地方人大常委会负责同志专题学习班](http://www.share.kurohicncr.top/Article/details/251972.shtml)
-- 2026-06-29 12:24 - [特朗普访华期间是否会讨论台湾和香港有关问题？外交部回应](http://www.share.kurohicncr.top/Article/details/4823842.shtml)
-- 2026-06-29 12:24 - [宣称“纯棉”内裤实为100%聚酯纤维 “假一赔十”能落实吗？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [石油直线飙升！美伊谈判，最新变数](http://www.share.minike.top/Article/details/890332.shtml)
-- 2026-06-29 12:17 - [农家书屋不止于书 探索“阅”见乡村新方式](http://www.blog.kurohicncr.top/Article/details/13714.shtml)
-- 2026-06-29 12:31 - [歌礼制药-B获GIC Private Limited增持12.2万股 每股作价16.612港元](http://www.blog.minike.top/Article/details/1523141085.shtml)
-- 2026-06-29 12:37 - [东北证券：中国宏桥首予“买入”评级 目标价42港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [黄金生产商Caledonia Mining派发每股0.14美元季度股息，金价大涨抵消产量下滑影响](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [日本北海道发生4.8级地震](http://www.blog.kurohicncr.top/Article/details/993010245764.shtml)
-- 2026-06-29 12:24 - [湖北武汉：防灾减灾教育进校园](http://www.blog.kurohicncr.top/Article/details/4226274607.shtml)
-- 2026-06-29 12:35 - [湖南“云签发”首票供港活猪《动物卫生证书》](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [既生瑜何生亮！月之暗面与 DeepSeek的“终局之战”到来了](http://www.blog.kurohicncr.top/Article/details/326724799572.shtml)
-- 2026-06-29 12:32 - [韩国官员提议以人工智能税收向发放公民红利 引发股市盘中巨震](http://www.share.minike.top/Article/details/034285.shtml)
-- 2026-06-29 12:17 - [韩国基准股指触及历史高点后大幅跳水，收盘跌逾2%](http://www.blog.kurohicncr.top/Article/details/21960.shtml)
+- 2026-06-29 12:43 - [投资者对参议院美联储主席候选人沃什听证会的反应汇总](http://www.share.kurohicncr.top/Article/details/495191193657.shtml)
+- 2026-06-29 12:20 - [东西问丨吴强：亚沙会，为什么选择三亚？](http://www.blog.kurohicncr.top/Article/details/97892081200.shtml)
+- 2026-06-29 12:40 - [莫桑比克总统访华：登青藏高原见证绿色发展 期盼更大合作](http://www.blog.minike.top/Article/details/077063829813.shtml)
+- 2026-06-29 12:24 - [停火截止日期逼近，特朗普再次威胁伊朗，美国筹备和平谈判](http://www.share.kurohicncr.top/Article/details/1591952.shtml)
+- 2026-06-29 12:23 - [“院士讲课本里的百科·一讲就懂的人工智能”系列丛书为孩子启蒙AI](http://www.blog.minike.top/Article/details/8840931362.shtml)
+- 2026-06-29 12:39 - [瑞银：智谱首予“买入”评级 目标价1,160港元](http://www.share.minike.top/Article/details/175320781265.shtml)
+- 2026-06-29 12:20 - [西贝部分门店换牌“天边”加速自救](http://www.blog.kurohicncr.top/Article/details/892411279727.shtml)
+- 2026-06-29 12:41 - [一季度我国邮政行业寄递业务量同比增长4.5%](http://www.share.kurohicncr.top/Article/details/628582303114.shtml)
+- 2026-06-29 12:19 - [美国国家安全局被曝使用Anthropic受限模型](http://www.share.minike.top/Article/details/001119098.shtml)
+- 2026-06-29 12:32 - [华泰期货：市场情绪波动，双焦震荡运行](http://www.share.minike.top/Article/details/310697.shtml)
+- 2026-06-29 12:35 - [快讯：恒指高开0.31% 科指涨0.53% 科网股活跃 锂电池股高开 胜宏科技首日高开逾57%](http://www.blog.kurohicncr.top/Article/details/277544422.shtml)
+- 2026-06-29 12:25 - [国台办：民进党当局应取消针对大陆居民赴台旅游不合理限制](http://www.share.minike.top/Article/details/440841346.shtml)
+- 2026-06-29 12:37 - [机器人跑赢人类，留给我们的“赛道”又少一个？](http://www.blog.minike.top/Article/details/06810390.shtml)
+- 2026-06-29 12:29 - [12位志愿军烈士遗骸归国 冲锋号角再次嘹亮](http://www.share.minike.top/Article/details/1428824.shtml)
+- 2026-06-29 12:29 - [连战之子回福建漳州寻根谒祖](http://www.share.kurohicncr.top/Article/details/124198.shtml)

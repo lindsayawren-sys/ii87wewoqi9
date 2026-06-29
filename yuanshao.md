@@ -1,56 +1,60 @@
-# 遇到消费纠纷不知道去哪投诉 这些渠道你应该知道
+# 西贝正在“换号重生”
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-“拒维修被啄木鸟收取500元检测费”——这则消息最近引发了不少家庭用户的共鸣。据消费者反映，家中需要维修服务时联系了某知名维修平台，结果师傅上门后什么都没修，仅仅“检测”了一下就要求支付500元的上门检测费。消费者拒绝付费后双方产生争执，后续维权过程也颇为曲折。家居维修、家电保养这类生活服务的收费标准和透明度问题，一直是消费投诉 【下载黑猫投诉客户端】的高发区域。 提到消费投诉
+图片拍摄：界面新闻 牙韩翔 界面新闻记者 | 马越 界面新闻编辑 | 牙韩翔 贾国龙的西贝餐厅正在“换号重生”。 界面新闻获悉，部分西贝餐厅正在加快改装成为另一个品牌天边砂锅焖面。例如刚刚正式营业的天边砂锅焖面上海东方路门店，就是由西贝餐厅升级改造而来。而上海吴江路的西贝餐厅，也已经改造成为了天边砂锅焖面。 除了北京首店外，天边砂锅焖面在2个月内快速扩张到了呼和浩特、上海、杭州
 
 ## 正文
 
-“拒维修被啄木鸟收取500元检测费”——这则消息最近引发了不少家庭用户的共鸣。
+图片拍摄：界面新闻 牙韩翔 界面新闻记者 | 马越 界面新闻编辑 | 牙韩翔 贾国龙的西贝餐厅正在“换号重生”。
 
-据消费者反映，家中需要维修服务时联系了某知名维修平台，结果师傅上门后什么都没修，仅仅“检测”了一下就要求支付500元的上门检测费。
+界面新闻获悉，部分西贝餐厅正在加快改装成为另一个品牌天边砂锅焖面。
 
-消费者拒绝付费后双方产生争执，后续维权过程也颇为曲折。
+例如刚刚正式营业的天边砂锅焖面上海东方路门店，就是由西贝餐厅升级改造而来。
 
-家居维修、家电保养这类生活服务的收费标准和透明度问题，一直是消费投诉 【下载黑猫投诉客户端】的高发区域。
+而上海吴江路的西贝餐厅，也已经改造成为了天边砂锅焖面。
 
-提到消费投诉，绝大多数人的第一反应都是12315。
+除了北京首店外，天边砂锅焖面在2个月内快速扩张到了呼和浩特、上海、杭州和深圳等城市。
 
-没错，12315市场监督管理投诉举报热线确实是消费者最熟悉的官方渠道。
+截至目前全国已经有11家门店。
 
-无论是维修服务乱收费、家电质量问题，还是其他各类消费纠纷，都可以通过12315进行投诉举报。
+这个品牌的目前开店速度极快，例如目前上海已经开出了4家门店，界面新闻获悉五一之后还会有新店陆续开出。
 
-目前12315已经开通了网站、小程序、App等多种在线渠道，操作便捷。
+除了北京首店之外，这些门店绝大多数是由原来的西贝餐厅改造而来。
 
 ## 相关推荐
 
-- 2026-06-29 12:36 - [日经指数下跌0.6% 受芯片股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:29 - [新闻人物丨美国总统唐纳德·特朗普](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:35 - [美国4月CPI报告对美联储意味著什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:38 - [酒价内参5月13日价格发布：古20下跌6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:15 - [美国得州起诉奈飞，指控其涉嫌监视儿童并诱使用户成瘾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:34 - [福州鼓岭：承载百年中美民间情谊的山间胜地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:19 - [联播+｜“中国式安全感”如何炼成？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:17 - [VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:31 - [南京审计大学通报“学生涉嫌偷拍他人隐私”：已成立专项工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:13 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:44 - [商汤-W授出合共2.38亿份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:44 - [年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:20 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:24 - [酒价内参4月21日价格发布：飞天茅台保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:47 - [浙江慈溪：老厂来了“新员工” 数字转型显成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:35 - [广州纪念詹天佑诞辰165周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:36 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:46 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:42 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:30 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:23 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:32 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:42 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:19 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:36 - [剂泰科技港股上市在即：AI制药三小龙会师港股 贝莱德领衔基石 2025年收入增长靠首付款 长期仍具不确定性](http://www.blog.minike.top/Article/details/4510015575.shtml)
-- 2026-06-29 12:21 - [习近平会见文莱王储比拉](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](http://www.share.minike.top/Article/details/73915022.shtml)
-- 2026-06-29 12:16 - [康特隆：呈请人撤回对附属公司的清盘呈请](http://www.blog.minike.top/Article/details/4565398515.shtml)
-- 2026-06-29 12:20 - [中新健康｜医生提醒：体重正常但肚子大更危险](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [电影总票房破140亿！五月观影热潮持续升温](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [长江有色：12日锌价大涨 整体成交难有亮点](http://www.blog.kurohicncr.top/Article/details/71082895952.shtml)
-- 2026-06-29 12:24 - [中国红基会在贵州开展“天使之旅”——先心病患儿筛查救助行动](http://www.blog.kurohicncr.top/Article/details/6478345.shtml)
-- 2026-06-29 12:15 - [特斯拉将向德国工厂注资2.5亿美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [美国4月通胀升至3.8%，美国人薪资购买力遭侵蚀](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](http://www.blog.kurohicncr.top/Article/details/53676666227.shtml)
-- 2026-06-29 12:29 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](http://www.blog.minike.top/Article/details/12356092937.shtml)
-- 2026-06-29 12:28 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](http://www.blog.kurohicncr.top/Article/details/448260573654.shtml)
-- 2026-06-29 12:26 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](http://www.share.kurohicncr.top/Article/details/354981529051.shtml)
+- 2026-06-29 12:40 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](http://www.blog.kurohicncr.top/Article/details/89294.shtml)
+- 2026-06-29 12:23 - [合并助力建筑公司CannonDesign实现全球布局](http://www.blog.minike.top/Article/details/7344287677.shtml)
+- 2026-06-29 12:22 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](http://www.blog.minike.top/Article/details/30282242.shtml)
+- 2026-06-29 12:35 - [特朗普：我会记住不寻求退还关税的公司](http://www.share.kurohicncr.top/Article/details/6344668.shtml)
+- 2026-06-29 12:19 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](http://www.blog.kurohicncr.top/Article/details/4567523.shtml)
+- 2026-06-29 12:35 - [中外科研团队发现约5.35亿年前环节动物祖先](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [特朗普：如未能达成协议“几无可能”再延长停火](http://www.share.kurohicncr.top/Article/details/375972.shtml)
+- 2026-06-29 12:33 - [人民币兑美元中间价报6.8635，下调41点](http://www.share.kurohicncr.top/Article/details/1620576371.shtml)
+- 2026-06-29 12:35 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](http://www.share.kurohicncr.top/Article/details/23966351865.shtml)
+- 2026-06-29 12:34 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](http://www.blog.minike.top/Article/details/244988990370.shtml)
+- 2026-06-29 12:44 - [日本通过内阁决议正式允许出口杀伤性武器](http://www.share.minike.top/Article/details/5245242.shtml)
+- 2026-06-29 12:32 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [重回4100点！A股三大指数午后集体大涨](http://www.share.kurohicncr.top/Article/details/22918472.shtml)

@@ -1,60 +1,57 @@
-# 王毅同巴基斯坦副总理兼外长通电话
+# 法国官方宣布财政节支措施以应对中东局势
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-中新社北京5月13日电 中共中央政治局委员、外交部长王毅12日晚同巴基斯坦副总理兼外长达尔通电话。 达尔介绍了巴方斡旋伊朗与美国接谈近期情况，感谢中方支持巴方促谈努力，期待同中方加强协调配合，共同为维护地区和平稳定发挥积极作用。 王毅重申中方原则立场，赞赏巴方促成美伊谈判并延长临时停火，希望巴方保持信心、加大斡旋，为妥善解决霍尔木兹海峡开放问题、早日恢复地区和平作出贡献，这也是
+中新网巴黎4月22日电(李洋 孙羽婷)法国官方当地时间21日宣布将实施财政节支措施，以应对中东局势给国家带来的额外财政压力。 法国公共行动与账目部长阿米耶当天在公共财政预警委员会会议后表示，上述措施中，40亿欧元将来自国家预算支出压减，20亿欧元来自社会保障领域。 法国经济与财政部长莱斯屈尔指出，中东冲突推高债务融资成本，新增债务利息负担约36亿欧元。根据法国媒体报道，叠加能源
 
 ## 正文
 
-中新社北京5月13日电 中共中央政治局委员、外交部长王毅12日晚同巴基斯坦副总理兼外长达尔通电话。
+中新网巴黎4月22日电(李洋 孙羽婷)法国官方当地时间21日宣布将实施财政节支措施，以应对中东局势给国家带来的额外财政压力。
 
-达尔介绍了巴方斡旋伊朗与美国接谈近期情况，感谢中方支持巴方促谈努力，期待同中方加强协调配合，共同为维护地区和平稳定发挥积极作用。
+法国公共行动与账目部长阿米耶当天在公共财政预警委员会会议后表示，上述措施中，40亿欧元将来自国家预算支出压减，20亿欧元来自社会保障领域。
 
-王毅重申中方原则立场，赞赏巴方促成美伊谈判并延长临时停火，希望巴方保持信心、加大斡旋，为妥善解决霍尔木兹海峡开放问题、早日恢复地区和平作出贡献，这也是国际社会的普遍愿望。
+法国经济与财政部长莱斯屈尔指出，中东冲突推高债务融资成本，新增债务利息负担约36亿欧元。
 
-中方将继续支持巴方的调解并为此做出自己的努力。
+根据法国媒体报道，叠加能源价格上涨、国防开支增加等因素，危机带来的总成本目前已达60亿欧元。
 
-王毅表示，再过几天中巴两国将迎来建交75周年纪念日，双方要共同办好纪念活动，密切高层交往，加强战略沟通，巩固铁杆友谊，推进务实合作，更好维护彼此核心利益和中巴共同利益，推动中巴全天候战略合作伙伴关系迈上新台阶。
+法国政府此前已宣布提供1.3亿欧元资金，用于支持运输、渔业和农业等受影响行业，并加强能源补贴力度。
 
-面对变乱交织的世界，双方应在联合国等多边平台发出中巴正义声音，共同捍卫多边主义。
-
-达尔表示，巴方愿以两国建交75周年为契机，同中方深化全方位合作，密切多边协作，推动巴中全天候战略合作伙伴关系取得新发展。
+受危机影响，法国政府已将2026年经济增长预期由1%下调至0.9%，并将通胀预期由1.3%上调至1.9%，同时维持2026年财政赤字占国内生产总值5%的目标不变。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 12:24 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:17 - [加密货币立法再遇阻碍：工会阵营出面反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:36 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:13 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:40 - [Meta因虚假广告面临审查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:14 - [台湾青年在抗震烈士塑像前落泪：这就是抛头颅洒热血的救灾精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:18 - [微视频｜总书记引领美丽中国建设迈出新步伐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:28 - [水口海关关于开展2026年5月份“关长接待日”的公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:21 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:18 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:34 - [湖北巴东成功救助国家一级保护动物白冠长尾雉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:35 - [中国金茂：附属订立新框架协议及提供贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:38 - [新疆伊犁：天山红花盛放 五月草原景色美](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:17 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:34 - [一季度公募规模增长TOP30：景顺长城增542亿居首，永赢、国泰增超300亿，华商、安信环比增长超20%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:20 - [瞄准、击发 直击官兵轻武器实弹射击训练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:22 - [“双20”五机编队列阵长空 以最高礼仪告慰先烈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:18 - [视频丨演唱会门票、车票都能用！小小票根联动激活假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:35 - [美伊停火最后24小时口水战升级，和平仍存一线希望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:29 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:20 - [牧原股份一季度净亏损12.15亿元，同比转亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:24 - [每一帧都很治愈，你读书的样子真好看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:30 - [长江有色：22日铸造铝期价微涨0.15% 下游入市采购谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:33 - [GTC泽汇:北欧黄金并购加速布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:44 - [智能时代，我们还需要深度阅读吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:38 - [湖南茶叶产量超30万吨 综合产值突破1250亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:18 - [湖南永顺：山间云雾 人间烟火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:28 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](http://www.blog.minike.top/Article/details/26000966.shtml)
-- 2026-06-29 12:25 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](http://www.blog.kurohicncr.top/Article/details/1213318.shtml)
-- 2026-06-29 12:20 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](http://www.share.kurohicncr.top/Article/details/397956722.shtml)
-- 2026-06-29 12:39 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](http://www.blog.kurohicncr.top/Article/details/1887070954.shtml)
-- 2026-06-29 12:15 - [白银直线涨超6%，黄金翻红重回4730美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [RYOEX:金价反弹站上四千七百](http://www.blog.kurohicncr.top/Article/details/58813816188.shtml)
-- 2026-06-29 12:29 - [桑火尧个展亮相浦东美术馆 展出52件新作](http://www.share.kurohicncr.top/Article/details/1156913368.shtml)
-- 2026-06-29 12:38 - [美国4月份通胀飙升后 金价小幅走高](http://www.share.kurohicncr.top/Article/details/372276018120.shtml)
-- 2026-06-29 12:30 - [Greystone Housing Impact Q1财报前瞻：市场关注能否扭转业绩不及预期颓势](http://www.share.minike.top/Article/details/62135546.shtml)
-- 2026-06-29 12:30 - [一颗草莓的科技之旅与一个村庄的融合之变](http://www.blog.kurohicncr.top/Article/details/159595.shtml)
-- 2026-06-29 12:27 - [壳牌和丰田警告地缘政治风险仍处高位](http://www.share.kurohicncr.top/Article/details/428167191.shtml)
-- 2026-06-29 12:27 - [遇到消费纠纷不知道去哪投诉 这些渠道你应该知道](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [中央网信办就规范短视频内容标注答记者问](http://www.blog.kurohicncr.top/Article/details/748743374522.shtml)
-- 2026-06-29 12:33 - [中美元首会晤在即 专家：美方有责任慎重处理台湾问题](http://www.share.kurohicncr.top/Article/details/384032448.shtml)
-- 2026-06-29 12:13 - [中国驻马里使馆提醒中国企业和公民切勿从事非法采矿活动](http://www.share.kurohicncr.top/Article/details/08998998.shtml)
+- 2026-06-29 12:45 - [香港应科院将于港深创科园成立联合研发实验室](http://www.share.minike.top/Article/details/533525894343.shtml)
+- 2026-06-29 12:32 - [苍山洱海间的健康慢生活](http://www.blog.minike.top/Article/details/4114113.shtml)
+- 2026-06-29 12:34 - [春播春管进行时——各地农业高质量发展一线观察](http://www.blog.minike.top/Article/details/29563.shtml)
+- 2026-06-29 12:29 - [冷暖骤变 陕西多地迎四月春雪](http://www.share.kurohicncr.top/Article/details/0783683792.shtml)
+- 2026-06-29 12:46 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](http://www.share.kurohicncr.top/Article/details/13742341.shtml)
+- 2026-06-29 12:46 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](http://www.share.kurohicncr.top/Article/details/99353.shtml)
+- 2026-06-29 12:28 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](http://www.blog.minike.top/Article/details/425099.shtml)
+- 2026-06-29 12:34 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [厦门举办连横逝世九十周年纪念座谈会](http://www.blog.kurohicncr.top/Article/details/04235085698.shtml)
+- 2026-06-29 12:38 - [国台办：坚决反对美国一些人搞“以台遏华”](http://www.share.kurohicncr.top/Article/details/639636040550.shtml)
+- 2026-06-29 12:24 - [日本大分县陆上自卫队一训练场弹药爆炸 多人受波及](http://www.blog.kurohicncr.top/Article/details/757038208.shtml)
+- 2026-06-29 12:41 - [西贝正在“换号重生”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [长城基金：新兴科技是主线，价值也有春天](http://www.share.kurohicncr.top/Article/details/571505694.shtml)
+- 2026-06-29 12:31 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](http://www.share.minike.top/Article/details/4755797421.shtml)
+- 2026-06-29 12:18 - [第十三批在韩中国人民志愿军烈士遗骸即将回国](http://www.share.minike.top/Article/details/7469243.shtml)

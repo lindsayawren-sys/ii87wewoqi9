@@ -1,58 +1,57 @@
-# 酒价内参5月13日价格发布：古20下跌6元
+# 酒价内参4月21日价格发布：飞天茅台保持不变
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月13日整体窄幅波动。如果主要单品各取一瓶整体打包售卖，今日总售价为9951元，较昨日微跌3元，连续三日站稳9950元上方。今日市场延续高位整理行情，终端交投情绪平稳，核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨三跌三平，赢
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月21日延续回升态势。如果主要单品各取一瓶整体打包售卖，今日总售价为9905元，较昨日上涨7元，升至近十日最高位。市场在昨日明显反弹后延续修复，终端交投情绪整体保持平稳，但单品涨跌仍有分化。 今日白酒市场11大单品四涨五跌两平，涨跌结构
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月13日整体窄幅波动。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月21日延续回升态势。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9951元，较昨日微跌3元，连续三日站稳9950元上方。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9905元，较昨日上涨7元，升至近十日最高位。
 
-今日市场延续高位整理行情，终端交投情绪平稳，核心单品涨跌分化依然显著。
+市场在昨日明显反弹后延续修复，终端交投情绪整体保持平稳，但单品涨跌仍有分化。
 
-今日白酒市场11大单品五涨三跌三平，赢家占据优势，但涨幅相对温和。
+今日白酒市场11大单品四涨五跌两平，涨跌结构较为均衡。
 
-上涨方面，飞天茅台、五粮液普五八代、国窖1573及青花郎均上涨2元/瓶，同步小幅回暖，其中飞天茅台二连涨，普五平近一月最高价格，国窖1573收获四连阳，价格快速回升至月内次高位，青花郎近半月价格中枢总体呈缓慢上升势头；洋河梦之蓝M6+上涨1元/瓶，价格升至月内次高位。
+上涨方面，古井贡古20涨幅居前，上涨12元/瓶，创近一月以来最大单日涨幅，价格升至本月最高位，电商渠道价格走强功不可没；国窖1573上涨5元/瓶，亦创下近一个月最高；洋河梦之蓝M6+上涨2元/瓶；精品茅台小幅上涨1元/瓶。
 
-下跌方面，古20跌幅居前，下跌6元/瓶，连续上涨势头告终；习酒君品下跌5元/瓶，创近一月新低；五粮液1618下跌1元/瓶。
+下跌方面，习酒君品与青花郎跌幅居前，均下跌4元/瓶；五粮液普五八代下跌3元/瓶；五粮液1618及水晶剑南春均小幅回落1元/瓶。
 
-精品茅台、青花汾20及水晶剑南春的价格环比保持不变。
+飞天茅台及青花汾20的价格环比保持不变。
 
 “酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 12:41 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:25 - [88匹进口蒙古马为中国内地演艺市场发展添助力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:33 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:36 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:34 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:17 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:16 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:33 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:38 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:23 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:36 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:19 - [贵阳银行：有条件时可以进行中期利润分配](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:18 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:20 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:36 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:32 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:26 - [赛分科技：聘任顾楹瑶为公司证券事务代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:34 - [陪审团裁定优步负有责任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:30 - [Tractor Supply第一财季盈利不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:32 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:37 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:34 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:28 - [俄Tuapse炼油厂遭无人机袭击后全面停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](http://www.share.minike.top/Article/details/0154173.shtml)
-- 2026-06-29 12:39 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](http://www.share.kurohicncr.top/Article/details/484802891.shtml)
-- 2026-06-29 12:17 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](http://www.blog.kurohicncr.top/Article/details/666549.shtml)
-- 2026-06-29 12:15 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](http://www.blog.kurohicncr.top/Article/details/951823637.shtml)
-- 2026-06-29 12:24 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](http://www.share.minike.top/Article/details/64285360931.shtml)
-- 2026-06-29 12:23 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](http://www.blog.minike.top/Article/details/56898269782.shtml)
-- 2026-06-29 12:16 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](http://www.blog.minike.top/Article/details/410743131.shtml)
-- 2026-06-29 12:22 - [2026基金投资，这款APP对新手特别友好！值得拥有！](http://www.blog.kurohicncr.top/Article/details/8733219356.shtml)
-- 2026-06-29 12:33 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](http://www.share.kurohicncr.top/Article/details/5752449.shtml)
-- 2026-06-29 12:18 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](http://www.blog.minike.top/Article/details/70742.shtml)
-- 2026-06-29 12:22 - [一见·中美两个“大块头”如何相处？](http://www.share.kurohicncr.top/Article/details/976960448514.shtml)
-- 2026-06-29 12:15 - [新型“职业闭店人”骗局调查](http://www.share.minike.top/Article/details/5322483.shtml)
-- 2026-06-29 12:30 - [涉疫邮轮疏散乘客后前往荷兰 2名乘客离船后确诊](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [美国国税局或欠数百万纳税人疫情时代罚款减免退税 如何申请](http://www.share.minike.top/Article/details/96427969.shtml)
+- 2026-06-29 12:29 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](http://www.share.minike.top/Article/details/9813252261.shtml)
+- 2026-06-29 12:43 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](http://www.blog.minike.top/Article/details/307402766003.shtml)
+- 2026-06-29 12:43 - [日本通过内阁决议正式允许出口杀伤性武器](http://www.share.minike.top/Article/details/6632132.shtml)
+- 2026-06-29 12:40 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](http://www.blog.minike.top/Article/details/6218266.shtml)
+- 2026-06-29 12:41 - [重回4100点！A股三大指数午后集体大涨](http://www.share.kurohicncr.top/Article/details/6347450.shtml)
+- 2026-06-29 12:18 - [学习新语｜山河永念 英雄回家](http://www.blog.kurohicncr.top/Article/details/875129326.shtml)
+- 2026-06-29 12:31 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [广西仫佬山乡：多彩民俗展风情](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [乌力格尔：蒙古族说唱里的一部民族交融史](http://www.blog.kurohicncr.top/Article/details/54409982285.shtml)
+- 2026-06-29 12:34 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [日本放宽武器出口限制引发各界批评](http://www.share.minike.top/Article/details/6611419.shtml)
+- 2026-06-29 12:20 - [第十九届北京车展将开幕 中国车企如何突破超越](http://www.blog.minike.top/Article/details/0315585.shtml)
+- 2026-06-29 12:23 - [售价29999元，华为星钻手镯表5月15日开售](http://www.blog.minike.top/Article/details/19483669582.shtml)
+- 2026-06-29 12:46 - [上海期货交易所镍期货及期权正式引入境外交易者参与交易](http://www.blog.minike.top/Article/details/22160.shtml)

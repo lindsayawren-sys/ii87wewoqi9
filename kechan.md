@@ -1,59 +1,56 @@
-# 美国4月CPI报告对美联储意味著什么
+# 首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-仅凭一份月度通胀报告，不足以改变美联储内部鹰派或偏宽松立场官员的想法。但如果出炉更多类似4月份消费者价格指数（CPI）这样的报告，美联储偏宽松立场官员的论点将变得复杂起来；这些官员的立场已日益从主张降息，转向认为美联储无需考虑加息情境。 4月份商品领域的价格压力较为温和，乍一看，这似乎印证了关税并未产生新价格压力的观点。在美联储中间派官员评估未来一年通胀改善的前景之际，关税不产
+聚力湾区·联动东盟｜首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地 4月16日，首届粤港澳大湾区—东盟产学研研讨会暨西电—拉曼大学联合教育项目推介会，在西安电子科技大学广州研究院隆重召开。本次会议由西安电子科技大学广州研究院、广东省民办教育协会、广州新智生产力促进中心联合主办，西电-拉曼大学中马科技创新研究院协办，广州新华文化传媒服务有限公司、广东嘉荟教
 
 ## 正文
 
-仅凭一份月度通胀报告，不足以改变美联储内部鹰派或偏宽松立场官员的想法。
+聚力湾区·联动东盟｜首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地 4月16日，首届粤港澳大湾区—东盟产学研研讨会暨西电—拉曼大学联合教育项目推介会，在西安电子科技大学广州研究院隆重召开。
 
-但如果出炉更多类似4月份消费者价格指数（CPI）这样的报告，美联储偏宽松立场官员的论点将变得复杂起来；这些官员的立场已日益从主张降息，转向认为美联储无需考虑加息情境。
+本次会议由西安电子科技大学广州研究院、广东省民办教育协会、广州新智生产力促进中心联合主办，西电-拉曼大学中马科技创新研究院协办，广州新华文化传媒服务有限公司、广东嘉荟教育集团、西安新启问鼎教育科技有限公司共同支持。
 
-4月份商品领域的价格压力较为温和，乍一看，这似乎印证了关税并未产生新价格压力的观点。
+会议以“全球视野·创新发展·新质人才培养”为主题，汇聚政、校、企多方力量，紧扣民办教育高质量发展、跨境产教融合、国际化人才共育核心议题，搭建起务实高效、资源互通的高端合作平台，共探大湾区与东盟教育协同发展新路径。
 
-在美联储中间派官员评估未来一年通胀改善的前景之际，关税不产生新价格压力正是他们设定的一项关键前提条件。
+广东省民办教育协会会长赵康、常务副会长张耀荣、秘书长朱祖胜，马来西亚拉曼大学李光前理工学院院长张勇尊教授，西安电子科技大学李平副教授、滕祥意副教授，广州市政协委员、广州新智生产力促进中心主任曹长林，广州商学院执行校长黄南松教授以及全省近30所本科院校、优质普通高中董事长或校长等负责人出席研讨会，共话教育开放新机遇、共谋合作发展新未来。
 
-但在4月份的CPI中，剔除能源和住房的服务价格出现走强，这使得美联储可以采取放松姿态的偏宽松论点变得复杂，尤其是在该国经济目前面临伊朗战争带来的新供应冲击之际。
+会议由西安电子科技大学广州研究院侯书丹老师主持。
 
-这种服务价格的走强部分反映了机票价格的大幅上涨，这表明伊朗战争可能会模糊相关信号，让人难以判断服务端通胀究竟是反映了不断扩大的内部价格压力，还是能源成本上升的传导效应。
+作为国家对外开放前沿阵地，粤港澳大湾区依托独特地缘优势、雄厚产业根基与创新发展活力，已然成为链接东盟优质教育资源、培育国际化新质人才的核心枢纽。
 
-更多类似这样的报告将使美联储偏宽松立场官员想要阐述的逻辑变得复杂，因为这种逻辑的前提是通胀压力依然局限在商品领域，在这一领域，通胀压力似乎可以被合理地视为正在消退的关税残留影响。
+西安电子科技大学广州研究院作为校地共建、深耕湾区的高水平科研和人才培养平台，紧扣国家战略和区域发展需求，依托学校在电子信息、人工智能、网络安全、集成电路等国家级优势学科资源，坚守学科引领、产教融合、开放协同、务实创新的发展定位，主动联动海内外优质高校、整合区域教育资源，全力搭建跨境教育合作、科研成果转化、高端人才共育的高效载体，助力大湾区教育国际化提质增效，为新质生产力发展提供坚实人才支撑。
 
-服务业通胀则更难被忽视，因为它往往反映的是内部需求，而不是一次性的供应干扰。
+会上，张耀荣代表主办方致辞。
 
 ## 相关推荐
 
-- 2026-06-29 12:17 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:39 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:23 - [88匹进口蒙古马为中国内地演艺市场发展添助力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:13 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:21 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:14 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:31 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:13 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:29 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:18 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:23 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:25 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:20 - [贵阳银行：有条件时可以进行中期利润分配](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:25 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:46 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:38 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:39 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:46 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:32 - [赛分科技：聘任顾楹瑶为公司证券事务代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:39 - [陪审团裁定优步负有责任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:24 - [Tractor Supply第一财季盈利不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:25 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:41 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:18 - [美国4月通胀升至3.8%，美国人薪资购买力遭侵蚀](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](http://www.blog.minike.top/Article/details/27793776351.shtml)
-- 2026-06-29 12:14 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](http://www.blog.kurohicncr.top/Article/details/948497808.shtml)
-- 2026-06-29 12:30 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](http://www.share.kurohicncr.top/Article/details/6737614.shtml)
-- 2026-06-29 12:34 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](http://www.share.minike.top/Article/details/050149.shtml)
-- 2026-06-29 12:34 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](http://www.blog.minike.top/Article/details/6213585293.shtml)
-- 2026-06-29 12:37 - [2026基金投资，这款APP对新手特别友好！值得拥有！](http://www.share.kurohicncr.top/Article/details/067448342.shtml)
-- 2026-06-29 12:30 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](http://www.share.minike.top/Article/details/423869.shtml)
-- 2026-06-29 12:13 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](http://www.blog.kurohicncr.top/Article/details/52862714961.shtml)
-- 2026-06-29 12:19 - [一见·中美两个“大块头”如何相处？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [新型“职业闭店人”骗局调查](http://www.share.kurohicncr.top/Article/details/846244.shtml)
-- 2026-06-29 12:12 - [涉疫邮轮疏散乘客后前往荷兰 2名乘客离船后确诊](http://www.blog.minike.top/Article/details/491364900418.shtml)
+- 2026-06-29 12:42 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](http://www.share.minike.top/Article/details/02559.shtml)
+- 2026-06-29 12:45 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](http://www.share.kurohicncr.top/Article/details/0664660.shtml)
+- 2026-06-29 12:41 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](http://www.blog.minike.top/Article/details/203801.shtml)
+- 2026-06-29 12:47 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](http://www.share.minike.top/Article/details/58104817854.shtml)
+- 2026-06-29 12:34 - [重回4100点！A股三大指数午后集体大涨](http://www.share.kurohicncr.top/Article/details/17570.shtml)
+- 2026-06-29 12:34 - [学习新语｜山河永念 英雄回家](http://www.share.minike.top/Article/details/5008440.shtml)
+- 2026-06-29 12:41 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](http://www.share.minike.top/Article/details/247519901028.shtml)
+- 2026-06-29 12:43 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](http://www.share.minike.top/Article/details/59644.shtml)
+- 2026-06-29 12:45 - [广西仫佬山乡：多彩民俗展风情](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [乌力格尔：蒙古族说唱里的一部民族交融史](http://www.share.minike.top/Article/details/13688904075.shtml)
+- 2026-06-29 12:35 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](http://www.share.minike.top/Article/details/2899868608.shtml)
+- 2026-06-29 12:32 - [日本放宽武器出口限制引发各界批评](http://www.blog.minike.top/Article/details/736250435256.shtml)
+- 2026-06-29 12:47 - [第十九届北京车展将开幕 中国车企如何突破超越](http://www.share.minike.top/Article/details/412442.shtml)
+- 2026-06-29 12:26 - [售价29999元，华为星钻手镯表5月15日开售](http://www.blog.minike.top/Article/details/8815223935.shtml)

@@ -1,56 +1,56 @@
-# 千元股阵营洗牌，A股市场有何变化？
+# 中国外交是否在延长美伊停火协议方面发挥了作用？ 外交部回应
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：经济日报新闻客户端（作者李华林，策划/万政、段云鹏） 近段时间，A股市场走势向好，截至5月12日收盘，有5只个股股价位列千元梯队，其中4只来自科技赛道。曾经，传统消费股常年稳居高价股前排，如今，科技股强势突围。高价股格局的演变，折射出投资风格、定价逻辑与增长动能的积极转变。 首先，资金偏好在变。过去市
+中新网北京4月22日电 (记者 张蔚然)中国外交部发言人郭嘉昆22日主持例行记者会。 有记者提问：据报道，美国总统特朗普宣布延长美伊停火期限。请问中方有何回应？中国外交是否在延长美伊停火协议方面发挥了作用？ 郭嘉昆：当前地区局势处于战和转换的关键阶段，当务之急仍是全力避免战端重启。中方支持相关方继续坚持通过政治外交途径化解争端，实现全面持久停火止战，维护好中东和海湾地区和平稳定
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京4月22日电 (记者 张蔚然)中国外交部发言人郭嘉昆22日主持例行记者会。
 
-来源：经济日报新闻客户端（作者李华林，策划/万政、段云鹏） 近段时间，A股市场走势向好，截至5月12日收盘，有5只个股股价位列千元梯队，其中4只来自科技赛道。
+有记者提问：据报道，美国总统特朗普宣布延长美伊停火期限。
 
-曾经，传统消费股常年稳居高价股前排，如今，科技股强势突围。
+请问中方有何回应？
 
-高价股格局的演变，折射出投资风格、定价逻辑与增长动能的积极转变。
+中国外交是否在延长美伊停火协议方面发挥了作用？
 
-首先，资金偏好在变。
+郭嘉昆：当前地区局势处于战和转换的关键阶段，当务之急仍是全力避免战端重启。
 
-过去市场青睐成熟赛道的稳定收益，如今更愿为技术领先性支付溢价，耐心资本涌向人工智能、半导体等硬科技领域，资本与科创产业双向奔赴。
+中方支持相关方继续坚持通过政治外交途径化解争端，实现全面持久停火止战，维护好中东和海湾地区和平稳定。
 
-其次，定价逻辑在变。
+中方愿根据习近平主席四点主张精神，同国际社会一道为此发挥积极建设性作用。
 
-从刚披露的2025年年报来看，去年上市公司研发投入1.94万亿元，约占全社会研发经费投入的一半，已然成为我国科技创新投入的主力军。
+(完）
 
 ## 相关推荐
 
-- 2026-06-29 12:37 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：西班牙卫生大臣称94人已被撤离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:31 - [七千年河姆渡文明的新故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:24 - [【星访谈】蒋龙：《10间敢死队》是我的“表演考试” 喜剧分寸要“润物细无声”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:36 - [Brookfield拟向OpenAI部署平台投资5亿美元，加速AI从试点走向规模化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:41 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:31 - [5月13日热门中概股多数下跌 奇景光电跌7.46%，金山云跌6.36%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:41 - [获刑十三年！荐股“杀猪盘”被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:33 - [再鼎医药盘中涨超5% zoci获FDA快速通道资格认定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:37 - [民调指超半数台湾女性担忧男性亲属需上战场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:38 - [（文化中国行）从织机到云端：新疆艾德莱斯绸的“数字蝶变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:47 - [老百姓大药房涉医保套现，“老百姓”三字情何以堪？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:38 - [硫酸短缺令铜生产商承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:20 - [以树为媒、以情为桥 京藏少年“共植同心树”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:26 - [国内油价，今年首次下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:35 - [日经指数上涨0.9% 受电子和科技股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:35 - [别再问“周末过得怎么样？” 公共演讲专家建议这样做：“不必刻意深刻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:21 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:29 - [酒价内参4月22日价格发布：国窖1573上涨5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:27 - [刘海星会见孟加拉国民族主义党高级干部考察团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:18 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:13 - [铜：供应扰动持续，铜价中枢上移](http://www.blog.minike.top/Article/details/625420.shtml)
-- 2026-06-29 12:40 - [华泰期货：供应端再遇干扰 铜价维持偏强态势](http://www.share.kurohicncr.top/Article/details/690954003.shtml)
-- 2026-06-29 12:24 - [豪买16亿元后，裘国根罕见现身](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [Fugro获得苏格兰海上风电场勘测合同](http://www.share.kurohicncr.top/Article/details/320371251.shtml)
-- 2026-06-29 12:29 - [2026金砖国家工业创新大赛决赛在厦门开幕](http://www.blog.minike.top/Article/details/49052.shtml)
-- 2026-06-29 12:13 - [“小童装”奔赴大市场 浙江织里“全球揽客”拓外贸](http://www.blog.minike.top/Article/details/456099497.shtml)
-- 2026-06-29 12:41 - [北京幸福东方剧院启幕 央地联手打造城市文化客厅](http://www.blog.kurohicncr.top/Article/details/175992.shtml)
-- 2026-06-29 12:20 - [王毅同巴基斯坦副总理兼外长通电话](http://www.share.minike.top/Article/details/01682.shtml)
-- 2026-06-29 12:12 - [中国逊克口岸2026年明水期正式开关通航](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [“AI水果”“酱板鸭”火到台湾 业者盼拓展两岸微短剧合作](http://www.share.kurohicncr.top/Article/details/3478761351.shtml)
-- 2026-06-29 12:15 - [关注俄乌冲突：俄乌互指对方违反停火 并称作出对等回应](http://www.share.kurohicncr.top/Article/details/994954.shtml)
-- 2026-06-29 12:30 - [枪声震天！直击武警官兵实战化射击超燃瞬间](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [韩国官员称以AI收益发放公民红利的言论仅代表发言者个人观点](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [拒绝伊朗回应 美方称停火“有效但脆弱”](http://www.blog.kurohicncr.top/Article/details/500104250589.shtml)
-- 2026-06-29 12:18 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.share.minike.top/Article/details/170783349.shtml)
+- 2026-06-29 12:42 - [国务院：到2030年 服务业总规模迈上100万亿元台阶](http://www.blog.kurohicncr.top/Article/details/409766981668.shtml)
+- 2026-06-29 12:29 - [光大期货：4月22日金融日报](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [吴凯院士谈新能源汽车电池：每种材料都有自身局限 要坚持多元化学体系](http://www.blog.minike.top/Article/details/535855.shtml)
+- 2026-06-29 12:30 - [大美边疆看我家丨内蒙古敖汉：山野杏花 如霞似雪](http://www.blog.kurohicncr.top/Article/details/478788487903.shtml)
+- 2026-06-29 12:28 - [诺比侃与浪潮智慧城市签订《战略合作框架协议书》](http://www.blog.kurohicncr.top/Article/details/248933.shtml)
+- 2026-06-29 12:32 - [龙蟠科技拟1485万澳元收购位于澳大利亚的锂矿勘探租约及相关资产](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [智达藏语大模型及系列应用产品成果发布](http://www.blog.minike.top/Article/details/533310111864.shtml)
+- 2026-06-29 12:38 - [法国官方宣布财政节支措施以应对中东局势](http://www.blog.kurohicncr.top/Article/details/923359754.shtml)
+- 2026-06-29 12:21 - [美国财长贝森特：财政部将继续对伊朗施压](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [特朗普称将“记住”不申请关税退款的公司](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](http://www.blog.kurohicncr.top/Article/details/00042374765.shtml)
+- 2026-06-29 12:37 - [摩根士丹利下调黄金前景预期](http://www.share.kurohicncr.top/Article/details/771820953.shtml)
+- 2026-06-29 12:23 - [花6000元打玻尿酸出现动脉栓塞，医美消费前这一步能救命](http://www.share.minike.top/Article/details/15496706234.shtml)
+- 2026-06-29 12:35 - [一季度公募规模增长TOP30：景顺长城增542亿居首，永赢、国泰增超300亿，华商、安信环比增长超20%](http://www.share.minike.top/Article/details/3081607.shtml)

@@ -1,43 +1,55 @@
-# 伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下
+# 青海热贡唐卡亮相2026中国知识产权保护高层论坛
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 09:47 来源：央视新闻 责任编辑：【王祎】
+中新网西宁4月21日电 (祁绣娟 蔡爱民)21日，记者从青海省黄南藏族自治州同仁市委宣传部获悉，2026中国知识产权保护高层论坛在京举办期间，同仁市热贡唐卡作为青海省唯一代表，成功入选全国六省非物质文化遗产精品名录并受邀参展，展现非物质文化遗产保护传承与创新发展成效。 黄南藏族自治州地处青藏高原与黄土高原的过渡地带，是热贡艺术的发祥地、国家级文化生态保护区，也是青海省旅游资源最
 
 ## 正文
 
-发布时间：2026年05月12日 09:47 来源：央视新闻 责任编辑：【王祎】
+中新网西宁4月21日电 (祁绣娟 蔡爱民)21日，记者从青海省黄南藏族自治州同仁市委宣传部获悉，2026中国知识产权保护高层论坛在京举办期间，同仁市热贡唐卡作为青海省唯一代表，成功入选全国六省非物质文化遗产精品名录并受邀参展，展现非物质文化遗产保护传承与创新发展成效。
+
+黄南藏族自治州地处青藏高原与黄土高原的过渡地带，是热贡艺术的发祥地、国家级文化生态保护区，也是青海省旅游资源最富集的地区之一，被认证为“世界最大规模的唐卡艺术之都”。
+
+作为国家级非物质文化遗产，热贡唐卡绘制技艺精湛、文化内涵深厚，兼具极高的艺术价值与知识产权价值。
+
+论坛期间，中国工艺美术大师、国家级非物质文化遗产代表性项目热贡艺术代表性传承人娘本受邀在分论坛发言，与会领导及嘉宾现场观看了热贡唐卡非物质文化遗产艺术成果及知识产权保护情况。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:18 - [涉疫邮轮疏散乘客后前往荷兰 2名乘客离船后确诊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:27 - [美国国税局或欠数百万纳税人疫情时代罚款减免退税 如何申请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:31 - [华宝基金红利风向标 | 创新高后三大指数涨跌不一，低波红利彰显防御力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:34 - [长江有色：12日铅价下跌 现货畏跌观望刚需采购为主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:19 - [“为AI发电”组合逆市走强！华宝基金创业板人工智能ETF、电力ETF携手涨超1%！硬科技宽基双创50ETF续创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:24 - [韩国生物制药公司Celltrion收购法国Gifrer](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:20 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:24 - [双向奔赴！两岸媒体人镜头里的和平与相融](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:25 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:33 - [海地总理：安全状况导致该国大选无法于8月如期举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:31 - [厄瓜多尔前外长埃斯皮诺萨角逐下一任联合国秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:23 - [售价29999元，华为星钻手镯表5月15日开售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:40 - [上海期货交易所镍期货及期权正式引入境外交易者参与交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:34 - [聚焦新兴领域与文化产业 陕西检察去年办理知识产权案件328件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:46 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:23 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:22 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:37 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:35 - [贵州梵净山：夕阳映照落日如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:42 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:34 - [4月22日央行开展60亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:42 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:18 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:28 - [广西交易团“智”造出海出圈 广交会斩获颇丰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:25 - [第六届亚洲沙滩运动会迎来首个比赛日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:43 - [日本“再军事化”动作持续引发日本民众大规模抗议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:37 - [张凌赫、刘宇宁受欢迎 台演艺界人士说“非常希望请到台湾演出”](http://www.share.kurohicncr.top/Article/details/815534.shtml)
-- 2026-06-29 12:22 - [国产算力爆发，新手怎么布局？一次讲清芯片产业链四只指数](http://www.share.minike.top/Article/details/94610172.shtml)
-- 2026-06-29 12:18 - [国产芯片彻底爆发，3000亿存储巨头狂飙！华宝基金科创芯片ETF（589190）上探6.5%再创新高，行情到哪了？](http://www.share.minike.top/Article/details/3452171002.shtml)
-- 2026-06-29 12:31 - [新接订单量暴涨近2倍，中船系逆市走强！华宝基金军工ETF（512810）水下拉起翻红，中国动力涨停封板](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [AI会取代哪些职业？多个AI意见不统一](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [酒价内参5月12日价格发布：习酒君品下跌6元](http://www.blog.minike.top/Article/details/99068.shtml)
-- 2026-06-29 12:19 - [晋级四强！U17女足亚洲杯中国队3∶0战胜印度队](http://www.share.minike.top/Article/details/563100582.shtml)
-- 2026-06-29 12:38 - [贵港海关缉私分局2026年公务租车定点服务比选采购公告](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [河南迎入夏首轮大范围高温天气](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [燃料价格居高不下 特朗普支持暂停联邦汽油税](http://www.blog.minike.top/Article/details/88524658.shtml)
-- 2026-06-29 12:29 - [香港富豪孙女遭绑架，被囚山洞4天，绑匪拿到2800万后逃跑，警方最新透露：她记得吃过什么、喝过什么，成为破案关键](http://www.blog.minike.top/Article/details/822494140.shtml)
-- 2026-06-29 12:30 - [On Holding业绩亮眼却股价大跌，市场聚焦关税隐忧](http://www.share.kurohicncr.top/Article/details/32782884.shtml)
-- 2026-06-29 12:40 - [海地总理表示 8月无法如期大选 希望年底举行](http://www.share.minike.top/Article/details/8597372.shtml)
-- 2026-06-29 12:30 - [一箭18星 中国成功发射千帆极轨09组卫星](http://www.blog.kurohicncr.top/Article/details/5900491528.shtml)
-- 2026-06-29 12:13 - [CGBD计划年内再发两期CLO，基础股息重置为0.35美元](http://www.share.kurohicncr.top/Article/details/785704712.shtml)
+- 2026-06-29 12:34 - [先锋集团逆势加仓美债：4.25%以上收益率即是“黄金坑”，押注美联储今年降息](http://www.blog.kurohicncr.top/Article/details/2765396319.shtml)
+- 2026-06-29 12:44 - [研究显示，伊朗战争引发的燃油价格上涨使长途航班成本增加100美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [吉林法院2025年审结各类知识产权案4342件](http://www.share.minike.top/Article/details/449042476.shtml)
+- 2026-06-29 12:22 - [甘肃一季度对东盟进出口货值同比增长逾四成](http://www.share.kurohicncr.top/Article/details/99084153379.shtml)
+- 2026-06-29 12:31 - [第三届国际核技术应用产业发展大会开幕](http://www.blog.minike.top/Article/details/5068235.shtml)
+- 2026-06-29 12:33 - [中信建投期货：4月22日工业品早报](http://www.blog.kurohicncr.top/Article/details/865814357350.shtml)
+- 2026-06-29 12:43 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.share.kurohicncr.top/Article/details/644576933288.shtml)
+- 2026-06-29 12:46 - [景顺长城赵思轩：权益板块轮动或加速，借助FOF实现多元资产配置](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [中国驻新加坡使馆提醒五一假期来新游客注意旅行安全](http://www.blog.kurohicncr.top/Article/details/105200986314.shtml)
+- 2026-06-29 12:27 - [马克龙访问波兰 聚焦法波防务及核能合作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [【理响中国】文化建设要着眼于人、落脚于人](http://www.share.minike.top/Article/details/514385490.shtml)
+- 2026-06-29 12:36 - [关键词读懂一季度工业和信息化亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/564804541.shtml)
+- 2026-06-29 12:30 - [Van Oord完成波兰首座海上风电场单桩基础安装](http://www.share.kurohicncr.top/Article/details/34541.shtml)
+- 2026-06-29 12:25 - [第六届亚洲沙滩运动会男子沙滩手球开赛 泰国队2比0战胜约旦队](http://www.blog.kurohicncr.top/Article/details/161396241.shtml)
+- 2026-06-29 12:40 - [酒价内参4月21日价格发布：五粮液1618小幅回落1元](http://www.share.minike.top/Article/details/7673257592.shtml)

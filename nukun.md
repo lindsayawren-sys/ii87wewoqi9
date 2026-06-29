@@ -1,59 +1,56 @@
-# VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”
+# 加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-中新网南昌5月12日电 (朱莹)“地震来了，快跑！”12日，在江西省南昌市红谷滩区，市民佩戴VR眼镜，感受地面晃动、物体摇摆等场景效果，在仿真的地震环境中掌握自救逃生知识。 今年5月12日是第18个全国防灾减灾日。当日，国家防灾减灾救灾委员会办公室、应急管理部、中央广播电视总台、江西省人民政府在南昌举行2026年全国防灾减灾日暨防灾减灾宣传周主场活动。 活动现场，12名长期坚守
+加拿大对美首席贸易谈判代表夏雷特（Janice Charette）周二表示，她不指望加拿大和美国能在7月1日前解决所有问题，但这并不意味北美贸易协定会因此瓦解。 “我认为大家对7月1日的关注度很高，这某种程度上只是一个检查点，并非悬崖。”夏雷特2月就任首席贸易谈判代表后首次公开发表讲话说道。 她正在渥太华出席由加拿大商会组织的一场专题讨论会。 加拿大、美国和墨西哥是美墨加协定（
 
 ## 正文
 
-中新网南昌5月12日电 (朱莹)“地震来了，快跑！
+加拿大对美首席贸易谈判代表夏雷特（Janice Charette）周二表示，她不指望加拿大和美国能在7月1日前解决所有问题，但这并不意味北美贸易协定会因此瓦解。
 
-”12日，在江西省南昌市红谷滩区，市民佩戴VR眼镜，感受地面晃动、物体摇摆等场景效果，在仿真的地震环境中掌握自救逃生知识。
+“我认为大家对7月1日的关注度很高，这某种程度上只是一个检查点，并非悬崖。
 
-今年5月12日是第18个全国防灾减灾日。
+”夏雷特2月就任首席贸易谈判代表后首次公开发表讲话说道。
 
-当日，国家防灾减灾救灾委员会办公室、应急管理部、中央广播电视总台、江西省人民政府在南昌举行2026年全国防灾减灾日暨防灾减灾宣传周主场活动。
+她正在渥太华出席由加拿大商会组织的一场专题讨论会。
 
-活动现场，12名长期坚守在防灾减灾救灾工作第一线的全国基层防灾避险优秀代表受到表彰。
+加拿大、美国和墨西哥是美墨加协定（USMCA）的缔约国，协定将于7月1日前进行审查。
 
-主会场内，一堂别开生面的全民安全“公开课”——《是你一直想着我》，聚焦江西春、夏、秋、冬四季多发的强对流、洪涝、森林火灾、雨雪冰冻四类典型灾害，通过情景演绎普及避险自救技能。
+该协定帮助加拿大规避了美国总统特朗普实施的一系列全球关税。
 
-主会场外，互动体验区人头攒动。
+根据这项2020年7月生效的协定，三国必须对协定进行审查，并将其延长六年。
 
-活动现场设置了主题展示区、互动体验区、装备展示区、地方文化展示区和应急技能实训区等板块。
+否则将改为每年审查一次。
 
 ## 相关推荐
 
-- 2026-06-29 12:32 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:19 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:34 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:38 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:18 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:30 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:35 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:25 - [贵阳银行：有条件时可以进行中期利润分配](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:29 - [英伟达宣布与康宁建立多年合作伙伴关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:12 - [白衣天使，节日快乐！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:37 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:31 - [美国能源信息署：美国2026年和2027年用电量将连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:21 - [特斯拉机器人出租车扩张计划点燃股价涨势，马斯克设定2026年目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:44 - [赛分科技：聘任顾楹瑶为公司证券事务代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:27 - [陪审团裁定优步负有责任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:45 - [Tractor Supply第一财季盈利不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:30 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:25 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:19 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:31 - [俄Tuapse炼油厂遭无人机袭击后全面停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:28 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:18 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:18 - [截至3月底全国5G基站总数已达495.8万个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:38 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](http://www.blog.kurohicncr.top/Article/details/7424679205.shtml)
-- 2026-06-29 12:33 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](http://www.blog.minike.top/Article/details/730971642812.shtml)
-- 2026-06-29 12:18 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](http://www.blog.kurohicncr.top/Article/details/169335080898.shtml)
-- 2026-06-29 12:41 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](http://www.share.minike.top/Article/details/789626516082.shtml)
-- 2026-06-29 12:24 - [2026基金投资，这款APP对新手特别友好！值得拥有！](http://www.share.kurohicncr.top/Article/details/77307.shtml)
-- 2026-06-29 12:26 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](http://www.share.minike.top/Article/details/2718192.shtml)
-- 2026-06-29 12:21 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](http://www.share.kurohicncr.top/Article/details/373430377.shtml)
-- 2026-06-29 12:19 - [一见·中美两个“大块头”如何相处？](http://www.blog.kurohicncr.top/Article/details/551633436645.shtml)
-- 2026-06-29 12:32 - [新型“职业闭店人”骗局调查](http://www.share.minike.top/Article/details/006770662.shtml)
-- 2026-06-29 12:14 - [涉疫邮轮疏散乘客后前往荷兰 2名乘客离船后确诊](http://www.blog.minike.top/Article/details/1075775266.shtml)
-- 2026-06-29 12:22 - [美国国税局或欠数百万纳税人疫情时代罚款减免退税 如何申请](http://www.blog.kurohicncr.top/Article/details/52330020679.shtml)
-- 2026-06-29 12:22 - [华宝基金红利风向标 | 创新高后三大指数涨跌不一，低波红利彰显防御力](http://www.blog.kurohicncr.top/Article/details/3080810013.shtml)
-- 2026-06-29 12:33 - [长江有色：12日铅价下跌 现货畏跌观望刚需采购为主](http://www.share.minike.top/Article/details/0323862981.shtml)
-- 2026-06-29 12:32 - [“为AI发电”组合逆市走强！华宝基金创业板人工智能ETF、电力ETF携手涨超1%！硬科技宽基双创50ETF续创新高](http://www.share.minike.top/Article/details/722828.shtml)
-- 2026-06-29 12:27 - [韩国生物制药公司Celltrion收购法国Gifrer](http://www.blog.kurohicncr.top/Article/details/954172.shtml)
+- 2026-06-29 12:26 - [重回4100点！A股三大指数午后集体大涨](http://www.blog.kurohicncr.top/Article/details/255042946822.shtml)
+- 2026-06-29 12:31 - [学习新语｜山河永念 英雄回家](http://www.blog.kurohicncr.top/Article/details/619737372766.shtml)
+- 2026-06-29 12:20 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](http://www.share.kurohicncr.top/Article/details/09476325818.shtml)
+- 2026-06-29 12:38 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](http://www.share.minike.top/Article/details/156217.shtml)
+- 2026-06-29 12:39 - [广西仫佬山乡：多彩民俗展风情](http://www.blog.kurohicncr.top/Article/details/80326.shtml)
+- 2026-06-29 12:30 - [乌力格尔：蒙古族说唱里的一部民族交融史](http://www.share.minike.top/Article/details/3729329.shtml)
+- 2026-06-29 12:21 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](http://www.share.kurohicncr.top/Article/details/838850181.shtml)
+- 2026-06-29 12:26 - [日本放宽武器出口限制引发各界批评](http://www.blog.kurohicncr.top/Article/details/6387662994.shtml)
+- 2026-06-29 12:26 - [第十九届北京车展将开幕 中国车企如何突破超越](http://www.blog.kurohicncr.top/Article/details/6608152315.shtml)
+- 2026-06-29 12:39 - [售价29999元，华为星钻手镯表5月15日开售](http://www.share.kurohicncr.top/Article/details/304031227586.shtml)
+- 2026-06-29 12:21 - [上海期货交易所镍期货及期权正式引入境外交易者参与交易](http://www.share.kurohicncr.top/Article/details/9052833.shtml)
+- 2026-06-29 12:35 - [聚焦新兴领域与文化产业 陕西检察去年办理知识产权案件328件](http://www.share.kurohicncr.top/Article/details/685503.shtml)
+- 2026-06-29 12:22 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](http://www.share.minike.top/Article/details/205958086.shtml)
+- 2026-06-29 12:44 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](https://github.com/lisacumin64-arch)

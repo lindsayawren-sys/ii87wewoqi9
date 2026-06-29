@@ -1,42 +1,59 @@
-# 中美经贸磋商在韩国开始举行
+# 长信化学IPO终止只是开始？核心技术人员王昭云等被天奈科技起诉，索赔总额达2.25亿元 | 长三角资本局
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-当地时间5月13日中午，中美两国经贸团队在韩国首尔仁川国际机场开始举行中美经贸磋商。
+文|新浪财经上海站 十里 IPO终止后，却被索赔2.25亿元，长信化学到底卷进了一场什么官司？ 4月18日，科创板上市公司天奈科技公告称，公司以侵害技术秘密纠纷为由，将三名前员工及山东长信化学科技股份有限公司等三家企业诉至江苏省高级人民法院，索赔合计2.24844亿元。目前，该案已立案受理，尚未开庭。 长信化学是谁？这家曾冲刺上交所主板IPO的化工企业，为什么会被同行追着索赔至
 
 ## 正文
 
-当地时间5月13日中午，中美两国经贸团队在韩国首尔仁川国际机场开始举行中美经贸磋商。
+文|新浪财经上海站 十里 IPO终止后，却被索赔2.25亿元，长信化学到底卷进了一场什么官司？
+
+4月18日，科创板上市公司天奈科技公告称，公司以侵害技术秘密纠纷为由，将三名前员工及山东长信化学科技股份有限公司等三家企业诉至江苏省高级人民法院，索赔合计2.24844亿元。
+
+目前，该案已立案受理，尚未开庭。
+
+长信化学是谁？
+
+这家曾冲刺上交所主板IPO的化工企业，为什么会被同行追着索赔至2.25亿元？
+
+答案指向碳纳米管领域一项核心技术。
+
+根据天奈科技披露，本案涉及的技术秘密为公司自主研发形成的碳纳米管催化剂制备配方和工艺。
+
+公司称，为该项技术投入了大量资金及人力，并采取了具体保密措施。
 
 ## 相关推荐
 
-- 2026-06-29 12:23 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:22 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:16 - [摩根大通将对投行业务高层进行改组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:25 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:41 - [内蒙古厅官马保国、房瑞夜间官宣被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:25 - [24项改革措施，推动综合保税区扩能提质（政策解读）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:21 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:28 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:29 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:38 - [谷歌深化布局印度AI基础设施热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:28 - [乌鲁木齐河西煤层气探采项目进入勘探实施阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:33 - [工信部：开展人工智能中小企业创业支持计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:18 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:44 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:30 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:22 - [降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:31 - [福建武夷山：春茶开山 仪式感满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:21 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:27 - [【理响中国】今天，如何培养青少年阅读习惯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:20 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:35 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:45 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:31 - [香港应科院将于港深创科园成立联合研发实验室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:27 - [美防长赫格塞思就国防预算出席国会听证会](http://www.share.minike.top/Article/details/912240225.shtml)
-- 2026-06-29 12:12 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](http://www.blog.kurohicncr.top/Article/details/290428044.shtml)
-- 2026-06-29 12:21 - [88匹进口蒙古马为中国内地演艺市场发展添助力](http://www.blog.minike.top/Article/details/23549135108.shtml)
-- 2026-06-29 12:33 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](http://www.share.kurohicncr.top/Article/details/89018326014.shtml)
-- 2026-06-29 12:24 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](http://www.share.minike.top/Article/details/45922200.shtml)
-- 2026-06-29 12:23 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](http://www.blog.kurohicncr.top/Article/details/2823900356.shtml)
-- 2026-06-29 12:31 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](http://www.blog.minike.top/Article/details/931101030.shtml)
-- 2026-06-29 12:28 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](http://www.blog.minike.top/Article/details/727649979666.shtml)
-- 2026-06-29 12:35 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](http://www.share.kurohicncr.top/Article/details/522540606.shtml)
-- 2026-06-29 12:41 - [贵阳银行：有条件时可以进行中期利润分配](http://www.blog.minike.top/Article/details/0826191816.shtml)
-- 2026-06-29 12:26 - [英伟达宣布与康宁建立多年合作伙伴关系](http://www.blog.minike.top/Article/details/7345082418.shtml)
-- 2026-06-29 12:25 - [白衣天使，节日快乐！](http://www.share.kurohicncr.top/Article/details/129607090966.shtml)
+- 2026-06-29 12:26 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](http://www.share.kurohicncr.top/Article/details/261781761.shtml)
+- 2026-06-29 12:47 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](http://www.share.kurohicncr.top/Article/details/98027.shtml)
+- 2026-06-29 12:40 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](http://www.share.kurohicncr.top/Article/details/2182339826.shtml)
+- 2026-06-29 12:43 - [上海着力打造首个“次元友好街区”](http://www.share.kurohicncr.top/Article/details/836838754004.shtml)
+- 2026-06-29 12:42 - [赛分科技：聘任顾楹瑶为公司证券事务代表](http://www.share.kurohicncr.top/Article/details/670911.shtml)
+- 2026-06-29 12:18 - [陪审团裁定优步负有责任](http://www.share.kurohicncr.top/Article/details/87667820.shtml)
+- 2026-06-29 12:18 - [Tractor Supply第一财季盈利不及预期](http://www.blog.minike.top/Article/details/28112.shtml)
+- 2026-06-29 12:25 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](http://www.share.kurohicncr.top/Article/details/69985823533.shtml)
+- 2026-06-29 12:28 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](http://www.blog.kurohicncr.top/Article/details/74058328967.shtml)
+- 2026-06-29 12:33 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [俄Tuapse炼油厂遭无人机袭击后全面停产](http://www.blog.kurohicncr.top/Article/details/571561.shtml)
+- 2026-06-29 12:19 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](http://www.share.minike.top/Article/details/347939508771.shtml)
+- 2026-06-29 12:25 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [截至3月底全国5G基站总数已达495.8万个](http://www.blog.minike.top/Article/details/28728346061.shtml)

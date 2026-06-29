@@ -1,56 +1,58 @@
-# “AI水果”“酱板鸭”火到台湾 业者盼拓展两岸微短剧合作
+# 特朗普称将“记住”不申请关税退款的公司
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-中新社北京5月12日电 (记者 朱贺 张晓曦)“前段时间风靡的‘酱板鸭’让台湾青年津津乐道，最近刷屏的又变成了‘AI水果’短剧。年轻网友很容易被这种脑洞大开、充满创意的内容吸引眼球。” 12日在北京举行的第七届两岸媒体人峰会上，台湾梅花媒体集团数位营运部总监陈资尹对中新社记者表示，刷屏大陆短视频平台的“AI水果”短剧正成为台湾社交平台新潮流。片中草莓、香蕉等水果被AI拟人化，颇
+美国总统特朗普周二表示，他会心存感激地“记住”那些不为其单方面征收的关税寻求退款的公司。这些关税已被最高法院裁定为非法。 特朗普在节目中发表上述言论的前一天，美国海关和边境保护局刚刚开放了一个门户网站，允许进口商就所谓的《国际紧急经济权力法》关税申请潜在退款，总额可能超过1600亿美元。 特朗普表示：“我会记住那些不提出申请的公司。它们明白发生了什么。它们明白我是在试图保护这个
 
 ## 正文
 
-中新社北京5月12日电 (记者 朱贺 张晓曦)“前段时间风靡的‘酱板鸭’让台湾青年津津乐道，最近刷屏的又变成了‘AI水果’短剧。
+美国总统特朗普周二表示，他会心存感激地“记住”那些不为其单方面征收的关税寻求退款的公司。
 
-年轻网友很容易被这种脑洞大开、充满创意的内容吸引眼球。
+这些关税已被最高法院裁定为非法。
 
-” 12日在北京举行的第七届两岸媒体人峰会上，台湾梅花媒体集团数位营运部总监陈资尹对中新社记者表示，刷屏大陆短视频平台的“AI水果”短剧正成为台湾社交平台新潮流。
+特朗普在节目中发表上述言论的前一天，美国海关和边境保护局刚刚开放了一个门户网站，允许进口商就所谓的《国际紧急经济权力法》关税申请潜在退款，总额可能超过1600亿美元。
 
-片中草莓、香蕉等水果被AI拟人化，颇具反差感的剧情让不少网友“停不住”滑手机追更。
+特朗普表示：“我会记住那些不提出申请的公司。
 
-“这些极度跳脱、让人‘叹为观止’的创意，正好切中年轻人追求新奇、幽默的心理”。
+它们明白发生了什么。
 
-陈资尹认为，尽管两岸青年日常使用的平台不同，但优质、有创意的大陆短视频产品常能在台湾社交媒体自发传播并产生热烈回响，也为青年提供沟通桥梁。
+它们明白我是在试图保护这个国家。
 
-“当我们为同一个视频发笑，或为相似的烦恼感慨时，那种‘原来你也一样’的共鸣，就是最自然的交流。
+”他补充说，自己“非常欣赏”那些不寻求退款的公司，暗示这些企业的忠诚度可能会在未来得到回报。
 
-” 这种由内容消费引发的共鸣，正延伸至产业合作。
+最高法院在上个月的裁决中指出，特朗普政府援引《国际紧急经济权力法》对从中国进口的商品额外征收关税超出了法定权限，因为该法并未授权总统以贸易逆差为由征收关税。
 
 ## 相关推荐
 
-- 2026-06-29 12:22 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:21 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:18 - [Meta因虚假广告面临审查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:37 - [台湾青年在抗震烈士塑像前落泪：这就是抛头颅洒热血的救灾精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:21 - [微视频｜总书记引领美丽中国建设迈出新步伐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:27 - [水口海关关于开展2026年5月份“关长接待日”的公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:41 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:12 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:12 - [湖北巴东成功救助国家一级保护动物白冠长尾雉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:29 - [中国金茂：附属订立新框架协议及提供贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:29 - [“双20”五机编队列阵长空 以最高礼仪告慰先烈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:22 - [视频丨演唱会门票、车票都能用！小小票根联动激活假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:22 - [美伊停火最后24小时口水战升级，和平仍存一线希望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:33 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:40 - [牧原股份一季度净亏损12.15亿元，同比转亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:22 - [每一帧都很治愈，你读书的样子真好看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:28 - [长江有色：22日铸造铝期价微涨0.15% 下游入市采购谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:47 - [GTC泽汇:北欧黄金并购加速布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:44 - [智能时代，我们还需要深度阅读吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:25 - [湖南茶叶产量超30万吨 综合产值突破1250亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:34 - [湖南永顺：山间云雾 人间烟火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:21 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](http://www.blog.kurohicncr.top/Article/details/783904093.shtml)
-- 2026-06-29 12:26 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [白银直线涨超6%，黄金翻红重回4730美元](http://www.blog.minike.top/Article/details/993907194150.shtml)
-- 2026-06-29 12:18 - [RYOEX:金价反弹站上四千七百](http://www.blog.minike.top/Article/details/77432.shtml)
-- 2026-06-29 12:17 - [桑火尧个展亮相浦东美术馆 展出52件新作](http://www.blog.minike.top/Article/details/827745.shtml)
-- 2026-06-29 12:19 - [美国4月份通胀飙升后 金价小幅走高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [Greystone Housing Impact Q1财报前瞻：市场关注能否扭转业绩不及预期颓势](http://www.share.minike.top/Article/details/89903.shtml)
-- 2026-06-29 12:29 - [一颗草莓的科技之旅与一个村庄的融合之变](http://www.blog.minike.top/Article/details/522970.shtml)
-- 2026-06-29 12:25 - [壳牌和丰田警告地缘政治风险仍处高位](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [遇到消费纠纷不知道去哪投诉 这些渠道你应该知道](http://www.blog.kurohicncr.top/Article/details/3163485286.shtml)
-- 2026-06-29 12:40 - [中央网信办就规范短视频内容标注答记者问](http://www.blog.kurohicncr.top/Article/details/247109914.shtml)
-- 2026-06-29 12:36 - [中美元首会晤在即 专家：美方有责任慎重处理台湾问题](http://www.blog.minike.top/Article/details/78209.shtml)
-- 2026-06-29 12:21 - [中国驻马里使馆提醒中国企业和公民切勿从事非法采矿活动](http://www.blog.kurohicncr.top/Article/details/070638711.shtml)
-- 2026-06-29 12:40 - [职业教育展示 看学生打造“微景观”如何“变废为宝”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [Pulse Bio获内部人士超1300万美元大举买入，股价应声上涨](http://www.blog.minike.top/Article/details/1899049.shtml)
+- 2026-06-29 12:39 - [春播春管进行时——各地农业高质量发展一线观察](http://www.share.kurohicncr.top/Article/details/955460.shtml)
+- 2026-06-29 12:25 - [冷暖骤变 陕西多地迎四月春雪](http://www.blog.minike.top/Article/details/83746704196.shtml)
+- 2026-06-29 12:26 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](http://www.share.minike.top/Article/details/38652.shtml)
+- 2026-06-29 12:25 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](http://www.share.kurohicncr.top/Article/details/4535326314.shtml)
+- 2026-06-29 12:30 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [厦门举办连横逝世九十周年纪念座谈会](http://www.blog.minike.top/Article/details/33313.shtml)
+- 2026-06-29 12:45 - [国台办：坚决反对美国一些人搞“以台遏华”](http://www.share.kurohicncr.top/Article/details/83646632074.shtml)
+- 2026-06-29 12:28 - [日本大分县陆上自卫队一训练场弹药爆炸 多人受波及](http://www.blog.minike.top/Article/details/29398458.shtml)
+- 2026-06-29 12:28 - [西贝正在“换号重生”](http://www.share.minike.top/Article/details/69559.shtml)
+- 2026-06-29 12:20 - [长城基金：新兴科技是主线，价值也有春天](http://www.blog.kurohicncr.top/Article/details/0192321.shtml)
+- 2026-06-29 12:24 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [第十三批在韩中国人民志愿军烈士遗骸即将回国](http://www.share.minike.top/Article/details/07112378.shtml)
+- 2026-06-29 12:46 - [年轻人如何理财？国泰基金联合发布《第四期全国大学生财富素养调查蓝皮书》](http://www.blog.kurohicncr.top/Article/details/769718596.shtml)
+- 2026-06-29 12:22 - [午后，集体拉升！太疯狂，一年暴涨超1000%！两则利好，突袭！](https://github.com/lisacumin64-arch)

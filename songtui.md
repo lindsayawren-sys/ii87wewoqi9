@@ -1,59 +1,50 @@
-# 2026金砖国家工业创新大赛决赛在厦门开幕
+# 诺比侃与浪潮智慧城市签订《战略合作框架协议书》
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-中新社厦门5月12日电 (吴冠标)2026金砖国家工业创新大赛决赛12日在厦门开幕。 本届大赛以“智汇金砖创新发展 加速新工业革命进程”为主题，聚焦“创新金砖”“绿色金砖”，开设人工智能、绿色产业、低空装备产业、能源电子产业、风电装备产业五个赛道。 自今年3月该赛事启动以来，组委会在中国、巴西、马来西亚、印度尼西亚、乌兹别克斯坦等地开展多场预赛选拔活动，累计征集参赛项目1428
+诺比侃（02635）公布，近期，公司与国内智慧城市建设运营领先企业浪潮智慧城市科技有限公司（浪潮智慧城市）签订《战略合作框架协议书》。依照战略合作协议，公司及浪潮智慧城市将围绕智慧城市、城市安全、城市治理、城市数字基础设施等核心领域开展AI智能化深度合作，预计合作总规模约人民币5亿元。 目前，双方已就合作机制、核心方向达成高度共识，正组建专属对接与研发团队，建立项目推进机制，聚
 
 ## 正文
 
-中新社厦门5月12日电 (吴冠标)2026金砖国家工业创新大赛决赛12日在厦门开幕。
+诺比侃（02635）公布，近期，公司与国内智慧城市建设运营领先企业浪潮智慧城市科技有限公司（浪潮智慧城市）签订《战略合作框架协议书》。
 
-本届大赛以“智汇金砖创新发展 加速新工业革命进程”为主题，聚焦“创新金砖”“绿色金砖”，开设人工智能、绿色产业、低空装备产业、能源电子产业、风电装备产业五个赛道。
+依照战略合作协议，公司及浪潮智慧城市将围绕智慧城市、城市安全、城市治理、城市数字基础设施等核心领域开展AI智能化深度合作，预计合作总规模约人民币5亿元。
 
-自今年3月该赛事启动以来，组委会在中国、巴西、马来西亚、印度尼西亚、乌兹别克斯坦等地开展多场预赛选拔活动，累计征集参赛项目1428个，最终有150个优质项目经遴选晋级决赛。
+目前，双方已就合作机制、核心方向达成高度共识，正组建专属对接与研发团队，建立项目推进机制，聚焦城市运行管理、基城市础设施生命线安全工程，城市经济运行分析、智慧园区等核心场景联合研发落地AI智能化解决方案，并将引入优质第三方合作伙伴，打造多方协同产业体系，共建全国性智能化标杆项目。
 
-印度尼西亚参赛选手伊克巴尔在决赛中展示了“以工业副产品驱动的海洋生态修复系统”。
+公司认为，签署战略合作协议是公司在AI+智慧城市领域的重要战略布局，也标志着公司的核心技术与解决方案获行业领先企业高度认可，将助力公司在智慧城市、城市治理、行业智能化等领域形成可复制、可持续的业务协同机制，快速提升公司AI技术全国市场渗透率与品牌影响力，为公司业绩持续增长奠定坚实基础，进一步强化在人工智能行业应用领域的核心竞争力。
 
-他介绍，该项目探索的是燃煤电厂工业固体废弃物在海洋生态修复中的高值化应用路径。
-
-伊克巴尔表示，期待通过大赛平台推广该项目，为金砖国家的电网韧性提高、煤电低碳转型、生态环境修复等提供解决方案。
-
-中国选手徐进带来的项目是城市低空多用途智能无人机一体化解决方案，可实现城市低空物资调运、楼宇玻璃清洗及消防灭火等功能。
-
-“该解决方案降本增效明显，能有效降低作业风险、提升劳动效率，我们认为可普惠更多金砖国家的民众。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:37 - [枪声震天！直击武警官兵实战化射击超燃瞬间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:30 - [韩国官员称以AI收益发放公民红利的言论仅代表发言者个人观点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:12 - [拒绝伊朗回应 美方称停火“有效但脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:38 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:34 - [加密货币立法再遇阻碍：工会阵营出面反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:16 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:22 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:31 - [Meta因虚假广告面临审查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:27 - [台湾青年在抗震烈士塑像前落泪：这就是抛头颅洒热血的救灾精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:20 - [微视频｜总书记引领美丽中国建设迈出新步伐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:34 - [水口海关关于开展2026年5月份“关长接待日”的公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:27 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:32 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:40 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:27 - [摩根士丹利下调黄金前景预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:35 - [花6000元打玻尿酸出现动脉栓塞，医美消费前这一步能救命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:44 - [一季度公募规模增长TOP30：景顺长城增542亿居首，永赢、国泰增超300亿，华商、安信环比增长超20%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:47 - [瞄准、击发 直击官兵轻武器实弹射击训练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:32 - [“双20”五机编队列阵长空 以最高礼仪告慰先烈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:36 - [视频丨演唱会门票、车票都能用！小小票根联动激活假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:47 - [美伊停火最后24小时口水战升级，和平仍存一线希望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:33 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:34 - [牧原股份一季度净亏损12.15亿元，同比转亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:41 - [谷歌深化布局印度AI基础设施热潮](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [时代电气5月12日回购1303.78万港元，已连续10日回购](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [英国政府借贷成本飙升至2008年以来最高，首相斯塔默遭遇下台压力](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](http://www.share.kurohicncr.top/Article/details/530416800.shtml)
-- 2026-06-29 12:38 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](http://www.blog.minike.top/Article/details/9457477.shtml)
-- 2026-06-29 12:25 - [白银直线涨超6%，黄金翻红重回4730美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [RYOEX:金价反弹站上四千七百](http://www.share.kurohicncr.top/Article/details/9269132955.shtml)
-- 2026-06-29 12:32 - [桑火尧个展亮相浦东美术馆 展出52件新作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [美国4月份通胀飙升后 金价小幅走高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [Greystone Housing Impact Q1财报前瞻：市场关注能否扭转业绩不及预期颓势](http://www.share.kurohicncr.top/Article/details/6107544242.shtml)
-- 2026-06-29 12:14 - [一颗草莓的科技之旅与一个村庄的融合之变](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [壳牌和丰田警告地缘政治风险仍处高位](http://www.blog.minike.top/Article/details/47412.shtml)
-- 2026-06-29 12:35 - [遇到消费纠纷不知道去哪投诉 这些渠道你应该知道](http://www.share.minike.top/Article/details/006657590794.shtml)
+- 2026-06-29 12:28 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](http://www.blog.kurohicncr.top/Article/details/76515.shtml)
+- 2026-06-29 12:27 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](http://www.blog.minike.top/Article/details/028817480657.shtml)
+- 2026-06-29 12:36 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](http://www.blog.minike.top/Article/details/70706.shtml)
+- 2026-06-29 12:40 - [香港应科院将于港深创科园成立联合研发实验室](http://www.share.kurohicncr.top/Article/details/1442551.shtml)
+- 2026-06-29 12:18 - [苍山洱海间的健康慢生活](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [冷暖骤变 陕西多地迎四月春雪](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](http://www.blog.minike.top/Article/details/52813434600.shtml)
+- 2026-06-29 12:21 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](http://www.blog.kurohicncr.top/Article/details/163868163.shtml)
+- 2026-06-29 12:44 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](http://www.share.minike.top/Article/details/1693166.shtml)
+- 2026-06-29 12:46 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](http://www.share.minike.top/Article/details/5815240.shtml)
+- 2026-06-29 12:36 - [厦门举办连横逝世九十周年纪念座谈会](http://www.share.minike.top/Article/details/83802503.shtml)
+- 2026-06-29 12:31 - [国台办：坚决反对美国一些人搞“以台遏华”](http://www.share.minike.top/Article/details/9251484.shtml)
+- 2026-06-29 12:41 - [日本大分县陆上自卫队一训练场弹药爆炸 多人受波及](http://www.share.kurohicncr.top/Article/details/5616400597.shtml)
+- 2026-06-29 12:29 - [西贝正在“换号重生”](http://www.share.minike.top/Article/details/471893.shtml)

@@ -1,61 +1,61 @@
-# 德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度
+# FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-针对大众汽车可能向中国汽车制造商开放欧洲闲置工厂一事，德国金属工业工会（IG Metall）发言人11日表示，工会对此持审慎开放态度，认为在保障特定前提下可对相关合作案进行严密评估。 该发言人强调，工会并不完全排斥此类设想，但相关合作必须作为大众汽车独立工业战略的补充，绝不能替代大众既定的投资计划与车辆研发项目。 当前，德国工业界正面临需求疲软与高昂运营成本的双重压力。为有效削
+美国联邦航空管理局已下令对蓝色起源公司周日的新格伦火箭发射事故展开调查。此次任务中，火箭上面级未能将搭载的AST SpaceMobile公司“蓝鸟7号”通信卫星送入预定轨道，导致卫星被迫离轨销毁。 发射任务概况 当地时间4月19日早晨，新格伦火箭从佛罗里达州卡纳维拉尔角太空军基地升空，这是该火箭的第三次飞行任务，也是其首次使用复用助推器。助推器成功实现海上回收，标志着蓝色起源在
 
 ## 正文
 
-针对大众汽车可能向中国汽车制造商开放欧洲闲置工厂一事，德国金属工业工会（IG Metall）发言人11日表示，工会对此持审慎开放态度，认为在保障特定前提下可对相关合作案进行严密评估。
+美国联邦航空管理局已下令对蓝色起源公司周日的新格伦火箭发射事故展开调查。
 
-该发言人强调，工会并不完全排斥此类设想，但相关合作必须作为大众汽车独立工业战略的补充，绝不能替代大众既定的投资计划与车辆研发项目。
+此次任务中，火箭上面级未能将搭载的AST SpaceMobile公司“蓝鸟7号”通信卫星送入预定轨道，导致卫星被迫离轨销毁。
 
-当前，德国工业界正面临需求疲软与高昂运营成本的双重压力。
+发射任务概况 当地时间4月19日早晨，新格伦火箭从佛罗里达州卡纳维拉尔角太空军基地升空，这是该火箭的第三次飞行任务，也是其首次使用复用助推器。
 
-为有效削减开支并避免关闭低产能工厂，大众汽车集团首席执行官奥博穆（Oliver Blume）正积极评估各项对策，与中国车企建立合作关系已成为关键备选方案之一。
+助推器成功实现海上回收，标志着蓝色起源在火箭复用领域取得突破。
 
-与此同时，比亚迪、吉利等中国汽车制造商正稳步推进欧洲市场布局。
+然而，火箭第二级在飞行中出现异常。
 
-在此背景下，德国地方政府官员亦对中德汽车产业的潜在合作释放积极信号。
+蓝色起源证实，卫星被送入“非标称轨道”。
 
-萨克森州经济部长迪尔克·潘特（Dirk Panter）当日指出，大众汽车位于德国东部的茨维考（Zwickau）工厂有望成为对华合作的候选对象。
+AST SpaceMobile随后确认，卫星轨道高度“过低，无法维持正常运行”，这颗价值不菲的卫星将再入大气层烧毁，损失预计由保险覆盖。
 
-潘特强调，面对行业变革，应当顺应时代发展，将中国视为“茨维考的机遇”；与其在竞争中被动流失产业价值，不如主动引入合作，以进一步巩固萨克森州的工业技术专长并保障本土生产能力。
+FAA介入调查 FAA在声明中表示，已将该事件定性为“事故”，并要求蓝色起源完成全面调查，查明根本原因并制定纠正措施。
 
 ## 相关推荐
 
-- 2026-06-29 12:41 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:24 - [卓越教育集团获Soarise Bulex Limited增持139.5万股 每股作价3.19港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:35 - [龙元建设：400亿PPP资产或将“冰山解冻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:31 - [FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:29 - [A股强势突破，创逾10年新高，科技成长板块领涨全场！| 华宝基金3A日报（2026.5.11）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:26 - [伊朗外长与沙特外交大臣讨论美伊外交进程最新进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:28 - [香港将设“AI+与产业发展策略委员会” 聚焦具身智能推动产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:13 - [四川携手重庆协同提升“双圈”能级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:18 - [剂泰科技港股上市在即：AI制药三小龙会师港股 贝莱德领衔基石 2025年收入增长靠首付款 长期仍具不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:39 - [习近平会见文莱王储比拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:17 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:36 - [康特隆：呈请人撤回对附属公司的清盘呈请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:40 - [中新健康｜医生提醒：体重正常但肚子大更危险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:19 - [电影总票房破140亿！五月观影热潮持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:34 - [长江有色：12日锌价大涨 整体成交难有亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:37 - [河北辛集：70米长臂灌溉机器人助力春灌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:23 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:19 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:47 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:26 - [四川2025年高价值发明专利拥有量达7.79万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:39 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:46 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:43 - [全民阅读活动周 各地举办多场活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:28 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:30 - [合并助力建筑公司CannonDesign实现全球布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:34 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:32 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:25 - [特朗普：我会记住不寻求退还关税的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:37 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:41 - [中外科研团队发现约5.35亿年前环节动物祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:28 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](http://www.share.minike.top/Article/details/647867.shtml)
-- 2026-06-29 12:29 - [海地总理：安全状况导致该国大选无法于8月如期举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [厄瓜多尔前外长埃斯皮诺萨角逐下一任联合国秘书长](http://www.blog.minike.top/Article/details/46511.shtml)
-- 2026-06-29 12:30 - [大族数控午前大涨超15% PCB设备板块业绩高速增长](http://www.share.kurohicncr.top/Article/details/637858.shtml)
-- 2026-06-29 12:33 - [湖南残疾人代表讲述“追光”人生：梦想属于每一个勇者](http://www.share.kurohicncr.top/Article/details/20237.shtml)
-- 2026-06-29 12:16 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：26名涉疫邮轮人员抵达荷兰接受安置](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [研究成果合集 | 表现力指数 • 2026商办暨资管卓越表现](http://www.share.kurohicncr.top/Article/details/89274330.shtml)
-- 2026-06-29 12:30 - [Monday.com大涨13%，此前公布一季度业绩全面超预期](http://www.share.minike.top/Article/details/10382.shtml)
-- 2026-06-29 12:12 - [因七腾机器人股价大涨四倍背后：胜通能源实际控制人豁免减持的股东会决议遭起诉 理由是应遵守减持规定](http://www.share.kurohicncr.top/Article/details/6027090062.shtml)
-- 2026-06-29 12:19 - [“盈尺清芬——清代花鸟画扇面展”在广西南宁开展](http://www.blog.minike.top/Article/details/96128.shtml)
-- 2026-06-29 12:17 - [*ST沪科锁定退市，投资者索赔通道开启](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [开盘：美股周二低开 美国4月CPI创3年以来新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [韩国前总统尹锡悦涉嫌免费收受舆论调查服务一案被求刑4年](http://www.share.kurohicncr.top/Article/details/8542039881.shtml)
-- 2026-06-29 12:31 - [国泰君安期货：美国总统访华，哪些板块会蹭热度？](http://www.blog.kurohicncr.top/Article/details/6675044.shtml)
-- 2026-06-29 12:32 - [金观平：千方百计稳住就业基本盘](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.blog.minike.top/Article/details/35182944.shtml)
+- 2026-06-29 12:29 - [4月22日央行开展60亿元7天期逆回购操作](http://www.share.kurohicncr.top/Article/details/3666158.shtml)
+- 2026-06-29 12:20 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](http://www.blog.kurohicncr.top/Article/details/321149255.shtml)
+- 2026-06-29 12:46 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [广西交易团“智”造出海出圈 广交会斩获颇丰](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [第六届亚洲沙滩运动会迎来首个比赛日](http://www.blog.kurohicncr.top/Article/details/462398.shtml)
+- 2026-06-29 12:25 - [日本“再军事化”动作持续引发日本民众大规模抗议](http://www.share.minike.top/Article/details/48318.shtml)
+- 2026-06-29 12:46 - [中芯国际获南向资金连续3天净买入](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [一场展览，看香港工程的过去与未来](http://www.share.kurohicncr.top/Article/details/41262167.shtml)
+- 2026-06-29 12:26 - [伊朗拒绝出席谈判 美国宣布延长停火](http://www.blog.minike.top/Article/details/921396737282.shtml)
+- 2026-06-29 12:37 - [人民海军成立77周年系列报道之：沧海·初心如磐](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](http://www.blog.minike.top/Article/details/6150631.shtml)
+- 2026-06-29 12:20 - [克里夫兰-克利夫斯CEO：与浦项制铁的交易“不再急于求成”](http://www.share.kurohicncr.top/Article/details/482558.shtml)
+- 2026-06-29 12:19 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](http://www.share.kurohicncr.top/Article/details/08354799325.shtml)
+- 2026-06-29 12:41 - [韩国与印度签署20项谅解备忘录，深化钢铁造船和能源等领域合作](http://www.share.minike.top/Article/details/62879133917.shtml)

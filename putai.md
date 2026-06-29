@@ -1,57 +1,55 @@
-# 北京幸福东方剧院启幕 央地联手打造城市文化客厅
+# 智达藏语大模型及系列应用产品成果发布
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-中新网北京5月11日电 (记者 应妮)由中国东方演艺集团与东城文旅集团共同打造的幸福东方剧院11日晚正式开幕。这标志着国家级文艺院团深度扎根首都文化高地，集结演艺行业优质资源与区域历史文化优势资源服务广大市民，为北京“演艺之都”建设再添强大动力。 活动当晚上演了一台以《美美与共》为主题的精品演出，汇集中国东方演艺集团经典剧目与原创新生力作，融合民族歌舞、器乐演奏等多元艺术形式，
+中新社西宁4月22日电 (记者 孙睿)青海师范大学22日对外发布智达藏语大模型及系列应用产品成果。该成果由藏语智能全国重点实验室研发，是青海省首个完成备案的生成式人工智能大模型。 青海师范大学党委书记毛学荣介绍，长期以来，藏语在智能化发展中面临“数据少、算力弱、人才缺”的短板，严重制约涉藏地区数字化、智能化进程。 据介绍，智达藏语大模型具备强大的藏语语义理解与生成能力，同时支持
 
 ## 正文
 
-中新网北京5月11日电 (记者 应妮)由中国东方演艺集团与东城文旅集团共同打造的幸福东方剧院11日晚正式开幕。
+中新社西宁4月22日电 (记者 孙睿)青海师范大学22日对外发布智达藏语大模型及系列应用产品成果。
 
-这标志着国家级文艺院团深度扎根首都文化高地，集结演艺行业优质资源与区域历史文化优势资源服务广大市民，为北京“演艺之都”建设再添强大动力。
+该成果由藏语智能全国重点实验室研发，是青海省首个完成备案的生成式人工智能大模型。
 
-活动当晚上演了一台以《美美与共》为主题的精品演出，汇集中国东方演艺集团经典剧目与原创新生力作，融合民族歌舞、器乐演奏等多元艺术形式，为观众呈现一场视听盛宴。
+青海师范大学党委书记毛学荣介绍，长期以来，藏语在智能化发展中面临“数据少、算力弱、人才缺”的短板，严重制约涉藏地区数字化、智能化进程。
 
-结合母亲节主题，幸福东方剧院还充分利用多元空间，同步设置了疗愈音乐会、文创市集等特色配套活动，兼顾沉浸体验、文化展览与休闲消费，营造温情、松弛的观演氛围。
+据介绍，智达藏语大模型具备强大的藏语语义理解与生成能力，同时支持中、英等多语言交互，能够实现藏语与其他语言的实时翻译、语音转写、智能问答等功能，为涉藏地区政务、教育、医疗、文化等领域的智能化发展提供强大技术支撑。
 
-幸福东方剧院由中国东方演艺集团旗下东方歌舞团有限公司联合北京东城文旅发展集团旗下东体信达文化体育有限公司合资运营，剧院位于东城区幸福大街的东城区文化活动中心，拥有908座标准大剧场及两座多功能黑匣子剧场，配套专业舞台机械与智能视听系统，可承接舞台剧、戏曲、音乐会、实验戏剧等各类高品质舞台演出。
+中国工程院院士、藏语智能全国重点实验室主任、西藏大学教授尼玛扎西表示，该系列产品能实现无障碍语言交流，提升政务服务的便捷性与普惠性，能为学生提供精准的国家通用语言和民族语言学习辅导平台，能对浩若烟海的藏文古籍文献进行智能化整理和活化利用，能实现多语言远程医疗咨询问诊，提升基层医疗服务水平。
 
-区别于传统高端剧场，剧院坚持普惠化、亲民化、场景化运营理念，立足东城、服务市民，是下沉优质文艺资源、提升公共文化服务、实现艺术为民的生动实践。
-
-未来，剧院将持续整合优质演艺资源，深耕文艺惠民服务，全力打造京城新剧目首演、青年主创孵化的首发平台，让高品质舞台艺术扎根东城、贴近群众。
-
-据悉，幸福东方剧院所处的东城区文化活动中心已于4月底面向社会开放试运行，助力东城打造共建共享、可持续发展的公共文化服务新地标，为北京市民提供看剧之余的多样化文化体验。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:15 - [拒绝伊朗回应 美方称停火“有效但脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:29 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:14 - [加密货币立法再遇阻碍：工会阵营出面反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:27 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:31 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:29 - [Meta因虚假广告面临审查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:18 - [台湾青年在抗震烈士塑像前落泪：这就是抛头颅洒热血的救灾精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:22 - [微视频｜总书记引领美丽中国建设迈出新步伐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:33 - [水口海关关于开展2026年5月份“关长接待日”的公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:32 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:24 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:34 - [花6000元打玻尿酸出现动脉栓塞，医美消费前这一步能救命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:33 - [一季度公募规模增长TOP30：景顺长城增542亿居首，永赢、国泰增超300亿，华商、安信环比增长超20%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:24 - [瞄准、击发 直击官兵轻武器实弹射击训练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:25 - [“双20”五机编队列阵长空 以最高礼仪告慰先烈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:32 - [视频丨演唱会门票、车票都能用！小小票根联动激活假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:26 - [美伊停火最后24小时口水战升级，和平仍存一线希望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:25 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:40 - [牧原股份一季度净亏损12.15亿元，同比转亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:45 - [每一帧都很治愈，你读书的样子真好看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:19 - [长江有色：22日铸造铝期价微涨0.15% 下游入市采购谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:34 - [GTC泽汇:北欧黄金并购加速布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:32 - [智能时代，我们还需要深度阅读吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:28 - [湖南茶叶产量超30万吨 综合产值突破1250亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:28 - [英国政府借贷成本飙升至2008年以来最高，首相斯塔默遭遇下台压力](http://www.blog.minike.top/Article/details/0779378932.shtml)
-- 2026-06-29 12:15 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](http://www.share.minike.top/Article/details/20169694.shtml)
-- 2026-06-29 12:16 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](http://www.blog.kurohicncr.top/Article/details/20570489.shtml)
-- 2026-06-29 12:21 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [白银直线涨超6%，黄金翻红重回4730美元](http://www.blog.kurohicncr.top/Article/details/09489.shtml)
-- 2026-06-29 12:16 - [RYOEX:金价反弹站上四千七百](http://www.share.minike.top/Article/details/06138742.shtml)
-- 2026-06-29 12:25 - [桑火尧个展亮相浦东美术馆 展出52件新作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [美国4月份通胀飙升后 金价小幅走高](http://www.blog.kurohicncr.top/Article/details/4828511596.shtml)
-- 2026-06-29 12:22 - [Greystone Housing Impact Q1财报前瞻：市场关注能否扭转业绩不及预期颓势](http://www.share.kurohicncr.top/Article/details/085427575836.shtml)
-- 2026-06-29 12:38 - [一颗草莓的科技之旅与一个村庄的融合之变](http://www.share.minike.top/Article/details/962391516.shtml)
-- 2026-06-29 12:14 - [壳牌和丰田警告地缘政治风险仍处高位](http://www.share.minike.top/Article/details/632803206.shtml)
-- 2026-06-29 12:18 - [遇到消费纠纷不知道去哪投诉 这些渠道你应该知道](http://www.blog.minike.top/Article/details/7676588709.shtml)
-- 2026-06-29 12:16 - [中央网信办就规范短视频内容标注答记者问](http://www.share.kurohicncr.top/Article/details/15121.shtml)
-- 2026-06-29 12:35 - [中美元首会晤在即 专家：美方有责任慎重处理台湾问题](http://www.blog.kurohicncr.top/Article/details/27208244503.shtml)
+- 2026-06-29 12:32 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](http://www.blog.minike.top/Article/details/11884601.shtml)
+- 2026-06-29 12:41 - [香港应科院将于港深创科园成立联合研发实验室](http://www.share.kurohicncr.top/Article/details/912121835.shtml)
+- 2026-06-29 12:18 - [苍山洱海间的健康慢生活](http://www.share.kurohicncr.top/Article/details/32833511674.shtml)
+- 2026-06-29 12:38 - [春播春管进行时——各地农业高质量发展一线观察](http://www.blog.minike.top/Article/details/466288491.shtml)
+- 2026-06-29 12:43 - [冷暖骤变 陕西多地迎四月春雪](http://www.share.minike.top/Article/details/970466460.shtml)
+- 2026-06-29 12:32 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](http://www.blog.kurohicncr.top/Article/details/407419946549.shtml)
+- 2026-06-29 12:46 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](http://www.blog.kurohicncr.top/Article/details/118967745113.shtml)
+- 2026-06-29 12:27 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](http://www.blog.kurohicncr.top/Article/details/63537387.shtml)
+- 2026-06-29 12:19 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](http://www.blog.kurohicncr.top/Article/details/098657085.shtml)
+- 2026-06-29 12:43 - [厦门举办连横逝世九十周年纪念座谈会](http://www.share.minike.top/Article/details/0737103054.shtml)
+- 2026-06-29 12:37 - [国台办：坚决反对美国一些人搞“以台遏华”](http://www.blog.kurohicncr.top/Article/details/87143523152.shtml)
+- 2026-06-29 12:47 - [日本大分县陆上自卫队一训练场弹药爆炸 多人受波及](http://www.share.kurohicncr.top/Article/details/95381.shtml)
+- 2026-06-29 12:23 - [西贝正在“换号重生”](http://www.blog.kurohicncr.top/Article/details/2058837.shtml)
+- 2026-06-29 12:29 - [长城基金：新兴科技是主线，价值也有春天](http://www.share.kurohicncr.top/Article/details/8015555.shtml)
+- 2026-06-29 12:39 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](http://www.blog.kurohicncr.top/Article/details/836713.shtml)

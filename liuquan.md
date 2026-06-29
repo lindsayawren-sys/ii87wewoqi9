@@ -1,61 +1,56 @@
-# 中央气象台：每 日 天 气 提 示（2026年05月12日）
+# 第十三批在韩中国人民志愿军烈士遗骸启程回国
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-来源：中央气象台网站 昨日，云南、海南岛中部及新疆伊犁河谷等地部分地区出现中雨或大雨、局地暴雨或大暴雨；山东日照和青岛、江苏连云港等局地出现雷暴大风。今天开始至14日，江南、华南及贵州东部等地将自西向东迎来一次降雨过程，局地并伴有雷暴大风、冰雹等强对流，中央气象台今晨发布暴雨蓝色预警。气象专家指出，江西东南部、福建西部等局地可能发生山洪、地质灾害、中小河流洪水等灾害，公众需远离
+中新社韩国仁川4月22日电 (记者 刘旭 金旭)4月22日上午，中韩双方在韩国仁川国际机场共同举行交接仪式，韩方向中方移交第十三批12位在韩中国人民志愿军烈士遗骸及146件遗物。 中国退役军人事务部副部长徐耀率中方交接代表团、韩国国防部次官李斗熙率韩国送还中国军人遗骸代表团出席仪式。中韩双方代表现场签署交接书，中方举行悼念仪式，现场唱响中华人民共和国国歌，中国驻韩国大使戴兵为志
 
 ## 正文
 
-来源：中央气象台网站 昨日，云南、海南岛中部及新疆伊犁河谷等地部分地区出现中雨或大雨、局地暴雨或大暴雨；山东日照和青岛、江苏连云港等局地出现雷暴大风。
+中新社韩国仁川4月22日电 (记者 刘旭 金旭)4月22日上午，中韩双方在韩国仁川国际机场共同举行交接仪式，韩方向中方移交第十三批12位在韩中国人民志愿军烈士遗骸及146件遗物。
 
-今天开始至14日，江南、华南及贵州东部等地将自西向东迎来一次降雨过程，局地并伴有雷暴大风、冰雹等强对流，中央气象台今晨发布暴雨蓝色预警。
+中国退役军人事务部副部长徐耀率中方交接代表团、韩国国防部次官李斗熙率韩国送还中国军人遗骸代表团出席仪式。
 
-气象专家指出，江西东南部、福建西部等局地可能发生山洪、地质灾害、中小河流洪水等灾害，公众需远离山区、河谷等地势低洼地区；降雨期间道路湿滑、能见度较低，公众出行时务必注意交通安全。
+中韩双方代表现场签署交接书，中方举行悼念仪式，现场唱响中华人民共和国国歌，中国驻韩国大使戴兵为志愿军烈士棺椁覆盖国旗，中方全体人员向志愿军烈士遗骸行三鞠躬礼，中国人民解放军仪仗司礼大队礼兵持国旗护送烈士棺椁登上解放军空军运-20B运输机，烈士英灵将回到祖国和人民怀抱。
 
-同时，注意关注当地气象部门发布的临近预报、预警信息，尽量避免在强对流活跃时段外出。
+中国退役军人事务部、中央宣传部、中央对外联络部、中央网信办、外交部、国家发展改革委、财政部、军委政治工作部等军地有关部门组成的中方交接代表团组全体人员、中国驻韩国大使馆相关人员共同见证迎接志愿军烈士回家。
 
-预计12日至14日，受冷空气影响，新疆、内蒙古西部、甘肃中西部等地有6~10℃降温，局地降温超过12℃，并伴有5~7级风，阵风8~9级，新疆山口地区10~11级；西北地区还将出现沙尘天气。
+徐耀在交接仪式上表示，中韩双方贯彻两国元首达成的重要共识，遵循人道主义原则，本着坦诚友好、务实合作精神，连续13年实施在韩中国人民志愿军烈士遗骸交接，将1023位烈士遗骸接回祖国。
 
-其中今天，新疆东部和南部、甘肃西部、内蒙古西部、宁夏西部等地部分地区有扬沙或浮尘天气，新疆东部和南部、甘肃西部偏北地区等局地有沙尘暴。
+在韩志愿军烈士遗骸交接已成为中韩友好合作的生动范例，对于加深两国友谊，深化双方合作交流具有重要意义。
 
-气象专家提醒，新疆、内蒙古、甘肃等地有大风、降温、沙尘天气，春季天气多变，公众可密切关注气象部门发布的最新气象信息，提前做好防范措施。
+中方感谢韩方相关部门和工作人员付出的努力，中方将进一步深化与韩方的友好合作交流，积极推进在韩中国人民志愿军烈士遗骸保护相关工作，让更多志愿军烈士英魂早日回到祖国。
 
-制作：王韫喆签发：孙贺转载请注明来源中央气象台责任编辑：李铁民
+4月21日上午，中韩双方在韩国仁川共同举行了第十三批在韩中国人民志愿军烈士遗骸装殓仪式。
 
 ## 相关推荐
 
-- 2026-06-29 12:26 - [特朗普推迟下调牛肉进口关税计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:19 - [博时宏观观点：关注特朗普访华及中美通胀数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:27 - [铜：供应扰动持续，铜价中枢上移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:12 - [华泰期货：供应端再遇干扰 铜价维持偏强态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:37 - [豪买16亿元后，裘国根罕见现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:37 - [Fugro获得苏格兰海上风电场勘测合同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:36 - [2026金砖国家工业创新大赛决赛在厦门开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:17 - [“小童装”奔赴大市场 浙江织里“全球揽客”拓外贸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:32 - [北京幸福东方剧院启幕 央地联手打造城市文化客厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:38 - [王毅同巴基斯坦副总理兼外长通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:38 - [中国逊克口岸2026年明水期正式开关通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:25 - [“AI水果”“酱板鸭”火到台湾 业者盼拓展两岸微短剧合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:30 - [关注俄乌冲突：俄乌互指对方违反停火 并称作出对等回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:25 - [枪声震天！直击武警官兵实战化射击超燃瞬间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:16 - [韩国官员称以AI收益发放公民红利的言论仅代表发言者个人观点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:21 - [亚马逊将推出GLP-1减肥药项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:42 - [美财长：将继续对伊朗“极限施压”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:27 - [国务院：到2030年 服务业总规模迈上100万亿元台阶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:24 - [光大期货：4月22日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:46 - [吴凯院士谈新能源汽车电池：每种材料都有自身局限 要坚持多元化学体系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:23 - [大美边疆看我家丨内蒙古敖汉：山野杏花 如霞似雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:40 - [诺比侃与浪潮智慧城市签订《战略合作框架协议书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:38 - [龙蟠科技拟1485万澳元收购位于澳大利亚的锂矿勘探租约及相关资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:43 - [智达藏语大模型及系列应用产品成果发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:18 - [法国官方宣布财政节支措施以应对中东局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:16 - [华宝基金红利风向标 | 华宝红利家族全线飘红，当下均衡红利策略或为较优解](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [南方人是怎么爱上北方奶茶的？](http://www.share.kurohicncr.top/Article/details/78022.shtml)
-- 2026-06-29 12:24 - [斯塔默在重要内阁会议前夕，权衡能否保住首相职位](http://www.share.kurohicncr.top/Article/details/60630.shtml)
-- 2026-06-29 12:12 - [印度4月通胀连续第六个月攀升，但低于市场预期](http://www.share.kurohicncr.top/Article/details/5645105.shtml)
-- 2026-06-29 12:26 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](http://www.share.minike.top/Article/details/045857687148.shtml)
-- 2026-06-29 12:31 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](http://www.blog.minike.top/Article/details/718517.shtml)
-- 2026-06-29 12:20 - [摩根大通将对投行业务高层进行改组](http://www.blog.minike.top/Article/details/82233.shtml)
-- 2026-06-29 12:23 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](http://www.blog.kurohicncr.top/Article/details/58614145.shtml)
-- 2026-06-29 12:37 - [内蒙古厅官马保国、房瑞夜间官宣被查](http://www.blog.kurohicncr.top/Article/details/77098971.shtml)
-- 2026-06-29 12:32 - [24项改革措施，推动综合保税区扩能提质（政策解读）](http://www.blog.kurohicncr.top/Article/details/42871.shtml)
-- 2026-06-29 12:40 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](http://www.blog.minike.top/Article/details/951716497.shtml)
-- 2026-06-29 12:40 - [谷歌深化布局印度AI基础设施热潮](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [时代电气5月12日回购1303.78万港元，已连续10日回购](http://www.share.minike.top/Article/details/6147742.shtml)
+- 2026-06-29 12:47 - [王毅出席全球共享发展行动论坛第三届高级别会议](http://www.blog.kurohicncr.top/Article/details/59857.shtml)
+- 2026-06-29 12:28 - [伊朗武装部队称已做好充分战斗准备](http://www.blog.minike.top/Article/details/293196721.shtml)
+- 2026-06-29 12:18 - [中国新闻社参评第36届中国新闻奖国际传播初评作品公示](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [上期所镍期货及期权引入境外交易者 20号胶期权、国际铜期权挂牌交易](http://www.share.minike.top/Article/details/4063658.shtml)
+- 2026-06-29 12:39 - [乌鲁木齐河西煤层气探采项目进入勘探实施阶段](http://www.share.kurohicncr.top/Article/details/158080950.shtml)
+- 2026-06-29 12:45 - [工信部：开展人工智能中小企业创业支持计划](http://www.share.kurohicncr.top/Article/details/67591.shtml)
+- 2026-06-29 12:35 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](http://www.share.kurohicncr.top/Article/details/8944139345.shtml)
+- 2026-06-29 12:40 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](http://www.share.minike.top/Article/details/33524.shtml)
+- 2026-06-29 12:32 - [降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [福建武夷山：春茶开山 仪式感满满](http://www.blog.minike.top/Article/details/527836228281.shtml)
+- 2026-06-29 12:27 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](http://www.share.minike.top/Article/details/49151.shtml)
+- 2026-06-29 12:34 - [【理响中国】今天，如何培养青少年阅读习惯](http://www.share.minike.top/Article/details/8009806.shtml)
+- 2026-06-29 12:42 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](http://www.share.minike.top/Article/details/544025378.shtml)
+- 2026-06-29 12:42 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](http://www.blog.minike.top/Article/details/9414455901.shtml)

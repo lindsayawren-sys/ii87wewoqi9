@@ -1,46 +1,60 @@
-# 国家统计局：4月居民消费价格指数同比上涨1.2%
+# 北京查处多起违规拼豆玩具案 严打无证产品筑牢儿童安全防线
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 09:02 来源：央视新闻 责任编辑：【王祎】
+中新网北京4月22日电 (记者 吕少威)拼豆作为当下备受青睐的新潮益智儿童玩具，市场热度持续走高，但产品质量与安全隐患问题亦随之凸显。近日，北京市市场监督管理局执法人员通过线上线下一体化排查模式，聚焦北京主要玩具批发集散市场，开展突击执法检查，严厉整治儿童玩具市场违法违规行为，成功查处多起无3C认证拼豆儿童玩具典型案件，切实筑牢儿童玩具消费安全防线。根据国家强制性产品认证目录(
 
 ## 正文
 
-发布时间：2026年05月12日 09:02 来源：央视新闻 责任编辑：【王祎】
+中新网北京4月22日电 (记者 吕少威)拼豆作为当下备受青睐的新潮益智儿童玩具，市场热度持续走高，但产品质量与安全隐患问题亦随之凸显。
+
+近日，北京市市场监督管理局执法人员通过线上线下一体化排查模式，聚焦北京主要玩具批发集散市场，开展突击执法检查，严厉整治儿童玩具市场违法违规行为，成功查处多起无3C认证拼豆儿童玩具典型案件，切实筑牢儿童玩具消费安全防线。
+
+根据国家强制性产品认证目录(3C认证)相关规定，塑胶类儿童玩具必须依法取得3C认证，这是保障产品安全的基本前提。
+
+此次执法行动中，执法人员查处的三类违规拼豆玩具案件，暴露出市场上部分产品存在的严重安全漏洞。
+
+案例一：“三无”拼豆伪装自用劣质材料存健康风险 执法人员在某商贸中心一家儿童玩具批发零售门店检查时发现，店内货架上堆放多款无厂名厂址、无3C认证的拼豆玩具，且标注适用年龄为3岁以上。
+
+面对检查，店主辩称相关产品为“自家小孩自用，非卖品”。
+
+经执法人员细致核查进销存电脑系统、经营票据及顾客订单等材料，证实所谓“自用玩具”存在完整的进货、销售记录，且现场仍有部分剩余库存，当事人最终对销售行为供认不讳。
+
+执法人员明确指出，来源不明的拼豆玩具未通过国家强制性3C认证，部分生产厂家为控制成本，采用低成本劣质塑胶材料制作。
 
 ## 相关推荐
 
-- 2026-06-29 12:38 - [2026金砖国家工业创新大赛决赛在厦门开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:14 - [“小童装”奔赴大市场 浙江织里“全球揽客”拓外贸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:22 - [北京幸福东方剧院启幕 央地联手打造城市文化客厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:29 - [王毅同巴基斯坦副总理兼外长通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:33 - [中国逊克口岸2026年明水期正式开关通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:37 - [“AI水果”“酱板鸭”火到台湾 业者盼拓展两岸微短剧合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:15 - [关注俄乌冲突：俄乌互指对方违反停火 并称作出对等回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:36 - [枪声震天！直击武警官兵实战化射击超燃瞬间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:33 - [韩国官员称以AI收益发放公民红利的言论仅代表发言者个人观点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:16 - [拒绝伊朗回应 美方称停火“有效但脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:16 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:22 - [加密货币立法再遇阻碍：工会阵营出面反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:15 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:19 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:31 - [诺比侃与浪潮智慧城市签订《战略合作框架协议书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:31 - [龙蟠科技拟1485万澳元收购位于澳大利亚的锂矿勘探租约及相关资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:25 - [智达藏语大模型及系列应用产品成果发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:26 - [法国官方宣布财政节支措施以应对中东局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:37 - [美国财长贝森特：财政部将继续对伊朗施压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:27 - [特朗普称将“记住”不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:29 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:36 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:45 - [摩根士丹利下调黄金前景预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:40 - [花6000元打玻尿酸出现动脉栓塞，医美消费前这一步能救命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:18 - [一季度公募规模增长TOP30：景顺长城增542亿居首，永赢、国泰增超300亿，华商、安信环比增长超20%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:18 - [瞄准、击发 直击官兵轻武器实弹射击训练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:41 - [“双20”五机编队列阵长空 以最高礼仪告慰先烈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:28 - [视频丨演唱会门票、车票都能用！小小票根联动激活假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:15 - [摩根大通将对投行业务高层进行改组](http://www.blog.minike.top/Article/details/6333481.shtml)
-- 2026-06-29 12:21 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [内蒙古厅官马保国、房瑞夜间官宣被查](http://www.blog.minike.top/Article/details/39289678557.shtml)
-- 2026-06-29 12:18 - [24项改革措施，推动综合保税区扩能提质（政策解读）](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](http://www.share.kurohicncr.top/Article/details/6012759021.shtml)
-- 2026-06-29 12:24 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [谷歌深化布局印度AI基础设施热潮](http://www.share.minike.top/Article/details/7713340.shtml)
-- 2026-06-29 12:31 - [时代电气5月12日回购1303.78万港元，已连续10日回购](http://www.blog.minike.top/Article/details/614865721771.shtml)
-- 2026-06-29 12:26 - [英国政府借贷成本飙升至2008年以来最高，首相斯塔默遭遇下台压力](http://www.blog.kurohicncr.top/Article/details/4264044.shtml)
-- 2026-06-29 12:39 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](http://www.blog.minike.top/Article/details/75157877.shtml)
-- 2026-06-29 12:41 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](http://www.share.kurohicncr.top/Article/details/3691113.shtml)
-- 2026-06-29 12:19 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](http://www.share.minike.top/Article/details/12976058860.shtml)
-- 2026-06-29 12:19 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](http://www.blog.kurohicncr.top/Article/details/734880634.shtml)
-- 2026-06-29 12:21 - [白银直线涨超6%，黄金翻红重回4730美元](http://www.share.minike.top/Article/details/091249665.shtml)
+- 2026-06-29 12:40 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](http://www.share.minike.top/Article/details/580592.shtml)
+- 2026-06-29 12:33 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](http://www.blog.minike.top/Article/details/000882.shtml)
+- 2026-06-29 12:18 - [降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂](http://www.blog.minike.top/Article/details/6006316567.shtml)
+- 2026-06-29 12:38 - [福建武夷山：春茶开山 仪式感满满](http://www.blog.minike.top/Article/details/6157022.shtml)
+- 2026-06-29 12:40 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](http://www.blog.minike.top/Article/details/104459685.shtml)
+- 2026-06-29 12:28 - [【理响中国】今天，如何培养青少年阅读习惯](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](http://www.share.minike.top/Article/details/46191.shtml)
+- 2026-06-29 12:35 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](http://www.share.kurohicncr.top/Article/details/807741.shtml)
+- 2026-06-29 12:23 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [香港应科院将于港深创科园成立联合研发实验室](http://www.share.kurohicncr.top/Article/details/3953812.shtml)
+- 2026-06-29 12:18 - [苍山洱海间的健康慢生活](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [春播春管进行时——各地农业高质量发展一线观察](http://www.share.kurohicncr.top/Article/details/327085455.shtml)
+- 2026-06-29 12:28 - [冷暖骤变 陕西多地迎四月春雪](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](http://www.share.minike.top/Article/details/875096974.shtml)

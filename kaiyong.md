@@ -1,57 +1,58 @@
-# 泰国4月消费者信心指数跌至50.6，创8个月来新低
+# 冷暖骤变 陕西多地迎四月春雪
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-泰国商会大学周二发布最新调查报告显示，受能源价格走高及生活成本高企等多重因素影响，泰国4月份消费者信心指数（CCI）从3月的51.8降至50.6。该数据已录得连续第二个月下滑，并创下近8个月来的最低水平。 报告分析指出，能源成本持续处于高位，加之化肥价格高企与农产品价格低迷带来的结构性矛盾，严重打击了市场信心。调查结果显示，泰国民众对整体经济、就业形势及未来收入的信心均出现全面
+中新网西安4月21日电 (杨英琦)近日，陕西天气上演“冰火两重天”。西安刚经历近30℃的“初夏”热浪，21日，铜川、咸阳等多地突然迎来降雪。 据“陕西气象”官方微博消息，受冷空气影响，19日早晨以来陕西省出现大范围降水天气过程。昨日至今晨延安南部、关中和陕南等地普降小到中雨，千阳、宁强、南郑等地出现大雨，太白、华山、长武、宜君等地出现雨夹雪或小雪。 21日8时25分，咸阳市气象
 
 ## 正文
 
-泰国商会大学周二发布最新调查报告显示，受能源价格走高及生活成本高企等多重因素影响，泰国4月份消费者信心指数（CCI）从3月的51.8降至50.6。
+中新网西安4月21日电 (杨英琦)近日，陕西天气上演“冰火两重天”。
 
-该数据已录得连续第二个月下滑，并创下近8个月来的最低水平。
+西安刚经历近30℃的“初夏”热浪，21日，铜川、咸阳等多地突然迎来降雪。
 
-报告分析指出，能源成本持续处于高位，加之化肥价格高企与农产品价格低迷带来的结构性矛盾，严重打击了市场信心。
+据“陕西气象”官方微博消息，受冷空气影响，19日早晨以来陕西省出现大范围降水天气过程。
 
-调查结果显示，泰国民众对整体经济、就业形势及未来收入的信心均出现全面下滑。
+昨日至今晨延安南部、关中和陕南等地普降小到中雨，千阳、宁强、南郑等地出现大雨，太白、华山、长武、宜君等地出现雨夹雪或小雪。
 
-泰国商会大学校长塔纳瓦（Thanavath Phonvichai）在新闻发布会上强调，农业部门表现疲软已成为拖累经济的重要因素，当前泰国的投资与消费增速均处于放缓态势。
+21日8时25分，咸阳市气象台发布暴雪黄色预警信号。
 
-在风险评估方面，报告认为，尽管泰国政局保持稳定、旅游业复苏势头良好，且政府针对弱势群体出台了多项生活补贴措施，但全球经济复苏缓慢以及美伊冲突等外部不确定性，仍将在短期内持续对泰国经济前景构成压力。
+预警显示，预计未来12小时内彬州市、旬邑县、长武县降雪量将达6毫米以上，可能对交通和农牧业产生影响。
 
-为应对物价上涨压力，泰国总理阿努廷·春威拉恭（Anutin Charnvirakul）周二同商务部长苏帕吉·苏坦普（Suphajee Suthumpun）赴基层走访，通过推广平价商品等政府惠民措施，旨在降低民众生活负担、提振内需市场。
+彬州市气象台于8时47分发布道路结冰黄色预警，提醒太峪镇、水口镇等区域未来12小时内可能出现对交通有影响的道路结冰。
 
-责任编辑：龙运翔
+此外，霜冻蓝色预警同步生效，预计当晚至次日凌晨最低气温将降至0℃以下。
 
 ## 相关推荐
 
-- 2026-06-29 12:36 - [壳牌和丰田警告地缘政治风险仍处高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:39 - [遇到消费纠纷不知道去哪投诉 这些渠道你应该知道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:21 - [中央网信办就规范短视频内容标注答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:16 - [中美元首会晤在即 专家：美方有责任慎重处理台湾问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:18 - [中国驻马里使馆提醒中国企业和公民切勿从事非法采矿活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:18 - [职业教育展示 看学生打造“微景观”如何“变废为宝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:30 - [Pulse Bio获内部人士超1300万美元大举买入，股价应声上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:20 - [金斯瑞生物科技盘中涨超5% 联营传奇生物一季度亏损收窄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:15 - [日经指数下跌0.6% 受芯片股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:29 - [新闻人物丨美国总统唐纳德·特朗普](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:40 - [美国4月CPI报告对美联储意味著什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:30 - [日本大分县陆上自卫队一训练场弹药爆炸 多人受波及](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:44 - [西贝正在“换号重生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:47 - [长城基金：新兴科技是主线，价值也有春天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:31 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:41 - [第十三批在韩中国人民志愿军烈士遗骸即将回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:35 - [年轻人如何理财？国泰基金联合发布《第四期全国大学生财富素养调查蓝皮书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:44 - [午后，集体拉升！太疯狂，一年暴涨超1000%！两则利好，突袭！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:46 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:42 - [商汤-W授出合共2.38亿份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:43 - [年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:25 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:31 - [酒价内参4月21日价格发布：飞天茅台保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:36 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [卓越教育集团获Soarise Bulex Limited增持139.5万股 每股作价3.19港元](http://www.share.minike.top/Article/details/943653775.shtml)
-- 2026-06-29 12:35 - [龙元建设：400亿PPP资产或将“冰山解冻”](http://www.share.kurohicncr.top/Article/details/185559496542.shtml)
-- 2026-06-29 12:13 - [FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援](http://www.share.minike.top/Article/details/07657.shtml)
-- 2026-06-29 12:35 - [A股强势突破，创逾10年新高，科技成长板块领涨全场！| 华宝基金3A日报（2026.5.11）](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [伊朗外长与沙特外交大臣讨论美伊外交进程最新进展](http://www.blog.minike.top/Article/details/51097.shtml)
-- 2026-06-29 12:21 - [香港将设“AI+与产业发展策略委员会” 聚焦具身智能推动产业升级](http://www.share.kurohicncr.top/Article/details/7252392625.shtml)
-- 2026-06-29 12:14 - [四川携手重庆协同提升“双圈”能级](http://www.share.kurohicncr.top/Article/details/529502.shtml)
-- 2026-06-29 12:17 - [剂泰科技港股上市在即：AI制药三小龙会师港股 贝莱德领衔基石 2025年收入增长靠首付款 长期仍具不确定性](http://www.share.kurohicncr.top/Article/details/258473234779.shtml)
-- 2026-06-29 12:15 - [习近平会见文莱王储比拉](http://www.share.kurohicncr.top/Article/details/68599512609.shtml)
-- 2026-06-29 12:31 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](http://www.blog.minike.top/Article/details/26985914780.shtml)
-- 2026-06-29 12:28 - [康特隆：呈请人撤回对附属公司的清盘呈请](http://www.share.kurohicncr.top/Article/details/36779519.shtml)
-- 2026-06-29 12:26 - [中新健康｜医生提醒：体重正常但肚子大更危险](http://www.share.minike.top/Article/details/1119759979.shtml)
-- 2026-06-29 12:16 - [电影总票房破140亿！五月观影热潮持续升温](http://www.share.kurohicncr.top/Article/details/28465239.shtml)
-- 2026-06-29 12:28 - [长江有色：12日锌价大涨 整体成交难有亮点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [河北辛集：70米长臂灌溉机器人助力春灌](http://www.blog.kurohicncr.top/Article/details/605573.shtml)
+- 2026-06-29 12:39 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.blog.minike.top/Article/details/094818936.shtml)
+- 2026-06-29 12:40 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](http://www.share.minike.top/Article/details/238871335096.shtml)
+- 2026-06-29 12:23 - [四川2025年高价值发明专利拥有量达7.79万件](http://www.blog.minike.top/Article/details/3652759837.shtml)
+- 2026-06-29 12:40 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](http://www.share.kurohicncr.top/Article/details/89206138814.shtml)
+- 2026-06-29 12:42 - [全民阅读活动周 各地举办多场活动](http://www.blog.minike.top/Article/details/0757840382.shtml)
+- 2026-06-29 12:23 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](http://www.blog.minike.top/Article/details/940119.shtml)
+- 2026-06-29 12:34 - [合并助力建筑公司CannonDesign实现全球布局](http://www.share.minike.top/Article/details/1863653210.shtml)
+- 2026-06-29 12:37 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](http://www.share.minike.top/Article/details/979114627.shtml)
+- 2026-06-29 12:47 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](http://www.share.minike.top/Article/details/0682102.shtml)
+- 2026-06-29 12:31 - [特朗普：我会记住不寻求退还关税的公司](http://www.blog.kurohicncr.top/Article/details/83275385.shtml)
+- 2026-06-29 12:47 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](http://www.share.minike.top/Article/details/3812383284.shtml)
+- 2026-06-29 12:18 - [中外科研团队发现约5.35亿年前环节动物祖先](http://www.share.minike.top/Article/details/446998.shtml)

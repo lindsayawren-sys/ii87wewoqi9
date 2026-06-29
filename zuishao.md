@@ -1,61 +1,61 @@
-# 上海居民何时能去台湾本岛个人游？国台办回应
+# “六连涨”终结！国内油价今夜下调，加满一箱少花22元，下一轮调整是“二连跌”还是反弹？
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-中新网5月13日电 5月13日，国台办举行例行新闻发布会。有记者问：近日，上海市文旅局发布公告，宣布上海居民可通过上海市、福建省具备相关资质的旅行社报名赴金门、马祖团队游和个人游。请问目前相关情况进展如何？何时可实现上海居民赴台湾本岛旅游？ 国台办发言人张晗表示，4月29日，上海市文旅局就上海居民赴金门、马祖旅游作出安排，这是今年2月国共两党智库论坛成果的具体落实。近期两岸旅游
+记者|彭斐 编辑|魏文艺 经历了漫长的“六连涨”后，国内成品油市场终于迎来2026年的首次价格下调。 国家发展改革委官网显示，根据国际市场油价变化情况，自4月21日24时起，国内汽、柴油（标准品）价格每吨分别下调555元、530元。 《每日经济新闻》记者（以下简称“每经记者”）注意到，此次国内汽、柴油（标准品）零售价格开启下调窗口，终结了年内的“六连涨”格局。对于广大车主而言，
 
 ## 正文
 
-中新网5月13日电 5月13日，国台办举行例行新闻发布会。
+记者|彭斐 编辑|魏文艺 经历了漫长的“六连涨”后，国内成品油市场终于迎来2026年的首次价格下调。
 
-有记者问：近日，上海市文旅局发布公告，宣布上海居民可通过上海市、福建省具备相关资质的旅行社报名赴金门、马祖团队游和个人游。
+国家发展改革委官网显示，根据国际市场油价变化情况，自4月21日24时起，国内汽、柴油（标准品）价格每吨分别下调555元、530元。
 
-请问目前相关情况进展如何？
+《每日经济新闻》记者（以下简称“每经记者”）注意到，此次国内汽、柴油（标准品）零售价格开启下调窗口，终结了年内的“六连涨”格局。
 
-何时可实现上海居民赴台湾本岛旅游？
+对于广大车主而言，这无疑是“五一”假期前的一波实质性出行利好。
 
-国台办发言人张晗表示，4月29日，上海市文旅局就上海居民赴金门、马祖旅游作出安排，这是今年2月国共两党智库论坛成果的具体落实。
+按油箱容量为50升的小型车计算，加满一箱油将少花22元。
 
-近期两岸旅游业界已经开始互访考察，为后续两岸旅游交流合作铺路。
+然而，在这波零售端降价红利兑现的背后，国际原油市场正上演着惊心动魄的宽幅震荡行情。
 
-我们已经宣布推动恢复上海市及福建省居民赴台(本岛)个人游试点，希望台湾有关方面顺应民意，尽早开放，为实现两岸人员往来交流正常化和各领域交流常态化创造条件。
+受霍尔木兹海峡航运受阻等因素影响，国际原油价格在调价前夕一度暴涨超6%。
 
-(中新网“燕新台”工作室)
+值得注意的是，本轮调价幅度不及周期初期的预期，而机构对5月8日下一轮调价的预测也呈现出分化——“二连跌”的疲弱现实基本面与随时可能爆发的“报复性反弹”的强预期，正在资本与现货市场中激烈碰撞。
 
 ## 相关推荐
 
-- 2026-06-29 12:34 - [摩根大通将对投行业务高层进行改组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:31 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:30 - [内蒙古厅官马保国、房瑞夜间官宣被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:23 - [24项改革措施，推动综合保税区扩能提质（政策解读）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:28 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:24 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:26 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:38 - [谷歌深化布局印度AI基础设施热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:26 - [时代电气5月12日回购1303.78万港元，已连续10日回购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:21 - [英国政府借贷成本飙升至2008年以来最高，首相斯塔默遭遇下台压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:33 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:37 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:31 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:31 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:15 - [白银直线涨超6%，黄金翻红重回4730美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:28 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:37 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:34 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:20 - [降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:38 - [福建武夷山：春茶开山 仪式感满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:35 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:21 - [【理响中国】今天，如何培养青少年阅读习惯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:39 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:24 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:21 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:19 - [香港应科院将于港深创科园成立联合研发实验室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:35 - [苍山洱海间的健康慢生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:30 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:45 - [冷暖骤变 陕西多地迎四月春雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:41 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:40 - [88匹进口蒙古马为中国内地演艺市场发展添助力](http://www.blog.kurohicncr.top/Article/details/1919545847.shtml)
-- 2026-06-29 12:23 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](http://www.share.kurohicncr.top/Article/details/77846888466.shtml)
-- 2026-06-29 12:13 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](http://www.blog.kurohicncr.top/Article/details/3412268646.shtml)
-- 2026-06-29 12:25 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](http://www.blog.minike.top/Article/details/328065660808.shtml)
-- 2026-06-29 12:27 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](http://www.share.minike.top/Article/details/566407303.shtml)
-- 2026-06-29 12:19 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](http://www.share.kurohicncr.top/Article/details/257555557.shtml)
-- 2026-06-29 12:30 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](http://www.blog.kurohicncr.top/Article/details/91157780.shtml)
-- 2026-06-29 12:18 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](http://www.share.minike.top/Article/details/326445.shtml)
-- 2026-06-29 12:12 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](http://www.blog.kurohicncr.top/Article/details/8084331.shtml)
-- 2026-06-29 12:34 - [贵阳银行：有条件时可以进行中期利润分配](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [英伟达宣布与康宁建立多年合作伙伴关系](http://www.blog.minike.top/Article/details/83176071909.shtml)
-- 2026-06-29 12:19 - [白衣天使，节日快乐！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](http://www.blog.minike.top/Article/details/5209524.shtml)
-- 2026-06-29 12:23 - [美国能源信息署：美国2026年和2027年用电量将连创新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](http://www.blog.minike.top/Article/details/888111.shtml)
+- 2026-06-29 12:41 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](http://www.blog.kurohicncr.top/Article/details/43067221.shtml)
+- 2026-06-29 12:48 - [上海着力打造首个“次元友好街区”](http://www.blog.minike.top/Article/details/5848236.shtml)
+- 2026-06-29 12:47 - [赛分科技：聘任顾楹瑶为公司证券事务代表](http://www.share.minike.top/Article/details/208377099.shtml)
+- 2026-06-29 12:41 - [陪审团裁定优步负有责任](http://www.share.minike.top/Article/details/449110.shtml)
+- 2026-06-29 12:29 - [Tractor Supply第一财季盈利不及预期](http://www.share.kurohicncr.top/Article/details/898295759.shtml)
+- 2026-06-29 12:38 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](http://www.blog.minike.top/Article/details/225231981.shtml)
+- 2026-06-29 12:33 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](http://www.blog.kurohicncr.top/Article/details/20289623881.shtml)
+- 2026-06-29 12:27 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](http://www.share.minike.top/Article/details/562493398250.shtml)
+- 2026-06-29 12:35 - [俄Tuapse炼油厂遭无人机袭击后全面停产](http://www.blog.minike.top/Article/details/090173642334.shtml)
+- 2026-06-29 12:34 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](http://www.share.kurohicncr.top/Article/details/447571.shtml)
+- 2026-06-29 12:47 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](http://www.blog.minike.top/Article/details/21534153.shtml)
+- 2026-06-29 12:32 - [截至3月底全国5G基站总数已达495.8万个](http://www.blog.kurohicncr.top/Article/details/15708702531.shtml)
+- 2026-06-29 12:37 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](http://www.blog.kurohicncr.top/Article/details/359716635713.shtml)
+- 2026-06-29 12:41 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](http://www.share.kurohicncr.top/Article/details/244328073.shtml)

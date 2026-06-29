@@ -1,48 +1,56 @@
-# 英伟达宣布与康宁建立多年合作伙伴关系
+# 广州中医药大学与阿联酋、泰国高校开展护理交换生项目
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-Nvidia和Corning宣布建立多年合作伙伴关系，将美国光连接制造能力提升十倍，并将光纤产量扩大50%以上，以支持下一代AI数据中心。责任编辑：张俊 SF065
+中新社广州4月21日电 (记者 许青青)“南粤杏林·丝路同行”广州中医药大学与阿联酋、泰国高校2026年护理交换生项目21日在该校启动，来自阿联酋哈伊马角医药与健康科技大学、泰国孔敬大学的12名同学将在广州开展3周至1个月的交换学习生活。据介绍，此次交换生项目以中医护理为核心，开设中医基础理论、中医饮食调护、经络腧穴等理论课程，提供耳穴贴压、艾灸、刮痧、针灸、八段锦等中医特色实
 
 ## 正文
 
-Nvidia和Corning宣布建立多年合作伙伴关系，将美国光连接制造能力提升十倍，并将光纤产量扩大50%以上，以支持下一代AI数据中心。
+中新社广州4月21日电 (记者 许青青)“南粤杏林·丝路同行”广州中医药大学与阿联酋、泰国高校2026年护理交换生项目21日在该校启动，来自阿联酋哈伊马角医药与健康科技大学、泰国孔敬大学的12名同学将在广州开展3周至1个月的交换学习生活。
 
-责任编辑：张俊 SF065
+据介绍，此次交换生项目以中医护理为核心，开设中医基础理论、中医饮食调护、经络腧穴等理论课程，提供耳穴贴压、艾灸、刮痧、针灸、八段锦等中医特色实操体验。
+
+除了理论和实操体验，项目还将安排交换生赴粤港澳大湾区多家三甲中医院开展临床见习，并融合中医药文化研学、非遗手作体验与志愿服务。
+
+广州中医药大学副校长郭鸿介绍，广州中医药大学长期致力于推动中医药走向世界，国际合作网络成熟，目前已为全球110多个国家和地区培养两万余名中医药高端人才。
+
+学校将以此交换生项目为纽带，深化人才联合培养、课程资源共享、师资双向交流，推动中医护理服务共建“一带一路”国家民众健康福祉。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:21 - [受AI热潮提振，日经指数或将上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:21 - [六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:17 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:16 - [卓越教育集团获Soarise Bulex Limited增持139.5万股 每股作价3.19港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:34 - [龙元建设：400亿PPP资产或将“冰山解冻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:38 - [FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:13 - [A股强势突破，创逾10年新高，科技成长板块领涨全场！| 华宝基金3A日报（2026.5.11）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:17 - [伊朗外长与沙特外交大臣讨论美伊外交进程最新进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:37 - [香港将设“AI+与产业发展策略委员会” 聚焦具身智能推动产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:32 - [四川携手重庆协同提升“双圈”能级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:41 - [剂泰科技港股上市在即：AI制药三小龙会师港股 贝莱德领衔基石 2025年收入增长靠首付款 长期仍具不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:13 - [习近平会见文莱王储比拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:20 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:17 - [康特隆：呈请人撤回对附属公司的清盘呈请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:47 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:43 - [外资转向加仓中国资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:34 - [河北辛集：70米长臂灌溉机器人助力春灌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:43 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:22 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:44 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:26 - [四川2025年高价值发明专利拥有量达7.79万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:33 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:25 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:25 - [全民阅读活动周 各地举办多场活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:20 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:40 - [合并助力建筑公司CannonDesign实现全球布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:39 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:18 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:16 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](http://www.share.minike.top/Article/details/91894084184.shtml)
-- 2026-06-29 12:32 - [双向奔赴！两岸媒体人镜头里的和平与相融](http://www.share.kurohicncr.top/Article/details/583927.shtml)
-- 2026-06-29 12:30 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](http://www.share.kurohicncr.top/Article/details/83281872.shtml)
-- 2026-06-29 12:28 - [海地总理：安全状况导致该国大选无法于8月如期举行](http://www.share.kurohicncr.top/Article/details/81183260939.shtml)
-- 2026-06-29 12:41 - [厄瓜多尔前外长埃斯皮诺萨角逐下一任联合国秘书长](http://www.share.kurohicncr.top/Article/details/92604239.shtml)
-- 2026-06-29 12:22 - [大族数控午前大涨超15% PCB设备板块业绩高速增长](http://www.share.minike.top/Article/details/254799.shtml)
-- 2026-06-29 12:15 - [湖南残疾人代表讲述“追光”人生：梦想属于每一个勇者](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：26名涉疫邮轮人员抵达荷兰接受安置](http://www.share.minike.top/Article/details/347291220902.shtml)
-- 2026-06-29 12:36 - [研究成果合集 | 表现力指数 • 2026商办暨资管卓越表现](http://www.share.kurohicncr.top/Article/details/2540895.shtml)
-- 2026-06-29 12:37 - [Monday.com大涨13%，此前公布一季度业绩全面超预期](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [因七腾机器人股价大涨四倍背后：胜通能源实际控制人豁免减持的股东会决议遭起诉 理由是应遵守减持规定](http://www.blog.kurohicncr.top/Article/details/67777.shtml)
-- 2026-06-29 12:15 - [“盈尺清芬——清代花鸟画扇面展”在广西南宁开展](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [*ST沪科锁定退市，投资者索赔通道开启](http://www.share.kurohicncr.top/Article/details/36220.shtml)
-- 2026-06-29 12:36 - [开盘：美股周二低开 美国4月CPI创3年以来新高](http://www.blog.kurohicncr.top/Article/details/930752.shtml)
-- 2026-06-29 12:27 - [韩国前总统尹锡悦涉嫌免费收受舆论调查服务一案被求刑4年](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](http://www.blog.minike.top/Article/details/59330708.shtml)
+- 2026-06-29 12:45 - [贵州梵净山：夕阳映照落日如画](http://www.blog.minike.top/Article/details/736410132706.shtml)
+- 2026-06-29 12:34 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [4月22日央行开展60亿元7天期逆回购操作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](http://www.blog.kurohicncr.top/Article/details/189940135759.shtml)
+- 2026-06-29 12:37 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](http://www.share.kurohicncr.top/Article/details/2225500.shtml)
+- 2026-06-29 12:37 - [广西交易团“智”造出海出圈 广交会斩获颇丰](http://www.share.minike.top/Article/details/37345765.shtml)
+- 2026-06-29 12:31 - [第六届亚洲沙滩运动会迎来首个比赛日](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [日本“再军事化”动作持续引发日本民众大规模抗议](http://www.share.minike.top/Article/details/284243366.shtml)
+- 2026-06-29 12:21 - [中芯国际获南向资金连续3天净买入](http://www.share.kurohicncr.top/Article/details/204296023.shtml)
+- 2026-06-29 12:26 - [一场展览，看香港工程的过去与未来](http://www.share.minike.top/Article/details/6052263.shtml)
+- 2026-06-29 12:28 - [伊朗拒绝出席谈判 美国宣布延长停火](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.share.minike.top/Article/details/54629533083.shtml)
+- 2026-06-29 12:44 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](http://www.blog.kurohicncr.top/Article/details/93836.shtml)
+- 2026-06-29 12:25 - [克里夫兰-克利夫斯CEO：与浦项制铁的交易“不再急于求成”](http://www.share.kurohicncr.top/Article/details/754701314032.shtml)

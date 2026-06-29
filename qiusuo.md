@@ -1,60 +1,56 @@
-# 【星访谈】蒋龙：《10间敢死队》是我的“表演考试” 喜剧分寸要“润物细无声”
+# 以树为媒、以情为桥 京藏少年“共植同心树”
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 19:17 来源：中国新闻网 五一档影片《10间敢死队》正在上映。影片讲述了护工章小兵，与一群身患绝症却不甘向命运低头的病友组成“敢死队”，在生命最后的时光里，完成心愿的故事。主演蒋龙近日接受中新社记者专访。从《一年一度喜剧大赛》的舞台被观众认识，到担纲大银幕主角，蒋龙迎来了自己的“高光时刻”，但依旧坦言自己“压力很大”。与倪大红、田雨等前辈演
+中新网北京4月22日电 4月20日清晨，中国宋庆龄青少年科技文化交流中心旁的宋庆龄儿童科学公园里，欢声笑语打破了宁静。来自西藏山南的50名青少年与北京市羊坊店第四小学的50名小伙伴，两两结对、携手并肩，一场以“共植同心树”为主题的实践活动，在这里开启。 “你好！我叫旦增美朵，来自山南，我带来的是藏戏面具纹饰的挂件，白色象征着纯洁与善良。”“我叫潘宥曦，我想把这本带有故宫和天坛图
 
 ## 正文
 
-发布时间：2026年05月12日 19:17 来源：中国新闻网 五一档影片《10间敢死队》正在上映。
+中新网北京4月22日电 4月20日清晨，中国宋庆龄青少年科技文化交流中心旁的宋庆龄儿童科学公园里，欢声笑语打破了宁静。
 
-影片讲述了护工章小兵，与一群身患绝症却不甘向命运低头的病友组成“敢死队”，在生命最后的时光里，完成心愿的故事。
+来自西藏山南的50名青少年与北京市羊坊店第四小学的50名小伙伴，两两结对、携手并肩，一场以“共植同心树”为主题的实践活动，在这里开启。
 
-主演蒋龙近日接受中新社记者专访。
+“你好！
 
-从《一年一度喜剧大赛》的舞台被观众认识，到担纲大银幕主角，蒋龙迎来了自己的“高光时刻”，但依旧坦言自己“压力很大”。
+我叫旦增美朵，来自山南，我带来的是藏戏面具纹饰的挂件，白色象征着纯洁与善良。
 
-与倪大红、田雨等前辈演员对戏，现场有哪些即兴发挥？
+”“我叫潘宥曦，我想把这本带有故宫和天坛图样的笔记本送给你，咱们等会儿一起种一棵最壮的树吧！
 
-喜剧的分寸如何把握？
+”原本略显生疏的小伙伴们，带着腼腆的笑容主动打招呼、一起跳锅庄舞，互赠心意。
 
-来看本期《星访谈》。
+领取工具、扶正苗木、挥锹培土、浇水灌溉……植树现场，小小的身影忙碌又认真。
 
-董语飞 林倬安 北京报道 责任编辑：【刘湃】
+大家分工明确、配合默契。
 
 ## 相关推荐
 
-- 2026-06-29 12:26 - [（文化中国行）从织机到云端：新疆艾德莱斯绸的“数字蝶变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:33 - [今年前4个月全国食品贸易进出口同比增长6.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:12 - [男子施工时坠崖身亡 仅口头约定雇佣方该担何责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:32 - [OpenAI推出“Daybreak”网络安全倡议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:24 - [白酒年报| 白酒行业整体盈利能力下滑 酒鬼酒亏损、水井坊、洋河股份净利润降幅超60%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:35 - [高油价阴云笼罩！日本20年期国债收益率创近30年新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:28 - [塔吉克斯坦总统拉赫蒙向人民英雄纪念碑敬献花圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:15 - [“人工胚胎”首次进入太空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:34 - [三峡水库去冬今春枯水期累计补水超百亿立方米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:21 - [消费者愈发“节俭”，Sally Beauty股价转跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:39 - [业内人士：美以对伊战争将刺激投资和多元化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:32 - [原油：油价上涨 特朗普称美伊停火岌岌可危](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:37 - [截至5月7日当周美国大豆出口检验量为655294吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:13 - [拉萨市民族工作干部铸牢中华民族共同体意识专题培训班在北京开班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:25 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:25 - [*ST太和（605081）立案调查+监管！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:20 - [奋进“十五五” 实干挑大梁——“中国经济圆桌会”共话经济大省担当与作为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:40 - [关键时期推进 R2 电动汽车上市之际，Rivian工厂遭龙卷风破坏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:31 - [特朗普在美国中期选举前已囤积5.5亿美元竞选资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:24 - [中国空军接迎志愿军烈士遗骸回国：运-20B首次飞出国门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:44 - [暴雨蓝色预警：7省区部分地区有大到暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:44 - [巴西糖厂面临全球冲突带来的利润挤压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:36 - [IPO前因《蓝皮书》疑遭行业协会批评，背后护家科技一年花10亿做推广](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:36 - [欧洲和美国3月份公司违约率上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:40 - [“AI水果”“酱板鸭”火到台湾 业者盼拓展两岸微短剧合作](http://www.share.kurohicncr.top/Article/details/36891.shtml)
-- 2026-06-29 12:37 - [关注俄乌冲突：俄乌互指对方违反停火 并称作出对等回应](http://www.blog.minike.top/Article/details/98521046.shtml)
-- 2026-06-29 12:22 - [枪声震天！直击武警官兵实战化射击超燃瞬间](http://www.share.minike.top/Article/details/760784800.shtml)
-- 2026-06-29 12:13 - [韩国官员称以AI收益发放公民红利的言论仅代表发言者个人观点](http://www.share.kurohicncr.top/Article/details/650511429.shtml)
-- 2026-06-29 12:40 - [拒绝伊朗回应 美方称停火“有效但脆弱”](http://www.share.minike.top/Article/details/15070.shtml)
-- 2026-06-29 12:18 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.share.kurohicncr.top/Article/details/001455753.shtml)
-- 2026-06-29 12:17 - [加密货币立法再遇阻碍：工会阵营出面反对](http://www.blog.kurohicncr.top/Article/details/033606172.shtml)
-- 2026-06-29 12:32 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](http://www.share.minike.top/Article/details/93999589806.shtml)
-- 2026-06-29 12:39 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](http://www.blog.minike.top/Article/details/4463626365.shtml)
-- 2026-06-29 12:38 - [Meta因虚假广告面临审查](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [台湾青年在抗震烈士塑像前落泪：这就是抛头颅洒热血的救灾精神](http://www.blog.kurohicncr.top/Article/details/41969.shtml)
-- 2026-06-29 12:26 - [微视频｜总书记引领美丽中国建设迈出新步伐](http://www.blog.minike.top/Article/details/560472.shtml)
-- 2026-06-29 12:31 - [水口海关关于开展2026年5月份“关长接待日”的公告](http://www.share.kurohicncr.top/Article/details/5145003.shtml)
-- 2026-06-29 12:36 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](http://www.share.minike.top/Article/details/8839881.shtml)
-- 2026-06-29 12:27 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](http://www.blog.kurohicncr.top/Article/details/31792396.shtml)
+- 2026-06-29 12:20 - [特朗普称将“记住”不申请关税退款的公司](http://www.blog.kurohicncr.top/Article/details/09838807307.shtml)
+- 2026-06-29 12:44 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](http://www.blog.kurohicncr.top/Article/details/838537.shtml)
+- 2026-06-29 12:28 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](http://www.share.minike.top/Article/details/965253261652.shtml)
+- 2026-06-29 12:47 - [摩根士丹利下调黄金前景预期](http://www.share.kurohicncr.top/Article/details/845617523.shtml)
+- 2026-06-29 12:45 - [花6000元打玻尿酸出现动脉栓塞，医美消费前这一步能救命](http://www.share.minike.top/Article/details/92288119096.shtml)
+- 2026-06-29 12:31 - [一季度公募规模增长TOP30：景顺长城增542亿居首，永赢、国泰增超300亿，华商、安信环比增长超20%](http://www.blog.kurohicncr.top/Article/details/12242202518.shtml)
+- 2026-06-29 12:35 - [瞄准、击发 直击官兵轻武器实弹射击训练](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [“双20”五机编队列阵长空 以最高礼仪告慰先烈](http://www.share.minike.top/Article/details/1728770667.shtml)
+- 2026-06-29 12:31 - [视频丨演唱会门票、车票都能用！小小票根联动激活假日经济](http://www.blog.kurohicncr.top/Article/details/52106794852.shtml)
+- 2026-06-29 12:31 - [美伊停火最后24小时口水战升级，和平仍存一线希望](http://www.share.kurohicncr.top/Article/details/931581168230.shtml)
+- 2026-06-29 12:44 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [牧原股份一季度净亏损12.15亿元，同比转亏](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [每一帧都很治愈，你读书的样子真好看！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [长江有色：22日铸造铝期价微涨0.15% 下游入市采购谨慎](http://www.blog.kurohicncr.top/Article/details/853919272819.shtml)
+- 2026-06-29 12:41 - [GTC泽汇:北欧黄金并购加速布局](http://www.share.minike.top/Article/details/50258074.shtml)

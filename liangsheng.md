@@ -1,58 +1,57 @@
-# 习近平会见文莱王储比拉
+# 合并助力建筑公司CannonDesign实现全球布局
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-新华社北京5月12日电(记者温馨)5月12日下午，国家主席习近平在北京人民大会堂会见来华进行正式访问的文莱王储比拉。 习近平指出，中国和文莱是亲密邻邦，海上丝绸之路将两国紧紧联系在一起。中文合作不仅给两国人民带来实实在在利益，也树立了大小国家平等相待、合作共赢的典范。去年我同哈桑纳尔苏丹就构建中文命运共同体达成重要共识，开启双边关系崭新篇章。今年是中文建交35周年。面对变乱交织
+美国建筑公司CannonDesign宣布收购知名建筑事务所Ennead Architects，此次合并将显著扩大其全球业务版图，增强在文化、外交等领域的项目竞争力。 根据4月20日公布的交易条款，拥有约160名员工的Ennead将作为“独立工作室”并入CannonDesign，并保留“Ennead， a CannonDesign company”的品牌身份。其位于纽约、洛杉矶和
 
 ## 正文
 
-新华社北京5月12日电(记者温馨)5月12日下午，国家主席习近平在北京人民大会堂会见来华进行正式访问的文莱王储比拉。
+美国建筑公司CannonDesign宣布收购知名建筑事务所Ennead Architects，此次合并将显著扩大其全球业务版图，增强在文化、外交等领域的项目竞争力。
 
-习近平指出，中国和文莱是亲密邻邦，海上丝绸之路将两国紧紧联系在一起。
+根据4月20日公布的交易条款，拥有约160名员工的Ennead将作为“独立工作室”并入CannonDesign，并保留“Ennead， a CannonDesign company”的品牌身份。
 
-中文合作不仅给两国人民带来实实在在利益，也树立了大小国家平等相待、合作共赢的典范。
+其位于纽约、洛杉矶和上海的工作室将继续运营。
 
-去年我同哈桑纳尔苏丹就构建中文命运共同体达成重要共识，开启双边关系崭新篇章。
+交易完成后，Ennead合伙人将成为CannonDesign员工持股计划中的新所有者。
 
-今年是中文建交35周年。
+CannonDesign首席执行官表示，两家公司拥有共同的愿景，致力于通过精心设计的城市、公共空间改善社区生活，此次合并是“水到渠成”的结果。
 
-面对变乱交织的国际形势，双方要以构建中文命运共同体为引领，加强战略沟通，深化务实合作，为地区和平稳定注入更多正能量。
+Ennead设计合伙人指出，合并后Ennead可以借助CannonDesign在医疗规划、技术等领域的庞大资源，为客户提供“一站式”服务。
 
-习近平强调，今年是中国“十五五”开局之年，文莱正朝着“2035宏愿”奋进，双方要以此为契合点，推动中文合作迈上新台阶。
+Ennead Architects由詹姆斯·波尔舍克于1963年创立，前身为波尔舍克合伙事务所，2010年更名为Ennead。
 
-一是要做高度互信的战略伙伴，继续坚定相互支持，统筹推进各领域交流合作。
+代表作品包括纽约自然历史博物馆罗斯地球与太空中心、中央公园德拉科特剧院等文化地标。
 
 ## 相关推荐
 
-- 2026-06-29 12:39 - [特斯拉将向德国工厂注资2.5亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:29 - [美国4月通胀升至3.8%，美国人薪资购买力遭侵蚀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:31 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:22 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:17 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:25 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:39 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:14 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:34 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:29 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:21 - [2026基金投资，这款APP对新手特别友好！值得拥有！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:19 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:30 - [人民币兑美元中间价报6.8635，下调41点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:43 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:18 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:21 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:47 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:31 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:25 - [重回4100点！A股三大指数午后集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:40 - [学习新语｜山河永念 英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:22 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:35 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:33 - [广西仫佬山乡：多彩民俗展风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:23 - [第四届老山国际春茶节专场活动在云南麻栗坡举行](http://www.blog.kurohicncr.top/Article/details/2531792.shtml)
-- 2026-06-29 12:34 - [委内瑞拉代总统否认该国将成为美国“第51州”](http://www.share.minike.top/Article/details/2298022562.shtml)
-- 2026-06-29 12:33 - [简化程序而非自动归还 流落法国的各国文物何时“回家”？](http://www.blog.kurohicncr.top/Article/details/47544936816.shtml)
-- 2026-06-29 12:34 - [上海：“乘物游心”书画联展对公众开放](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [唐纳德·特朗普称伊朗停火协议已经岌岌可危](http://www.blog.minike.top/Article/details/228949.shtml)
-- 2026-06-29 12:15 - [文远知行-W午前涨超4% 中信建投维持“买入”评级](http://www.share.kurohicncr.top/Article/details/0333806759.shtml)
-- 2026-06-29 12:27 - [专家：警惕日本极右翼“借尸还魂” 中国将坚决遏制其妄动](http://www.share.minike.top/Article/details/303729851708.shtml)
-- 2026-06-29 12:14 - [5月13日人民币对美元中间价报6.8431元 下调5个基点](http://www.blog.kurohicncr.top/Article/details/2801802.shtml)
-- 2026-06-29 12:24 - [华媒探访南宁微短剧产业：AI 赋能“出海” 光影联通东盟](http://www.share.kurohicncr.top/Article/details/874682860.shtml)
-- 2026-06-29 12:21 - [REF HOLDINGS拟折让约19.82%配售最多5120万股 净筹约2271万港元](http://www.share.minike.top/Article/details/1644614.shtml)
-- 2026-06-29 12:16 - [中英“乒乓外交”55周年纪念活动在伦敦举行](http://www.blog.kurohicncr.top/Article/details/433229188396.shtml)
-- 2026-06-29 12:28 - [门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号](http://www.blog.kurohicncr.top/Article/details/568057090.shtml)
-- 2026-06-29 12:33 - [黑龙江第45届爱鸟周启动 东林校地联动守护飞羽精灵](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [华泰期货：原油市场处于暴风雨前的平静](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [习近平同塔吉克斯坦总统拉赫蒙会谈](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [纷美包装发布2025年度业绩 股东应占溢利5274.8万元同比下降80.5%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [4月21日“农产品批发价格200指数”比昨天上升0.10个点](http://www.blog.kurohicncr.top/Article/details/8737509643.shtml)
+- 2026-06-29 12:24 - [50余位海内外台胞台商齐聚海南 共探自贸港新机遇](http://www.share.kurohicncr.top/Article/details/291208719614.shtml)
+- 2026-06-29 12:36 - [一季度消费市场平稳增长 升级态势持续显现](http://www.blog.minike.top/Article/details/64929621.shtml)
+- 2026-06-29 12:34 - [日本气象厅解除对所有地区的海啸预警](http://www.share.kurohicncr.top/Article/details/91886.shtml)
+- 2026-06-29 12:39 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](http://www.share.kurohicncr.top/Article/details/2221084.shtml)
+- 2026-06-29 12:29 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](http://www.blog.minike.top/Article/details/56993.shtml)
+- 2026-06-29 12:18 - [供奉祭品后，高市早苗又向靖国神社供奉“玉串料”](http://www.blog.minike.top/Article/details/346972.shtml)
+- 2026-06-29 12:31 - [库克亮相苹果员工大会 试图平息外界对卸任CEO原因的猜测](http://www.share.minike.top/Article/details/83022629136.shtml)
+- 2026-06-29 12:20 - [南华期货：第一季度净利润同比增长138.82%](http://www.share.minike.top/Article/details/47772379.shtml)
+- 2026-06-29 12:36 - [紫金黄金国际第一季度实现归母净利润约8.07亿美元 同比增长约385.48%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [太和水（605081）再被立案，股民索赔可期](http://www.blog.minike.top/Article/details/191268.shtml)
+- 2026-06-29 12:30 - [拍照识字、自动翻译 探索打开古籍的N种方式](http://www.share.minike.top/Article/details/659799681.shtml)
+- 2026-06-29 12:20 - [特朗普称预计停火到期后将继续轰炸伊朗](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [中国长安朱华荣：汽车产业必须打破边界、跨界融合，从“制造”向“生态”跃迁](http://www.blog.minike.top/Article/details/68458329.shtml)

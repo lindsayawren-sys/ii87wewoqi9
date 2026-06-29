@@ -1,48 +1,57 @@
-# 中新健康｜医生提醒：体重正常但肚子大更危险
+# 特朗普：我会记住不寻求退还关税的公司
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 22:02 来源：中国新闻网 中国中医科学院西苑医院肝病科主任医师张引强在接受中新健康采访时指出，临床上更应关注“肚子大”的人群。这类人往往四肢纤细，看似正常，实则是腹型肥胖，临床上属于“瘦型脂肪肝”范畴。(赵方园 武思涵) 责任编辑：【岳川】
+中新网4月22日电 据美国消费者新闻与商业频道(CNBC)报道，美国总统特朗普当地时间21日表示，他将感激地“记住”那些没有寻求退还关税的美国公司。 报道称，美国海关和边境保护局20日已启动根据美国《国际紧急经济权力法》所收关税的第一阶段退款工作，进口商可以申请退还关税。 报道称，包括苹果以及亚马逊等公司尚未申请退还已缴纳的关税，可能是因为他们担心“冒犯”特朗普。 特朗普在接受
 
 ## 正文
 
-发布时间：2026年05月11日 22:02 来源：中国新闻网 中国中医科学院西苑医院肝病科主任医师张引强在接受中新健康采访时指出，临床上更应关注“肚子大”的人群。
+中新网4月22日电 据美国消费者新闻与商业频道(CNBC)报道，美国总统特朗普当地时间21日表示，他将感激地“记住”那些没有寻求退还关税的美国公司。
 
-这类人往往四肢纤细，看似正常，实则是腹型肥胖，临床上属于“瘦型脂肪肝”范畴。
+报道称，美国海关和边境保护局20日已启动根据美国《国际紧急经济权力法》所收关税的第一阶段退款工作，进口商可以申请退还关税。
 
-(赵方园 武思涵) 责任编辑：【岳川】
+报道称，包括苹果以及亚马逊等公司尚未申请退还已缴纳的关税，可能是因为他们担心“冒犯”特朗普。
+
+特朗普在接受采访时表示：“如果他们不寻求退还关税，那就太好了。
+
+如果他们不这样做，我会记住他们的。
+
+”他还提到，“如果他们不这么做，说明他们非常了解我。
+
+”特朗普再次抱怨最高法院以6比3的投票结果“废除了”这些关税：“说实话，我对最高法院并不满意。
+
+” 据此前报道，随着美国最高法院判定特朗普政府依据《国际紧急经济权力法》加征的关税违法，美方将不得不退还高达1660亿美元的巨额关税。
 
 ## 相关推荐
 
-- 2026-06-29 12:33 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:23 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:18 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:15 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:40 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:18 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:21 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:13 - [2026基金投资，这款APP对新手特别友好！值得拥有！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:16 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:20 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:26 - [一见·中美两个“大块头”如何相处？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:41 - [新型“职业闭店人”骗局调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:42 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:39 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:18 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:26 - [重回4100点！A股三大指数午后集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:26 - [学习新语｜山河永念 英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:34 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:24 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:46 - [广西仫佬山乡：多彩民俗展风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:41 - [乌力格尔：蒙古族说唱里的一部民族交融史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:32 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:26 - [日本放宽武器出口限制引发各界批评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:14 - [上海：“乘物游心”书画联展对公众开放](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [唐纳德·特朗普称伊朗停火协议已经岌岌可危](http://www.share.kurohicncr.top/Article/details/3514910.shtml)
-- 2026-06-29 12:30 - [文远知行-W午前涨超4% 中信建投维持“买入”评级](http://www.share.kurohicncr.top/Article/details/33577.shtml)
-- 2026-06-29 12:31 - [专家：警惕日本极右翼“借尸还魂” 中国将坚决遏制其妄动](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [5月13日人民币对美元中间价报6.8431元 下调5个基点](http://www.blog.kurohicncr.top/Article/details/009414283.shtml)
-- 2026-06-29 12:34 - [华媒探访南宁微短剧产业：AI 赋能“出海” 光影联通东盟](http://www.share.minike.top/Article/details/927693417386.shtml)
-- 2026-06-29 12:39 - [REF HOLDINGS拟折让约19.82%配售最多5120万股 净筹约2271万港元](http://www.share.minike.top/Article/details/78143532959.shtml)
-- 2026-06-29 12:17 - [中英“乒乓外交”55周年纪念活动在伦敦举行](http://www.share.kurohicncr.top/Article/details/76406183.shtml)
-- 2026-06-29 12:28 - [门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号](http://www.share.minike.top/Article/details/595660785.shtml)
-- 2026-06-29 12:40 - [黑龙江第45届爱鸟周启动 东林校地联动守护飞羽精灵](http://www.blog.kurohicncr.top/Article/details/9390279915.shtml)
-- 2026-06-29 12:33 - [华泰期货：原油市场处于暴风雨前的平静](http://www.blog.kurohicncr.top/Article/details/004379955.shtml)
-- 2026-06-29 12:12 - [习近平同塔吉克斯坦总统拉赫蒙会谈](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [张凌赫、刘宇宁受欢迎 台演艺界人士说“非常希望请到台湾演出”](http://www.share.kurohicncr.top/Article/details/559495.shtml)
-- 2026-06-29 12:18 - [国产算力爆发，新手怎么布局？一次讲清芯片产业链四只指数](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [国产芯片彻底爆发，3000亿存储巨头狂飙！华宝基金科创芯片ETF（589190）上探6.5%再创新高，行情到哪了？](http://www.blog.kurohicncr.top/Article/details/005268771.shtml)
+- 2026-06-29 12:47 - [一季度消费市场平稳增长 升级态势持续显现](http://www.blog.minike.top/Article/details/28999752.shtml)
+- 2026-06-29 12:35 - [日本气象厅解除对所有地区的海啸预警](http://www.blog.kurohicncr.top/Article/details/5616714150.shtml)
+- 2026-06-29 12:44 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](http://www.blog.minike.top/Article/details/8322160.shtml)
+- 2026-06-29 12:18 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [供奉祭品后，高市早苗又向靖国神社供奉“玉串料”](http://www.blog.minike.top/Article/details/512621906716.shtml)
+- 2026-06-29 12:42 - [库克亮相苹果员工大会 试图平息外界对卸任CEO原因的猜测](http://www.blog.minike.top/Article/details/4931819.shtml)
+- 2026-06-29 12:24 - [南华期货：第一季度净利润同比增长138.82%](http://www.share.kurohicncr.top/Article/details/58774003407.shtml)
+- 2026-06-29 12:20 - [紫金黄金国际第一季度实现归母净利润约8.07亿美元 同比增长约385.48%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [太和水（605081）再被立案，股民索赔可期](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [拍照识字、自动翻译 探索打开古籍的N种方式](http://www.share.minike.top/Article/details/6997568.shtml)
+- 2026-06-29 12:28 - [特朗普称预计停火到期后将继续轰炸伊朗](http://www.blog.minike.top/Article/details/76286184135.shtml)
+- 2026-06-29 12:45 - [中国长安朱华荣：汽车产业必须打破边界、跨界融合，从“制造”向“生态”跃迁](http://www.blog.kurohicncr.top/Article/details/938010.shtml)
+- 2026-06-29 12:43 - [先锋集团逆势加仓美债：4.25%以上收益率即是“黄金坑”，押注美联储今年降息](http://www.share.kurohicncr.top/Article/details/7565855.shtml)
+- 2026-06-29 12:44 - [研究显示，伊朗战争引发的燃油价格上涨使长途航班成本增加100美元](http://www.share.kurohicncr.top/Article/details/812409554.shtml)
+- 2026-06-29 12:31 - [吉林法院2025年审结各类知识产权案4342件](http://www.share.kurohicncr.top/Article/details/2509980.shtml)

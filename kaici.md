@@ -1,59 +1,58 @@
-# 前4个月柬埔寨国际贸易额同比增长19.9%
+# 铁路部门开行14趟“书香列车” 丰富全民阅读体验
 
-> 更新时间：2026-06-29 12:42:04 UTC+8
+> 更新时间：2026-06-29 12:48:04 UTC+8
 
 ## 摘要
 
-中新社金边5月11日电(记者 杨强)柬埔寨海关总署当地时间11日发布的数据显示，今年1至4月，柬埔寨国际贸易总额达到233.8亿美元，同比增长19.9%。其中，出口总额为111.2亿美元，同比增长21.7%；进口总额为122.6亿美元，同比增长18.3%。最新统计数据显示，今年前4个月，中国继续稳居柬埔寨最大贸易伙伴地位。这一时期，柬中双边贸易额达到71.7亿美元，同比增长26
+中新网南昌4月21日电 (刘力鑫 陈临燕 王梦婧子)G2319次“书香列车”车窗贴着阅读主题窗花，座椅头枕巾上印着电子阅读二维码；高铁站“书香驿站”内摆放着各类优质图书......4月20日至22日，第五届全民阅读大会在江西南昌举办。为深入服务本届全民阅读大会，铁路部门开行了14趟“书香列车”，并在南昌西、萍乡北等车站精心打造了“书香驿站”。 21日上午，登上由南昌西站开往成都
 
 ## 正文
 
-中新社金边5月11日电(记者 杨强)柬埔寨海关总署当地时间11日发布的数据显示，今年1至4月，柬埔寨国际贸易总额达到233.8亿美元，同比增长19.9%。
+中新网南昌4月21日电 (刘力鑫 陈临燕 王梦婧子)G2319次“书香列车”车窗贴着阅读主题窗花，座椅头枕巾上印着电子阅读二维码；高铁站“书香驿站”内摆放着各类优质图书......4月20日至22日，第五届全民阅读大会在江西南昌举办。
 
-其中，出口总额为111.2亿美元，同比增长21.7%；进口总额为122.6亿美元，同比增长18.3%。
+为深入服务本届全民阅读大会，铁路部门开行了14趟“书香列车”，并在南昌西、萍乡北等车站精心打造了“书香驿站”。
 
-最新统计数据显示，今年前4个月，中国继续稳居柬埔寨最大贸易伙伴地位。
+21日上午，登上由南昌西站开往成都东站的G2319次列车，只见车体、车窗、车门等处均张贴有全民阅读主题相关的宣传标语，座椅头枕巾和小桌板则印有“书香铁路”电子阅读二维码，旅客扫码即可免费畅读海量电子书；餐吧台专设“读书角”，提供实体书籍免费借阅服务。
 
-这一时期，柬中双边贸易额达到71.7亿美元，同比增长26%。
+“我们列车依托铁路‘悦’读好书榜、江西出版精品书目及旅客阅读偏好，定期更新补充图书资源。
 
-美国为柬埔寨第二大贸易伙伴，今年前4个月，柬美贸易额达46.6亿美元，同比增长41.3%。
+线上阅读平台也已汇聚超万册电子图书。
 
-越南为柬第三大贸易伙伴，今年前4个月，柬越贸易额达33.65亿美元，同比增长4.3%。
+通过线上线下二者结合，打造‘纸质阅读+数字阅读’双载体场景，全面满足不同年龄段旅客的多样化阅读需求，真正实现‘一书一世界，一程一风景’的沉浸式阅读体验。
 
-此外，日本、泰国、新加坡、马来西亚、印度尼西亚等国家亦为柬埔寨重要贸易伙伴。
+”G2319次列车长燕珍珍说。
 
-其中，柬埔寨与新加坡今年前4个月双边贸易额达7.75亿美元，同比大幅增长220.8%。
+在开行“书香列车”的同时，铁路部门还在南昌西、萍乡北等车站，精心打造第五届全民阅读大会“书香驿站”，在候车区设置读书角和自助借书柜，投放各类优秀图书，让旅客在候车间隙轻松邂逅书香。
 
 ## 相关推荐
 
-- 2026-06-29 12:12 - [Brookfield拟向OpenAI部署平台投资5亿美元，加速AI从试点走向规模化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:41 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:29 - [5月13日热门中概股多数下跌 奇景光电跌7.46%，金山云跌6.36%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:31 - [获刑十三年！荐股“杀猪盘”被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:33 - [再鼎医药盘中涨超5% zoci获FDA快速通道资格认定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:17 - [民调指超半数台湾女性担忧男性亲属需上战场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:41 - [（文化中国行）从织机到云端：新疆艾德莱斯绸的“数字蝶变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:36 - [今年前4个月全国食品贸易进出口同比增长6.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:34 - [男子施工时坠崖身亡 仅口头约定雇佣方该担何责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:19 - [OpenAI推出“Daybreak”网络安全倡议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:27 - [白酒年报| 白酒行业整体盈利能力下滑 酒鬼酒亏损、水井坊、洋河股份净利润降幅超60%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:25 - [高油价阴云笼罩！日本20年期国债收益率创近30年新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:14 - [塔吉克斯坦总统拉赫蒙向人民英雄纪念碑敬献花圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:32 - [国内油价，今年首次下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:40 - [日经指数上涨0.9% 受电子和科技股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:33 - [别再问“周末过得怎么样？” 公共演讲专家建议这样做：“不必刻意深刻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:22 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:32 - [酒价内参4月22日价格发布：国窖1573上涨5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:40 - [刘海星会见孟加拉国民族主义党高级干部考察团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:33 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:36 - [*ST太和（605081）立案调查+监管！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:24 - [奋进“十五五” 实干挑大梁——“中国经济圆桌会”共话经济大省担当与作为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:31 - [关键时期推进 R2 电动汽车上市之际，Rivian工厂遭龙卷风破坏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:29 - [特朗普在美国中期选举前已囤积5.5亿美元竞选资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:38 - [中国空军接迎志愿军烈士遗骸回国：运-20B首次飞出国门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [Fugro获得苏格兰海上风电场勘测合同](http://www.share.kurohicncr.top/Article/details/9092914.shtml)
-- 2026-06-29 12:30 - [2026金砖国家工业创新大赛决赛在厦门开幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [“小童装”奔赴大市场 浙江织里“全球揽客”拓外贸](http://www.share.kurohicncr.top/Article/details/62371637.shtml)
-- 2026-06-29 12:20 - [北京幸福东方剧院启幕 央地联手打造城市文化客厅](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [王毅同巴基斯坦副总理兼外长通电话](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [中国逊克口岸2026年明水期正式开关通航](http://www.share.kurohicncr.top/Article/details/63389.shtml)
-- 2026-06-29 12:38 - [“AI水果”“酱板鸭”火到台湾 业者盼拓展两岸微短剧合作](http://www.blog.minike.top/Article/details/058319.shtml)
-- 2026-06-29 12:14 - [关注俄乌冲突：俄乌互指对方违反停火 并称作出对等回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [枪声震天！直击武警官兵实战化射击超燃瞬间](http://www.blog.minike.top/Article/details/510454.shtml)
-- 2026-06-29 12:35 - [韩国官员称以AI收益发放公民红利的言论仅代表发言者个人观点](http://www.share.kurohicncr.top/Article/details/8885929.shtml)
-- 2026-06-29 12:39 - [拒绝伊朗回应 美方称停火“有效但脆弱”](http://www.share.kurohicncr.top/Article/details/33105581.shtml)
-- 2026-06-29 12:34 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.share.kurohicncr.top/Article/details/025795867596.shtml)
-- 2026-06-29 12:36 - [加密货币立法再遇阻碍：工会阵营出面反对](http://www.share.minike.top/Article/details/91623463.shtml)
-- 2026-06-29 12:31 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](http://www.blog.kurohicncr.top/Article/details/58683793.shtml)
-- 2026-06-29 12:28 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](http://www.blog.kurohicncr.top/Article/details/117292.shtml)
+- 2026-06-29 12:24 - [大美边疆看我家丨内蒙古敖汉：山野杏花 如霞似雪](http://www.share.minike.top/Article/details/6671307603.shtml)
+- 2026-06-29 12:29 - [诺比侃与浪潮智慧城市签订《战略合作框架协议书》](http://www.share.kurohicncr.top/Article/details/7797426599.shtml)
+- 2026-06-29 12:40 - [龙蟠科技拟1485万澳元收购位于澳大利亚的锂矿勘探租约及相关资产](http://www.blog.kurohicncr.top/Article/details/790340099.shtml)
+- 2026-06-29 12:41 - [智达藏语大模型及系列应用产品成果发布](http://www.share.minike.top/Article/details/7380097.shtml)
+- 2026-06-29 12:30 - [法国官方宣布财政节支措施以应对中东局势](http://www.blog.kurohicncr.top/Article/details/5775229048.shtml)
+- 2026-06-29 12:43 - [美国财长贝森特：财政部将继续对伊朗施压](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [特朗普称将“记住”不申请关税退款的公司](http://www.blog.minike.top/Article/details/63632.shtml)
+- 2026-06-29 12:32 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](http://www.share.kurohicncr.top/Article/details/948484494763.shtml)
+- 2026-06-29 12:28 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [摩根士丹利下调黄金前景预期](http://www.blog.minike.top/Article/details/67004352.shtml)
+- 2026-06-29 12:26 - [花6000元打玻尿酸出现动脉栓塞，医美消费前这一步能救命](http://www.blog.minike.top/Article/details/4752806.shtml)
+- 2026-06-29 12:35 - [一季度公募规模增长TOP30：景顺长城增542亿居首，永赢、国泰增超300亿，华商、安信环比增长超20%](http://www.share.minike.top/Article/details/854413928.shtml)
+- 2026-06-29 12:38 - [瞄准、击发 直击官兵轻武器实弹射击训练](http://www.blog.kurohicncr.top/Article/details/8683054.shtml)
+- 2026-06-29 12:21 - [“双20”五机编队列阵长空 以最高礼仪告慰先烈](http://www.share.kurohicncr.top/Article/details/7844365088.shtml)
+- 2026-06-29 12:39 - [视频丨演唱会门票、车票都能用！小小票根联动激活假日经济](https://github.com/lisacumin64-arch)
