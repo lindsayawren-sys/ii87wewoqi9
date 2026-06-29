@@ -1,57 +1,56 @@
-# 欧洲股市下跌 壳牌领跌能源板块
+# 综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-欧洲股市下跌，能源股拖累大盘，壳牌在削减股票回购计划后下跌2.9%。 斯托克欧洲600指数收跌1.1%。财报方面，意大利烈酒制造商Davide Campari-Milano NV在营收增长不及预期后，股价大跌14%；意大利管道制造商特纳股份公司发布了谨慎的第二季度指引，公司股价下跌6.9%。 与此同时，波斯湾和黎巴嫩地区紧张局势仍然高企，美国正等待伊朗对重开霍尔木兹海峡并结束战
+新华社德黑兰/华盛顿4月21日电 伊斯兰堡第二轮美伊谈判能否在停火协议到期前举行，悬念在21日揭晓：伊朗方面当晚正式拒绝出席预期于22日在巴基斯坦伊斯兰堡举行的第二轮谈判；稍晚，美国总统特朗普宣布，应巴基斯坦方面请求，他同意延长美伊停火期限，直至伊朗方面提交其方案并完成相关磋商。 据伊朗塔斯尼姆通讯社报道，伊方认为，美国正在阻挠达成任何实质性协议，参与谈判纯属浪费时间。伊朗也通
 
 ## 正文
 
-欧洲股市下跌，能源股拖累大盘，壳牌在削减股票回购计划后下跌2.9%。
+新华社德黑兰/华盛顿4月21日电 伊斯兰堡第二轮美伊谈判能否在停火协议到期前举行，悬念在21日揭晓：伊朗方面当晚正式拒绝出席预期于22日在巴基斯坦伊斯兰堡举行的第二轮谈判；稍晚，美国总统特朗普宣布，应巴基斯坦方面请求，他同意延长美伊停火期限，直至伊朗方面提交其方案并完成相关磋商。
 
-斯托克欧洲600指数收跌1.1%。
+据伊朗塔斯尼姆通讯社报道，伊方认为，美国正在阻挠达成任何实质性协议，参与谈判纯属浪费时间。
 
-财报方面，意大利烈酒制造商Davide Campari-Milano NV在营收增长不及预期后，股价大跌14%；意大利管道制造商特纳股份公司发布了谨慎的第二季度指引，公司股价下跌6.9%。
+伊朗也通过巴基斯坦宣布其决定，表示为了充分维护伊朗人民权利，伊方代表团22日将不会前往巴基斯坦。
 
-与此同时，波斯湾和黎巴嫩地区紧张局势仍然高企，美国正等待伊朗对重开霍尔木兹海峡并结束战争提议的回应。
+特朗普政府重演“极限施压、临阵收手”的套路。
 
-预计德黑兰将在未来几天内给出答复。
+特朗普21日在社交媒体发表声明称，伊朗政府“内部已严重分裂”，并称在巴基斯坦领导人请求下，“我们被要求暂缓对伊朗发动进攻，直至其领导人及代表能够拿出一份意见一致的方案”。
 
-责任编辑：丁文武
+他同时指示美军继续对伊朗实施海上封锁并保持战备状态。
+
+当天早些时候，特朗普在接受美国媒体采访时还称，他不希望延长同伊朗的停火协议，美军已做好作战准备。
+
+此前，特朗普20日称，美国和伊朗两周停火将于“华盛顿时间22日晚”到期。
 
 ## 相关推荐
 
-- 2026-06-29 14:39 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 14:37 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 14:44 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 14:43 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 14:50 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 14:37 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 14:32 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 14:39 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 14:43 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 14:41 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 14:50 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 14:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 14:39 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 14:47 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 14:59 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 14:36 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 14:46 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 14:45 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 14:41 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 14:58 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 15:03 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 14:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 14:40 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 14:53 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 15:03 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:40 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/4610781797.shtml)
-- 2026-06-29 14:50 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/028696.shtml)
-- 2026-06-29 14:33 - [吴昕要助理买的药6年前已停产](http://www.share.minike.top/Article/details/497445.shtml)
-- 2026-06-29 14:41 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/5309565133.shtml)
-- 2026-06-29 14:56 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.minike.top/Article/details/503096.shtml)
-- 2026-06-29 14:48 - [张一山回应与杨紫友情](https://www.blog.kurohicncr.top/Article/details/60548622136.shtml)
-- 2026-06-29 14:46 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/3589464029.shtml)
-- 2026-06-29 14:34 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.minike.top/Article/details/176744.shtml)
-- 2026-06-29 14:46 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/1292574456.shtml)
-- 2026-06-29 14:34 - [急先锋](https://www.blog.minike.top/Article/details/18730201.shtml)
-- 2026-06-29 14:30 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/56312530.shtml)
-- 2026-06-29 14:42 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/220171.shtml)
-- 2026-06-29 14:53 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/83555871470.shtml)
-- 2026-06-29 14:37 - [俄称继续推进 乌称打击俄军设施](https://www.share.minike.top/Article/details/3152151549.shtml)
-- 2026-06-29 14:39 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/13222.shtml)
+- 2026-06-29 14:47 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/70149160.shtml)
+- 2026-06-29 14:44 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/325139630837.shtml)
+- 2026-06-29 14:41 - [乔家的儿女](http://www.share.minike.top/Article/details/213873.shtml)
+- 2026-06-29 14:44 - [欧委会总部只给高层开空调](http://www.share.kurohicncr.top/Article/details/451561680537.shtml)
+- 2026-06-29 14:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/45361079.shtml)
+- 2026-06-29 14:40 - [斗破苍穹](https://www.blog.minike.top/Article/details/239637.shtml)
+- 2026-06-29 14:52 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/1656931.shtml)
+- 2026-06-29 14:54 - [速度与激情9](http://www.blog.minike.top/Article/details/93349494221.shtml)
+- 2026-06-29 15:04 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.blog.minike.top/Article/details/02460750900.shtml)
+- 2026-06-29 14:40 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/1451774.shtml)
+- 2026-06-29 14:59 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/322539049.shtml)
+- 2026-06-29 14:37 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.minike.top/Article/details/372505826.shtml)
+- 2026-06-29 14:43 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/50127133681.shtml)
+- 2026-06-29 14:55 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/430516.shtml)
+- 2026-06-29 14:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/571216198.shtml)

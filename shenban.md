@@ -1,58 +1,61 @@
-# 中央气象台：全国农业气象影响预报与评估（2026年05月07日）
+# 中国应急管理部：四川、云南高火险天数已持续20余天
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-来源：中央气象台网站 8-11日南方抢晴开展夏收防范12-15日强降水影响 一、冬小麦、油菜生长状况和土壤墒情 目前，新疆、西北地区中部、华北北部局地冬小麦处于孕穗至抽穗开花期，西北地区东南部、华北南部、黄淮处于灌浆期，江淮、江汉处于灌浆乳熟期，西南地区大部处于成熟收获期；大部发育期接近常年或偏早3~10天。5月5日冬小麦长势遥感监测显示：与上年同期相比，冬小麦主产省大部以持平
+中新社北京4月22日电 (记者 陈溯 郭超凯)记者22日从中国应急管理部获悉，入春以来，南北方多地火险等级趋高，四川、云南高火险天数已持续20余天。 在当天举行的中国应急管理部新闻发布会上，应急管理部风险监测和火灾综合防治司副司长王月平表示，随着天气转暖，春耕生产、旅游踏青、施工作业等人为活动明显增多，各地林缘林内野外用火点多面广，火源管控难度进一步加大，森林草原火险形势日趋严
 
 ## 正文
 
-来源：中央气象台网站 8-11日南方抢晴开展夏收防范12-15日强降水影响 一、冬小麦、油菜生长状况和土壤墒情 目前，新疆、西北地区中部、华北北部局地冬小麦处于孕穗至抽穗开花期，西北地区东南部、华北南部、黄淮处于灌浆期，江淮、江汉处于灌浆乳熟期，西南地区大部处于成熟收获期；大部发育期接近常年或偏早3~10天。
+中新社北京4月22日电 (记者 陈溯 郭超凯)记者22日从中国应急管理部获悉，入春以来，南北方多地火险等级趋高，四川、云南高火险天数已持续20余天。
 
-5月5日冬小麦长势遥感监测显示：与上年同期相比，冬小麦主产省大部以持平或偏好为主（图1）。
+在当天举行的中国应急管理部新闻发布会上，应急管理部风险监测和火灾综合防治司副司长王月平表示，随着天气转暖，春耕生产、旅游踏青、施工作业等人为活动明显增多，各地林缘林内野外用火点多面广，火源管控难度进一步加大，森林草原火险形势日趋严峻复杂。
 
-长江中下游和西南地区大部油菜处于绿熟至成熟收获期，大部发育期接近常年或偏早3~7天。
+王月平表示，入春以来，南北方多地火险等级趋高，火灾时有发生，广东、广西、四川、云南均出现高火险等级，其中四川、云南高火险天数已持续20余天；北方地区春季降水少、升温快、大风天气多，北京、河北、内蒙古、辽宁、山东等地也都出现高火险等级，火险形势一度较为严峻。
 
-5月7日20厘米土壤水分监测结果表明，北方冬麦区大部土壤墒情适宜，利于冬小麦灌浆，仅河北西部、安徽中部等地部分地区土壤缺墒。
+“预计春季后期，华南、西南部分地区阶段性温高雨少，气象干旱有维持和发展的趋势，部分地区火险等级高。
 
-南方油菜产区大部墒情适宜，湖北南部、湖南大部土壤过湿，其中湖北东南部、湖南北部和中部等地低洼农田出现渍涝灾害（图2）。
+华北北部、东北大部植被尚未返青，随着气温升高、积雪消融、用火增多，将是火灾防范的重点。
 
-二、未来10天天气对冬小麦和油菜生产影响预估及建议 预计未来10天，北方冬麦区多晴好天气，大部气温较常年同期偏高1~3℃，日照充足，大部土壤墒情适宜，利于冬小麦灌浆乳熟。
+”王月平说。
 
-8日午后至9日，华北南部、黄淮普遍有3~4级风、阵风5级，大风和局地强对流可能造成冬小麦倒伏。
+据介绍，“五一”期间，华北、东北、华南、西南、西北等地还存在温高、雨少、风大等不利天气因素，可燃物处于易燃状态，加之节日期间各类出行需求强烈，旅游踏青等进山入林人员活动比较多，野外吸烟、野炊等违规用火易在短期内激增，火险形势不容乐观。
 
-11-14日，华北南部、黄淮及陕西关中等地气温上升明显，最高气温普遍达32℃，部分地区将出现阶段性35~37℃晴热高温天气，午后部分时段伴有2~3级风，将有干热风天气，部分麦田可能出现轻至中度冬小麦干热风灾害（图3），不利冬小麦灌浆。
+此外，东北、西南、西北的边境地区境外火防控压力持续较大。
 
 ## 相关推荐
 
-- 2026-06-29 14:47 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 14:32 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 14:59 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 14:50 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 14:39 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 14:44 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 14:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 14:44 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 14:55 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 14:59 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 14:39 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 14:50 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 14:44 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 14:58 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 14:42 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 14:44 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 14:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 14:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 14:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 14:37 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 14:39 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 15:04 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 14:44 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 14:56 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 15:00 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 14:53 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 14:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:59 - [海军舰艇编队将赴香港](http://www.share.minike.top/Article/details/34712300.shtml)
-- 2026-06-29 14:54 - [湖北钟祥市委书记张勇拟任新职](https://www.share.kurohicncr.top/Article/details/898122.shtml)
-- 2026-06-29 14:55 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/05321169.shtml)
-- 2026-06-29 14:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/26757301.shtml)
-- 2026-06-29 14:50 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/64542435811.shtml)
-- 2026-06-29 14:49 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/9524858.shtml)
-- 2026-06-29 14:48 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/94952172.shtml)
-- 2026-06-29 14:34 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/55994779.shtml)
-- 2026-06-29 14:39 - [世界杯欧美八大豪强悉数出线](https://www.blog.minike.top/Article/details/525660980.shtml)
-- 2026-06-29 14:35 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/14472.shtml)
-- 2026-06-29 14:33 - [当我回母校教书](http://www.share.minike.top/Article/details/612856261.shtml)
-- 2026-06-29 14:42 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/2255218.shtml)
-- 2026-06-29 14:41 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/983616.shtml)
-- 2026-06-29 14:41 - [普京：俄面临命运攸关时刻](https://www.blog.minike.top/Article/details/295967984.shtml)
-- 2026-06-29 14:33 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/51530323.shtml)
+- 2026-06-29 15:04 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/95758416.shtml)
+- 2026-06-29 15:05 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/63383495.shtml)
+- 2026-06-29 15:02 - [TOP 无畏契约](https://www.blog.minike.top/Article/details/2534315.shtml)
+- 2026-06-29 14:38 - [扬名立万](http://www.blog.minike.top/Article/details/21884191728.shtml)
+- 2026-06-29 15:01 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/74142098.shtml)
+- 2026-06-29 14:50 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/08829000.shtml)
+- 2026-06-29 14:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/7193672.shtml)
+- 2026-06-29 15:01 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/20087644.shtml)
+- 2026-06-29 14:53 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/20993101.shtml)
+- 2026-06-29 14:43 - [汪东城回应45岁婚约](https://www.share.minike.top/Article/details/3202595264.shtml)
+- 2026-06-29 14:48 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/44644961.shtml)
+- 2026-06-29 14:57 - [周深双眼皮贴又掉了](https://www.share.minike.top/Article/details/0529440.shtml)
+- 2026-06-29 15:00 - [实习期把公司领导开除了](http://www.blog.kurohicncr.top/Article/details/64615344552.shtml)
+- 2026-06-29 14:42 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/769013170215.shtml)
+- 2026-06-29 14:54 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/422852.shtml)

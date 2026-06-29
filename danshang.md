@@ -1,45 +1,44 @@
-# 白城医学高等专科学校原党委书记刘俊道接受审查调查
+# 马士基称霍尔木兹海峡仍处于“紧紧关闭”状态
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网5月7日电 据吉林省纪委监委消息：白城医学高等专科学校原党委书记刘俊道涉嫌严重违纪违法，主动向组织交代问题，目前正接受吉林省纪委监委纪律审查和监察调查。
+丹麦航运和物流公司马士基在致客户的最新通告中称，中东局势持续紧张，本周已有三艘集装箱船遭伊朗军队袭击，霍尔木兹海峡目前仍处于“紧紧关闭”状态。 这意味着受战争影响、位于海峡内的货物“将继续滞留在海上”及杰贝阿里（Jebel Ali）码头责任编辑：李安桐
 
 ## 正文
 
-中新网5月7日电 据吉林省纪委监委消息：白城医学高等专科学校原党委书记刘俊道涉嫌严重违纪违法，主动向组织交代问题，目前正接受吉林省纪委监委纪律审查和监察调查。
+丹麦航运和物流公司马士基在致客户的最新通告中称，中东局势持续紧张，本周已有三艘集装箱船遭伊朗军队袭击，霍尔木兹海峡目前仍处于“紧紧关闭”状态。
+
+这意味着受战争影响、位于海峡内的货物“将继续滞留在海上”及杰贝阿里（Jebel Ali）码头责任编辑：李安桐
 
 ## 相关推荐
 
-- 2026-06-29 14:58 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 14:35 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 14:59 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 14:53 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 14:43 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 14:36 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 14:59 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 14:50 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 14:34 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 14:50 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 14:36 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 14:56 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 14:55 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 14:42 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 15:04 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 15:02 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 14:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 15:05 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 14:43 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 14:50 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 14:53 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 15:03 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 14:45 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:37 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/352965249.shtml)
-- 2026-06-29 14:53 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.kurohicncr.top/Article/details/356505573287.shtml)
-- 2026-06-29 14:48 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/7862180.shtml)
-- 2026-06-29 14:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/5761404978.shtml)
-- 2026-06-29 14:35 - [小娘惹](http://www.share.kurohicncr.top/Article/details/404997.shtml)
-- 2026-06-29 14:51 - [AG冠军五人组轮换](https://www.share.minike.top/Article/details/1107254370.shtml)
-- 2026-06-29 14:41 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/348736335238.shtml)
-- 2026-06-29 14:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/239134.shtml)
-- 2026-06-29 14:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/010907982650.shtml)
-- 2026-06-29 14:54 - [赵露思爸爸拍vlog翻车了](https://www.share.minike.top/Article/details/04674.shtml)
-- 2026-06-29 14:36 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/223426094.shtml)
-- 2026-06-29 14:52 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/0411449204.shtml)
-- 2026-06-29 14:55 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/17343.shtml)
-- 2026-06-29 14:43 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/9602443.shtml)
-- 2026-06-29 14:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/876229.shtml)
+- 2026-06-29 14:56 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/275490734982.shtml)
+- 2026-06-29 14:47 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/69907163.shtml)
+- 2026-06-29 14:59 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/536515.shtml)
+- 2026-06-29 14:40 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/374642015383.shtml)
+- 2026-06-29 14:46 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/658458527.shtml)
+- 2026-06-29 14:51 - [北极荒岛生存挑战](https://www.share.kurohicncr.top/Article/details/21946.shtml)
+- 2026-06-29 15:02 - [久坐小心“死臀综合征”](https://www.share.kurohicncr.top/Article/details/0288807.shtml)
+- 2026-06-29 14:41 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/709469759188.shtml)
+- 2026-06-29 15:04 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/863195.shtml)
+- 2026-06-29 14:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/57557358638.shtml)
+- 2026-06-29 15:00 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/795841622.shtml)
+- 2026-06-29 14:44 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/573071060812.shtml)
+- 2026-06-29 14:55 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/34386096341.shtml)
+- 2026-06-29 14:45 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/13613740360.shtml)
+- 2026-06-29 14:38 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/77577500835.shtml)

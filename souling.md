@@ -1,58 +1,56 @@
-# 户外玩水切莫大意 这些安全细节一定要牢记
+# 龙蟠科技拟1485万澳元收购位于澳大利亚的锂矿勘探租约及相关资产
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-立夏时节，亲水休闲成为不少人的休闲度假之选。很多水上运动受到大家的欢迎，桨板也是其中之一。不过，在户外水域玩桨板，一定要注意天气变化。 户外水域天气多变 玩桨板需注意安全 5月2日，在广西河池市天峨县红水河流域，当时水域突发强对流天气，乌云密布，大风来袭。此时，大批玩桨板的游客还在水上没有来得及撤离，突然变天让部分游客受到惊吓。 所幸相关部门的工作人员及时赶来，帮助大家撤离并进
+龙蟠科技（02465）发布公告，公司通过境外全资子公司Lopal Tech Perth Pty Ltd（以下简称“龙蟠珀斯”或“买方”）与Global Lithium Resources Limited（以下简称“GL1”）、MB Lithium Pty Ltd（以下简称“MB锂业”，与“GL1”合称“卖方”）签署《Tenements and Mineral Rights Sa
 
 ## 正文
 
-立夏时节，亲水休闲成为不少人的休闲度假之选。
+龙蟠科技（02465）发布公告，公司通过境外全资子公司Lopal Tech Perth Pty Ltd（以下简称“龙蟠珀斯”或“买方”）与Global Lithium Resources Limited（以下简称“GL1”）、MB Lithium Pty Ltd（以下简称“MB锂业”，与“GL1”合称“卖方”）签署《Tenements and Mineral Rights Sale Agreement》（《 矿权及矿产权利出售协议》）。
 
-很多水上运动受到大家的欢迎，桨板也是其中之一。
+根据协议，龙蟠珀斯以1485万澳元的交易对价收购GL1与MB锂业持有的位于澳大利亚的锂矿勘探租约及相关资产。
 
-不过，在户外水域玩桨板，一定要注意天气变化。
+该锂矿项目后续还需进行勘探、采矿证申请、选矿及采矿产能建设，预计投入资金超2亿美元，建设达产周期预计2-3年。
 
-户外水域天气多变 玩桨板需注意安全 5月2日，在广西河池市天峨县红水河流域，当时水域突发强对流天气，乌云密布，大风来袭。
+交易标的为位于西澳大利亚州皮尔巴拉地区的锂矿勘探租约，该锂矿项目位于西澳大利亚州皮尔巴拉地区，黑德兰港东南约150公里处。
 
-此时，大批玩桨板的游客还在水上没有来得及撤离，突然变天让部分游客受到惊吓。
+自2019年取得矿权以来，GL1公司持续对其中一个核心矿权E45/4309进行勘探工作，已累计完成734个反循环钻孔和7个金刚石钻孔，进尺超过102.5千米。
 
-所幸相关部门的工作人员及时赶来，帮助大家撤离并进行疏导。
+根据于2022年按照JORC规范编制的《Marble Bar锂矿项目矿产资源估算报告》，该项目矿石资源量为1800万吨，氧化锂平均品位为1.0%。
 
-最终，游客全部安全上岸。
+本次交易是公司立足磷酸铁锂正极材料核心主业、深化产业链上游资源布局的重要举措。
 
-水上运动安全第一 保护措施要做好 大家在户外玩水或者参与桨板运动时，有哪些注意事项？
+当前公司磷酸铁锂业务产销规模持续扩大、海外产能稳步推进、对上游锂资源的稳定供应与成本管控需求日益提升。
 
 ## 相关推荐
 
-- 2026-06-29 14:45 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 14:37 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 14:39 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 14:56 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 14:58 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 14:56 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 14:52 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 14:55 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 14:57 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 14:51 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 14:45 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 14:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 14:42 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 14:36 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 15:03 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 14:49 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 14:48 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 14:45 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 14:47 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 15:00 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 14:43 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 14:40 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [赵露思爸爸拍vlog翻车了](https://www.blog.kurohicncr.top/Article/details/005003359636.shtml)
-- 2026-06-29 14:38 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.kurohicncr.top/Article/details/2082531.shtml)
-- 2026-06-29 14:41 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/5646698901.shtml)
-- 2026-06-29 14:57 - [苹果ultra2阔折叠已开模测试](http://www.share.kurohicncr.top/Article/details/561483.shtml)
-- 2026-06-29 14:54 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/16440856466.shtml)
-- 2026-06-29 14:35 - [王楚钦3-0周启豪 晋级32强](https://www.blog.minike.top/Article/details/4490298.shtml)
-- 2026-06-29 14:47 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/390231300357.shtml)
-- 2026-06-29 14:53 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/05380521.shtml)
-- 2026-06-29 14:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/51958.shtml)
-- 2026-06-29 14:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/8241723733.shtml)
-- 2026-06-29 14:48 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/80690195845.shtml)
-- 2026-06-29 14:46 - [李连杰回应网传不管前妻俩女儿](http://www.blog.minike.top/Article/details/2355511.shtml)
-- 2026-06-29 14:34 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/85215636960.shtml)
-- 2026-06-29 14:31 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/654731357992.shtml)
-- 2026-06-29 14:45 - [普京介绍前线战事](http://www.blog.minike.top/Article/details/2836090.shtml)
+- 2026-06-29 15:00 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/7916793.shtml)
+- 2026-06-29 14:51 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/6711463691.shtml)
+- 2026-06-29 14:50 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/32440300.shtml)
+- 2026-06-29 14:39 - [俄军新型无人机战力如何](https://www.share.minike.top/Article/details/82672401990.shtml)
+- 2026-06-29 14:49 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/593982729.shtml)
+- 2026-06-29 14:46 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/601422.shtml)
+- 2026-06-29 14:53 - [5万块的威力](https://www.blog.minike.top/Article/details/32818064.shtml)
+- 2026-06-29 14:42 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/81513489.shtml)
+- 2026-06-29 14:49 - [TOP 无畏契约](http://www.blog.kurohicncr.top/Article/details/20836254075.shtml)
+- 2026-06-29 14:58 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/18373607554.shtml)
+- 2026-06-29 14:40 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.kurohicncr.top/Article/details/96313954883.shtml)
+- 2026-06-29 15:04 - [T1 vs KC MSI](http://www.share.kurohicncr.top/Article/details/625204213.shtml)
+- 2026-06-29 14:37 - [专家建议城乡居民养老金增至每月千元](https://www.share.minike.top/Article/details/6210692384.shtml)
+- 2026-06-29 14:43 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/4597497467.shtml)
+- 2026-06-29 14:41 - [一生一世](http://www.share.kurohicncr.top/Article/details/64032.shtml)

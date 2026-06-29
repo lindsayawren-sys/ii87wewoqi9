@@ -1,56 +1,57 @@
-# 徐州贾汪非法排污事件追踪：清污工作仍在继续
+# 探访福建惠女水库：一库碧波映初心
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网徐州5月8日电 (记者 唐娟)5月7日晚，《焦点访谈》栏目报道了江苏徐州贾汪区一条12公里的农田灌溉渠沦为污染水沟。5月8日，中新社记者赶赴贾汪区紫庄镇新屋村，现场了解到涉事羊副产品加工作坊已被查封，沟渠黑臭污水被连夜抽排转运。截至记者发稿时，现场清污工作仍在进行。 记者在现场看到，沟渠内黑臭水体已基本被抽干，沟底沉积的黑色淤泥裸露在外。现场空气中仍弥漫着刺鼻恶臭，沟渠周
+中新网福建惠安4月22日电 (记者 孙虹)群山叠翠、碧水如镜，在福建，一座以女性命名的国家级大型水库滋养着一方百姓。中新网记者近日走进福建惠女水库坝区，沿着大坝、渠道、监测站点一路探访，回望老一辈惠安女肩挑手扛、攻坚克难的峥嵘岁月，聆听新一代水利人守护水源、保障民生的坚守故事。 坐落于福建泉州洛阳江上游的惠女水库，是泉州第二大水库，总库容达1.23亿立方米，承担着当地灌溉、防洪
 
 ## 正文
 
-中新网徐州5月8日电 (记者 唐娟)5月7日晚，《焦点访谈》栏目报道了江苏徐州贾汪区一条12公里的农田灌溉渠沦为污染水沟。
+中新网福建惠安4月22日电 (记者 孙虹)群山叠翠、碧水如镜，在福建，一座以女性命名的国家级大型水库滋养着一方百姓。
 
-5月8日，中新社记者赶赴贾汪区紫庄镇新屋村，现场了解到涉事羊副产品加工作坊已被查封，沟渠黑臭污水被连夜抽排转运。
+中新网记者近日走进福建惠女水库坝区，沿着大坝、渠道、监测站点一路探访，回望老一辈惠安女肩挑手扛、攻坚克难的峥嵘岁月，聆听新一代水利人守护水源、保障民生的坚守故事。
 
-截至记者发稿时，现场清污工作仍在进行。
+坐落于福建泉州洛阳江上游的惠女水库，是泉州第二大水库，总库容达1.23亿立方米，承担着当地灌溉、防洪、供水、生态保护等多重功能。
 
-记者在现场看到，沟渠内黑臭水体已基本被抽干，沟底沉积的黑色淤泥裸露在外。
+站在高52.5米、底宽300米的大坝之上，半个多世纪前“万女锁蛟龙”的壮阔图景仿佛就在眼前。
 
-现场空气中仍弥漫着刺鼻恶臭，沟渠周边蚊蝇乱飞。
+20世纪50年代，惠安一带十年九旱、水利设施薄弱，农田多靠天吃饭，是远近闻名的“地瓜县”。
 
-据现场工作人员介绍，目前主要工作已从污水抽运转入沟底清淤。
+为彻底改变靠天吃饭的困境，1958年，乌潭水库(后更名“惠女水库”)工程正式动工，在物资匮乏、机械短缺的条件下，数以万计的惠安女挺身而出，成为工程建设的绝对主力。
 
-多台挖掘机正在对沟底淤泥进行清理作业，清出的淤泥将被统一收集并按照相关规定进行无害化处置。
+“当年建设者勘察选址时，深山密林无迹可寻。
 
-此前，当地政府已连夜调配10辆槽罐车，累计转运受污染水体68吨至工业废水处理厂进行专业处置。
+”惠女水库坝区站站长曾广耀告诉中新网记者，一位参与早期勘察的老阿姨回忆，同行三人中她是唯一女性，只能在村民猪圈里睡了两晚。
 
 ## 相关推荐
 
-- 2026-06-29 14:49 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 14:35 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 14:53 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 14:33 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 14:37 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 14:45 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 14:37 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 14:40 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 14:50 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 14:33 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 14:36 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 14:41 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 14:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 14:48 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 15:02 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 15:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 14:52 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 14:55 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 14:53 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 15:01 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 14:59 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/619164501.shtml)
-- 2026-06-29 14:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/23770.shtml)
-- 2026-06-29 14:32 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/21260979193.shtml)
-- 2026-06-29 14:58 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/421477086945.shtml)
-- 2026-06-29 14:34 - [崔韩率还以为韩娱来新人了](http://www.blog.kurohicncr.top/Article/details/117905887995.shtml)
-- 2026-06-29 14:42 - [佛得角到底在哪个“角”](https://www.share.minike.top/Article/details/371710058912.shtml)
-- 2026-06-29 14:31 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/7718647.shtml)
-- 2026-06-29 14:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/3477048165.shtml)
-- 2026-06-29 14:36 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/215844310.shtml)
-- 2026-06-29 14:36 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/37128273095.shtml)
-- 2026-06-29 14:57 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/04958818453.shtml)
-- 2026-06-29 14:47 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/0710627.shtml)
-- 2026-06-29 14:45 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/7248234.shtml)
-- 2026-06-29 14:37 - [北极荒岛生存挑战](https://www.share.minike.top/Article/details/96565102886.shtml)
-- 2026-06-29 14:48 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/303555136.shtml)
+- 2026-06-29 14:36 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/39202.shtml)
+- 2026-06-29 14:49 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/06025.shtml)
+- 2026-06-29 14:52 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/916866.shtml)
+- 2026-06-29 14:47 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/26331824.shtml)
+- 2026-06-29 14:59 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/179756886576.shtml)
+- 2026-06-29 14:55 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/46722028.shtml)
+- 2026-06-29 14:48 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/708128389.shtml)
+- 2026-06-29 14:40 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/83197623723.shtml)
+- 2026-06-29 15:01 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/5459455089.shtml)
+- 2026-06-29 14:54 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.minike.top/Article/details/673305279672.shtml)
+- 2026-06-29 15:00 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/032117633475.shtml)
+- 2026-06-29 15:03 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/82013012.shtml)
+- 2026-06-29 14:59 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/84880933.shtml)
+- 2026-06-29 14:48 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/85079843.shtml)
+- 2026-06-29 15:04 - [梅朗雄主张法国退出北约](http://www.blog.minike.top/Article/details/3624459677.shtml)

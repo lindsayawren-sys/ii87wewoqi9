@@ -1,57 +1,60 @@
-# 多个板块表现活跃 A股成交额连续两日超过3万亿元
+# 国盛证券合并了个“寂寞”：去年营收跑输行业 自营风控及投后管理有效性待考
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-5月7日，A股市场继续走强，三大指数全线上涨，深证成指、创业板指均涨逾1%，创业板指再创近11年新高。光通信、玻璃纤维、光芯片、PEEK材料等板块表现活跃，整个A股市场超3500只股票上涨，逾120只股票涨停，其中东山精密、澜起科技、兆易创新等多只大盘成长股创历史新高。市场成交额为3.17万亿元，连续2个交易日成交额超3万亿元。A股总市值超过131万亿元，创历史新高。 资金面上
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：图灵 4月20日收盘后，国盛证券发布了2025年年报和今年一季度业绩快报，这是公司吸收合并后的第一份年报和一季报。 数据显示，国盛证券去年吸收合并了个“寂寞”：2025年营收增速跑输行业；2026年一季度营收大降、归母净利润同比暴跌98%只剩下100多万元，近乎亏损。 国
 
 ## 正文
 
-5月7日，A股市场继续走强，三大指数全线上涨，深证成指、创业板指均涨逾1%，创业板指再创近11年新高。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-光通信、玻璃纤维、光芯片、PEEK材料等板块表现活跃，整个A股市场超3500只股票上涨，逾120只股票涨停，其中东山精密、澜起科技、兆易创新等多只大盘成长股创历史新高。
+出品：新浪财经上市公司研究院 作者：图灵 4月20日收盘后，国盛证券发布了2025年年报和今年一季度业绩快报，这是公司吸收合并后的第一份年报和一季报。
 
-市场成交额为3.17万亿元，连续2个交易日成交额超3万亿元。
+数据显示，国盛证券去年吸收合并了个“寂寞”：2025年营收增速跑输行业；2026年一季度营收大降、归母净利润同比暴跌98%只剩下100多万元，近乎亏损。
 
-A股总市值超过131万亿元，创历史新高。
+国盛证券业绩波动如此之大、在“券商大年”跑输行业的深层次原因包括：自营业务投前尽调、投后管理等多环节的风控存疑。
 
-资金面上，5月6日A股融资余额创历史新高，5月7日沪深两市超2200只股票出现主力资金净流入，资金情绪仍然乐观。
+比如，公司重大的股票投资只重仓了趣店（HTT），不符合投资分散的基本原则，趣店（HTT）单只股票即占据很大风险敞口。
 
-分析人士认为，外部扰动影响淡化，国内经济形势向好、政策定调积极，风险偏好稳中改善，市场将延续震荡上涨态势，大盘成长占优的中期逻辑仍将成立。
+并且，趣店（HTT）业务模式的合规风险早有争议——其校园贷业务曾饱受关注，多次跨界转型未见明显起色。
 
-● 本报记者 吴玉华 A股总市值超131万亿元 5月7日，A股市场继续走强。
+国盛证券在作出重大投资决策前，是否对趣店的商业模式可持续性、监管合规风险进行了充分评估？
 
-截至收盘，上证指数、深证成指、创业板指、科创综指、北证50指数分别上涨0.48%、1.18%、1.45%、1.99%、3.05%，上证指数报收4180.09点，创业板指报收3833.06点，创业板指再创近11年新高。
+在数十亿元浮盈的情况下，为何没有减仓趣店“落袋为安”？
 
 ## 相关推荐
 
-- 2026-06-29 14:50 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 14:41 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 14:42 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 14:44 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 14:39 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 14:33 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 14:53 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 14:37 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 14:43 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 14:39 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 14:42 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 14:58 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 14:51 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 14:48 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 15:02 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 14:40 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 14:36 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 14:44 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 14:58 - [双高胎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 14:41 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 15:02 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 14:37 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 14:39 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 15:05 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 14:42 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:34 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/50253085.shtml)
-- 2026-06-29 14:37 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.minike.top/Article/details/4846425.shtml)
-- 2026-06-29 14:58 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/6965831769.shtml)
-- 2026-06-29 14:33 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/000503.shtml)
-- 2026-06-29 14:44 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/56576638541.shtml)
-- 2026-06-29 14:49 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/563362.shtml)
-- 2026-06-29 14:46 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.kurohicncr.top/Article/details/331258946347.shtml)
-- 2026-06-29 14:34 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/418453001.shtml)
-- 2026-06-29 14:59 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/348855357.shtml)
-- 2026-06-29 14:52 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/40514148292.shtml)
-- 2026-06-29 14:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/58691020.shtml)
-- 2026-06-29 14:36 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/88152.shtml)
-- 2026-06-29 14:43 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/4707274.shtml)
-- 2026-06-29 14:58 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/9022592473.shtml)
-- 2026-06-29 14:34 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/43655365130.shtml)
+- 2026-06-29 15:00 - [唐艺昕女儿接唐艺昕回家](https://www.blog.kurohicncr.top/Article/details/559603.shtml)
+- 2026-06-29 15:03 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/1738329467.shtml)
+- 2026-06-29 14:51 - [强⁶](https://www.blog.kurohicncr.top/Article/details/787870.shtml)
+- 2026-06-29 14:49 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/83814480.shtml)
+- 2026-06-29 15:02 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/697416.shtml)
+- 2026-06-29 14:46 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/492255.shtml)
+- 2026-06-29 14:55 - [一生一世](http://www.blog.kurohicncr.top/Article/details/3859572239.shtml)
+- 2026-06-29 14:38 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/07440.shtml)
+- 2026-06-29 14:41 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/7314094.shtml)
+- 2026-06-29 14:39 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/81883996150.shtml)
+- 2026-06-29 14:38 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/4296819884.shtml)
+- 2026-06-29 14:59 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/13580742.shtml)
+- 2026-06-29 14:43 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.kurohicncr.top/Article/details/1732655757.shtml)
+- 2026-06-29 14:59 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/39283106.shtml)
+- 2026-06-29 14:56 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/8287515122.shtml)

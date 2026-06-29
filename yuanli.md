@@ -1,56 +1,53 @@
-# 大庆钻探自主研发随钻测斜系统获突破 实现钻井实时精准测量
+# 女子水球首登亚沙赛场 中国队首战告捷
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网大庆5月8日电 (余虹娜 杨晓丹)8日，记者从大庆钻探工程技术研究院获悉，由该研究院自主研发的DQZY多参数随钻连续测斜MWD系统，在新站油田11口井完成大规模现场试验，成效显著。该系统成功破解定向井钻井“边钻边测”行业难题，大幅提升钻井效率与精度、降低作业成本，标志着大庆钻探钻井测量装备自主研发再迈新台阶。 MWD系统被誉为钻井“井下眼睛”，是把控钻井方向、精准勘探油气
+发布时间：2026年04月22日 16:41 来源：中国新闻网 4月22日，第六届亚洲沙滩运动会女子水球项目开赛，这是亚沙会首次增设女子水球项目，采用单循环赛制。当日，中国队以3比1胜中国香港队，首战告捷。 中国女子水球队队员尹奕婷在赛后采访时表示，首场比赛队员之间配合默契，对机会把握非常好，整体表现都不错。 中国香港女子水球队队员刘芷澄表示，自己首场比赛有打出竞技状态，队员们
 
 ## 正文
 
-中新网大庆5月8日电 (余虹娜 杨晓丹)8日，记者从大庆钻探工程技术研究院获悉，由该研究院自主研发的DQZY多参数随钻连续测斜MWD系统，在新站油田11口井完成大规模现场试验，成效显著。
+发布时间：2026年04月22日 16:41 来源：中国新闻网 4月22日，第六届亚洲沙滩运动会女子水球项目开赛，这是亚沙会首次增设女子水球项目，采用单循环赛制。
 
-该系统成功破解定向井钻井“边钻边测”行业难题，大幅提升钻井效率与精度、降低作业成本，标志着大庆钻探钻井测量装备自主研发再迈新台阶。
+当日，中国队以3比1胜中国香港队，首战告捷。
 
-MWD系统被誉为钻井“井下眼睛”，是把控钻井方向、精准勘探油气的核心装备。
+中国女子水球队队员尹奕婷在赛后采访时表示，首场比赛队员之间配合默契，对机会把握非常好，整体表现都不错。
 
-传统测量设备需停泵停钻方可开展测量，不仅中断作业、延误工期，还增加井下作业风险。
+中国香港女子水球队队员刘芷澄表示，自己首场比赛有打出竞技状态，队员们在比赛过程中和中国队学到了一些经验，团队在接下来的赛程会表现得更好。
 
-针对这一技术痛点，研发团队攻克技术难关，搭载智能传感器与先进信号处理技术，让系统在钻杆高速旋转、剧烈震动工况下，仍可精准采集井眼倾斜角度、朝向等关键数据。
-
-该系统实现全程不间断随钻测量，测量精度稳定在±0.2°以内，井下方向控制精准无误；关键导航数据更新最快仅需8至15秒，工程师可实时调整钻井轨迹，大幅减少无效作业。
-
-同时，系统配备智能省电模式，电池续航延长50%以上，配套地面软件可3D可视化展示钻井轨迹，实时预警碰撞风险，实现作业数据多终端同步。
-
-该系统的成功应用，推动钻井测量从“走走停停”迈向“实时导航”，为复杂结构井、非常规油气高效开发提供技术支撑，助力油气勘探开发智能化、数字化发展，进一步提升我国油气勘探装备自主可控水平。
+(李宇凡 陈英清 骆云飞 部分视频来源 第六届亚洲沙滩运动会组委会） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-29 14:40 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 14:38 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 14:36 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 14:33 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 14:31 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 14:43 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 14:41 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 14:54 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 14:50 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 14:30 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 14:54 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 15:04 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 14:43 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 14:42 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 14:54 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 14:36 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 14:48 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 14:41 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 14:36 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 14:56 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 14:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 14:56 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 14:59 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/1713315.shtml)
-- 2026-06-29 14:56 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/45938119.shtml)
-- 2026-06-29 14:35 - [极限挑战第一季](https://www.blog.minike.top/Article/details/84864567503.shtml)
-- 2026-06-29 14:50 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/14137218680.shtml)
-- 2026-06-29 14:49 - [北极荒岛生存挑战](https://www.blog.kurohicncr.top/Article/details/551242224.shtml)
-- 2026-06-29 14:50 - [张真源解读相思锁](http://www.blog.minike.top/Article/details/1527457.shtml)
-- 2026-06-29 14:40 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/080292853434.shtml)
-- 2026-06-29 14:42 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/78328.shtml)
-- 2026-06-29 14:52 - [恋与深空评分暴跌至1.8](http://www.blog.kurohicncr.top/Article/details/693632830741.shtml)
-- 2026-06-29 14:37 - [异世界一点都不好玩！](https://www.share.kurohicncr.top/Article/details/1135470506.shtml)
-- 2026-06-29 14:30 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.minike.top/Article/details/688879.shtml)
-- 2026-06-29 14:39 - [A股](https://www.blog.kurohicncr.top/Article/details/35029210.shtml)
-- 2026-06-29 14:36 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/7915788.shtml)
-- 2026-06-29 14:38 - [A股](http://www.share.minike.top/Article/details/32834124.shtml)
-- 2026-06-29 14:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/024216699027.shtml)
+- 2026-06-29 14:48 - [逃狱兄弟](https://www.blog.minike.top/Article/details/093152173.shtml)
+- 2026-06-29 14:51 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/59317022.shtml)
+- 2026-06-29 14:46 - [媒体：高考后消费应量力而行适度有度](http://www.share.minike.top/Article/details/129772.shtml)
+- 2026-06-29 15:00 - [俄军新型无人机战力如何](http://www.share.kurohicncr.top/Article/details/462319640.shtml)
+- 2026-06-29 14:36 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/879429051476.shtml)
+- 2026-06-29 14:38 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/956887276414.shtml)
+- 2026-06-29 15:01 - [赵露思爸爸拍vlog翻车了](https://www.share.minike.top/Article/details/879493.shtml)
+- 2026-06-29 14:48 - [沙丘](https://www.share.kurohicncr.top/Article/details/513615438.shtml)
+- 2026-06-29 14:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/58763936325.shtml)
+- 2026-06-29 15:03 - [金牌调解](https://www.blog.minike.top/Article/details/998094.shtml)
+- 2026-06-29 15:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/45172646841.shtml)
+- 2026-06-29 14:40 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/3472878731.shtml)
+- 2026-06-29 14:49 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/8565905218.shtml)
+- 2026-06-29 15:00 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/0430803845.shtml)
+- 2026-06-29 14:36 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/48684.shtml)

@@ -1,58 +1,55 @@
-# 英特尔与苹果达成协议 将代工生产部分苹果设备所用芯片
+# 美中嘉和与妙佑医疗国际正式签署新合作协议
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-据知情人士透露，苹果与英特尔已达成初步协议，英特尔将代工生产部分苹果设备所用芯片。 知情人士称，两家企业已进行逾一年密集谈判，并在近几个月敲定正式协议。 知情人士表示，目前尚不清楚英特尔将为苹果哪类产品代工芯片。苹果每年出货超2亿部iPhone，以及数百万台iPad和Mac电脑。 苹果与英特尔发言人均拒绝置评。 英特尔主要有两大业务板块：芯片设计业务，以及旗下晶圆代工部门同时为
+美中嘉和（02453）发布公告，近期，公司与妙佑医学教育和研究基金会（Mayo Foundation for Medical Education and Research）（妙佑医疗国际）正式签署新合作协议，据此，公司于妙佑医疗国际的合作范围将从肿瘤诊疗的国际化、标准化，进一步拓展至涵盖疾病预防、筛查、康复及长期健康管理的全生命周期健康服务领域。 双方基于既往在质子治疗人才培养
 
 ## 正文
 
-据知情人士透露，苹果与英特尔已达成初步协议，英特尔将代工生产部分苹果设备所用芯片。
+美中嘉和（02453）发布公告，近期，公司与妙佑医学教育和研究基金会（Mayo Foundation for Medical Education and Research）（妙佑医疗国际）正式签署新合作协议，据此，公司于妙佑医疗国际的合作范围将从肿瘤诊疗的国际化、标准化，进一步拓展至涵盖疾病预防、筛查、康复及长期健康管理的全生命周期健康服务领域。
 
-知情人士称，两家企业已进行逾一年密集谈判，并在近几个月敲定正式协议。
+双方基于既往在质子治疗人才培养、跨境会诊、转诊、医院管理及国际化质控等合作基础，将合作由肿瘤诊疗，拓展至疾病预防、筛查、康复及全生命周期健康管理领域。
 
-知情人士表示，目前尚不清楚英特尔将为苹果哪类产品代工芯片。
+妙佑医疗国际将以远程规划、辅导、现场评估及持续优化等方式，向公司导入其健康管理服务体系、运营标准及临床经验。
 
-苹果每年出货超2亿部iPhone，以及数百万台iPad和Mac电脑。
+本次合作有助于公司完善前端预防筛查、中端精准诊疗、后端康复管理的全周期服务闭环，提升医疗服务能力、运营效率及患者体验，强化集团核心竞争力，符合公司及全体股东整体利益。
 
-苹果与英特尔发言人均拒绝置评。
-
-英特尔主要有两大业务板块：芯片设计业务，以及旗下晶圆代工部门同时为自有芯片和外部客户芯片提供制造代工服务。
-
-多年来这两大业务持续表现低迷，直至去年春天陈立武出任首席执行官，并誓言重振公司核心业务。
-
-去年夏天，特朗普政府达成一项协议，将近90亿美元联邦补助转换为英特尔股票，美国政府由此持有这家芯片厂商10%股份，这也为促成苹果与英特尔合作起到了关键推动作用。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:46 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 14:35 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 14:42 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 14:51 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 14:45 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 14:43 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 14:39 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 14:42 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 14:38 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 14:49 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 14:58 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 14:52 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 14:43 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 14:57 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 14:51 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 14:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 14:56 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 15:04 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 14:54 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 14:37 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 14:48 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 14:47 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 14:48 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 15:00 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 14:47 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 14:49 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 14:38 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:52 - [记者暗访贵州和云南多个养老机构](http://www.blog.kurohicncr.top/Article/details/63015201.shtml)
-- 2026-06-29 14:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/3230679884.shtml)
-- 2026-06-29 14:44 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/5214432.shtml)
-- 2026-06-29 14:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/286771781.shtml)
-- 2026-06-29 14:58 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/134449.shtml)
-- 2026-06-29 14:47 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/63732815.shtml)
-- 2026-06-29 14:32 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/325077118.shtml)
-- 2026-06-29 14:55 - [媒体：网络测评不能只剩“生意”](http://www.blog.kurohicncr.top/Article/details/4168552562.shtml)
-- 2026-06-29 14:48 - [周深双眼皮贴又掉了](http://www.share.kurohicncr.top/Article/details/26932.shtml)
-- 2026-06-29 14:32 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/9811704.shtml)
-- 2026-06-29 14:46 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/18106846816.shtml)
-- 2026-06-29 14:30 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/7096097.shtml)
-- 2026-06-29 14:46 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/318269399130.shtml)
-- 2026-06-29 14:51 - [詹俊预测德国大胜巴拉圭](http://www.blog.minike.top/Article/details/23896.shtml)
-- 2026-06-29 14:36 - [当我回母校教书](http://www.blog.minike.top/Article/details/887987244069.shtml)
+- 2026-06-29 14:47 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/3597769.shtml)
+- 2026-06-29 14:36 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/5906417519.shtml)
+- 2026-06-29 14:37 - [市民骑哈啰单车79分钟被收费30元](http://www.share.kurohicncr.top/Article/details/514740.shtml)
+- 2026-06-29 14:44 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/53691.shtml)
+- 2026-06-29 15:00 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/006409773127.shtml)
+- 2026-06-29 15:01 - [国家体育总局政策法规司原副司长获刑](http://www.blog.minike.top/Article/details/18915479.shtml)
+- 2026-06-29 14:55 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/14001772846.shtml)
+- 2026-06-29 15:01 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.kurohicncr.top/Article/details/12248400.shtml)
+- 2026-06-29 15:04 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/84193170.shtml)
+- 2026-06-29 15:05 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/35784844.shtml)
+- 2026-06-29 15:02 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/92593.shtml)
+- 2026-06-29 15:05 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.minike.top/Article/details/11884.shtml)
+- 2026-06-29 14:52 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/90822.shtml)
+- 2026-06-29 14:54 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/679793806137.shtml)
+- 2026-06-29 14:45 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/28776.shtml)

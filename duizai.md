@@ -1,56 +1,56 @@
-# 受伊朗战事爆发影响，德国 3 月工业经济大幅下滑
+# 一季度公募规模增长TOP30：景顺长城增542亿居首，永赢、国泰增超300亿，华商、安信环比增长超20%
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-受中东战事爆发推高能源价格影响，德国 3 月工业生产意外回落，给这个欧洲最大经济体今年制造业复苏进程蒙上阴影。 德国工业自上一轮十年低迷过后，市场原本预期其 2026 年能够迎来复苏。疫情时期供应链瓶颈、告别廉价俄罗斯天然气带来的冲击、德国商品面临来自中国的竞争加剧，再加上高昂的绿色能源转型成本，多重因素持续拖累工业表现。 不过德国政府去年承诺投入超 1 万亿美元用于国防与基建
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！张坤、葛兰等最新布局出炉 摘要：2026年一季度公募基金非货规模数据揭晓，规模增长第一梯队浮出水面。景顺长城以542.32亿元的增量位居全行业第一，展现出强劲的扩张能力；永赢基金、华商基金、国泰基金紧随其后，增量均超300亿元。值得关注的是，华商基金以24%的环比增速排名上升7位，海富通基金凭借ETF业
 
 ## 正文
 
-受中东战事爆发推高能源价格影响，德国 3 月工业生产意外回落，给这个欧洲最大经济体今年制造业复苏进程蒙上阴影。
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！
 
-德国工业自上一轮十年低迷过后，市场原本预期其 2026 年能够迎来复苏。
+张坤、葛兰等最新布局出炉 摘要：2026年一季度公募基金非货规模数据揭晓，规模增长第一梯队浮出水面。
 
-疫情时期供应链瓶颈、告别廉价俄罗斯天然气带来的冲击、德国商品面临来自中国的竞争加剧，再加上高昂的绿色能源转型成本，多重因素持续拖累工业表现。
+景顺长城以542.32亿元的增量位居全行业第一，展现出强劲的扩张能力；永赢基金、华商基金、国泰基金紧随其后，增量均超300亿元。
 
-不过德国政府去年承诺投入超 1 万亿美元用于国防与基建投资，希望借此重振本国传统强势的制造业。
+值得关注的是，华商基金以24%的环比增速排名上升7位，海富通基金凭借ETF业务优势增长278亿元排名上升2位，成为中型公司中的亮点。
 
-而伊朗战事引发油气价格飙升，令经济前景进一步转弱，对德国这类高度依赖能源进口的国家冲击尤为明显。
+2026年一季度公募基金非货规模数据近日出炉，行业格局迎来一轮显著洗牌。
 
-德国联邦统计局周五公布数据，受能源生产大幅下滑拖累，3 月工业产出环比下降0.7%，跌幅较 2 月0.5%进一步扩大。
+从整体来看，头部基金公司普遍遭遇规模缩水，其中华夏基金、华泰柏瑞基金、易方达基金等巨头单季度流失规模均超过千亿元。
 
-华尔街问卷调查的经济学家普遍预期 3 月工业产出会环比上涨 0.5%；数据同时显示，工业产出同比下滑2.8%。
+与此同时，一批中小型基金公司却逆势实现规模快速增长，排名大幅跃升，成为一季度最亮眼的“黑马”。
 
-德国工业联合会上月表示，受中东战事影响，今年德国工业至多陷入停滞，地缘冲突给企业带来了额外不确定性与经营压力。
+头部排名：华夏、华泰柏瑞缩水超两千亿，景顺长城、汇添富逆势攀升 从非货规模排名来看，头部基金公司一季度呈现明显的分化态势。
 
 ## 相关推荐
 
-- 2026-06-29 14:55 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 14:38 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 14:31 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 14:32 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 14:59 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 14:46 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 14:47 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 14:32 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 14:40 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 14:49 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 15:02 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 14:52 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 14:39 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 14:51 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 14:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 14:39 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 14:58 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 14:38 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 14:42 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 15:01 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:33 - [东部机场集团新增釜山航线](https://www.blog.minike.top/Article/details/261978162561.shtml)
-- 2026-06-29 14:49 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/25145.shtml)
-- 2026-06-29 14:59 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/323173.shtml)
-- 2026-06-29 14:41 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/3991687198.shtml)
-- 2026-06-29 14:40 - [欧委会总部只给高层开空调](https://www.blog.kurohicncr.top/Article/details/237374.shtml)
-- 2026-06-29 14:40 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/4898708864.shtml)
-- 2026-06-29 14:34 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/31899064276.shtml)
-- 2026-06-29 14:54 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.kurohicncr.top/Article/details/56394054841.shtml)
-- 2026-06-29 14:30 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/699644.shtml)
-- 2026-06-29 14:36 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/9466892661.shtml)
-- 2026-06-29 14:31 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/4736634317.shtml)
-- 2026-06-29 14:31 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/67583.shtml)
-- 2026-06-29 14:50 - [俄军新型无人机战力如何](https://www.blog.minike.top/Article/details/3821230067.shtml)
-- 2026-06-29 14:42 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/902887338234.shtml)
-- 2026-06-29 14:33 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/80588126.shtml)
+- 2026-06-29 15:00 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/9472117.shtml)
+- 2026-06-29 14:44 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/422507860.shtml)
+- 2026-06-29 14:41 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/695814.shtml)
+- 2026-06-29 14:48 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/64038333306.shtml)
+- 2026-06-29 15:01 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/09941755.shtml)
+- 2026-06-29 15:04 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/70973015.shtml)
+- 2026-06-29 14:59 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/611168424854.shtml)
+- 2026-06-29 14:56 - [记者暗访贵州和云南多个养老机构](https://www.share.kurohicncr.top/Article/details/9010809.shtml)
+- 2026-06-29 14:57 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/630008.shtml)
+- 2026-06-29 15:04 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/4825472.shtml)
+- 2026-06-29 15:01 - [千与千寻](http://www.share.kurohicncr.top/Article/details/289403.shtml)
+- 2026-06-29 15:01 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/54657786019.shtml)
+- 2026-06-29 14:57 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/886675183896.shtml)
+- 2026-06-29 14:52 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/385803639125.shtml)
+- 2026-06-29 15:05 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.kurohicncr.top/Article/details/290742758919.shtml)

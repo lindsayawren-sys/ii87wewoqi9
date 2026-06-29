@@ -1,58 +1,49 @@
-# 阿波罗CEO警告巨大地缘政治重组来袭 世界尚未做好准备
+# 夏凤俭任山东省人民政府副省长
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-阿波罗全球管理公司首席执行官Marc Rowan表示，世界还没有做好准备应对人工智能、价格压力和不断上升的政府债务带来的冲击。 Rowan周四在华盛顿特区举行的全国保险专员协会论坛上表示，随着关税上涨和制造业向国内转移，一场“巨大的地缘政治重组”正在进行中。 他补充说，其中一些措施，例如限制商品和劳动力的自由流动，可能会引发通胀。他说：“但我们还没有真正看到通胀。” 这场行业洗
+中新网4月23日消息，据“山东人大”微信公众号消息，山东省第十四届人民代表大会常务委员会第二十三次会议，根据山东省人民政府省长周乃翔的提请，于2026年4月23日决定任命： 夏凤俭为山东省人民政府副省长； 任海涛为山东省住房和城乡建设厅厅长。 决定免去： 王玉志的山东省住房和城乡建设厅厅长职务。
 
 ## 正文
 
-阿波罗全球管理公司首席执行官Marc Rowan表示，世界还没有做好准备应对人工智能、价格压力和不断上升的政府债务带来的冲击。
+中新网4月23日消息，据“山东人大”微信公众号消息，山东省第十四届人民代表大会常务委员会第二十三次会议，根据山东省人民政府省长周乃翔的提请，于2026年4月23日决定任命： 夏凤俭为山东省人民政府副省长； 任海涛为山东省住房和城乡建设厅厅长。
 
-Rowan周四在华盛顿特区举行的全国保险专员协会论坛上表示，随着关税上涨和制造业向国内转移，一场“巨大的地缘政治重组”正在进行中。
-
-他补充说，其中一些措施，例如限制商品和劳动力的自由流动，可能会引发通胀。
-
-他说：“但我们还没有真正看到通胀。
-
-” 这场行业洗牌将造就赢家和输家。
-
-体力劳动者将受益于建筑业的蓬勃发展，而专业服务业则会受到冲击。
-
-他表示，这将给政府带来压力，并促使其进行重大政策调整。
-
-Rowan说：“我们将看到蓝领阶层崛起，白领阶层面临压力。
+决定免去： 王玉志的山东省住房和城乡建设厅厅长职务。
 
 ## 相关推荐
 
-- 2026-06-29 14:47 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 14:48 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 14:54 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 14:50 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 14:39 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 14:32 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 14:34 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 14:45 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 14:43 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 14:40 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 14:33 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 14:48 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 14:45 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 14:43 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 15:03 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 14:44 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 15:04 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 14:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 14:45 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 14:36 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 14:48 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 14:57 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 14:44 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 14:38 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 14:52 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 14:43 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 14:52 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:54 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/56032.shtml)
-- 2026-06-29 14:44 - [事关个税 明日截止请抓紧办理](http://www.share.minike.top/Article/details/877662.shtml)
-- 2026-06-29 14:37 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/916440950.shtml)
-- 2026-06-29 14:32 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/244669.shtml)
-- 2026-06-29 14:57 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/816160033.shtml)
-- 2026-06-29 14:35 - [急先锋](https://www.share.kurohicncr.top/Article/details/9106314081.shtml)
-- 2026-06-29 14:55 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/6703072.shtml)
-- 2026-06-29 14:46 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/829825640.shtml)
-- 2026-06-29 14:59 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/5162531244.shtml)
-- 2026-06-29 14:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/6253189052.shtml)
-- 2026-06-29 14:30 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/185708904468.shtml)
-- 2026-06-29 14:50 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/32532.shtml)
-- 2026-06-29 14:53 - [欧委会总部只给高层开空调](https://www.share.minike.top/Article/details/32277834.shtml)
-- 2026-06-29 14:36 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/650836424072.shtml)
-- 2026-06-29 14:50 - [崔韩率还以为韩娱来新人了](https://www.share.minike.top/Article/details/443124.shtml)
+- 2026-06-29 14:43 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/33407.shtml)
+- 2026-06-29 15:00 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/8340094767.shtml)
+- 2026-06-29 15:01 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/01593.shtml)
+- 2026-06-29 14:39 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/559445.shtml)
+- 2026-06-29 14:48 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/62698604.shtml)
+- 2026-06-29 14:40 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/578327600388.shtml)
+- 2026-06-29 14:36 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/6995075866.shtml)
+- 2026-06-29 14:54 - [千与千寻](https://www.blog.minike.top/Article/details/184948.shtml)
+- 2026-06-29 14:38 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/99418.shtml)
+- 2026-06-29 14:48 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/4982620972.shtml)
+- 2026-06-29 14:53 - [沙丘](https://www.blog.minike.top/Article/details/32312697993.shtml)
+- 2026-06-29 14:38 - [新一代影后杨紫](https://www.share.kurohicncr.top/Article/details/4578694.shtml)
+- 2026-06-29 14:37 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/629572.shtml)
+- 2026-06-29 15:04 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/85290737487.shtml)
+- 2026-06-29 14:47 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/427718407299.shtml)

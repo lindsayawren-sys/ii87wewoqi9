@@ -1,49 +1,51 @@
-# 周鸿祎：智能体的安全问题很多，越“聪明”越可能失控
+# 长华集团最新股东户数环比下降10.05% 筹码趋向集中
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月07日 17:52 来源：中国新闻网 近日，360集团创始人周鸿祎在接受采访时表示，当前受到关注的智能体存在很多安全问题，这些智能体越“聪明”越可能失控。(宋宇晟） 责任编辑：【程春雨】
+长华集团4月21日披露，截至4月20日公司股东户数为15096户，较上期（4月10日）减少1687户，环比降幅为10.05%。证券时报·数据宝统计，截至发稿，长华集团收盘价为12.45元，下跌1.81%，本期筹码集中以来股价累计上涨4.27%。具体到各交易日，5次上涨，2次下跌。公司发布的三季报数据显示，前三季公司共实现营业收入15.02亿元，同比下降9.46%，实现净利润60
 
 ## 正文
 
-发布时间：2026年05月07日 17:52 来源：中国新闻网 近日，360集团创始人周鸿祎在接受采访时表示，当前受到关注的智能体存在很多安全问题，这些智能体越“聪明”越可能失控。
+长华集团4月21日披露，截至4月20日公司股东户数为15096户，较上期（4月10日）减少1687户，环比降幅为10.05%。
 
-(宋宇晟） 责任编辑：【程春雨】
+证券时报·数据宝统计，截至发稿，长华集团收盘价为12.45元，下跌1.81%，本期筹码集中以来股价累计上涨4.27%。
+
+具体到各交易日，5次上涨，2次下跌。
+
+公司发布的三季报数据显示，前三季公司共实现营业收入15.02亿元，同比下降9.46%，实现净利润6093.23万元，同比下降32.28%，基本每股收益为0.1300元，加权平均净资产收益率2.23%。
+
+（数据宝）（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-29 14:53 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 14:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 14:51 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 14:47 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 14:45 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 14:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 14:31 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 14:30 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 14:49 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 14:46 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 14:45 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 14:34 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 14:41 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 14:41 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 14:40 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 14:39 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 14:54 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 14:53 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 14:40 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 15:05 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 15:04 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 15:05 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 14:46 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 14:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 14:59 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 14:53 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:50 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/13048.shtml)
-- 2026-06-29 14:34 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.minike.top/Article/details/02934043893.shtml)
-- 2026-06-29 14:48 - [拄拐少年高考663分：用行动回报社会](https://www.share.minike.top/Article/details/300220182903.shtml)
-- 2026-06-29 14:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/45267291.shtml)
-- 2026-06-29 14:59 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/023113794430.shtml)
-- 2026-06-29 14:31 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/41230.shtml)
-- 2026-06-29 14:55 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/6424720318.shtml)
-- 2026-06-29 14:43 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/693090.shtml)
-- 2026-06-29 14:42 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/56471210.shtml)
-- 2026-06-29 14:39 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/4153353.shtml)
-- 2026-06-29 14:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/55890615.shtml)
-- 2026-06-29 14:56 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/126694860284.shtml)
-- 2026-06-29 14:59 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/913094222793.shtml)
-- 2026-06-29 14:34 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/9899681468.shtml)
-- 2026-06-29 14:57 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/0217910.shtml)
+- 2026-06-29 14:39 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/029349910.shtml)
+- 2026-06-29 14:45 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/8749429026.shtml)
+- 2026-06-29 14:42 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/45136515.shtml)
+- 2026-06-29 14:43 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/11350161619.shtml)
+- 2026-06-29 15:04 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/472781164323.shtml)
+- 2026-06-29 14:53 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/570457.shtml)
+- 2026-06-29 15:03 - [四川宜宾地震](https://www.share.minike.top/Article/details/1969605735.shtml)
+- 2026-06-29 14:42 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/12406743583.shtml)
+- 2026-06-29 14:41 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.kurohicncr.top/Article/details/9497352.shtml)
+- 2026-06-29 14:38 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/3860237.shtml)
+- 2026-06-29 14:42 - [普京称考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/3681187350.shtml)
+- 2026-06-29 14:40 - [韩国记者：解码“合肥模式”](https://www.share.minike.top/Article/details/8850300.shtml)
+- 2026-06-29 14:48 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/367644.shtml)
+- 2026-06-29 14:48 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/720651109.shtml)
+- 2026-06-29 14:54 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/76805808149.shtml)

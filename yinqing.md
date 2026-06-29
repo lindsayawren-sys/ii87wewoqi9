@@ -1,56 +1,60 @@
-# 中金：资产配置手册 全球资产100年
+# 东西问丨从生态看中国
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中金点睛 文/中金大类资产研究：李昭，王添翼，杨晓卿 中金研究 我们深度分析过去100年16个国家20种资产的投资机会与风险来源，打破市场流行认知误区，揭示全球资产运行的底层逻辑。 Abstract 摘要 全球经济与金融市场正在深刻重构，跨资产轮动显著增强——2023年的美股、2024年的债券、2025年的
+中新网北京4月22日电 题：从生态看中国 作者 李嘉茵 徐皇冠 今天(22日)，是第57个世界地球日。 此刻，来自全球近200个国家的超过10亿人，正以各自的方式参与地球日活动，表达对可再生能源的支持； 但同样是此刻，美国与伊朗焦灼对峙，霍尔木兹海峡局势紧张，能源市场加剧动荡，世界多地陷入资源焦虑。 联合国秘书长古特雷斯日前向全球呼吁：“摆脱对化石燃料的依赖，大规模保护并修复自
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京4月22日电 题：从生态看中国 作者 李嘉茵 徐皇冠 今天(22日)，是第57个世界地球日。
 
-中金点睛 文/中金大类资产研究：李昭，王添翼，杨晓卿 中金研究 我们深度分析过去100年16个国家20种资产的投资机会与风险来源，打破市场流行认知误区，揭示全球资产运行的底层逻辑。
+此刻，来自全球近200个国家的超过10亿人，正以各自的方式参与地球日活动，表达对可再生能源的支持； 但同样是此刻，美国与伊朗焦灼对峙，霍尔木兹海峡局势紧张，能源市场加剧动荡，世界多地陷入资源焦虑。
 
-Abstract 摘要 全球经济与金融市场正在深刻重构，跨资产轮动显著增强——2023年的美股、2024年的债券、2025年的黄金，接力成为市场主线，仅靠单一资产难以取得长期稳健回报。
+联合国秘书长古特雷斯日前向全球呼吁：“摆脱对化石燃料的依赖，大规模保护并修复自然，并为那些最不该为这场危机担责、却受害最深的人们伸张气候正义。
 
-这不断强化一个事实：全球大类资产配置正在从“选择”变为“必需”。
+” “修复自然”“伸张气候正义”，出路何在？
 
-但受限于时间与认知边界，对大类资产的理解往往依赖有限样本与经验判断，“经验外推”塑造了大量流行但未经验证的认知：地产被归类为老龄化时代的过时资产，商品被寄托为超级周期中的趋势机会，美股被视作长期例外，债券被等同为“确定”与“安全”，黄金则在被否定与被神化之间反复摆动。
+若视线转向东方，以生态的视角看中国，会发现，一场已持续多年、并深刻重塑国家发展逻辑的多元变革，正为世界生态提供一种规模化的中国方案。
 
-问题在于，这些共识大多诞生于特定宏观环境之中，未必反映跨周期的稳定资产规律。
+从能源生态看中国，可见以绿色转型重塑能源安全逻辑的中国。
 
-我们构造了一个覆盖16个国家、20种资产、跨越100年的长周期资产价格数据库，对全球股票、债券、地产、商品与黄金的风险收益特征进行系统性分析，探索各类资产的真实配置功能与定价边界，破除市场上的流行认知误区： 地产并非过时资产。
+当全球为一度破百的布伦特油价而焦虑时，中国显得从容而笃定。
 
-随着人口老龄化加深与城镇化接近尾声，我国地产周期进入“下半场”，流行观点认为地产将成为低回报资产，但跨国数据显示在过去100年尺度上，地产在多数经济体中显著跑赢债券资产，在风险调整后回报接近股票资产。
+这份底气的核心支撑，是一组结构性数据：截至2026年2月底，中国可再生能源发电装机已达23.81亿千瓦，占全国电力总装机的60.3%，其中风电光伏装机发电量占全社会用电量比重达到22.7%，对能源绿色转型支撑作用更加突出。
 
 ## 相关推荐
 
-- 2026-06-29 14:53 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 14:40 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 14:58 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 14:52 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 14:42 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 14:39 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 14:42 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 14:45 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 14:46 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 14:31 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 14:44 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 14:36 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 14:46 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 15:01 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 14:52 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 14:47 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 14:49 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 14:46 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 14:48 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 14:53 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 14:45 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 14:54 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 15:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 14:42 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:51 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/4549620.shtml)
-- 2026-06-29 14:53 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/278883031047.shtml)
-- 2026-06-29 14:45 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/4446883143.shtml)
-- 2026-06-29 14:42 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/99921386.shtml)
-- 2026-06-29 14:40 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.share.minike.top/Article/details/03489393231.shtml)
-- 2026-06-29 14:56 - [锐评浪姐7总决赛](http://www.share.minike.top/Article/details/925833441.shtml)
-- 2026-06-29 14:34 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/5766517.shtml)
-- 2026-06-29 14:54 - [NBA交易](https://www.share.minike.top/Article/details/82137138838.shtml)
-- 2026-06-29 14:56 - [送你一朵小红花](https://www.blog.minike.top/Article/details/6849386.shtml)
-- 2026-06-29 14:42 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.minike.top/Article/details/943872649.shtml)
-- 2026-06-29 14:50 - [啊啊啊](https://www.blog.minike.top/Article/details/15167792.shtml)
-- 2026-06-29 14:44 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/1013006.shtml)
-- 2026-06-29 14:39 - [世界杯看到肖战了](https://www.share.kurohicncr.top/Article/details/442919324.shtml)
-- 2026-06-29 14:31 - [詹俊预测德国大胜巴拉圭](http://www.blog.kurohicncr.top/Article/details/4238988552.shtml)
-- 2026-06-29 14:31 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/645912550035.shtml)
+- 2026-06-29 15:02 - [农发行总行专家委员会委员杜晓力被查](http://www.share.kurohicncr.top/Article/details/036612.shtml)
+- 2026-06-29 15:03 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/924619311128.shtml)
+- 2026-06-29 14:56 - [志愿选择倒计时！浙大学生送祝福](https://www.share.kurohicncr.top/Article/details/26869.shtml)
+- 2026-06-29 14:58 - [A股](https://www.share.kurohicncr.top/Article/details/368469.shtml)
+- 2026-06-29 14:43 - [航空运输旅客服务质量国标将实施](https://www.blog.kurohicncr.top/Article/details/98766.shtml)
+- 2026-06-29 14:43 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/638230571797.shtml)
+- 2026-06-29 14:38 - [斗破苍穹](https://www.share.minike.top/Article/details/269930784841.shtml)
+- 2026-06-29 14:37 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.minike.top/Article/details/393712663.shtml)
+- 2026-06-29 15:03 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/707588810.shtml)
+- 2026-06-29 14:51 - [李在明称韩国足协任命了无能之人](http://www.share.kurohicncr.top/Article/details/4054638722.shtml)
+- 2026-06-29 14:46 - [普京称考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/756328781749.shtml)
+- 2026-06-29 14:51 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/32073547.shtml)
+- 2026-06-29 15:01 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/25554580.shtml)
+- 2026-06-29 14:47 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.kurohicncr.top/Article/details/392385756.shtml)
+- 2026-06-29 14:40 - [小娘惹](http://www.blog.minike.top/Article/details/02416906987.shtml)

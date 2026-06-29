@@ -1,61 +1,50 @@
-# 中国版话剧《浮士德》以中国舞台语言重新呈现世界经典
+# 霍尔果斯口岸今年通行中欧中亚班列超3000列
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网北京5月7日电 (记者 应妮)根据歌德同名旷世巨作改编、已故世界戏剧大师里马斯·图米纳斯导演的中国版话剧《浮士德》，五一期间在北京艺术中心连演三场。该剧以中国舞台语言重新呈现世界经典，增强了经典文本的生命力和时代性。 该剧是导演里马斯·图米纳斯应邀与中国创作团队首次合作的舞台作品。里马斯因话剧《叶甫盖尼·奥涅金》《战争与和平》《万尼亚舅舅》等高口碑佳作，被中国观众熟知并喜
+本报北京4月21日电 (记者李心萍)记者从中国铁路乌鲁木齐局集团有限公司获悉：截至21日，今年霍尔果斯铁路口岸通行中欧中亚班列超3000列，历史累计通行中欧中亚班列超5.5万列。霍尔果斯口岸通行班列线路已达91条，辐射18个国家的46个城市和地区，搭载货物品类达200余种。新疆铁路部门畅通口岸运输组织，开展智慧口岸建设，连续6年通行班列数量保持在年均万列以上。2025年，阿拉山
 
 ## 正文
 
-中新网北京5月7日电 (记者 应妮)根据歌德同名旷世巨作改编、已故世界戏剧大师里马斯·图米纳斯导演的中国版话剧《浮士德》，五一期间在北京艺术中心连演三场。
+本报北京4月21日电 (记者李心萍)记者从中国铁路乌鲁木齐局集团有限公司获悉：截至21日，今年霍尔果斯铁路口岸通行中欧中亚班列超3000列，历史累计通行中欧中亚班列超5.5万列。
 
-该剧以中国舞台语言重新呈现世界经典，增强了经典文本的生命力和时代性。
+霍尔果斯口岸通行班列线路已达91条，辐射18个国家的46个城市和地区，搭载货物品类达200余种。
 
-该剧是导演里马斯·图米纳斯应邀与中国创作团队首次合作的舞台作品。
+新疆铁路部门畅通口岸运输组织，开展智慧口岸建设，连续6年通行班列数量保持在年均万列以上。
 
-里马斯因话剧《叶甫盖尼·奥涅金》《战争与和平》《万尼亚舅舅》等高口碑佳作，被中国观众熟知并喜爱，在创排中国版话剧《浮士德》时，他从原著中选取最具戏剧表现力的段落，在兼顾情节完整及哲学思考的同时，对原作约一万两千余行的诗句进行了结构性的舞台改编，将其转化为一部约三小时的戏剧作品，以期观众能够在有限的剧场时间，进入这部宏大的文学经典。
+2025年，阿拉山口及霍尔果斯双口岸过货量3210万吨、同比增长12.1%，保障中欧中亚班列1.8万列、同比增长7.4%，推动中欧中亚班列朝着更高质量、更好效益、更加安全方向发展。
 
-剧中，学者浮士德穷尽学问后，陷入对既往认知的幻灭。
-
-当他在绝望中徘徊时，与上帝打赌要赢得浮士德灵魂的魔鬼墨菲斯特出现，并唆使他与之立下契约。
-
-“焕发了青春”的浮士德狂热追求玛格丽特，让这个纯洁的女孩堕入情网，并最终导致了她彻底的毁灭……浮士德在体验与反思之间前行。
-
-在该剧出品人、制作人雷婷看来，200多年前歌德头顶的月亮，依然照着当代人。
+《人民日报》(2026年04月22日 第 10 版)
 
 ## 相关推荐
 
-- 2026-06-29 14:54 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 14:51 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 14:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 14:58 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 14:48 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 14:48 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 14:59 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 14:45 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 14:31 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 14:45 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 14:36 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 14:59 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 14:59 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 14:42 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 14:59 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 14:55 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 14:53 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 15:02 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 14:51 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 14:46 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 14:51 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 14:43 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 14:44 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 14:58 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 14:53 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:38 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/339806516979.shtml)
-- 2026-06-29 14:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/992519578810.shtml)
-- 2026-06-29 14:54 - [叶一茜森碟一起回北京了](http://www.share.minike.top/Article/details/9741649.shtml)
-- 2026-06-29 14:37 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/08377.shtml)
-- 2026-06-29 14:58 - [ENC瓦中国香港负印度数据图](https://www.blog.kurohicncr.top/Article/details/82926363729.shtml)
-- 2026-06-29 14:32 - [比亚迪为什么卖得越多市值越低](http://www.share.kurohicncr.top/Article/details/4929024143.shtml)
-- 2026-06-29 14:49 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/171429871.shtml)
-- 2026-06-29 14:36 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/2733920.shtml)
-- 2026-06-29 14:50 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/079730.shtml)
-- 2026-06-29 14:49 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/9102482.shtml)
-- 2026-06-29 14:59 - [第一炉香](https://www.share.kurohicncr.top/Article/details/78145.shtml)
-- 2026-06-29 14:31 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/26296.shtml)
-- 2026-06-29 14:41 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/13266881.shtml)
-- 2026-06-29 14:46 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/91925708.shtml)
-- 2026-06-29 14:42 - [薛之谦演唱会](http://www.share.kurohicncr.top/Article/details/02598358.shtml)
+- 2026-06-29 14:42 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/01335786234.shtml)
+- 2026-06-29 14:58 - [T1零封KC MSI](https://www.share.minike.top/Article/details/866726.shtml)
+- 2026-06-29 14:51 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/37554003.shtml)
+- 2026-06-29 14:37 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/767362.shtml)
+- 2026-06-29 14:42 - [沙丘](https://www.blog.minike.top/Article/details/61595.shtml)
+- 2026-06-29 14:42 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/8026251695.shtml)
+- 2026-06-29 14:47 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/699562274.shtml)
+- 2026-06-29 14:50 - [手游300亿数据或被军事化运用](http://www.blog.minike.top/Article/details/4614063890.shtml)
+- 2026-06-29 14:44 - [森保一：日本队要亲手改写历史](http://www.blog.kurohicncr.top/Article/details/20564974427.shtml)
+- 2026-06-29 14:43 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/449963712.shtml)
+- 2026-06-29 15:02 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/1619256.shtml)
+- 2026-06-29 14:39 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/085903251142.shtml)
+- 2026-06-29 14:51 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.minike.top/Article/details/01138656547.shtml)
+- 2026-06-29 14:58 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/3503186.shtml)
+- 2026-06-29 14:57 - [TLAW vs DCG MSI](https://www.share.kurohicncr.top/Article/details/43622.shtml)

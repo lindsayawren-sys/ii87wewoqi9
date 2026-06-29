@@ -1,61 +1,57 @@
-# 全系标配华为智能 宝骏全尺寸SUV华境S明晚上市：有望15万起售
+# AI热潮下SK海力士季度业绩创纪录
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-快科技5月7日消息，上汽通用五菱宝骏华境S将于明晚上市，该车是五菱与华为深化战略合作的首款旗舰车型，但价格会有惊喜，从网上吹风看，起售价大概率会在15万元左右。该车基于天域架构L平台打造，采用了典型的新能源设计风格，同样使用了贯通式头灯，但没有配备分体式灯组，且保留大尺寸的六边形格栅，看起来很有气势。贯穿式车灯样式很独特，尤其是两侧灯腔内部的折线造型，还集合了转向灯，点亮后辨识
+英伟达的供应商SK海力士公布了创纪录的业绩，受AI存储芯片需求激增的推动，该公司第一财季净利润增加近四倍。 这家全球第二大存储芯片制造商继续加大投资以提高产能，旨在利用AI推动的行业繁荣。 这家韩国公司周四表示，在截至3月份的三个月里，其净利润达到创纪录的40.346万亿韩元（相当于272.8亿美元）。该数字较上年同期增长398%。 这一业绩远高于市场预期。FactSet汇编的
 
 ## 正文
 
-快科技5月7日消息，上汽通用五菱宝骏华境S将于明晚上市，该车是五菱与华为深化战略合作的首款旗舰车型，但价格会有惊喜，从网上吹风看，起售价大概率会在15万元左右。
+英伟达的供应商SK海力士公布了创纪录的业绩，受AI存储芯片需求激增的推动，该公司第一财季净利润增加近四倍。
 
-该车基于天域架构L平台打造，采用了典型的新能源设计风格，同样使用了贯通式头灯，但没有配备分体式灯组，且保留大尺寸的六边形格栅，看起来很有气势。
+这家全球第二大存储芯片制造商继续加大投资以提高产能，旨在利用AI推动的行业繁荣。
 
-贯穿式车灯样式很独特，尤其是两侧灯腔内部的折线造型，还集合了转向灯，点亮后辨识度相当强。
+这家韩国公司周四表示，在截至3月份的三个月里，其净利润达到创纪录的40.346万亿韩元（相当于272.8亿美元）。
 
-侧面保持了传统SUV的设计，拥有黑色轮拱以及大尺寸的轮圈，翼子板上设有摄像头模组，同时还是用了传统样式的电子+机械一体门把手。
+该数字较上年同期增长398%。
 
-其长宽高5235*1999*1800mm，轴距为3105mm，采用了六座布局，定位家用，六座满员状态下后备箱仍有423L容积，主打量大管饱。
+这一业绩远高于市场预期。
 
-车尾也配有贯穿灯组，灯腔内部的光源同样采用了折线设计，点亮后会形成酷似闪电的图案效果，与车头相呼应。
+FactSet汇编的分析师平均预期为28.109万亿韩元。
 
-内饰为鸿蒙座舱，提供檀香棕、象牙米两款内饰颜色，采用环抱式设计，平直的中控台线条搭配全液晶仪表、悬浮式中控屏以及双拼色多功能方向盘，同时提供后排双侧小桌板、吸顶屏以及副驾驶老板键等。
+营收也创下纪录，较上年同期增至三倍，达到52.576万亿韩元，营业利润也因此创下37.610万亿韩元的纪录。
 
-华境S搭载华为舱内激光视觉（Limera）方案，标配乾崑ADS Pro增强版，首批上市即支持城区领航辅助NCA，标配华为乾崑全维主动安全系统，还有哨兵模式、星闪数字钥匙、全场景云服务等。
+该公司表示，其当季营业利润率达到了创纪录的72%。
 
 ## 相关推荐
 
-- 2026-06-29 14:51 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 14:37 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 14:47 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 14:46 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 14:46 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 14:35 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 14:30 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 14:39 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 14:50 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 14:57 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 14:30 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 14:47 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 14:53 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 14:41 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 14:31 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 14:58 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 14:52 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 14:56 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 14:36 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 14:37 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 14:46 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 14:46 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 14:45 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 15:04 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 14:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 14:37 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:52 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/745258360.shtml)
-- 2026-06-29 14:53 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/772377381.shtml)
-- 2026-06-29 14:58 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/1173664.shtml)
-- 2026-06-29 14:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/03527008.shtml)
-- 2026-06-29 14:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/999814189289.shtml)
-- 2026-06-29 14:57 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/471780.shtml)
-- 2026-06-29 14:59 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/0927790.shtml)
-- 2026-06-29 14:42 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/11383740724.shtml)
-- 2026-06-29 14:53 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/79012339.shtml)
-- 2026-06-29 14:48 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/44403909697.shtml)
-- 2026-06-29 14:53 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/521649409344.shtml)
-- 2026-06-29 14:51 - [一生一世](https://www.blog.kurohicncr.top/Article/details/5945902.shtml)
-- 2026-06-29 14:56 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.minike.top/Article/details/1893495815.shtml)
-- 2026-06-29 14:59 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/32323.shtml)
-- 2026-06-29 14:40 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/771233811.shtml)
+- 2026-06-29 14:55 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/699543981.shtml)
+- 2026-06-29 15:02 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/690375803.shtml)
+- 2026-06-29 14:55 - [当我回母校教书](http://www.blog.minike.top/Article/details/0689950.shtml)
+- 2026-06-29 14:55 - [普京：俄面临命运攸关时刻](https://www.blog.minike.top/Article/details/04170.shtml)
+- 2026-06-29 14:43 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/41570222574.shtml)
+- 2026-06-29 14:58 - [青春环游记第三季](https://www.blog.minike.top/Article/details/1277683536.shtml)
+- 2026-06-29 14:44 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/556185.shtml)
+- 2026-06-29 14:40 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/507004836.shtml)
+- 2026-06-29 14:38 - [高考志愿今起开始填报](https://www.blog.kurohicncr.top/Article/details/05049.shtml)
+- 2026-06-29 15:01 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/369714.shtml)
+- 2026-06-29 14:41 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/31122260129.shtml)
+- 2026-06-29 14:59 - [市民骑哈啰单车79分钟付30元](http://www.blog.kurohicncr.top/Article/details/421688930.shtml)
+- 2026-06-29 14:54 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/78942856122.shtml)
+- 2026-06-29 14:48 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/30815329.shtml)
+- 2026-06-29 15:05 - [第一炉香](https://www.blog.minike.top/Article/details/665402717.shtml)

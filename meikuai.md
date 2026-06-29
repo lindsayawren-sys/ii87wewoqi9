@@ -1,58 +1,47 @@
-# 富国银行从摩根士丹利挖角15亿美元宾州团队
+# 英海上贸易行动办公室：阿曼附近发生船只遇袭事件
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-富国银行顾问部门近日从摩根士丹利招募了一支管理近15亿美元客户资产的八人团队，这是该行过去一周内吸纳的第三支十亿美元级团队。 由巴托利兄弟Stephen、David和Patrick Bartoli率领的团队正式加入富国银行顾问部门，团队还包括顾问Craig McLean、William Duval以及三名支持人员。这支团队前身是摩根士丹利莱莫伊恩办公室的巴托利私人财富管理集团，
+新华社伦敦4月22日电 英国海上贸易行动办公室22日在其官网发布通报称，收到一艘集装箱船在阿曼东北15海里处遇袭的报告。该船长称，伊朗伊斯兰革命卫队一艘炮艇向该船靠近并开火，导致船只严重受损。目前，所有船员安全。
 
 ## 正文
 
-富国银行顾问部门近日从摩根士丹利招募了一支管理近15亿美元客户资产的八人团队，这是该行过去一周内吸纳的第三支十亿美元级团队。
+新华社伦敦4月22日电 英国海上贸易行动办公室22日在其官网发布通报称，收到一艘集装箱船在阿曼东北15海里处遇袭的报告。
 
-由巴托利兄弟Stephen、David和Patrick Bartoli率领的团队正式加入富国银行顾问部门，团队还包括顾问Craig McLean、William Duval以及三名支持人员。
+该船长称，伊朗伊斯兰革命卫队一艘炮艇向该船靠近并开火，导致船只严重受损。
 
-这支团队前身是摩根士丹利莱莫伊恩办公室的巴托利私人财富管理集团，在摩根士丹利管理约15亿美元资产，年创收约910万美元。
-
-富国银行大宾夕法尼亚地区市场负责人Ken Terranova表示，巴托利团队被富国的平台所吸引，该平台将机构级规模与本地支持相结合。
-
-他在声明中指出，加入富国银行顾问部门使他们能够与公司各专业团队紧密合作。
-
-巴托利兄弟均为摩根士丹利的长期雇员，Stephen和David分别于1999年和2000年入职，Patrick则于2013年加入。
-
-McLean已将其全部43年职业生涯贡献给摩根士丹利及其前身公司。
-
-此次招聘是富国银行近期大规模招揽顶尖顾问团队的最新一例。
+目前，所有船员安全。
 
 ## 相关推荐
 
-- 2026-06-29 14:35 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-29 14:40 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 14:35 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 14:53 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 14:37 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 14:55 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 14:58 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 14:57 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 14:39 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 14:43 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 14:43 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 14:49 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 14:45 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 15:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 14:53 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 14:53 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 14:56 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 14:39 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 14:40 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 14:42 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 15:03 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 15:03 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 14:57 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:55 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/370623859.shtml)
-- 2026-06-29 14:52 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/70949.shtml)
-- 2026-06-29 14:55 - [高考志愿今起开始填报](https://www.share.minike.top/Article/details/000397975.shtml)
-- 2026-06-29 14:42 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/167714757823.shtml)
-- 2026-06-29 14:44 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/72541979.shtml)
-- 2026-06-29 14:40 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/42801364.shtml)
-- 2026-06-29 14:33 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/189502.shtml)
-- 2026-06-29 14:52 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/4704619.shtml)
-- 2026-06-29 14:44 - [恋与深空 731](http://www.blog.minike.top/Article/details/95260101240.shtml)
-- 2026-06-29 14:46 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/57338929.shtml)
-- 2026-06-29 14:30 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/419237728.shtml)
-- 2026-06-29 14:34 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/51988821.shtml)
-- 2026-06-29 14:50 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/2901198986.shtml)
-- 2026-06-29 14:34 - [NBA交易](http://www.share.minike.top/Article/details/043343278.shtml)
-- 2026-06-29 14:46 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/652380.shtml)
+- 2026-06-29 14:50 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/363766.shtml)
+- 2026-06-29 15:00 - [农发行总行专家委员会委员杜晓力被查](http://www.share.minike.top/Article/details/616914451.shtml)
+- 2026-06-29 14:40 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/3946189888.shtml)
+- 2026-06-29 15:01 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/26054902898.shtml)
+- 2026-06-29 14:59 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/55916172870.shtml)
+- 2026-06-29 14:54 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/8733271288.shtml)
+- 2026-06-29 14:45 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/54736742.shtml)
+- 2026-06-29 15:01 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/1114077.shtml)
+- 2026-06-29 14:39 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/431832.shtml)
+- 2026-06-29 15:03 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.minike.top/Article/details/822347149.shtml)
+- 2026-06-29 14:37 - [复盘曾沛慈浪姐夺冠之路](https://www.share.kurohicncr.top/Article/details/036596032731.shtml)
+- 2026-06-29 14:58 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/2055625238.shtml)
+- 2026-06-29 14:37 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/007948.shtml)
+- 2026-06-29 14:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/14604398282.shtml)
+- 2026-06-29 14:38 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/1111119.shtml)

@@ -1,50 +1,47 @@
-# “人民至上——政党的使命和担当”中外政党专题对话举行
+# 齐鲁银行：第一季度净利润15.67亿元，同比增长14.83%
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-新华社石家庄5月8日电(记者曹嘉玥、邹尚伯)5月8日，由中共中央对外联络部和中共河北省委共同主办的“人民至上——政党的使命和担当”中外政党专题对话在河北行唐举行。汤加议长瓦伊阿等来自20多个国家的政党、议会、政府代表等约180人与会。中联部部长刘海星表示，在习近平总书记领航掌舵下，中国脱贫攻坚取得全面胜利，为全球减贫事业作出巨大贡献。新征程上，中国共产党将坚持以人民为中心的发展
+4月22日金融一线消息，齐鲁银行公告，2026年第一季度营收为35.77亿元，同比增长13.02%；净利润为15.67亿元，同比增长14.83%。 责任编辑：李琳琳
 
 ## 正文
 
-新华社石家庄5月8日电(记者曹嘉玥、邹尚伯)5月8日，由中共中央对外联络部和中共河北省委共同主办的“人民至上——政党的使命和担当”中外政党专题对话在河北行唐举行。
+4月22日金融一线消息，齐鲁银行公告，2026年第一季度营收为35.77亿元，同比增长13.02%；净利润为15.67亿元，同比增长14.83%。
 
-汤加议长瓦伊阿等来自20多个国家的政党、议会、政府代表等约180人与会。
-
-中联部部长刘海星表示，在习近平总书记领航掌舵下，中国脱贫攻坚取得全面胜利，为全球减贫事业作出巨大贡献。
-
-新征程上，中国共产党将坚持以人民为中心的发展理念，以高质量发展全面推进中国式现代化，同各国政党加强交流互鉴，做人民幸福的筑基者、捍卫者、守望者、护航者。
-
-与会外宾高度评价以习近平同志为核心的中共中央坚持人民至上，带领中国人民推进脱贫攻坚和乡村振兴取得的巨大成就，表示愿同中方深化治党治国经验交流，推动构建人类命运共同体。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 14:54 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 14:38 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 14:45 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 14:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 14:58 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 14:59 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 14:30 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 14:45 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 14:35 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 14:36 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 14:59 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 15:02 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 14:55 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 14:46 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 14:44 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 14:42 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 15:02 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 14:40 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 14:57 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 14:45 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 15:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 14:40 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 15:05 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:51 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.kurohicncr.top/Article/details/3996643391.shtml)
-- 2026-06-29 14:30 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/36839743613.shtml)
-- 2026-06-29 14:53 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/3906932.shtml)
-- 2026-06-29 14:45 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/377320.shtml)
-- 2026-06-29 14:46 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/4250811.shtml)
-- 2026-06-29 14:48 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.kurohicncr.top/Article/details/498970041.shtml)
-- 2026-06-29 14:32 - [俄称继续推进 乌称打击俄军设施](http://www.share.minike.top/Article/details/0656309.shtml)
-- 2026-06-29 14:38 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/67311.shtml)
-- 2026-06-29 14:33 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/63675.shtml)
-- 2026-06-29 14:49 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/19034821186.shtml)
-- 2026-06-29 14:56 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/334797652072.shtml)
-- 2026-06-29 14:38 - [美伊同意停止互袭](http://www.share.minike.top/Article/details/459484156696.shtml)
-- 2026-06-29 14:35 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.minike.top/Article/details/925322244.shtml)
-- 2026-06-29 14:45 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/84272858.shtml)
-- 2026-06-29 14:35 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/45091.shtml)
+- 2026-06-29 14:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/712582.shtml)
+- 2026-06-29 14:56 - [爸爸当家](https://www.blog.minike.top/Article/details/97129.shtml)
+- 2026-06-29 14:39 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/02357699.shtml)
+- 2026-06-29 15:01 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/559031551.shtml)
+- 2026-06-29 15:05 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/47880083.shtml)
+- 2026-06-29 14:53 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/78966675800.shtml)
+- 2026-06-29 14:37 - [TOP 无畏契约](https://www.share.minike.top/Article/details/13097665586.shtml)
+- 2026-06-29 15:01 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/3582050.shtml)
+- 2026-06-29 15:04 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/903043.shtml)
+- 2026-06-29 14:57 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/67264.shtml)
+- 2026-06-29 14:55 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/296041152374.shtml)
+- 2026-06-29 15:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/71122526671.shtml)
+- 2026-06-29 14:55 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/034043025648.shtml)
+- 2026-06-29 14:57 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/35898917.shtml)
+- 2026-06-29 15:04 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/968098444.shtml)

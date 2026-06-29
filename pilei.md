@@ -1,51 +1,54 @@
-# 重庆一厂房发生火灾 附近6名群众因感觉身体不适送医
+# 中新社记者直击第十三批在韩中国人民志愿军烈士遗骸回国
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网5月8日电 据“璧山消防”微信公众号消息，重庆市璧山区消防救援局发布情况通报称，2026年5月7日23时42分，重庆市璧山区璧泉街道铁山路20号一厂房发生火灾。接报后，璧山区消防救援局第一时间调派力量赶赴现场处置。经现场处置，8日2时28分，现场明火已被扑灭，火场内无人员伤亡。 在紧急疏散过程中，火场附近(非起火厂房内)有6名群众因感觉身体不适送医，其中1人轻微扭伤留院观
+发布时间：2026年04月22日 15:37 来源：中国新闻网 当地时间4月22日上午，中韩双方在韩国仁川国际机场共同举行交接仪式，韩方向中方移交第十三批、12位在韩志愿军烈士遗骸及相关遗物。 自2014年以来，中韩双方遵循国际法和人道主义原则，已连续成功交接十二批共1011位在韩中国人民志愿军烈士遗骸及相关遗物。今年，中国空军派出运-20B赴韩国执行接迎第十三批志愿军烈士遗骸
 
 ## 正文
 
-中新网5月8日电 据“璧山消防”微信公众号消息，重庆市璧山区消防救援局发布情况通报称，2026年5月7日23时42分，重庆市璧山区璧泉街道铁山路20号一厂房发生火灾。
+发布时间：2026年04月22日 15:37 来源：中国新闻网 当地时间4月22日上午，中韩双方在韩国仁川国际机场共同举行交接仪式，韩方向中方移交第十三批、12位在韩志愿军烈士遗骸及相关遗物。
 
-接报后，璧山区消防救援局第一时间调派力量赶赴现场处置。
+自2014年以来，中韩双方遵循国际法和人道主义原则，已连续成功交接十二批共1011位在韩中国人民志愿军烈士遗骸及相关遗物。
 
-经现场处置，8日2时28分，现场明火已被扑灭，火场内无人员伤亡。
+今年，中国空军派出运-20B赴韩国执行接迎第十三批志愿军烈士遗骸回国任务。
 
-在紧急疏散过程中，火场附近(非起火厂房内)有6名群众因感觉身体不适送医，其中1人轻微扭伤留院观察，其余5人经检查无碍已自行出院，起火原因正在调查中。
+此次任务是运-20B首次飞出国门。
+
+(记者 刘旭 金旭 制作 王宁) 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-29 14:36 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 14:44 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 14:59 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 14:45 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 14:44 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 14:58 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 14:55 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 14:41 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 14:38 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 14:45 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 14:31 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 14:59 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 14:56 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 14:41 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 14:42 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 14:56 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 15:04 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 14:44 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 14:59 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 14:38 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 14:39 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 15:03 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 14:44 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 14:38 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 15:05 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 14:49 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 14:40 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:44 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/58764434.shtml)
-- 2026-06-29 14:46 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/066548692007.shtml)
-- 2026-06-29 14:34 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/61815.shtml)
-- 2026-06-29 14:48 - [美国近12万名科技员工被解雇](http://www.blog.minike.top/Article/details/6087952857.shtml)
-- 2026-06-29 14:51 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/215260690586.shtml)
-- 2026-06-29 14:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/57019649540.shtml)
-- 2026-06-29 14:32 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/882330.shtml)
-- 2026-06-29 14:45 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/3104211103.shtml)
-- 2026-06-29 14:36 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/025716.shtml)
-- 2026-06-29 14:50 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/057657.shtml)
-- 2026-06-29 14:35 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/10882788.shtml)
-- 2026-06-29 14:49 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/837138911.shtml)
-- 2026-06-29 14:45 - [《贺子珍》](https://www.blog.minike.top/Article/details/3787694454.shtml)
-- 2026-06-29 14:32 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/2300903644.shtml)
-- 2026-06-29 14:31 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/3169842131.shtml)
+- 2026-06-29 14:46 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/1112361105.shtml)
+- 2026-06-29 15:04 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/805771986.shtml)
+- 2026-06-29 15:01 - [央视起底直播诈骗连环套](https://www.blog.kurohicncr.top/Article/details/691350522742.shtml)
+- 2026-06-29 14:44 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/68424835303.shtml)
+- 2026-06-29 14:57 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/659198.shtml)
+- 2026-06-29 14:40 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/51094767.shtml)
+- 2026-06-29 15:00 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/103045459083.shtml)
+- 2026-06-29 15:03 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/53086.shtml)
+- 2026-06-29 15:03 - [Agent带来token消耗爆炸](https://www.share.kurohicncr.top/Article/details/8337318393.shtml)
+- 2026-06-29 14:43 - [南非老帅布罗斯的梦没能做完](http://www.share.kurohicncr.top/Article/details/81450948001.shtml)
+- 2026-06-29 14:42 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/00556285.shtml)
+- 2026-06-29 14:44 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/486036243.shtml)
+- 2026-06-29 14:58 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/784754578.shtml)
+- 2026-06-29 14:45 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/793651067.shtml)
+- 2026-06-29 14:41 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/5797658786.shtml)

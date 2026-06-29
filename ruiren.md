@@ -1,60 +1,60 @@
-# 吕欣：以一流创新生态培育新质生产力，全力打造未来产业高地
+# 应急管理部：《有限空间作业安全技术规范》将于5月1日起正式实施
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。天津滨海高新技术产业开发区科学技术局副局长吕欣出席并致辞。 吕欣表示，当前，我国未来产业正从积极培育迈向系统布局、加速落地的阶段，天津滨海高新区正以颠覆性、前沿性技术创新抢占新赛道，以一流创新生态培育新质生产力，全力打造未来产业高地。 一是以坚实产业根基筑牢未来产业发展底
+中新网4月22日电 应急管理部22日上午举行季度例行新闻发布会，应急管理部安全生产监察专员余德旋介绍，《有限空间作业安全技术规范》将于今年5月1日起正式实施，这是一个强制性的国家标准，明确规定：除了危险化学品生产企业、带储存的危险化学品经营企业、化工及医药企业，以及船舶的有限空间作业及其安全管理以外，其他行业领域的有限空间作业及其安全管理均适用于本标准。余德旋指出，该标准具有以
 
 ## 正文
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
+中新网4月22日电 应急管理部22日上午举行季度例行新闻发布会，应急管理部安全生产监察专员余德旋介绍，《有限空间作业安全技术规范》将于今年5月1日起正式实施，这是一个强制性的国家标准，明确规定：除了危险化学品生产企业、带储存的危险化学品经营企业、化工及医药企业，以及船舶的有限空间作业及其安全管理以外，其他行业领域的有限空间作业及其安全管理均适用于本标准。
 
-天津滨海高新技术产业开发区科学技术局副局长吕欣出席并致辞。
+余德旋指出，该标准具有以下几个特点和要求。
 
-吕欣表示，当前，我国未来产业正从积极培育迈向系统布局、加速落地的阶段，天津滨海高新区正以颠覆性、前沿性技术创新抢占新赛道，以一流创新生态培育新质生产力，全力打造未来产业高地。
+一是填补了标准空白。
 
-一是以坚实产业根基筑牢未来产业发展底座。
+该标准作为一项基础性、综合性技术规范，适用范围基本覆盖了全行业，有效解决了多数行业领域有限空间作业缺乏明确安全技术要求的突出问题，实现了全领域统筹管理。
 
-二是以高端创新平台抢占未来产业技术制高点。
+二是统一了管理依据。
 
-三是以硬核创新成果彰显未来产业硬实力。
+首先，标准为监管部门开展监管执法、隐患排查提供了明确的技术依据，解决了“尺度不一”的问题，使监管执法更加严密、更加严谨。
 
-四是以体制机制创新激活成果转化强引擎。
+其次，标准也为生产经营单位有限空间作业的安全管理提供了统一的技术规范，让生产经营单位有章可循、有标可依，更好地预防中毒窒息等事故的发生。
 
-五是以优质营商环境打造投资创业首选地。
+三是规范了作业流程。
 
 ## 相关推荐
 
-- 2026-06-29 14:32 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 14:42 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 14:55 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 14:36 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 14:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 14:56 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 14:51 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 14:41 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 14:34 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 14:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 14:47 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 14:36 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 14:49 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 14:31 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 15:05 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 15:00 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 14:54 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 14:42 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 15:04 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 14:51 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 15:04 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 14:48 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 14:53 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 14:45 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 14:52 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 14:38 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 14:57 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 14:43 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:42 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/196848754.shtml)
-- 2026-06-29 14:35 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/852143829.shtml)
-- 2026-06-29 14:57 - [马斯克也站到了光里](http://www.share.kurohicncr.top/Article/details/7766188708.shtml)
-- 2026-06-29 14:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/00683.shtml)
-- 2026-06-29 14:45 - [T1对战KC](https://www.blog.minike.top/Article/details/58301.shtml)
-- 2026-06-29 14:53 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/05518111.shtml)
-- 2026-06-29 14:41 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/456555863010.shtml)
-- 2026-06-29 14:44 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.kurohicncr.top/Article/details/8799249.shtml)
-- 2026-06-29 14:48 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.minike.top/Article/details/2261448.shtml)
-- 2026-06-29 14:34 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/507470865.shtml)
-- 2026-06-29 14:57 - [和阿根廷球员家属一起看球](https://www.blog.kurohicncr.top/Article/details/42970462135.shtml)
-- 2026-06-29 14:38 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.share.minike.top/Article/details/859666.shtml)
-- 2026-06-29 14:44 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.kurohicncr.top/Article/details/362609476563.shtml)
-- 2026-06-29 14:57 - [世界杯欧美八大豪强悉数出线](https://www.blog.minike.top/Article/details/5904285927.shtml)
-- 2026-06-29 14:43 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.kurohicncr.top/Article/details/9570680470.shtml)
+- 2026-06-29 14:51 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/070397.shtml)
+- 2026-06-29 14:40 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/212632484.shtml)
+- 2026-06-29 15:05 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/7894764461.shtml)
+- 2026-06-29 14:41 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/667731.shtml)
+- 2026-06-29 14:54 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/224948040062.shtml)
+- 2026-06-29 15:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/745661761628.shtml)
+- 2026-06-29 14:38 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/654705830377.shtml)
+- 2026-06-29 15:02 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/480824247.shtml)
+- 2026-06-29 14:40 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/307456541467.shtml)
+- 2026-06-29 14:48 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/795662310.shtml)
+- 2026-06-29 14:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/1395549.shtml)
+- 2026-06-29 14:57 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/970118643.shtml)
+- 2026-06-29 14:39 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/3954725494.shtml)
+- 2026-06-29 14:56 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/56200166.shtml)
+- 2026-06-29 14:52 - [叶一茜森碟一起回北京了](https://www.share.minike.top/Article/details/9261558510.shtml)

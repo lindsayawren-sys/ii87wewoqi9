@@ -1,56 +1,58 @@
-# 科技重塑风土：宁夏贺兰山东麓葡萄酒产业迈向数字新时代
+# 持续强降雨致农田积水 湖南祁阳农技服务降低早稻灾害损失
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网银川5月8日电 题：科技重塑风土：宁夏贺兰山东麓葡萄酒产业迈向数字新时代 中新网记者 李佩珊 初夏时节，行走在宁夏贺兰山东麓，连片葡萄园绿意铺展、果穗缀枝，一派生机勃勃的景象。依托得天独厚的地理风土条件，贺兰山东麓葡萄酒产区持续将数字技术融入葡萄种植、酿造、营销全链条，以科技赋能特色葡萄酒产业稳步提质升级。 田间地头，智慧管护正逐步改变酿酒葡萄的传统种植模式。西鸽酒庄葡萄
+中新网祁阳4月21日电(汪洋 苏伟 易爱民)受持续强降雨影响，湖南祁阳市多地水位上涨、农田积水漫溢，已育秧苗及早稻栽插田块出现大面积积水、淹没、倒伏，低洼农田淤积淤泥，早稻生长受阻，粮食生产面临严峻考验。 强降雨发生后，祁阳市第一时间启动应急响应，迅速组织力量奔赴受灾重点区域。在黎家坪镇、茅竹镇、大村甸镇等地，农业技术人员深入田间地头，实地察看稻田受淹、秧苗受损情况，细致核查受
 
 ## 正文
 
-中新网银川5月8日电 题：科技重塑风土：宁夏贺兰山东麓葡萄酒产业迈向数字新时代 中新网记者 李佩珊 初夏时节，行走在宁夏贺兰山东麓，连片葡萄园绿意铺展、果穗缀枝，一派生机勃勃的景象。
+中新网祁阳4月21日电(汪洋 苏伟 易爱民)受持续强降雨影响，湖南祁阳市多地水位上涨、农田积水漫溢，已育秧苗及早稻栽插田块出现大面积积水、淹没、倒伏，低洼农田淤积淤泥，早稻生长受阻，粮食生产面临严峻考验。
 
-依托得天独厚的地理风土条件，贺兰山东麓葡萄酒产区持续将数字技术融入葡萄种植、酿造、营销全链条，以科技赋能特色葡萄酒产业稳步提质升级。
+强降雨发生后，祁阳市第一时间启动应急响应，迅速组织力量奔赴受灾重点区域。
 
-田间地头，智慧管护正逐步改变酿酒葡萄的传统种植模式。
+在黎家坪镇、茅竹镇、大村甸镇等地，农业技术人员深入田间地头，实地察看稻田受淹、秧苗受损情况，细致核查受灾面积、积水时长与排涝进度，与镇村负责人、种粮大户现场会商，精准研判灾情，面对面指导灾后生产恢复对策。
 
-西鸽酒庄葡萄园全域布设物联网监测设备，实时采集土壤墒情、光照、温湿度等田间数据，实现全园精细化管理。
+“当前最紧要的是抢抓雨停间隙排涝清淤，分类施策开展灾后补救，最大限度减少灾害损失。
 
-皇蔻酒庄配套水肥一体化智能系统，根据葡萄长势精准灌溉施肥，有效减少资源损耗。
+”祁阳市农业农村局局长段国华表示，按照统一部署，该局迅速动员全体农业科技包联人员全员下沉、分片包保，奔赴各乡镇村组，全面开展洪涝灾情排查统计与灾后生产技术指导。
 
-宁夏农垦葡萄园依托卫星遥感、无人机巡田，构建天空地一体化监测网络，提前预警霜冻、病虫害等灾害，大幅降低自然天气对葡萄品质的影响，一改以往依靠经验管护的传统种植方式。
+据了解，祁阳技术人员坚持全覆盖、无死角原则，逐村逐户、逐田块开展拉网式摸排，详实登记受灾信息，分类建立灾情台账，动态跟踪灾情变化；针对不同受灾地块，现场指导农户疏通沟渠、排水清淤、扶正洗苗、补施肥料；对重度受淹田块，引导及时翻耕补播早熟品种；同步普及灾后病虫害防控与科学水肥管理技术，手把手帮助农户解决生产难题。
 
-走进各酒庄酿造车间，数字化设备广泛应用，让酿酒工艺更加稳定可控。
+下一步，祁阳市农业农村局将持续密切监测天气与苗情变化，动态跟进灾情，常态化开展下乡驻点技术服务，精准落实各项灾后补救措施，全力把洪涝灾害损失降到最低，为粮食稳产增收保驾护航。
 
-多家酒庄普及智能发酵管控系统，酿酒师通过移动终端，便可实时监测发酵温度、酒体变化，远程调整酿造参数。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:52 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 14:37 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 14:53 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 14:50 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 14:55 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 14:30 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 14:33 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 14:41 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 14:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 14:40 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 14:44 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 14:51 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 14:44 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 14:52 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 14:36 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 15:00 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 14:57 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 14:52 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 14:45 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 14:47 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 14:49 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 14:52 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.kurohicncr.top/Article/details/557343.shtml)
-- 2026-06-29 14:39 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/5410046477.shtml)
-- 2026-06-29 14:55 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/29019523.shtml)
-- 2026-06-29 14:41 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/727126413.shtml)
-- 2026-06-29 14:55 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/8265502.shtml)
-- 2026-06-29 14:46 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/0877318.shtml)
-- 2026-06-29 14:53 - [叶一茜森碟一起回北京了](http://www.share.minike.top/Article/details/574650.shtml)
-- 2026-06-29 14:59 - [河南考699分女生已接到清华大学电话](http://www.share.minike.top/Article/details/4001190.shtml)
-- 2026-06-29 14:54 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/500867.shtml)
-- 2026-06-29 14:31 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/128009201429.shtml)
-- 2026-06-29 14:42 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/8512732.shtml)
-- 2026-06-29 14:48 - [四川宜宾地震](https://www.share.minike.top/Article/details/96666360.shtml)
-- 2026-06-29 14:52 - [医药股集体爆发](https://www.blog.minike.top/Article/details/363746219338.shtml)
-- 2026-06-29 14:46 - [上海小区惊现鳄鱼](http://www.blog.minike.top/Article/details/050646.shtml)
-- 2026-06-29 14:51 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/0631556.shtml)
+- 2026-06-29 14:48 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/585627.shtml)
+- 2026-06-29 14:52 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/91619.shtml)
+- 2026-06-29 14:47 - [李连杰回应网传不管前妻俩女儿](https://www.blog.minike.top/Article/details/17015334480.shtml)
+- 2026-06-29 14:54 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/279979.shtml)
+- 2026-06-29 14:49 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/435456.shtml)
+- 2026-06-29 15:04 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/658209.shtml)
+- 2026-06-29 14:53 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/17024.shtml)
+- 2026-06-29 14:50 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.minike.top/Article/details/19689.shtml)
+- 2026-06-29 14:53 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/97200.shtml)
+- 2026-06-29 14:43 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/286354568.shtml)
+- 2026-06-29 14:46 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/4856698755.shtml)
+- 2026-06-29 14:59 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/75734.shtml)
+- 2026-06-29 15:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/574933751629.shtml)
+- 2026-06-29 14:39 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/780554115.shtml)
+- 2026-06-29 14:52 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/65351876.shtml)

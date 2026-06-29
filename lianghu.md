@@ -1,60 +1,58 @@
-# 五粮液（000858）公告前期会计差错更正，股民索赔可期
+# *ST华嵘业绩预告大幅修正，受损投资者可登记索赔
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-2026年5月1日，宜宾五粮液（维权）股份有限公司（简称：五粮液，代码：000858）发布《关于前期会计差错更正的公告》。公告显示：五粮液对2025年业务模式进行梳理，基于谨慎性原则，调整2025年部分业务收入确认相关核算。此次前期会计差错更正涉及2025年已披露的一季度、半年度、 三季度合并资产负债表与合并利润表的部分项目，不影响现金流量表列示。 根据《民法典》、《证券法》及
+根据最新消息，湖北华嵘控股股份有限公司（以下简称“*ST华嵘（维权）”）发布《2025 年年度业绩预告修正暨公司股票预计触及财务类终止 上市情形的提示公告》，上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年1月29日-2026年4月21日期间买入且有持仓，无论在2026年4月22日及之后是否卖出的投资者，可通过“新浪股民维权平台”
 
 ## 正文
 
-2026年5月1日，宜宾五粮液（维权）股份有限公司（简称：五粮液，代码：000858）发布《关于前期会计差错更正的公告》。
+根据最新消息，湖北华嵘控股股份有限公司（以下简称“*ST华嵘（维权）”）发布《2025 年年度业绩预告修正暨公司股票预计触及财务类终止 上市情形的提示公告》，上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年1月29日-2026年4月21日期间买入且有持仓，无论在2026年4月22日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿登记索赔。
 
-公告显示：五粮液对2025年业务模式进行梳理，基于谨慎性原则，调整2025年部分业务收入确认相关核算。
+（赵敬国律师专栏） 回顾本案， 2026年4月22日*ST华嵘发布《2025年年度业绩预告修正公告》，预计2025 年年度实现的利润总额为-80万元至-120万元，预计2025 年年度归属于上市公司股东的净利润为-120万元至-180万元，归属于上市公司股东的扣除非经常性损益的净利润为-150 万元至-220万元；预计2025年年度营业收入为1.50-1.65亿元，扣除与主营业务无关的业务收入和不具备商业实质的收入后的营业收入为1.40-1.50亿元；预计 2025年末归属于上市公司股东的净资产为500-750万元。
 
-此次前期会计差错更正涉及2025年已披露的一季度、半年度、 三季度合并资产负债表与合并利润表的部分项目，不影响现金流量表列示。
+本次公告披露数据与此前预告相比存在大幅差异。
 
-根据《民法典》、《证券法》及最高人民法院的关于虚假陈述民事赔偿司法解释的规定，上市公司、控股股东、实际控制人、董监高人员及其中介机构等因虚假陈述等的证券欺诈行为导致证券投资者权益受损的，应承担民事赔偿责任，赔偿范围包括：投资差额、佣金、印花税等。
+信本股民索赔团队提醒，*ST华嵘2025年年度业绩预告转盈为亏，受损投资者可通过“新浪股民维权平台”自愿登记索赔。
 
-权益受损的证券投资者可以向有管辖权的法院提起民事赔偿诉讼。
+索赔条件： *ST华嵘：于2026年1月29日-2026年4月21日期间买入且有持仓，无论在2026年4月22日及之后是否卖出（具体赔付范围由法院确定）（华嵘控股维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
 
-根据五粮液公告前期会计差错更正，涉嫌证券虚假陈述，为维护证券投资者合法权益，上海汉联律师事务所宋一欣律师向曾经购买过五粮液的证券投资者展开诉讼代理征集，代理投资者索赔诉讼，权益受损的证券投资者可以向前述律师进行索赔登记。
+赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
 
-（宋一欣律师专栏） 宋一欣律师认为，五粮液案的索赔条件为：2025年4月28日至2026年4月30日间买入五粮液股票，并在2026年5月1日及之后卖出或继续持有的受损投资者，可以办理索赔登记。
+2004年起开始律师执业，承办过千余起各类诉讼案件，积累了十分丰富的争议处理经验，尤其擅长处理证券纠纷、金融、不良资产等方面的业务。
 
-（五粮液维权入口） ★（律师对本案的提示与说明） 1．上述提示的索赔条件仅供参考，不涉及投资者任何证券投资决策和证券买卖建议。
+执业至今，赵敬国律师代理投资者诉多家上市公司索赔案件，已经胜诉或已经获赔的案件包括中安科索赔、中兵红箭索赔、步森服饰索赔、中潜股份索赔、奥瑞德索赔、獐子岛索赔、天神娱乐索赔、抚顺特钢索赔、飞乐音响索赔、香溢融通索赔、延安必康索赔、欢瑞世纪索赔、紫晶存储索赔、泽达易盛索赔、安妮股份索赔等。
 
 ## 相关推荐
 
-- 2026-06-29 14:49 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 14:54 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 14:41 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 14:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 14:36 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 14:33 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 14:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 14:31 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 14:37 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 14:58 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 14:33 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 14:34 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 14:39 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 14:58 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 14:39 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 14:39 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 14:48 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 15:01 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 14:59 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 15:05 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 14:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 14:52 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 15:01 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 14:37 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 15:05 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 14:57 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:53 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/2741697264.shtml)
-- 2026-06-29 14:47 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/1853894.shtml)
-- 2026-06-29 14:49 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/0924946106.shtml)
-- 2026-06-29 14:56 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/30285031296.shtml)
-- 2026-06-29 14:42 - [智界V9成为高端圈层共同选择](https://www.share.minike.top/Article/details/423169865.shtml)
-- 2026-06-29 14:52 - [天道](http://www.share.kurohicncr.top/Article/details/618171.shtml)
-- 2026-06-29 14:40 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/828147029.shtml)
-- 2026-06-29 14:53 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/7773464884.shtml)
-- 2026-06-29 14:31 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/432851.shtml)
-- 2026-06-29 14:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/5341165.shtml)
-- 2026-06-29 14:52 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/6242982.shtml)
-- 2026-06-29 14:37 - [唐艺昕女儿接唐艺昕回家](http://www.share.minike.top/Article/details/0784526543.shtml)
-- 2026-06-29 14:35 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/11863.shtml)
-- 2026-06-29 14:46 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/78945631.shtml)
-- 2026-06-29 14:56 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/22672822.shtml)
+- 2026-06-29 14:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/508049.shtml)
+- 2026-06-29 15:04 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/127655219975.shtml)
+- 2026-06-29 14:59 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/07371.shtml)
+- 2026-06-29 14:44 - [众星恭喜吴建豪](http://www.blog.kurohicncr.top/Article/details/06295415658.shtml)
+- 2026-06-29 14:44 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/665686237514.shtml)
+- 2026-06-29 15:01 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/3781016377.shtml)
+- 2026-06-29 14:36 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/23390.shtml)
+- 2026-06-29 14:52 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/38825.shtml)
+- 2026-06-29 14:36 - [新一代影后杨紫](https://www.share.minike.top/Article/details/1533168216.shtml)
+- 2026-06-29 14:46 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/9836362.shtml)
+- 2026-06-29 15:00 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/809463864.shtml)
+- 2026-06-29 14:58 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/14027119.shtml)
+- 2026-06-29 15:02 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.kurohicncr.top/Article/details/2550028.shtml)
+- 2026-06-29 14:54 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.minike.top/Article/details/5344498718.shtml)
+- 2026-06-29 15:01 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.minike.top/Article/details/66071286.shtml)

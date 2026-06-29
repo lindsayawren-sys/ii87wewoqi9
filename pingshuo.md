@@ -1,56 +1,57 @@
-# 日本疑似入市干预后 日元空头从两年高位大幅回撤
+# 霍尔木兹海战的“罗生门”
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-美国监管机构周五公布的周度数据显示，受预估规模超600亿美元的日本疑似汇市干预行动冲击，投机者减持了两年来规模最大的日元空头押注。 美国商品期货交易委员会数据显示，截至5月5日当周，日元净空头持仓降至61738手合约，较前一周接近两年高点的102059手合约明显回落。 知情人士周五透露，日本继4月30日入市买入日元之后，又在5月初假期期间再度干预外汇市场。 日本官方尚未对此予以
+中国新闻周刊记者：曹然 发于2026总第1233期《中国新闻周刊》杂志 伊朗开始对挂着“美国盟国”船旗的油轮发射导弹和无人机，正在霍尔木兹海峡附近执行封锁任务的美军驱逐舰奉命护航；伊朗伊斯兰革命卫队海军出动快艇，试图偷袭美军军舰，美军中央司令部迅速调动空军的A-10对地攻击机和海军陆战队的“眼镜蛇”武装直升机，在海面上猛烈扫射伊朗快艇。最后，在伊朗方面付出巨大代价后，有美军舰艇
 
 ## 正文
 
-美国监管机构周五公布的周度数据显示，受预估规模超600亿美元的日本疑似汇市干预行动冲击，投机者减持了两年来规模最大的日元空头押注。
+中国新闻周刊记者：曹然 发于2026总第1233期《中国新闻周刊》杂志 伊朗开始对挂着“美国盟国”船旗的油轮发射导弹和无人机，正在霍尔木兹海峡附近执行封锁任务的美军驱逐舰奉命护航；伊朗伊斯兰革命卫队海军出动快艇，试图偷袭美军军舰，美军中央司令部迅速调动空军的A-10对地攻击机和海军陆战队的“眼镜蛇”武装直升机，在海面上猛烈扫射伊朗快艇。
 
-美国商品期货交易委员会数据显示，截至5月5日当周，日元净空头持仓降至61738手合约，较前一周接近两年高点的102059手合约明显回落。
+最后，在伊朗方面付出巨大代价后，有美军舰艇被突破拦截的伊朗无人机击伤，双方随后双双宣布胜利…… 这是西方军事智库和专业媒体设想的图景。
 
-知情人士周五透露，日本继4月30日入市买入日元之后，又在5月初假期期间再度干预外汇市场。
+但对国际社会而言，这将是一场噩梦：不再是博弈、封锁与收费，而是说，战前每天有1700万桶石油经过的霍尔木兹海峡，彻底沦为美伊大规模对抗的战场。
 
-日本官方尚未对此予以证实，但数月来日方官员一直频频释放干预汇市的强硬表态。
+第一块多米诺骨牌已经被推倒。
 
-东京方面同时寄望日本央行转向鹰派政策，以此缓解日元跌势。
+4月19日，美军“斯普鲁恩斯”号驱逐舰向一艘驶往伊朗阿巴斯港的伊朗货船开炮，摧毁其推进系统。
 
-消息人士数据显示，日元最新汇率报1美元兑156.71日元，距离4月30日触及的近两年低点160.725日元相去不远，而东京当局正是在4月30日首次出手托市支撑日元。
+随后，美海军陆战队员登上并控制了这艘船。
 
-责任编辑：陈钰嘉
+截至4月21日，该船仍处于美方扣押下。
+
+伊朗方面誓言，要进行对等“报复”。
 
 ## 相关推荐
 
-- 2026-06-29 14:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 14:57 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 14:37 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 14:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 14:38 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 14:43 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 14:32 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 14:43 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 14:44 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 14:59 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 14:37 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 14:53 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 14:55 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 15:03 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 14:39 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 14:59 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 15:01 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 14:57 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 14:40 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 15:04 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 14:38 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 14:47 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 15:05 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:41 - [王楚钦3比0周启豪](http://www.share.minike.top/Article/details/30164.shtml)
-- 2026-06-29 14:59 - [王楚钦首轮赢下国乒德比](http://www.share.minike.top/Article/details/381520671929.shtml)
-- 2026-06-29 14:48 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/45441214677.shtml)
-- 2026-06-29 14:57 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/64432299.shtml)
-- 2026-06-29 14:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/202887010786.shtml)
-- 2026-06-29 14:56 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/3683264.shtml)
-- 2026-06-29 14:50 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/51972.shtml)
-- 2026-06-29 14:40 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/71263043.shtml)
-- 2026-06-29 14:37 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.share.kurohicncr.top/Article/details/715877191103.shtml)
-- 2026-06-29 14:41 - [崔韩率还以为韩娱来新人了](http://www.share.kurohicncr.top/Article/details/85412194390.shtml)
-- 2026-06-29 14:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/000569663.shtml)
-- 2026-06-29 14:36 - [日本前锋言论激怒巴西](http://www.blog.kurohicncr.top/Article/details/12776600.shtml)
-- 2026-06-29 14:56 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.minike.top/Article/details/66789.shtml)
-- 2026-06-29 14:44 - [异世界一点都不好玩！](https://www.share.kurohicncr.top/Article/details/880519918.shtml)
-- 2026-06-29 14:51 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/682487910.shtml)
+- 2026-06-29 14:46 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/070491199295.shtml)
+- 2026-06-29 15:05 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/591319064578.shtml)
+- 2026-06-29 14:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/906733486097.shtml)
+- 2026-06-29 14:54 - [千与千寻](http://www.blog.minike.top/Article/details/920010134.shtml)
+- 2026-06-29 14:58 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/759369333542.shtml)
+- 2026-06-29 14:51 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/020944084.shtml)
+- 2026-06-29 14:41 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/3210633.shtml)
+- 2026-06-29 14:56 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/930368337355.shtml)
+- 2026-06-29 14:44 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/14736.shtml)
+- 2026-06-29 14:39 - [四川宜宾地震](http://www.blog.minike.top/Article/details/78725292.shtml)
+- 2026-06-29 15:02 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/9615978247.shtml)
+- 2026-06-29 14:50 - [欧委会总部只给高层开空调](https://www.blog.kurohicncr.top/Article/details/50600.shtml)
+- 2026-06-29 15:02 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/7313212.shtml)
+- 2026-06-29 15:01 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/0702775429.shtml)
+- 2026-06-29 14:46 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/78586.shtml)

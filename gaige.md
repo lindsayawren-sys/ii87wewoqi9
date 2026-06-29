@@ -1,57 +1,49 @@
-# 2026抖音电商国货消费报告：直播电商助力新市场、新人群双增长
+# 暴雨蓝色预警：广东西南部等地部分地区有大暴雨
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-近日，抖音电商发布《2026抖音电商国货消费数据报告》(以下简称“报告”)。报告显示，过去一年，抖音电商新增活跃国货商家数同比增长47%，直播间成交额占比达到63%，国货商品好评率达93.8%，国货消费延续增长态势。 在直播电商的带动下，国货消费呈现两方面变化。一是消费品类持续扩容，技术型国货、老字号、非遗和新锐赛道共同丰富供给；二是消费人群持续扩大，中青年群体保持消费主力地位
+中国天气网讯 中央气象台4月23日06时继续发布暴雨蓝色预警： 预计，4月23日08时至24日08时，广西东南部、广东南部、福建东南部等地部分地区有大到暴雨，其中，广东西南部等地部分地区有大暴雨(100～130毫米)。上述部分地区伴有短时强降水(最大小时降雨量20～40毫米，局地可超过50毫米)，局地有雷暴大风等强对流天气。 防御指南： 1、政府及相关部门按照职责做好防暴雨准备
 
 ## 正文
 
-近日，抖音电商发布《2026抖音电商国货消费数据报告》(以下简称“报告”)。
+中国天气网讯 中央气象台4月23日06时继续发布暴雨蓝色预警： 预计，4月23日08时至24日08时，广西东南部、广东南部、福建东南部等地部分地区有大到暴雨，其中，广东西南部等地部分地区有大暴雨(100～130毫米)。
 
-报告显示，过去一年，抖音电商新增活跃国货商家数同比增长47%，直播间成交额占比达到63%，国货商品好评率达93.8%，国货消费延续增长态势。
+上述部分地区伴有短时强降水(最大小时降雨量20～40毫米，局地可超过50毫米)，局地有雷暴大风等强对流天气。
 
-在直播电商的带动下，国货消费呈现两方面变化。
-
-一是消费品类持续扩容，技术型国货、老字号、非遗和新锐赛道共同丰富供给；二是消费人群持续扩大，中青年群体保持消费主力地位，新兴消费区域贡献显著增量。
-
-新市场与新人群同步扩大，为国货品牌与实体产业带来更多增量空间。
-
-从直播间到产业带，国货品牌梯队持续壮大 报告显示，抖音电商国货品牌梯队持续扩容。
-
-过去一年，年成交额过百万元的国货品牌数超1万个，过亿元的国货品牌超2000个。
-
-不同规模、不同阶段的国货品牌，在直播电商里探索出各自的成长路径。
+防御指南： 1、政府及相关部门按照职责做好防暴雨准备工作； 2、学校、幼儿园采取适当措施，保证学生和幼儿安全； 3、驾驶人员应当注意道路积水和交通阻塞，确保安全； 4、检查城市、农田、鱼塘排水系统，做好排涝准备。
 
 ## 相关推荐
 
-- 2026-06-29 14:36 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 14:58 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 14:31 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 14:48 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 14:52 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 14:32 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 14:47 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 14:58 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 14:42 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 14:41 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 14:37 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 15:01 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 15:00 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 14:52 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 15:02 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 14:45 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 15:04 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 14:49 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 14:59 - [唐艺昕女儿接唐艺昕回家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 14:42 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 15:01 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 14:51 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 15:01 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 14:57 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:44 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/68347.shtml)
-- 2026-06-29 14:36 - [实习期把公司领导开除了](http://www.blog.minike.top/Article/details/287253557.shtml)
-- 2026-06-29 14:33 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/973433.shtml)
-- 2026-06-29 14:55 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/1104107808.shtml)
-- 2026-06-29 14:53 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/65296.shtml)
-- 2026-06-29 14:59 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/380874.shtml)
-- 2026-06-29 14:32 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/268482963177.shtml)
-- 2026-06-29 14:54 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/548271655898.shtml)
-- 2026-06-29 14:48 - [下飞机后，我做了个很蠢的决定......](http://www.blog.kurohicncr.top/Article/details/16008646057.shtml)
-- 2026-06-29 14:55 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/40915265.shtml)
-- 2026-06-29 14:42 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/044923.shtml)
-- 2026-06-29 14:46 - [流金岁月](https://www.share.minike.top/Article/details/81041.shtml)
-- 2026-06-29 14:47 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/7027806697.shtml)
-- 2026-06-29 14:46 - [叶一茜森碟一起回北京了](http://www.share.kurohicncr.top/Article/details/350183361210.shtml)
-- 2026-06-29 14:50 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/003894628318.shtml)
+- 2026-06-29 14:40 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/666695798366.shtml)
+- 2026-06-29 14:57 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.kurohicncr.top/Article/details/826854899.shtml)
+- 2026-06-29 15:05 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/71056498644.shtml)
+- 2026-06-29 14:42 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/139717983.shtml)
+- 2026-06-29 14:47 - [未来5年全国能源体系将呈现这些特征](https://www.share.kurohicncr.top/Article/details/674815.shtml)
+- 2026-06-29 14:45 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/9871887054.shtml)
+- 2026-06-29 14:48 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/3324614.shtml)
+- 2026-06-29 14:37 - [金刚川](http://www.blog.kurohicncr.top/Article/details/494292562.shtml)
+- 2026-06-29 14:50 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/79241746479.shtml)
+- 2026-06-29 14:58 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.minike.top/Article/details/87703.shtml)
+- 2026-06-29 15:05 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/08832056.shtml)
+- 2026-06-29 14:39 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/9333576676.shtml)
+- 2026-06-29 14:52 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/9425818.shtml)
+- 2026-06-29 15:05 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/36502534346.shtml)
+- 2026-06-29 14:38 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/6252579358.shtml)

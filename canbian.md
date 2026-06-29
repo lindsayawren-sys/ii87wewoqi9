@@ -1,55 +1,56 @@
-# 京玖康疗：控股股东完成配售现有股份
+# “新时代、新品质、新气象：清华大学美术学院新世纪成果展”研讨会举办
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-京玖康疗（00648）发布公告，于2026年5月7日，本公司获配售股东通知，其所持有的全部5亿股本公司股份（相当于本公告日期本公司已发行股份的23.3%）已由配售代理以每股配售股份0.11港元的配售价，配售予不少于 6名承配人。就董事经作出一切合理查询后所知、所悉及所信，各承配人及其最终实益拥有人 （如有）均为独立于本公司及其关连人士的第三方，且彼等并无与本公司或其任何关连人士
+中新网北京4月22日电 (记者 高凯)“新时代、新品质、新气象：清华大学美术学院新世纪成果展”学术研讨会日前在清华大学艺术博物馆举行。 本次研讨会作为清华大学美术学院迎接建院70周年系列学术活动的重要环节，紧扣同期开幕的成果展所呈现的核心议题，汇聚校内外专家学者，共同围绕“新时代设计何为”“艺科融合如何落地”等时代命题展开深入研讨。 清华大学美术学院教授、《装饰》杂志主编方晓风
 
 ## 正文
 
-京玖康疗（00648）发布公告，于2026年5月7日，本公司获配售股东通知，其所持有的全部5亿股本公司股份（相当于本公告日期本公司已发行股份的23.3%）已由配售代理以每股配售股份0.11港元的配售价，配售予不少于 6名承配人。
+中新网北京4月22日电 (记者 高凯)“新时代、新品质、新气象：清华大学美术学院新世纪成果展”学术研讨会日前在清华大学艺术博物馆举行。
 
-就董事经作出一切合理查询后所知、所悉及所信，各承配人及其最终实益拥有人 （如有）均为独立于本公司及其关连人士的第三方，且彼等并无与本公司或其任何关连人士有任何关连或一致行动关係（定义见上市规则及《香港收购及合并守则》）；及于完成配售后，概无任何承配人成为本公司的主要股东。
+本次研讨会作为清华大学美术学院迎接建院70周年系列学术活动的重要环节，紧扣同期开幕的成果展所呈现的核心议题，汇聚校内外专家学者，共同围绕“新时代设计何为”“艺科融合如何落地”等时代命题展开深入研讨。
 
-完成配售后，配售股东于本公司的权益由74.4%降至51.0%，仍为本公司的控股股东。
+清华大学美术学院教授、《装饰》杂志主编方晓风作为主策展人，进一步阐释了本次展览的策划理念：“新规制”聚焦设计学科如何深度参与国家治理体系，从规则层面回应时代变革；“新模式”系统呈现学院在艺科融合、产学研协同、城乡建设等领域的探索；“新视觉”专注学科本体的视觉语言建构与审美表达；“新叙事”立足新时代语境，回答文化自信与价值立场的核心问题。
 
-本公司预期配售不会对本公司及其附属公司的业务运作造成任何不利影响。
+清华大学文科资深教授、清华大学艺术博物馆馆长鲁晓波认为，本次展览既是对办学成果的系统梳理，也是对学院精神传统、时代责任与未来方向的集中思考。
 
-责任编辑：卢昱君
+清华大学美术学院党委书记覃川在致辞中表示，人工智能技术的快速发展，让“人人皆可创作”成为现实，艺术设计教育需要重新审视自身定位、使命与人才培养方向，在时代变革中找准发展坐标。
+
+清华大学文科资深教授杜大恺表示，自20世纪70年代以来，世界艺术进入高度碎片化阶段，缺乏主导性潮流，态势多元有余而方向不明，建议学院组织编译一套反映20世纪70年代以来世界艺术重要理论的丛书，为行业从业者厘清发展方向、明晰学术脉络提供支撑。
+
+同时，他特别呼吁重视绘画系公共艺术专业的师资建设，强调公共艺术在扩大美术学科社会影响力、精准服务国家需求方面的独特价值。
+
+清华大学文科资深教授王宏剑认为，展览所呈现的“新”很重要，求变的前提是知道何为不变——道是永恒的，艺术存在的价值恰恰在于追求那些不变的东西。
 
 ## 相关推荐
 
-- 2026-06-29 14:53 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 14:58 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 14:35 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 14:54 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 14:32 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 14:57 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 14:59 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 14:54 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 14:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 14:48 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 14:58 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 14:52 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 14:56 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 14:51 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 14:43 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 14:47 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 14:53 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 14:55 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 15:03 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 14:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 14:42 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 14:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 14:40 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 15:04 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 15:04 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:38 - [起风了](https://www.blog.kurohicncr.top/Article/details/6219133956.shtml)
-- 2026-06-29 14:35 - [吴建豪老婆](https://www.share.kurohicncr.top/Article/details/0831758355.shtml)
-- 2026-06-29 14:51 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/30662494665.shtml)
-- 2026-06-29 14:58 - [比亚迪为什么卖得越多市值越低](http://www.blog.minike.top/Article/details/76114.shtml)
-- 2026-06-29 14:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/2613516.shtml)
-- 2026-06-29 14:31 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/984355050.shtml)
-- 2026-06-29 14:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/089284.shtml)
-- 2026-06-29 14:57 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.minike.top/Article/details/6231831900.shtml)
-- 2026-06-29 14:37 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/42817302.shtml)
-- 2026-06-29 14:45 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/831874870.shtml)
-- 2026-06-29 14:46 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.kurohicncr.top/Article/details/061626.shtml)
-- 2026-06-29 14:48 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/7704533.shtml)
-- 2026-06-29 14:55 - [民进党为什么拼命抹黑统战](http://www.share.minike.top/Article/details/783418461.shtml)
-- 2026-06-29 14:48 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/5982693.shtml)
-- 2026-06-29 14:47 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/9178416631.shtml)
+- 2026-06-29 14:49 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/4160164.shtml)
+- 2026-06-29 15:00 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/7556775939.shtml)
+- 2026-06-29 14:39 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/495674222088.shtml)
+- 2026-06-29 15:04 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/56294.shtml)
+- 2026-06-29 14:44 - [赵露思爸爸拍vlog翻车了](https://www.share.minike.top/Article/details/79995126.shtml)
+- 2026-06-29 14:45 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/012462235.shtml)
+- 2026-06-29 14:39 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/6980023932.shtml)
+- 2026-06-29 14:41 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/355545771267.shtml)
+- 2026-06-29 14:42 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.minike.top/Article/details/460229816541.shtml)
+- 2026-06-29 14:41 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/88170125.shtml)
+- 2026-06-29 15:00 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/652790903397.shtml)
+- 2026-06-29 15:03 - [灿如繁星定档](https://www.share.minike.top/Article/details/646674805738.shtml)
+- 2026-06-29 14:39 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/930029.shtml)
+- 2026-06-29 15:05 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/53419.shtml)
+- 2026-06-29 14:49 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.minike.top/Article/details/24819.shtml)

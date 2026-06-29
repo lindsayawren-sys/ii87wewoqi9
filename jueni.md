@@ -1,52 +1,61 @@
-# 统一企业中国早盘涨近4% 第一季度税后利润同比增长22.5%
+# 五大险企去年亏损保单3100亿 人保寿险亏损保单占比超4成 位居第一
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-统一企业中国（00220）早盘涨超3%，截至发稿，股价上涨3.91%，现报7.70港元，成交额847.96万港元。 5月7日，统一企业中国公布，今年一季度税后利润约7.37亿人民币，同比升22.46%。华泰证券指出，剔除一次性收益（税后约7300万元）后税后利润同比增长10.3%，业绩具备韧性。收入端，26Q1整体收入同比增长中单位数，其中饮料业务与食品业务收入均同比增长中单位
+来源：险联社 2025年保险公司业绩已经纷纷披露，5家A股上市保险公司取得了不错的业绩，人身险业务新业务价值都是双位数增长，中国人寿保费更是突破了7000亿。 一年新业务价值和寿险保费增速最快的就是中国人保寿险，一年新业务价值增长64.5%，保费增长18.8%，均位居5家公司之首。人保健康新业务价值增长22.5%，保费增长15.5%。 根据各大险企披露的年报显示，2025年签的
 
 ## 正文
 
-统一企业中国（00220）早盘涨超3%，截至发稿，股价上涨3.91%，现报7.70港元，成交额847.96万港元。
+来源：险联社 2025年保险公司业绩已经纷纷披露，5家A股上市保险公司取得了不错的业绩，人身险业务新业务价值都是双位数增长，中国人寿保费更是突破了7000亿。
 
-5月7日，统一企业中国公布，今年一季度税后利润约7.37亿人民币，同比升22.46%。
+一年新业务价值和寿险保费增速最快的就是中国人保寿险，一年新业务价值增长64.5%，保费增长18.8%，均位居5家公司之首。
 
-华泰证券指出，剔除一次性收益（税后约7300万元）后税后利润同比增长10.3%，业绩具备韧性。
+人保健康新业务价值增长22.5%，保费增长15.5%。
 
-收入端，26Q1整体收入同比增长中单位数，其中饮料业务与食品业务收入均同比增长中单位数，食品业务的收入增速略好于饮料业务；OEM业务收入同比基本持平。
+根据各大险企披露的年报显示，2025年签的新单中，亏损合同保单金额达到3132.83亿，比2024年增加了541.61亿，增幅20.9%。
 
-公司力争在市场竞争中维持价盘的稳定和产品力的领先，看好公司经营维持稳健，分红比例高企（25年分红比例100%），股息率具备吸引力。
+其中，中国人保人身险中，超过4成都是亏损保单，位居首位。
 
-责任编辑：卢昱君
+近日，摩根士丹利与花旗两大国际投行同步发布研报，下调中国人保（01339）H股目标价，核心原因均指向其寿险业务表现逊于预期。
+
+A股五大保险公司亏损合同现值3100亿 2025年，A股上市的五大保险公司一年新业务价值都实现双位数增长，其中人保寿险一年新业务价值82.29亿，增长了64.5%，新华保险一年新业务价值增长了57.4%，增幅最低的中国平安寿险与健康险的新业务价值也增长了29.3%。
+
+这也带动保险公司业务的强劲增长。
 
 ## 相关推荐
 
-- 2026-06-29 14:54 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 14:34 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 14:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 14:42 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 14:55 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 14:38 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 14:56 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 14:49 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 14:56 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 14:58 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 14:36 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 14:54 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 14:40 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 14:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 14:57 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 14:38 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 14:54 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 14:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 15:04 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 14:56 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 14:59 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 14:52 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 14:42 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 14:57 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 14:56 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:48 - [急先锋](https://www.blog.minike.top/Article/details/61538592810.shtml)
-- 2026-06-29 14:30 - [李连杰回应网传不管前妻俩女儿](http://www.blog.minike.top/Article/details/452610655.shtml)
-- 2026-06-29 14:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/413799908.shtml)
-- 2026-06-29 14:41 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/76153.shtml)
-- 2026-06-29 14:39 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.minike.top/Article/details/885870393.shtml)
-- 2026-06-29 14:56 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/83190841.shtml)
-- 2026-06-29 14:34 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/000247288409.shtml)
-- 2026-06-29 14:40 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/8915807599.shtml)
-- 2026-06-29 14:39 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/26768335355.shtml)
-- 2026-06-29 14:37 - [市民骑哈啰单车79分钟付30元](https://www.blog.kurohicncr.top/Article/details/05034544.shtml)
-- 2026-06-29 14:50 - [逆天祖国人](http://www.share.minike.top/Article/details/8280213577.shtml)
-- 2026-06-29 14:38 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/196876725.shtml)
-- 2026-06-29 14:46 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/1344812613.shtml)
-- 2026-06-29 14:46 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/929086.shtml)
-- 2026-06-29 14:38 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/098335413555.shtml)
+- 2026-06-29 14:53 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/57606572254.shtml)
+- 2026-06-29 14:51 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/04726577.shtml)
+- 2026-06-29 14:59 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/608433966.shtml)
+- 2026-06-29 14:50 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/43514773.shtml)
+- 2026-06-29 14:53 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/444870016995.shtml)
+- 2026-06-29 14:39 - [《贺子珍》](http://www.share.minike.top/Article/details/4081195.shtml)
+- 2026-06-29 14:53 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/248200.shtml)
+- 2026-06-29 14:55 - [恋与深空底线不该被娱乐化](https://www.share.kurohicncr.top/Article/details/9343951.shtml)
+- 2026-06-29 14:58 - [青春环游记第三季](http://www.blog.minike.top/Article/details/32742.shtml)
+- 2026-06-29 14:42 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/68372428171.shtml)
+- 2026-06-29 14:39 - [王楚钦 表演球擦网](http://www.share.minike.top/Article/details/74110321.shtml)
+- 2026-06-29 14:43 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/9792828.shtml)
+- 2026-06-29 14:53 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.minike.top/Article/details/78518334519.shtml)
+- 2026-06-29 14:57 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/339923702148.shtml)
+- 2026-06-29 15:01 - [天道](https://www.blog.minike.top/Article/details/00918594726.shtml)

@@ -1,59 +1,46 @@
-# 青年赋能亚太未来 APEC首个青年学者论坛在深举办
+# 快讯：上期所燃油主力合约大涨5%，报4031元/吨
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网深圳5月8日电 (记者 索有为)“APEC研究中心联席会议青年学者论坛”5月7日在香港中文大学(深圳)举办。这是亚太经合组织(APEC)大家庭历史上首次专为青年学者举办的学术论坛，列入了“APEC中国年”系列活动。 论坛以“共塑发展新动能：青年、创新与可持续未来”为主题，澳大利亚、智利、中国等13个经济体的青年学者代表及APEC秘书处高级官员出席论坛，并特邀中国澳门学者参
+北京时间4月23日，上期所燃油主力合约大涨5%，报4031元/吨。责任编辑：朱赫楠
 
 ## 正文
 
-中新网深圳5月8日电 (记者 索有为)“APEC研究中心联席会议青年学者论坛”5月7日在香港中文大学(深圳)举办。
+北京时间4月23日，上期所燃油主力合约大涨5%，报4031元/吨。
 
-这是亚太经合组织(APEC)大家庭历史上首次专为青年学者举办的学术论坛，列入了“APEC中国年”系列活动。
-
-论坛以“共塑发展新动能：青年、创新与可持续未来”为主题，澳大利亚、智利、中国等13个经济体的青年学者代表及APEC秘书处高级官员出席论坛，并特邀中国澳门学者参与，共话亚太发展新动能。
-
-论坛由香港中文大学(深圳)与南开大学APEC研究中心联合主办，前海国际事务研究院协办。
-
-教育部副部长任友群通过视频致辞，勉励APEC成员经济体青年学者做前沿科技的探索者、绿色发展的践行者、文明互鉴的推动者，为构建开放包容、互利共赢的亚太命运共同体贡献源源不断的青春力量。
-
-香港中文大学(深圳)校长徐扬生教授鼓励青年学者重视三种实践：一是国际实践，通过跨文化直接接触成为未来的桥梁建设者；二是与社会深度连接的实践，在人工智能时代，青年对人性、文化和社会动态的综合理解才是赋予AI驱动时代以灵魂的关键；三是亲身经历的实践，培养判断力、同理心，将知识与责任联系起来。
-
-APEC秘书处执行主任爱德华多·佩德罗萨在致辞中表示，青年学者代表着新一轮创新与研究浪潮，将为亚太合作和学术发展注入新的活力。
-
-当前世界正处于深刻变革之中，青年学者拥有独特视角与创新能力，将为建设更加开放、充满活力和韧性的APEC大家庭作出重要贡献。
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-29 14:33 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 14:39 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 14:57 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 14:30 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 14:48 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 14:44 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 14:51 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 14:31 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 14:49 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 14:54 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 14:58 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 14:57 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 14:45 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 14:58 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 15:02 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 14:45 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 14:56 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 14:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 14:57 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 14:58 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 14:51 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 14:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 14:38 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 15:03 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 14:40 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:33 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/95197.shtml)
-- 2026-06-29 14:57 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/72917367.shtml)
-- 2026-06-29 14:30 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/98555493.shtml)
-- 2026-06-29 14:43 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.kurohicncr.top/Article/details/23877656.shtml)
-- 2026-06-29 14:47 - [普京：俄面临命运攸关时刻](https://www.blog.minike.top/Article/details/428476854.shtml)
-- 2026-06-29 14:38 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/501123869.shtml)
-- 2026-06-29 14:46 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/2106231155.shtml)
-- 2026-06-29 14:58 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/156857811516.shtml)
-- 2026-06-29 14:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/150981.shtml)
-- 2026-06-29 14:49 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/361474274064.shtml)
-- 2026-06-29 14:37 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/236534.shtml)
-- 2026-06-29 14:56 - [媒体：高考后消费应量力而行适度有度](http://www.share.minike.top/Article/details/783651.shtml)
-- 2026-06-29 14:52 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/4801958708.shtml)
-- 2026-06-29 14:41 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/6743484458.shtml)
-- 2026-06-29 14:32 - [男子月薪五千卖房借贷给女友转账百万](http://www.blog.kurohicncr.top/Article/details/703125714832.shtml)
+- 2026-06-29 15:05 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/40641335731.shtml)
+- 2026-06-29 14:36 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/890519.shtml)
+- 2026-06-29 14:43 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.kurohicncr.top/Article/details/5438103.shtml)
+- 2026-06-29 14:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/567574666.shtml)
+- 2026-06-29 14:36 - [游戏数据被用于军事目的 国安部提醒](https://www.share.kurohicncr.top/Article/details/9932229.shtml)
+- 2026-06-29 14:55 - [央视起底直播诈骗连环套](http://www.blog.minike.top/Article/details/26757.shtml)
+- 2026-06-29 14:45 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/071735871.shtml)
+- 2026-06-29 14:54 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/790203.shtml)
+- 2026-06-29 14:44 - [千与千寻](https://www.blog.minike.top/Article/details/59951511936.shtml)
+- 2026-06-29 14:45 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/472660952.shtml)
+- 2026-06-29 14:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/71627.shtml)
+- 2026-06-29 14:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/799025448949.shtml)
+- 2026-06-29 14:55 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/67262.shtml)
+- 2026-06-29 15:04 - [如何“亲菌子”又“远小人儿”](https://www.blog.minike.top/Article/details/0525576.shtml)
+- 2026-06-29 15:03 - [比亚迪为什么卖得越多市值越低](https://www.blog.kurohicncr.top/Article/details/512123786554.shtml)

@@ -1,57 +1,57 @@
-# 美国财长贝森特与保险监管机构会谈 讨论私募信贷问题
+# 2025年贵州法院受理知识产权案件8608件审结7699件
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-美国财政部长斯科特·贝森特与保险监管机构会晤，讨论其对私募信贷的敞口问题。随着两大领域联系日益复杂，监管审查也在不断加强。 美国财政部在声明中表示，贝森特周四与全国保险专员协会（NAIC）举行的会谈还讨论了通过再保险机构将人寿保险和年金准备金转移至海外的问题。该协会由各州保险监管机构组成，负责制定标准。 “我们感谢有机会与贝森特部长会面，分享州级保险监管机构如何利用有效监管并加
+中新网贵阳4月23日电 (记者 张伟)记者23日从贵州省高级人民法院举行的新闻发布会上获悉，2025年，贵州全省法院共受理知识产权案件8608件、审结7699件，同比分别增长37.31%、39.45%。其中，民事案件受理8387件、审结7504件，同比分别增长38.77%、40.84%；刑事案件受理221件、审结195件，同比分别下降1.78%、增长1.04%。数据显示，在民事
 
 ## 正文
 
-美国财政部长斯科特·贝森特与保险监管机构会晤，讨论其对私募信贷的敞口问题。
+中新网贵阳4月23日电 (记者 张伟)记者23日从贵州省高级人民法院举行的新闻发布会上获悉，2025年，贵州全省法院共受理知识产权案件8608件、审结7699件，同比分别增长37.31%、39.45%。
 
-随着两大领域联系日益复杂，监管审查也在不断加强。
+其中，民事案件受理8387件、审结7504件，同比分别增长38.77%、40.84%；刑事案件受理221件、审结195件，同比分别下降1.78%、增长1.04%。
 
-美国财政部在声明中表示，贝森特周四与全国保险专员协会（NAIC）举行的会谈还讨论了通过再保险机构将人寿保险和年金准备金转移至海外的问题。
+数据显示，在民事案件中，数量排在前五的案件分别是侵害作品信息网络传播权纠纷、侵害商标权纠纷、技术服务合同纠纷、侵害其他著作财产权纠纷和侵害作品放映权纠纷。
 
-该协会由各州保险监管机构组成，负责制定标准。
+刑事案件中，假冒注册商标罪和销售假冒注册商标的商品罪案件最多，两类案件合计占全部刑事案件的80%以上。
 
-“我们感谢有机会与贝森特部长会面，分享州级保险监管机构如何利用有效监管并加强风险缓解框架，以促进市场稳定并保障消费者利益，”NAIC候任主席Elizabeth Dwyer在另一份声明中表示。
+新闻发布会上，贵州高院对外发布2025年度知识产权司法保护典型案例与数据知识产权保全工作指引，集中展示了2025年贵州省常见、多发的知识产权案件类型，引导与警示社会公众树立知识产权法制意识。
 
-近年来，以Apollo Global Management为代表的另类资产管理机构不断扩大在美国寿险行业的版图，试图利用该行业稳定的资金来源，加大对其发起的私募信贷产品的投资。
+此次发布的十件典型案例聚焦民生领域侵权场景，涵盖图片、KTV等著作权侵权纠纷，白酒、饮料、餐饮、零售服务等商标侵权及不正当竞争案件，还包含非物质文化遗产保护案例。
 
-与此同时，保险公司则通过百慕大和开曼群岛等司法辖区的离岸再保险安排，缓解资本要求压力。
+案例既彰显人民法院严格保护知识产权、对恶意侵权依法适用惩罚性赔偿的坚定立场，也体现司法柔性关怀，通过调解促成黔渝两地企业互助共赢，助力濒临停产企业恢复正常经营。
 
-随着这两个行业联系愈发紧密，批评人士担心这可能带来系统性风险。
+为落实“十五五”规划纲要“深入推进数字中国建设、提升数智化发展水平”的部署要求，贵州高院创新知识产权保护理念与方法，联合贵州省知识产权局制定《数据知识产权保全工作指引(试行)》，进一步完善数据知识产权运用与保护规则，激活数据要素市场，为贵州数字经济发展创新区、数智产业集群建设提供坚实司法保障。
 
 ## 相关推荐
 
-- 2026-06-29 14:47 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 14:45 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 14:50 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 14:40 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 14:33 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 14:38 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 14:38 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 14:40 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 14:31 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 14:49 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 14:50 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 14:59 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 14:47 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 14:54 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 14:48 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 14:57 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 15:03 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 14:37 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 14:45 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 14:47 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 14:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 14:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:50 - [双高胎](https://www.blog.minike.top/Article/details/1671338709.shtml)
-- 2026-06-29 14:51 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/378119559685.shtml)
-- 2026-06-29 14:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/075038.shtml)
-- 2026-06-29 14:56 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/3741605.shtml)
-- 2026-06-29 14:35 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/6259866.shtml)
-- 2026-06-29 14:50 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/148967585.shtml)
-- 2026-06-29 14:42 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/27460342.shtml)
-- 2026-06-29 14:34 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/352511813.shtml)
-- 2026-06-29 14:44 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/27055235.shtml)
-- 2026-06-29 14:53 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/571821.shtml)
-- 2026-06-29 14:57 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/42624.shtml)
-- 2026-06-29 14:46 - [世界杯超牛补水广告出现了](http://www.blog.kurohicncr.top/Article/details/374130.shtml)
-- 2026-06-29 14:44 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/9973341834.shtml)
-- 2026-06-29 14:55 - [第一炉香](http://www.share.minike.top/Article/details/66502200337.shtml)
-- 2026-06-29 14:40 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/0329810.shtml)
+- 2026-06-29 14:48 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/394037.shtml)
+- 2026-06-29 14:58 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/75865.shtml)
+- 2026-06-29 14:53 - [女心理师](https://www.share.kurohicncr.top/Article/details/074304.shtml)
+- 2026-06-29 14:48 - [小娘惹](https://www.share.kurohicncr.top/Article/details/18147653.shtml)
+- 2026-06-29 14:57 - [沙丘](https://www.blog.kurohicncr.top/Article/details/63141.shtml)
+- 2026-06-29 14:37 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/79316.shtml)
+- 2026-06-29 14:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/21706.shtml)
+- 2026-06-29 14:39 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/997877262.shtml)
+- 2026-06-29 15:00 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/066051151.shtml)
+- 2026-06-29 15:03 - [天道](http://www.blog.kurohicncr.top/Article/details/106807.shtml)
+- 2026-06-29 14:53 - [给阿嬷的情书海外口碑](http://www.blog.minike.top/Article/details/7588321.shtml)
+- 2026-06-29 14:40 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/09350268145.shtml)
+- 2026-06-29 15:05 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/732861.shtml)
+- 2026-06-29 14:37 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/362438975.shtml)
+- 2026-06-29 14:50 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/82716884126.shtml)

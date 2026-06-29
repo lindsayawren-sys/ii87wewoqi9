@@ -1,58 +1,59 @@
-# 鹏博士（600804）投资者索赔再向法院提交立案，前期已有获赔到位
+# 酒价内参4月23日价格发布：青花汾20下跌3元
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-2026年5月6日，上海久诚律师事务所股票索赔律师许峰代理的鹏博士（600804）虚假陈述引发的投资者索赔案再向青岛市中级人民法院提交一次立案。（许峰律师专栏） 2026年1月底，许峰律师代理的一位鹏博士投资者通过调解获赔到位，其他鹏博士投资者索赔案已向法院申请强制执行，此前部分收件收到法院送达的调解书。 鹏博士投资者索赔案已有投资者胜诉判决，律师团队目前还在继续推进后续案件的
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月23日小幅走高，延续回升态势。如果主要单品各取一瓶整体打包售卖，今日总售价为9928元，较昨日上涨2元，升至近14日最高位。市场连续四日持续修复，终端交投情绪整体保持平稳，但核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨五跌
 
 ## 正文
 
-2026年5月6日，上海久诚律师事务所股票索赔律师许峰代理的鹏博士（600804）虚假陈述引发的投资者索赔案再向青岛市中级人民法院提交一次立案。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月23日小幅走高，延续回升态势。
 
-（许峰律师专栏） 2026年1月底，许峰律师代理的一位鹏博士投资者通过调解获赔到位，其他鹏博士投资者索赔案已向法院申请强制执行，此前部分收件收到法院送达的调解书。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9928元，较昨日上涨2元，升至近14日最高位。
 
-鹏博士投资者索赔案已有投资者胜诉判决，律师团队目前还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+市场连续四日持续修复，终端交投情绪整体保持平稳，但核心单品涨跌分化依然显著。
 
-2024年8月16日晚，鹏博士公告收到证监会《行政处罚决定书》，经查明，当事人违法事实如下： 一、鹏博士未按规定披露关联交易。
+今日白酒市场11大单品五涨五跌一平，涨跌结构较为均衡。
 
-二、鹏博士未按规定披露重大合同。
+上涨方面，习酒君品涨幅居前，上涨6元/瓶，价格创近一个月最高；洋河梦之蓝M6+与古井贡古20均上涨5元/瓶，其中古井贡古20连续三日大踏步上行，价格再创近一个月最高；五粮液普五八代与五粮液1618均小幅上涨1元/瓶。
 
-三、鹏博士2012年-2022年年报存在虚假记载 鹏博士2012年虚增利润42，456，137.95元，占当年利润总额比例为17.43%。
+下跌方面，国窖1573跌幅居前，下跌9元/瓶，前一日创下近一个月最高后明显回落，此前的五连阳积累了较强卖压；青花汾20下跌3元/瓶，前一日创近一个月最高后技术性回落；精品茅台下跌2元/瓶；飞天茅台与青花郎均小幅回落1元/瓶。
 
-鹏博士2012年-2015年年报均虚增资产，2016年年报虚增资产162，000，000.00元、虚增利润162，000，000.00元，占当年利润总额比例为17.48%。
+水晶剑南春的价格环比保持不变。
 
-鹏博士2016年-2019年年报均虚增资产。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 14:38 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 14:38 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 14:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 14:57 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 14:35 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 14:55 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 14:34 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 14:58 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 14:31 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 14:52 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 14:38 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 14:48 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 14:46 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 14:44 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 14:59 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 14:50 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 14:41 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 14:42 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 14:47 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 14:54 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 14:48 - [双高胎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 15:00 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 14:38 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 14:41 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 14:56 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:55 - [周杰伦演唱会真的好多人啊](http://www.share.kurohicncr.top/Article/details/8777852.shtml)
-- 2026-06-29 14:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/38253005847.shtml)
-- 2026-06-29 14:46 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/9279100803.shtml)
-- 2026-06-29 14:30 - [金刚川](http://www.share.kurohicncr.top/Article/details/747797237449.shtml)
-- 2026-06-29 14:56 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/11252063.shtml)
-- 2026-06-29 14:42 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/478380.shtml)
-- 2026-06-29 14:52 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/42178.shtml)
-- 2026-06-29 14:58 - [金刚川](http://www.blog.kurohicncr.top/Article/details/54177.shtml)
-- 2026-06-29 14:56 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.kurohicncr.top/Article/details/3295422.shtml)
-- 2026-06-29 14:32 - [ENC瓦中国香港负印度数据图](https://www.blog.kurohicncr.top/Article/details/28264105.shtml)
-- 2026-06-29 14:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/17872686184.shtml)
-- 2026-06-29 14:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/516127.shtml)
-- 2026-06-29 14:47 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/29718028.shtml)
-- 2026-06-29 14:31 - [T1零封KC MSI](http://www.share.minike.top/Article/details/898135212190.shtml)
-- 2026-06-29 14:46 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/748449811.shtml)
+- 2026-06-29 14:39 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.blog.kurohicncr.top/Article/details/1738259424.shtml)
+- 2026-06-29 14:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/8208431.shtml)
+- 2026-06-29 14:40 - [媒体：网络测评不能只剩“生意”](https://www.share.minike.top/Article/details/082504.shtml)
+- 2026-06-29 14:50 - [韩国国脚无缘上亿韩元奖金](https://www.blog.kurohicncr.top/Article/details/472585.shtml)
+- 2026-06-29 14:37 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/451164866.shtml)
+- 2026-06-29 14:39 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/838236436743.shtml)
+- 2026-06-29 14:47 - [TOP 无畏契约](http://www.blog.kurohicncr.top/Article/details/45014.shtml)
+- 2026-06-29 15:02 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/826804727626.shtml)
+- 2026-06-29 14:56 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/471077391.shtml)
+- 2026-06-29 15:04 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/51406914673.shtml)
+- 2026-06-29 14:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/010211.shtml)
+- 2026-06-29 15:05 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/344742480354.shtml)
+- 2026-06-29 14:37 - [世界杯超牛补水广告出现了](http://www.blog.kurohicncr.top/Article/details/9895988.shtml)
+- 2026-06-29 14:43 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/255113427.shtml)
+- 2026-06-29 14:59 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/661178902.shtml)

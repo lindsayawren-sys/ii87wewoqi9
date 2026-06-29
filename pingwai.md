@@ -1,58 +1,61 @@
-# 江苏高校新增本科专业点151个 理工农医类占比达70%以上
+# 麦家：如果想保持创造力，一定要进行深阅读
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网南京5月7日电 (记者 徐珊珊)近日，教育部公布2025年度普通高等学校本科专业备案和审批结果。江苏高校共新增本科专业点151个，此次江苏新增的本科专业主动适应国家战略和区域经济社会发展、知识创新、科技进步、产业升级需要，理工农医类占比达70%以上。江南大学、南京林业大学、淮安大学等23所高校增设智能科学与技术、智能电网、智能感知、智能交互设计等与人工智能相关的专业点达2
+中新网北京4月23日电(记者 上官云 郎朗)刷手机、刷短视频……伴随移动互联网的发展，人们得以便捷地获取信息，时间也被分割得愈加碎片化，很难静下心来读一本书。 4月23日是世界读书日。今年2月1日，《全民阅读促进条例》正式实施，亦标志全民阅读进入法治化、常态化的“元年”。那么，在碎片化的“读屏”时代，如何让阅读更加深化？ 近日，著名作家麦家做客中新网演播室，期间多次谈到了阅读的
 
 ## 正文
 
-中新网南京5月7日电 (记者 徐珊珊)近日，教育部公布2025年度普通高等学校本科专业备案和审批结果。
+中新网北京4月23日电(记者 上官云 郎朗)刷手机、刷短视频……伴随移动互联网的发展，人们得以便捷地获取信息，时间也被分割得愈加碎片化，很难静下心来读一本书。
 
-江苏高校共新增本科专业点151个，此次江苏新增的本科专业主动适应国家战略和区域经济社会发展、知识创新、科技进步、产业升级需要，理工农医类占比达70%以上。
+4月23日是世界读书日。
 
-江南大学、南京林业大学、淮安大学等23所高校增设智能科学与技术、智能电网、智能感知、智能交互设计等与人工智能相关的专业点达25个，初步构建了全省高校覆盖人工智能基础理论、核心技术研发与行业场景应用的全链条专业布局，有效填补江苏人工智能产业人才培养缺口。
+今年2月1日，《全民阅读促进条例》正式实施，亦标志全民阅读进入法治化、常态化的“元年”。
 
-针对江苏新能源、生物医药、集成电路、低空经济等重点发展的产业，河海大学、南京信息工程大学、扬州大学等15所高校新增储能科学与工程、合成生物学、集成电路设计与集成系统、低空技术与工程等专业点达27个。
+那么，在碎片化的“读屏”时代，如何让阅读更加深化？
 
-聚焦制造业提质增效，南京邮电大学、南京工业大学、南通大学等12所高校新增智能建造、功能材料等专业点达15个，推动新一代信息技术与传统产业深度融合，助力产业高端化、智能化、绿色化转型。
+近日，著名作家麦家做客中新网演播室，期间多次谈到了阅读的重要性。
 
-推动人文社科专业从传统理论研究向应用型、交叉型方向转变，南京大学、南京师范大学、南京艺术学院、江苏师范大学等9所高校新增国际组织与全球治理、食品营养与健康、艺术与科技、大数据管理与应用等专业点达10个，更好匹配现代服务业和社会治理需求。
+他直言，AI会影响独立思考的能力，如果想保持创造力，一定要进行深度阅读。
 
-中国矿业大学、南京农业大学、江苏大学等5所高校在全国首创开设能源科学与工程、深地科学与工程、数据资源与数据智能、农业机器人等6种目录外新专业，南京大学、东南大学、江南大学、南京林业大学等7所高校新增碳中和科学与工程、生物医药数据科学、医疗器械与装备工程等新兴交叉专业，为新质生产力发展提供复合型人才支撑。
+在麦家看来，AI的出现经常让人们陷入“思维外包”状态：利用AI写论文、写作文，乃至写材料，偶尔一两次可能不会改变什么，但长此以往，写作能力、思考能力会慢慢地丢失。
 
-此外，江苏高校还撤销了55个专业点，包括电子商务、旅游管理、动画、美术学、市场营销、工商管理、劳动与社会保障、土地资源管理、公共事业管理、广播电视学、保险学、广告学、日语、朝鲜语等。
+因此，他建议，不妨设立一个“无屏阅读日”，目的在于传递一份警惕之心、劝导之心，大家每天都拿出一定时间进行深阅读，深阅读直接关联着人们的思考力。
 
 ## 相关推荐
 
-- 2026-06-29 14:42 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 14:35 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 14:30 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 14:46 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 14:35 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 14:35 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 14:47 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 14:33 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 14:33 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 14:42 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 14:35 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 14:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 14:47 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 14:47 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 14:55 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 15:00 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 14:44 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 15:05 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 14:44 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 14:59 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 14:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 14:59 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 14:41 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 15:02 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 14:58 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 15:01 - [链博会上的机器人太全能了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 14:52 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:39 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.kurohicncr.top/Article/details/78074337.shtml)
-- 2026-06-29 14:32 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.kurohicncr.top/Article/details/7559321725.shtml)
-- 2026-06-29 14:46 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/76516.shtml)
-- 2026-06-29 14:45 - [啊啊啊](http://www.share.minike.top/Article/details/536157.shtml)
-- 2026-06-29 14:51 - [严浩翔FIY断层第一](http://www.blog.minike.top/Article/details/4097862.shtml)
-- 2026-06-29 14:57 - [恋与深空 731](https://www.blog.minike.top/Article/details/877180.shtml)
-- 2026-06-29 14:55 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/8305294194.shtml)
-- 2026-06-29 14:47 - [农发行总行专家委员会委员杜晓力被查](https://www.share.minike.top/Article/details/5298739356.shtml)
-- 2026-06-29 14:59 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/706624441.shtml)
-- 2026-06-29 14:30 - [沙特足协主席发布声明主动请辞](https://www.share.kurohicncr.top/Article/details/827686142.shtml)
-- 2026-06-29 14:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/699747029.shtml)
-- 2026-06-29 14:47 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/421499482.shtml)
-- 2026-06-29 14:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/4944732.shtml)
-- 2026-06-29 14:44 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/982834.shtml)
-- 2026-06-29 14:34 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/42543.shtml)
+- 2026-06-29 14:38 - [20年前的周杰伦](https://www.share.minike.top/Article/details/35352.shtml)
+- 2026-06-29 14:53 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/60235295675.shtml)
+- 2026-06-29 14:52 - [韩媒破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/4520214567.shtml)
+- 2026-06-29 15:04 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/09260483149.shtml)
+- 2026-06-29 14:36 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/127009.shtml)
+- 2026-06-29 14:42 - [下飞机后，我做了个很蠢的决定......](http://www.share.minike.top/Article/details/873735375944.shtml)
+- 2026-06-29 14:57 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/318013341076.shtml)
+- 2026-06-29 15:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/5264734.shtml)
+- 2026-06-29 14:52 - [金价银价下跌 油价上涨](https://www.share.minike.top/Article/details/4914035832.shtml)
+- 2026-06-29 15:03 - [爱很美味](https://www.share.kurohicncr.top/Article/details/559632220829.shtml)
+- 2026-06-29 14:58 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/661095.shtml)
+- 2026-06-29 14:36 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/94288226.shtml)
+- 2026-06-29 15:00 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/9704572.shtml)
+- 2026-06-29 14:44 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/883451932172.shtml)
+- 2026-06-29 14:48 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/65916133.shtml)

@@ -1,53 +1,52 @@
-# 2025-2026年榨季超124万吨老挝甘蔗经西双版纳入境
+# 美财政部长称将继续对伊朗“极限施压”
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网云南西双版纳5月8日电(黄远飞 李扬)磨憨出入境边防检查站(下称“磨憨边检站”)8日通报称，2025-2026年中老甘蔗榨季期间，总量超124万吨的老挝甘蔗从云南西双版纳中老边境岔河口岸、曼庄通道、新民通道入境，同比增长超4.2%，预计实现工业产值超7.5亿元。 本榨季自2025年10月29日开始，历时6个多月。其间，磨憨边检站在西双版纳中老边境验放甘蔗运输车辆7万余辆次
+新华社华盛顿4月21日电 美国财政部长贝森特21日在社交媒体上发文称，美国海军将继续封锁伊朗港口，美财政部将继续对伊朗“极限施压”。 贝森特称，在数天内，伊朗关键石油出口枢纽哈尔克岛的储油设施将达到饱和，伊朗油井将关闭。他称，限制伊朗海上贸易可直接打击其主要收入渠道。 贝森特还称，美财政部将继续通过“经济狂怒行动”对伊朗“极限施压”，以“系统性削弱伊朗筹集、转移和回流资金的能力
 
 ## 正文
 
-中新网云南西双版纳5月8日电(黄远飞 李扬)磨憨出入境边防检查站(下称“磨憨边检站”)8日通报称，2025-2026年中老甘蔗榨季期间，总量超124万吨的老挝甘蔗从云南西双版纳中老边境岔河口岸、曼庄通道、新民通道入境，同比增长超4.2%，预计实现工业产值超7.5亿元。
+新华社华盛顿4月21日电 美国财政部长贝森特21日在社交媒体上发文称，美国海军将继续封锁伊朗港口，美财政部将继续对伊朗“极限施压”。
 
-本榨季自2025年10月29日开始，历时6个多月。
+贝森特称，在数天内，伊朗关键石油出口枢纽哈尔克岛的储油设施将达到饱和，伊朗油井将关闭。
 
-其间，磨憨边检站在西双版纳中老边境验放甘蔗运输车辆7万余辆次。
+他称，限制伊朗海上贸易可直接打击其主要收入渠道。
 
-榨季启动以来，面对人多、车密、通关快、时间跨度长等多重考验，磨憨边检站建立健全“警企联动、联检协同、联席会商”工作机制，通过常态化走访精准摸清企业需求，精简查验流程、动态调配警力、科学划分作业区域，优化推出“专用通道、预约通关、分类查验、集中验放”等通关便利举措，最大限度提升通关效率。
+贝森特还称，美财政部将继续通过“经济狂怒行动”对伊朗“极限施压”，以“系统性削弱伊朗筹集、转移和回流资金的能力”。
 
-跨境甘蔗运输是中老两国共建“一带一路”倡议、深化跨境农业合作的重点民生项目，目前已形成“老挝种蔗、中国制糖、两国受益”的成熟共赢模式。
+美国总统特朗普13日称，美方已于美东时间13日10时起，对所有进出伊朗港口的船只实施封锁。
 
-(完)
+伊朗方面表示，美国封锁伊朗港口是战争行为，违反停火协议。
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 14:52 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 14:50 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 14:36 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 14:43 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 14:52 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 14:42 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 14:58 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 14:34 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 14:59 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 14:52 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 14:45 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 15:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 15:01 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 15:02 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 14:43 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 14:38 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 14:55 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 15:00 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 14:43 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 14:56 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:57 - [严浩翔FIY断层第一](http://www.share.kurohicncr.top/Article/details/92869.shtml)
-- 2026-06-29 14:55 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/2904281550.shtml)
-- 2026-06-29 14:55 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/11273104209.shtml)
-- 2026-06-29 14:48 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/0983659.shtml)
-- 2026-06-29 14:51 - [乔家的儿女](http://www.share.minike.top/Article/details/391133.shtml)
-- 2026-06-29 14:41 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/00578.shtml)
-- 2026-06-29 14:49 - [北极荒岛生存挑战](https://www.share.minike.top/Article/details/65966568.shtml)
-- 2026-06-29 14:48 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.kurohicncr.top/Article/details/817385684.shtml)
-- 2026-06-29 14:40 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/85478.shtml)
-- 2026-06-29 14:51 - [给阿嬷的情书海外口碑](https://www.share.kurohicncr.top/Article/details/88817548879.shtml)
-- 2026-06-29 14:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/223139041.shtml)
-- 2026-06-29 14:57 - [王楚钦 表演球擦网](http://www.share.minike.top/Article/details/48141800601.shtml)
-- 2026-06-29 14:33 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.minike.top/Article/details/455617211.shtml)
-- 2026-06-29 14:51 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/198361220465.shtml)
-- 2026-06-29 14:34 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/123987611.shtml)
+- 2026-06-29 14:40 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.kurohicncr.top/Article/details/425141.shtml)
+- 2026-06-29 14:42 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/968250939.shtml)
+- 2026-06-29 14:43 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.kurohicncr.top/Article/details/698305067254.shtml)
+- 2026-06-29 14:59 - [《贺子珍》](https://www.share.minike.top/Article/details/1329195.shtml)
+- 2026-06-29 15:02 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/070057.shtml)
+- 2026-06-29 14:40 - [韩媒破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/370852704286.shtml)
+- 2026-06-29 14:51 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/1726255699.shtml)
+- 2026-06-29 14:41 - [拄拐少年高考663分：用行动回报社会](http://www.blog.kurohicncr.top/Article/details/830153.shtml)
+- 2026-06-29 14:41 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/482715752.shtml)
+- 2026-06-29 15:01 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/24433.shtml)
+- 2026-06-29 14:58 - [我国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/63700458620.shtml)
+- 2026-06-29 14:45 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/30867196.shtml)
+- 2026-06-29 14:37 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/525881728.shtml)
+- 2026-06-29 14:52 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/1432239.shtml)
+- 2026-06-29 14:45 - [俄称继续推进 乌称打击俄军设施](http://www.share.kurohicncr.top/Article/details/25335248673.shtml)

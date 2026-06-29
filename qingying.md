@@ -1,58 +1,60 @@
-# 突发！688496、301139，欺诈发行、财务造假！或将强制退市！
+# 全球共享发展行动论坛第三届高级别会议闭幕
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：证监会严查元道通信财务造假案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！ST清越（维权）（688496）、元道通信（维权）（301139）拉响退市警报。 5月8日晚间，ST清越（以下或称“清越科技”）发布公告称，公司当日收到中国证监会下发的《行政处罚事先告知书》（以下简称《告知书》）。同日，
+中新网北京4月22日电 (记者 官逸伦 曾玥)全球共享发展行动论坛第三届高级别会议22日在北京闭幕，会议发布《共创未来行动计划成果清单》(以下简称“成果清单”)。 中国国家国际发展合作署署长陈晓东当日在闭幕式上表示，成果清单围绕全球发展倡议八大重点合作领域，进一步搭建平台，汇聚资源，加速行动，推进工作，为全球发展繁荣作出新贡献。 据国合署新闻发言人李明介绍，成果清单实现对亚洲、
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：证监会严查元道通信财务造假案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京4月22日电 (记者 官逸伦 曾玥)全球共享发展行动论坛第三届高级别会议22日在北京闭幕，会议发布《共创未来行动计划成果清单》(以下简称“成果清单”)。
 
-ST清越（维权）（688496）、元道通信（维权）（301139）拉响退市警报。
+中国国家国际发展合作署署长陈晓东当日在闭幕式上表示，成果清单围绕全球发展倡议八大重点合作领域，进一步搭建平台，汇聚资源，加速行动，推进工作，为全球发展繁荣作出新贡献。
 
-5月8日晚间，ST清越（以下或称“清越科技”）发布公告称，公司当日收到中国证监会下发的《行政处罚事先告知书》（以下简称《告知书》）。
+据国合署新闻发言人李明介绍，成果清单实现对亚洲、非洲、拉美、南太平洋等发展中国家集中区域全覆盖，包含重大标志性工程、“小而美”民生项目、交流机制、合作平台、大型活动等不同类型成果，落实主体既包括政府部门，也包括国际组织、民间机构。
 
-同日，证监会发文称，清越科技涉嫌触及重大违法强制退市情形，上交所将依法启动退市程序。
+中方将建立专门机制，督促评估成果落实。
 
-《告知书》显示，清越科技存在公告的证券发行文件编造重大虚假内容；未按规定披露重大事项，2022 年年度报告、2023 年半年度报告信息披露存在虚假记载。
+今年是中国提出全球发展倡议5周年。
 
-经查，2021年，清越科技通过故意少计存货跌价准备、虚假销售芯片等方式虚增利润总额1065.49万元，占《招股说明书》上会稿、注册稿披露的2021年度利润总额的21.72%。
+李明表示，中国经济长期向好的支撑条件和基本趋势没有变，制度优势和大国优势不断彰显，愿加大对全球发展合作的资源投入，致力于缩小南北差距，坚定支持和帮助广大发展中国家加快发展。
 
-清越科技在公告的证券发行文件中编造重大虚假内容。
+据悉，来自140多个国家、国际及地区组织、专门机构的600余名代表线上线下参加了全球共享发展行动论坛第三届高级别会议。
 
-另外，2022年至2023年上半年，清越科技因故意少计存货跌价准备、少计应收账款减值损失、虚假销售显示模组、未及时对补缴税款进行会计处理等事项，导致2022年度利润总额虚增4540.21万元、占2022年年度报告披露利润总额的104.58%，导致2023年上半年利润总额虚增4753.6万元、占2023年半年度报告披露利润总额绝对值的145.10%。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:55 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 15:00 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 14:34 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 14:43 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 14:48 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 14:59 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 14:49 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 14:55 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 14:51 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 14:49 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 14:54 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 14:49 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 14:57 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 14:46 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 14:40 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 14:46 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 14:51 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 14:49 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 14:53 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 14:43 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 14:40 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 14:44 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 14:48 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 14:44 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 14:47 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 14:45 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:59 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/38132356558.shtml)
-- 2026-06-29 14:34 - [中方将20家日本实体列入关注名单](https://www.share.kurohicncr.top/Article/details/01648437.shtml)
-- 2026-06-29 14:49 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/845553495.shtml)
-- 2026-06-29 14:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/03806.shtml)
-- 2026-06-29 14:52 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/348170.shtml)
-- 2026-06-29 14:40 - [爱很美味](https://www.share.minike.top/Article/details/95855956.shtml)
-- 2026-06-29 14:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/61739.shtml)
-- 2026-06-29 14:48 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/514667736503.shtml)
-- 2026-06-29 14:32 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/532114.shtml)
-- 2026-06-29 14:41 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/86953.shtml)
-- 2026-06-29 14:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/9845304.shtml)
-- 2026-06-29 14:59 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/658827803109.shtml)
-- 2026-06-29 14:38 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/7509575.shtml)
-- 2026-06-29 14:47 - [双高胎](http://www.blog.kurohicncr.top/Article/details/46257.shtml)
-- 2026-06-29 14:58 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/31815322.shtml)
+- 2026-06-29 14:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/3381021481.shtml)
+- 2026-06-29 15:00 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/0109113.shtml)
+- 2026-06-29 14:41 - [人民日报评“AI脸看腻了”](http://www.share.kurohicncr.top/Article/details/5182778273.shtml)
+- 2026-06-29 15:01 - [四川宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/903784100160.shtml)
+- 2026-06-29 15:03 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/787290105628.shtml)
+- 2026-06-29 14:51 - [普京称考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/955069751182.shtml)
+- 2026-06-29 14:45 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/569427.shtml)
+- 2026-06-29 14:45 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/301588568.shtml)
+- 2026-06-29 15:05 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/78178461616.shtml)
+- 2026-06-29 14:56 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/3730340.shtml)
+- 2026-06-29 14:36 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/009084785.shtml)
+- 2026-06-29 14:54 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/51629.shtml)
+- 2026-06-29 14:47 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/075011605.shtml)
+- 2026-06-29 14:58 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/53117.shtml)
+- 2026-06-29 14:43 - [美伊同意停止互袭](https://www.share.minike.top/Article/details/01115958.shtml)

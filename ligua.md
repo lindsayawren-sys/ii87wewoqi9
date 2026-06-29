@@ -1,59 +1,45 @@
-# 大增684亿美元，4月末外汇储备增至34105.47亿美元
+# 大美边疆看我家丨黑龙江哈尔滨：江畔夜景醉人心
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-4月中国外汇储备余额大增。 国家外汇管理局5月7日公布的最新数据显示，截至2026年4月末，我国外汇储备规模为34105.47亿美元，较3月末的33421.23亿美元大增684.24亿美元，升幅为2.05%。 外汇局表示，2026年4月，受宏观经济数据、主要经济体货币政策及预期等因素影响，美元指数下跌，全球主要金融资产价格表现有所分化。汇率折算和资产价格变化等因素综合作用，当月
+发布时间：2026年04月23日 11:17 来源：中国新闻网 在哈尔滨公路大桥，车流穿梭于江水之上，灯光与黄昏交相辉映，形成一幅独特的江畔夜景图。(作者：孙钰博） 责任编辑：【魏聪聪】
 
 ## 正文
 
-4月中国外汇储备余额大增。
+发布时间：2026年04月23日 11:17 来源：中国新闻网 在哈尔滨公路大桥，车流穿梭于江水之上，灯光与黄昏交相辉映，形成一幅独特的江畔夜景图。
 
-国家外汇管理局5月7日公布的最新数据显示，截至2026年4月末，我国外汇储备规模为34105.47亿美元，较3月末的33421.23亿美元大增684.24亿美元，升幅为2.05%。
-
-外汇局表示，2026年4月，受宏观经济数据、主要经济体货币政策及预期等因素影响，美元指数下跌，全球主要金融资产价格表现有所分化。
-
-汇率折算和资产价格变化等因素综合作用，当月外汇储备规模上升。
-
-我国不断巩固拓展经济稳中向好态势，发展韧性和活力进一步彰显，有利于外汇储备规模保持基本稳定。
-
-同日公布的黄金储备数据显示，中国黄金储备连续18个月增加。
-
-中国人民银行5月7日更新的官方储备资产数据显示，截至2026年4月末，中国黄金储备为7464万盎司，较3月末的7438万盎司增加26万盎司。
-
-中国央行本轮增持黄金始于2024年11月，截至2026年4月末，已经连续18个月增持黄金。
+(作者：孙钰博） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 14:52 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 14:52 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 14:46 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 14:54 - [世界杯用球成部分门将噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 14:34 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 14:55 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 14:40 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 14:50 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 14:45 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 14:51 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 14:53 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 14:53 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 14:42 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 14:36 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 14:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 14:37 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 15:04 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 14:52 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 15:02 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 14:47 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 14:56 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 15:00 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 14:45 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [灿如繁星定档](https://www.blog.minike.top/Article/details/588071.shtml)
-- 2026-06-29 14:44 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/538604262068.shtml)
-- 2026-06-29 14:41 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.minike.top/Article/details/3035162.shtml)
-- 2026-06-29 14:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/1528976.shtml)
-- 2026-06-29 14:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/359032651.shtml)
-- 2026-06-29 14:31 - [给阿嬷的情书海外口碑](https://www.blog.kurohicncr.top/Article/details/3744515121.shtml)
-- 2026-06-29 14:53 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/414532825496.shtml)
-- 2026-06-29 14:37 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.kurohicncr.top/Article/details/42278636.shtml)
-- 2026-06-29 14:38 - [拄拐少年高考663分：用行动回报社会](https://www.share.kurohicncr.top/Article/details/47503205061.shtml)
-- 2026-06-29 14:52 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/55954244.shtml)
-- 2026-06-29 14:30 - [手游300亿数据或被军事化运用](http://www.blog.kurohicncr.top/Article/details/77053787717.shtml)
-- 2026-06-29 14:35 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/36495237485.shtml)
-- 2026-06-29 14:52 - [复盘曾沛慈浪姐夺冠之路](http://www.share.kurohicncr.top/Article/details/93695421108.shtml)
-- 2026-06-29 14:51 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/36885995169.shtml)
-- 2026-06-29 14:38 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/2841597.shtml)
+- 2026-06-29 14:59 - [TOP 无畏契约](https://www.blog.kurohicncr.top/Article/details/42356659277.shtml)
+- 2026-06-29 14:53 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/48326.shtml)
+- 2026-06-29 14:45 - [日本主帅：对战胜巴西很有信心](https://www.share.kurohicncr.top/Article/details/19369658.shtml)
+- 2026-06-29 15:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/94382826113.shtml)
+- 2026-06-29 14:57 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/40727153399.shtml)
+- 2026-06-29 14:47 - [吴建豪老婆](http://www.blog.kurohicncr.top/Article/details/547189.shtml)
+- 2026-06-29 14:55 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/641319688951.shtml)
+- 2026-06-29 14:56 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/59243.shtml)
+- 2026-06-29 14:43 - [金价银价下跌 油价上涨](http://www.share.kurohicncr.top/Article/details/1709141.shtml)
+- 2026-06-29 14:42 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.minike.top/Article/details/8584552534.shtml)
+- 2026-06-29 14:56 - [恋与深空底线不该被娱乐化](http://www.blog.minike.top/Article/details/459685826.shtml)
+- 2026-06-29 14:54 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/1984907951.shtml)
+- 2026-06-29 14:54 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.minike.top/Article/details/73125965.shtml)
+- 2026-06-29 14:49 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/578205157738.shtml)
+- 2026-06-29 15:00 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.kurohicncr.top/Article/details/445178545.shtml)

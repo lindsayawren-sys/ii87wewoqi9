@@ -1,59 +1,59 @@
-# 开局起步“十五五”：泉城济南如何“泉”力争先？
+# 受权发布丨中共中央办公厅 国务院办公厅关于更高水平更高质量做好节能降碳工作的意见
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网济南5月7日电 题：开局起步“十五五”：泉城济南如何“泉”力争先？ 作者 李明芮 “十五五”是山东济南建设强省会的关键时期。济南市人民政府新闻办公室5月7日举行“开局起步‘十五五’ 勇当排头兵建设强省会”专题新闻发布会，介绍该市“十五五”时期经济社会发展主要目标、重大任务和创新举措。开局起步“十五五”，泉城济南如何“泉”力争先？ 建设区域性科技创新高地 创新是引领发展的第
+新华社北京4月22日电 中共中央办公厅 国务院办公厅关于更高水平更高质量做好节能降碳工作的意见 (2026年4月11日) 节能降碳是推进碳达峰碳中和、加快发展方式绿色转型的重要抓手，是维护国家能源安全、促进产业提质升级的重要支撑。为更高水平、更高质量做好节能降碳工作，经党中央、国务院同意，现提出如下意见。一、总体要求 坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻党的二
 
 ## 正文
 
-中新网济南5月7日电 题：开局起步“十五五”：泉城济南如何“泉”力争先？
+新华社北京4月22日电 中共中央办公厅 国务院办公厅关于更高水平更高质量做好节能降碳工作的意见 (2026年4月11日) 节能降碳是推进碳达峰碳中和、加快发展方式绿色转型的重要抓手，是维护国家能源安全、促进产业提质升级的重要支撑。
 
-作者 李明芮 “十五五”是山东济南建设强省会的关键时期。
+为更高水平、更高质量做好节能降碳工作，经党中央、国务院同意，现提出如下意见。
 
-济南市人民政府新闻办公室5月7日举行“开局起步‘十五五’ 勇当排头兵建设强省会”专题新闻发布会，介绍该市“十五五”时期经济社会发展主要目标、重大任务和创新举措。
+一、总体要求 坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻党的二十大和二十届历次全会精神，认真落实四中全会部署，完整准确全面贯彻新发展理念，坚持稳中求进工作总基调，坚持有效市场和有为政府相结合，统筹发展和安全，一以贯之坚持节约优先方针，把节能降碳贯穿经济社会发展全过程各方面，更高水平、更高质量做好节能降碳工作，坚决遏制能源消费总量不合理增长，持续提升能源资源产出效率，从源头有效减少碳排放，为实现碳达峰碳中和、加快经济社会发展全面绿色转型提供有力保障。
 
-开局起步“十五五”，泉城济南如何“泉”力争先？
+二、协同推进节能降碳与绿色转型 (一)统筹节能降碳与产业优化升级。
 
-建设区域性科技创新高地 创新是引领发展的第一动力，踏上“十五五”新征程，济南将立足“十四五”科创发展坚实根基，锚定区域性科技创新高地建设目标，以更大力度、更实举措激活创新动能，推动科技创新与产业发展深度融合。
+加强节能降碳与产业规划、产能调控等政策衔接协同，强化节能降碳激励约束和标准提升引领，持续降低产业对能源的依赖。
 
-《济南市国民经济和社会发展第十五个五年规划纲要》提出建设区域性科技创新高地，重点推动创新成果从“实验室”走向“生产线”，让创新创业生态更具活力。
+大力推广节能低碳、清洁生产技术装备和产品，积极推行市场化节能降碳服务，支持运用数智技术、绿色技术改造提升传统产业。
 
-济南市委副书记、市长于海田表示，在促进成果转化方面，该市将发挥山东科技大市场作用，建立全市统一的成果库和需求库，打造“科技成果转化服务超市”。
+有力有效管控高耗能高排放项目，依法有序推进落后低效产能和工艺设备出清，协同化解重点产业结构性矛盾。
 
-在人工智能、集成电路等前沿领域，济南将重点建成运行晶谷集成电路中试平台、“泉试成”共享制造平台等专业转化服务平台。
+加快发展先进制造业、高新技术产业和现代服务业，大力发展绿色低碳产业，积极培育有利于节能降碳的新产业、新业态。
 
 ## 相关推荐
 
-- 2026-06-29 14:31 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 14:44 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 14:56 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 14:33 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 14:59 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 14:53 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 14:34 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 14:49 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 14:50 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 14:56 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 14:48 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 14:35 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 14:41 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 14:52 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 15:01 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 14:44 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 14:55 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 14:48 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 15:01 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 15:02 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 14:37 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 14:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 14:57 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 14:49 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 15:05 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 15:00 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:30 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/74518336712.shtml)
-- 2026-06-29 14:48 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/990886769734.shtml)
-- 2026-06-29 14:50 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/84846.shtml)
-- 2026-06-29 14:31 - [市民骑哈啰单车79分钟付30元](https://www.share.kurohicncr.top/Article/details/76784814606.shtml)
-- 2026-06-29 14:55 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/05532720.shtml)
-- 2026-06-29 14:59 - [起风了](http://www.blog.minike.top/Article/details/776953188.shtml)
-- 2026-06-29 14:47 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/65347479695.shtml)
-- 2026-06-29 14:53 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/417537504667.shtml)
-- 2026-06-29 14:59 - [女心理师](https://www.share.minike.top/Article/details/7351687.shtml)
-- 2026-06-29 14:42 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/4818110.shtml)
-- 2026-06-29 14:49 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/612605700057.shtml)
-- 2026-06-29 14:41 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/779912606871.shtml)
-- 2026-06-29 14:30 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/273677.shtml)
-- 2026-06-29 14:32 - [NBA交易](http://www.share.kurohicncr.top/Article/details/1687959.shtml)
-- 2026-06-29 14:53 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.kurohicncr.top/Article/details/9228606.shtml)
+- 2026-06-29 14:55 - [扫黑风暴](https://www.share.minike.top/Article/details/16371719932.shtml)
+- 2026-06-29 14:41 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/73049588.shtml)
+- 2026-06-29 14:57 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/162501.shtml)
+- 2026-06-29 14:52 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/39808208.shtml)
+- 2026-06-29 14:46 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/33629890826.shtml)
+- 2026-06-29 14:40 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/035724833309.shtml)
+- 2026-06-29 14:42 - [金价银价下跌 油价上涨](https://www.blog.kurohicncr.top/Article/details/38567617.shtml)
+- 2026-06-29 15:01 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/1796596.shtml)
+- 2026-06-29 14:58 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/80715.shtml)
+- 2026-06-29 14:45 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/890771861.shtml)
+- 2026-06-29 14:36 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/060178.shtml)
+- 2026-06-29 14:38 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.kurohicncr.top/Article/details/72576.shtml)
+- 2026-06-29 14:44 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/42144118060.shtml)
+- 2026-06-29 14:50 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/542826237618.shtml)
+- 2026-06-29 15:02 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/9910150.shtml)

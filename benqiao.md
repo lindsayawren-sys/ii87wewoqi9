@@ -1,55 +1,60 @@
-# 基石科技控股联营公司Spark拟在泰国收购6个充电地点
+# 6万亿差距拉开 居民财富重构 公募基金规模大超银行理财
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-基石科技控股（08391）公布，公司的联营公司Spark EV Company Limited （Spark）已签署其首份收购条款清单，据此将向泰国当地电动汽车（EV）充电网络运营商E-cocharge Solutions Co．， Ltd（Eco-Flash）收购6个充电地点，合共24个充电点（每个充电点功率为60kW）。 Eco-Flash专门从事快速直流（DC）充电解决方
+居民财富管理正在深度重构。 近期，公募基金规模持续攀升、发行市场“暖意盎然”。同时，数据显示，公募基金实现“弯道超车”，逐渐取代银行理财，成为普通投资者的首选项。记者了解到，今年一季度末，银行理财规模跌至32万亿元之下。而在今年2月末，公募基金的规模已经突破38万亿元，创下历史新高，优势进一步扩大。若以2月末公募基金规模与3月末银行理财规模计算，约6万亿规模的差距已经拉开。 银
 
 ## 正文
 
-基石科技控股（08391）公布，公司的联营公司Spark EV Company Limited （Spark）已签署其首份收购条款清单，据此将向泰国当地电动汽车（EV）充电网络运营商E-cocharge Solutions Co．， Ltd（Eco-Flash）收购6个充电地点，合共24个充电点（每个充电点功率为60kW）。
+居民财富管理正在深度重构。
 
-Eco-Flash专门从事快速直流（DC）充电解决方案，其投资组合主要位于曼谷大都会区社区商场的城市停车场。
+近期，公募基金规模持续攀升、发行市场“暖意盎然”。
 
-此交易标志着Spark在泰国的首宗收购。
+同时，数据显示，公募基金实现“弯道超车”，逐渐取代银行理财，成为普通投资者的首选项。
 
-集团仍致力于实现在泰国建立拥有1，000个电动汽车充电站的全面网络的长期愿景。
+记者了解到，今年一季度末，银行理财规模跌至32万亿元之下。
 
-Spark将继续积极寻求额外的收购目标及战略合作伙伴，以加速此项部署，并加强集团作为东协（ASEAN）地区领先电动汽车充电服务供应商的地位。
+而在今年2月末，公募基金的规模已经突破38万亿元，创下历史新高，优势进一步扩大。
 
-责任编辑：卢昱君
+若以2月末公募基金规模与3月末银行理财规模计算，约6万亿规模的差距已经拉开。
+
+银行理财一季度规模下降1.38万亿元 4月17日，银行业理财登记托管中心发布《中国银行业理财市场季度报告（2026年一季度）》（以下简称《报告》）显示，截至2026年一季度末，全市场共存续产品4.80万只，同比增加18.23%；存续规模31.91万亿元，同比增加9.51%。
+
+虽然存续规模同比出现增长，但环比却出现明显下降。
 
 ## 相关推荐
 
-- 2026-06-29 14:50 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 14:30 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 14:54 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 14:57 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 14:40 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 14:57 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 14:52 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 14:59 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 14:37 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 14:32 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 14:58 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 14:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 14:32 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 14:57 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 14:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 15:02 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 14:47 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 14:53 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 15:02 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 15:00 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 14:57 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 14:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 15:01 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 14:49 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 14:47 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 14:41 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 14:57 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:30 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.kurohicncr.top/Article/details/908634910.shtml)
-- 2026-06-29 14:33 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/75215.shtml)
-- 2026-06-29 14:36 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/331883665623.shtml)
-- 2026-06-29 14:55 - [久坐小心“死臀综合征”](http://www.share.minike.top/Article/details/3351331954.shtml)
-- 2026-06-29 14:42 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/8868780154.shtml)
-- 2026-06-29 14:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/340399829.shtml)
-- 2026-06-29 14:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/7975237323.shtml)
-- 2026-06-29 14:43 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/8286645638.shtml)
-- 2026-06-29 14:35 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.kurohicncr.top/Article/details/541154.shtml)
-- 2026-06-29 14:31 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/06994061081.shtml)
-- 2026-06-29 14:38 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/4571985819.shtml)
-- 2026-06-29 14:45 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/97235859.shtml)
-- 2026-06-29 14:57 - [航空运输旅客服务质量国标将实施](http://www.share.minike.top/Article/details/73124.shtml)
-- 2026-06-29 14:42 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/14463923470.shtml)
-- 2026-06-29 14:55 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/843312.shtml)
+- 2026-06-29 14:56 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/22476545639.shtml)
+- 2026-06-29 14:49 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/6854309.shtml)
+- 2026-06-29 14:42 - [詹俊预测德国大胜巴拉圭](http://www.blog.minike.top/Article/details/750691.shtml)
+- 2026-06-29 14:44 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/636207.shtml)
+- 2026-06-29 15:01 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/99448497.shtml)
+- 2026-06-29 14:55 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/76525036493.shtml)
+- 2026-06-29 14:53 - [斗破苍穹](http://www.blog.minike.top/Article/details/016085385383.shtml)
+- 2026-06-29 14:37 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.share.kurohicncr.top/Article/details/13693303377.shtml)
+- 2026-06-29 14:55 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/92507.shtml)
+- 2026-06-29 14:41 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.minike.top/Article/details/551492.shtml)
+- 2026-06-29 14:54 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/7954326.shtml)
+- 2026-06-29 14:55 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/42832270.shtml)
+- 2026-06-29 15:01 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/8731809.shtml)
+- 2026-06-29 14:37 - [世界杯看到肖战了](https://www.share.kurohicncr.top/Article/details/131722.shtml)
+- 2026-06-29 14:48 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/166760.shtml)

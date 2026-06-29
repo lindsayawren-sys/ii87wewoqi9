@@ -1,60 +1,54 @@
-# 平价社区超市正成外国人融入上海的“说明书”
+# 日经指数或下跌 因美伊和谈希望减弱
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网上海5月7日电 题：平价社区超市正成外国人融入上海的“说明书” 中新网记者李佳佳 最近，一块标价0.79元人民币的内酯豆腐，让在上海居住的美国人尤金成了网络红人，也让“中国平价社区超市”走进海外网友的视野。 几天前，尤金在住处附近的社区超市购物时，被门店的物价震惊了。水果、蔬菜、肉……远比他所在国家要便宜，最令他惊叹的是仅售0.79元人民币的内酯豆腐，他随手举起豆腐，对着
+日本股市可能下跌，因美伊和谈前景减弱。副总统JD·万斯取消了前往巴基斯坦与伊朗就结束战争进行谈判的计划。新加坡交易所的日经指数期货下跌0.7%，至58945点。投资者正在关注中东冲突以及日本政府为帮助确保能源和石化产品供应而采取的任何措施。日经指数周二上涨0.9%，至59349.17点。责任编辑：王永生
 
 ## 正文
 
-中新网上海5月7日电 题：平价社区超市正成外国人融入上海的“说明书” 中新网记者李佳佳 最近，一块标价0.79元人民币的内酯豆腐，让在上海居住的美国人尤金成了网络红人，也让“中国平价社区超市”走进海外网友的视野。
+日本股市可能下跌，因美伊和谈前景减弱。
 
-几天前，尤金在住处附近的社区超市购物时，被门店的物价震惊了。
+副总统JD·万斯取消了前往巴基斯坦与伊朗就结束战争进行谈判的计划。
 
-水果、蔬菜、肉……远比他所在国家要便宜，最令他惊叹的是仅售0.79元人民币的内酯豆腐，他随手举起豆腐，对着手机录了一段视频：“因为才7毛9，太便宜了，就买了，所以现在应该怎么吃？
+新加坡交易所的日经指数期货下跌0.7%，至58945点。
 
-” 视频很快引来大量评论，有正儿八经教他怎么吃的，也有说这是“中国布丁”，让他蘸点白糖吃的搞笑回应，其中还不乏海外IP，感慨价格着实惊掉下巴。
+投资者正在关注中东冲突以及日本政府为帮助确保能源和石化产品供应而采取的任何措施。
 
-这块“震惊”老外的豆腐，来自此间一家主打“天天低价、件件爆款”的平价社区超市。
+日经指数周二上涨0.9%，至59349.17点。
 
-该超市通过工厂直采、精简包装等方式严控成本，提供价格亲民的日用品和生鲜食品。
-
-对在上海工作、学习的外国人来说，这种物美价廉的平价社区超市所带来的冲击无疑是巨大的。
-
-在中国实习一年多的艾伦，对这种“烟火气”有着更深的体会。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 14:42 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 14:35 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 14:48 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 14:45 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 14:31 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 14:54 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 14:47 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 14:38 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 14:33 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 14:39 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 14:50 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 14:42 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 14:32 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 14:36 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 14:44 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 14:52 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 14:39 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 14:59 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 15:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 14:53 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 15:03 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 14:54 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 14:54 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 14:55 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 14:51 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 14:44 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:41 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/91853491.shtml)
-- 2026-06-29 14:44 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/22943664017.shtml)
-- 2026-06-29 14:58 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/80427588077.shtml)
-- 2026-06-29 14:33 - [T1对战KC](https://www.blog.minike.top/Article/details/69142856.shtml)
-- 2026-06-29 14:54 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/889448620.shtml)
-- 2026-06-29 14:49 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/615109769.shtml)
-- 2026-06-29 14:30 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/694404773772.shtml)
-- 2026-06-29 14:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/00232.shtml)
-- 2026-06-29 14:58 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/3479449.shtml)
-- 2026-06-29 14:43 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/012517063062.shtml)
-- 2026-06-29 14:37 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/4955871.shtml)
-- 2026-06-29 14:56 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/47969143.shtml)
-- 2026-06-29 14:41 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/324411447.shtml)
-- 2026-06-29 14:36 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/16397788.shtml)
-- 2026-06-29 14:44 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/192195.shtml)
+- 2026-06-29 14:58 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/587866708.shtml)
+- 2026-06-29 14:56 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/5846264.shtml)
+- 2026-06-29 14:37 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/906297.shtml)
+- 2026-06-29 14:46 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/4640650.shtml)
+- 2026-06-29 14:45 - [爸爸当家](http://www.blog.minike.top/Article/details/139441558.shtml)
+- 2026-06-29 14:54 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/9770154.shtml)
+- 2026-06-29 14:40 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.minike.top/Article/details/880193795.shtml)
+- 2026-06-29 14:37 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/1882684.shtml)
+- 2026-06-29 14:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/6795907.shtml)
+- 2026-06-29 14:44 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/675073910887.shtml)
+- 2026-06-29 15:00 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/662119944.shtml)
+- 2026-06-29 14:52 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/669991923.shtml)
+- 2026-06-29 14:39 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/26344684.shtml)
+- 2026-06-29 14:37 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/53174166353.shtml)
+- 2026-06-29 14:52 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/07778968257.shtml)

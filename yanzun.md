@@ -1,53 +1,59 @@
-# 王楚钦：不提倡任何生日应援活动 希望多关注比赛
+# 上海一季度经济运行开局良好 货物进出口增势强劲
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 09:59 来源：中国新闻网 5月8日，正在伦敦征战世乒赛的王楚钦发文表示，关于即将到来的生日，不提倡也不会参与任何形式的生日应援活动。大家多关注比赛就是对他最好的支持。一起为中国队加油！ (制作 刘鹏） 责任编辑：【罗攀】
+中新社上海4月22日电 (记者 李姝徵)上海市统计局22日发布2026年一季度上海市国民经济运行情况。数据显示，上海经济运行开局良好，新兴动能持续增强。 根据地区生产总值统一核算结果，一季度，上海实现地区生产总值13526.91亿元(人民币，下同)，按不变价格计算，同比增长5.9%。分产业看，第一产业增加值21.33亿元，增长3.4%；第二产业增加值2509.32亿元，增长5.
 
 ## 正文
 
-发布时间：2026年05月08日 09:59 来源：中国新闻网 5月8日，正在伦敦征战世乒赛的王楚钦发文表示，关于即将到来的生日，不提倡也不会参与任何形式的生日应援活动。
+中新社上海4月22日电 (记者 李姝徵)上海市统计局22日发布2026年一季度上海市国民经济运行情况。
 
-大家多关注比赛就是对他最好的支持。
+数据显示，上海经济运行开局良好，新兴动能持续增强。
 
-一起为中国队加油！
+根据地区生产总值统一核算结果，一季度，上海实现地区生产总值13526.91亿元(人民币，下同)，按不变价格计算，同比增长5.9%。
 
-(制作 刘鹏） 责任编辑：【罗攀】
+分产业看，第一产业增加值21.33亿元，增长3.4%；第二产业增加值2509.32亿元，增长5.2%；第三产业增加值10996.26亿元，增长6.0%。
+
+先导产业有力支撑了上海经济的稳步增长。
+
+一季度，上海三大先导产业制造业产值同比增长16.1%，增速高于全市工业平均水平10.5个百分点。
+
+上海市统计局方面表示，受益于先进工艺产能持续释放、关键材料与设备国产化进程加快，今年一季度，上海市集成电路制造业产值增长21.3%。
+
+受益于细胞与基因治疗、高端医疗器械等前沿领域加速突破，今年一季度，上海市生物医药制造业产值增长9.6%，其中，治疗性生物制品、医学影像设备产值分别增长19.6%、16.9%。
 
 ## 相关推荐
 
-- 2026-06-29 14:48 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 14:45 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 14:34 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 14:49 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 14:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 14:53 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 14:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 14:46 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 14:37 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 14:42 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 14:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 14:31 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 14:55 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 14:48 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 14:59 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 14:42 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 14:37 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 14:42 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 14:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 14:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 14:40 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 15:03 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 14:39 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 14:41 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 14:37 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 15:05 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 14:45 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 14:39 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/13115172.shtml)
-- 2026-06-29 14:54 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/40656.shtml)
-- 2026-06-29 14:33 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/68201432.shtml)
-- 2026-06-29 14:32 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.kurohicncr.top/Article/details/753955488.shtml)
-- 2026-06-29 14:32 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/370003.shtml)
-- 2026-06-29 14:32 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/18812551765.shtml)
-- 2026-06-29 14:49 - [Canna纳尔8-0对位单杀Doran](https://www.share.minike.top/Article/details/6336602.shtml)
-- 2026-06-29 14:33 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/46132.shtml)
-- 2026-06-29 14:49 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/0844644791.shtml)
-- 2026-06-29 14:35 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/8177223.shtml)
-- 2026-06-29 14:34 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/5508556646.shtml)
-- 2026-06-29 14:51 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.minike.top/Article/details/485698823629.shtml)
-- 2026-06-29 14:52 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/4919409.shtml)
-- 2026-06-29 14:45 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/07360.shtml)
-- 2026-06-29 14:43 - [直击宜宾地震：监控剧烈摇晃](https://www.share.minike.top/Article/details/800226.shtml)
+- 2026-06-29 14:42 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/986934.shtml)
+- 2026-06-29 15:04 - [首尔商铺禁止洪明甫入内](http://www.blog.kurohicncr.top/Article/details/642928.shtml)
+- 2026-06-29 14:48 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/12078057590.shtml)
+- 2026-06-29 14:57 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/78936.shtml)
+- 2026-06-29 14:37 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/6505890298.shtml)
+- 2026-06-29 14:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/3473399388.shtml)
+- 2026-06-29 14:36 - [金刚川](http://www.blog.kurohicncr.top/Article/details/211983226.shtml)
+- 2026-06-29 15:00 - [异世界一点都不好玩！](https://www.blog.minike.top/Article/details/79688300122.shtml)
+- 2026-06-29 14:36 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/6403285298.shtml)
+- 2026-06-29 14:46 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/23486.shtml)
+- 2026-06-29 14:44 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/2415379.shtml)
+- 2026-06-29 14:39 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/990591985601.shtml)
+- 2026-06-29 14:47 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/170030389.shtml)
+- 2026-06-29 14:45 - [农发行总行专家委员会委员杜晓力被查](https://www.share.minike.top/Article/details/571267.shtml)
+- 2026-06-29 14:53 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/951597311.shtml)

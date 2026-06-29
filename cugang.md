@@ -1,56 +1,61 @@
-# 英伟达出资数十亿美元助力康宁新建工厂
+# 克宫：普京愿在协议最终敲定阶段与泽连斯基会面
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-英伟达和康宁公司的首席执行官周四证实，除了本周早些时候披露的至多32 亿美元股权投资外，英伟达还额外出资数十亿美元，助力康宁新建工厂。 英伟达CEO黄仁勋表示，该公司已向康宁支付了数十亿美元的预付款。本周早些时候英伟达宣布对康宁进行股权投资时，并未披露这笔预付款项。康宁生产的玻璃可用于大型数据中心内服务器互联的光纤线缆。黄仁勋与康宁CEO温德尔・威克斯在一次联合访谈中披露了这些
+中新网4月23日电 据《基辅独立报》报道，俄罗斯总统新闻秘书佩斯科夫4月22日表示，俄总统普京愿与乌克兰总统泽连斯基会面，但只有在俄乌和平协议最终敲定阶段，这样的会面才能富有成效。 报道称，同一天，泽连斯基呼吁乌克兰、俄罗斯和美国恢复三方和平谈判。随着美国将重心转向对伊朗战事，旨在结束乌克兰危机的谈判陷入停滞。 佩斯科夫表示，普京将在特定条件下与泽连斯基会面。 佩斯科夫称：“普
 
 ## 正文
 
-英伟达和康宁公司的首席执行官周四证实，除了本周早些时候披露的至多32 亿美元股权投资外，英伟达还额外出资数十亿美元，助力康宁新建工厂。
+中新网4月23日电 据《基辅独立报》报道，俄罗斯总统新闻秘书佩斯科夫4月22日表示，俄总统普京愿与乌克兰总统泽连斯基会面，但只有在俄乌和平协议最终敲定阶段，这样的会面才能富有成效。
 
-英伟达CEO黄仁勋表示，该公司已向康宁支付了数十亿美元的预付款。
+报道称，同一天，泽连斯基呼吁乌克兰、俄罗斯和美国恢复三方和平谈判。
 
-本周早些时候英伟达宣布对康宁进行股权投资时，并未披露这笔预付款项。
+随着美国将重心转向对伊朗战事，旨在结束乌克兰危机的谈判陷入停滞。
 
-康宁生产的玻璃可用于大型数据中心内服务器互联的光纤线缆。
+佩斯科夫表示，普京将在特定条件下与泽连斯基会面。
 
-黄仁勋与康宁CEO温德尔・威克斯在一次联合访谈中披露了这些细节。
+佩斯科夫称：“普京表示，他随时准备在莫斯科与泽连斯基会面。
 
-“这将创造数千个就业岗位，”黄仁勋说，“他将建造全新的工厂”，这将使美国的产能“提高十倍”。
+关键在于必须有开会的理由，而且至关重要的是，会议必须富有成效。
 
-在随后的采访中，威克斯证实了这笔预付款，但没有透露具体金额，并表示这与股权投资无关。
+会议的目的只能是最终达成协议。
 
-“他将帮助我们在美国投资建设这些大型工厂，此外，他还可以选择持有我们公司约30亿美元的股权，”威克斯表示。
+”泽连斯基已多次排除莫斯科作为和平谈判地点的可能性。
 
 ## 相关推荐
 
-- 2026-06-29 14:55 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 14:41 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 14:51 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 14:49 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 14:34 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 14:47 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 14:57 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 14:40 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 14:38 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 14:35 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 14:42 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 14:49 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 15:02 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 14:53 - [下飞机后，我做了个很蠢的决定......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 14:39 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 14:38 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 14:57 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 15:03 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 14:54 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 15:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 14:43 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 14:38 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 14:40 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 14:54 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 14:42 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/464534118532.shtml)
-- 2026-06-29 14:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/369543779702.shtml)
-- 2026-06-29 14:55 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/896419520449.shtml)
-- 2026-06-29 14:45 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/28299249.shtml)
-- 2026-06-29 14:40 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/63362601579.shtml)
-- 2026-06-29 14:38 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/619676.shtml)
-- 2026-06-29 14:52 - [逆天祖国人](http://www.share.minike.top/Article/details/8241684.shtml)
-- 2026-06-29 14:43 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/677713299.shtml)
-- 2026-06-29 14:58 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/394145.shtml)
-- 2026-06-29 14:52 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/59571932.shtml)
-- 2026-06-29 14:46 - [复盘曾沛慈浪姐夺冠之路](http://www.blog.kurohicncr.top/Article/details/505570491811.shtml)
-- 2026-06-29 14:47 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.kurohicncr.top/Article/details/4342515003.shtml)
-- 2026-06-29 14:43 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/17088.shtml)
-- 2026-06-29 14:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/9380379.shtml)
-- 2026-06-29 14:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/500336694775.shtml)
+- 2026-06-29 14:44 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/3365161.shtml)
+- 2026-06-29 14:41 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/986352632513.shtml)
+- 2026-06-29 15:05 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.kurohicncr.top/Article/details/24102.shtml)
+- 2026-06-29 15:05 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/955476.shtml)
+- 2026-06-29 15:01 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/867264.shtml)
+- 2026-06-29 14:52 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/497055790962.shtml)
+- 2026-06-29 14:44 - [TOP 无畏契约](http://www.share.minike.top/Article/details/57088482.shtml)
+- 2026-06-29 14:48 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/680026.shtml)
+- 2026-06-29 14:50 - [异世界一点都不好玩！](https://www.share.kurohicncr.top/Article/details/2884360449.shtml)
+- 2026-06-29 14:44 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/9416385.shtml)
+- 2026-06-29 14:41 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/7507952799.shtml)
+- 2026-06-29 14:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/42414713.shtml)
+- 2026-06-29 14:36 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/15401223.shtml)
+- 2026-06-29 14:55 - [崔韩率还以为韩娱来新人了](https://www.blog.kurohicncr.top/Article/details/04117532.shtml)
+- 2026-06-29 14:41 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/70717314629.shtml)

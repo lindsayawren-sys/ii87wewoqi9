@@ -1,51 +1,48 @@
-# 5月7日增减持汇总：三维通信等18家上市公司拟减持 永和股份等2股增持（表）
+# 莱维特：伊朗扣押船只的行为不构成违反停火协议
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据统计，5月7日盘后，永和股份、克明食品等2股披露增持情况。三维通信、京泉华、易明医药、富信科技、纽威股份、瑞玛精密、万朗磁塑、希荻微、中大力德、司太立、博闻科技、华谊集团、宏柏新材、长盈通、浩瀚深度、润贝航科、成都先导、奥福科技等18家A股公司披露拟减持情况。
+白宫新闻秘书卡罗琳·莱维特表示，特朗普并不认为伊朗近期扣押两艘船只的行为构成对停火协议的违反。 莱维特在福克斯新闻上称，被扣押的船只并非美国或以色列船只。 注：塔斯尼姆通讯社：伊朗伊斯兰革命卫队扣押两艘船只，原因是“危害安全”。责任编辑：陈钰嘉
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+白宫新闻秘书卡罗琳·莱维特表示，特朗普并不认为伊朗近期扣押两艘船只的行为构成对停火协议的违反。
 
-据统计，5月7日盘后，永和股份、克明食品等2股披露增持情况。
+莱维特在福克斯新闻上称，被扣押的船只并非美国或以色列船只。
 
-三维通信、京泉华、易明医药、富信科技、纽威股份、瑞玛精密、万朗磁塑、希荻微、中大力德、司太立、博闻科技、华谊集团、宏柏新材、长盈通、浩瀚深度、润贝航科、成都先导、奥福科技等18家A股公司披露拟减持情况。
+注：塔斯尼姆通讯社：伊朗伊斯兰革命卫队扣押两艘船只，原因是“危害安全”。
+
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 14:33 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 14:38 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 14:43 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 14:51 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 14:51 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 14:50 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 14:30 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 14:33 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 14:48 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 14:36 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 14:56 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 14:41 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 14:30 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 14:51 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 14:49 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 15:01 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 14:48 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 14:43 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 15:00 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 14:56 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 14:53 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 14:50 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 14:50 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 14:42 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 14:47 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [日本前锋言论激怒巴西](https://www.share.minike.top/Article/details/981203.shtml)
-- 2026-06-29 14:31 - [这一刀 会很帅](https://www.share.minike.top/Article/details/039189607.shtml)
-- 2026-06-29 14:45 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.kurohicncr.top/Article/details/5299680.shtml)
-- 2026-06-29 14:49 - [叶一茜森碟一起回北京了](https://www.share.minike.top/Article/details/40369.shtml)
-- 2026-06-29 14:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/596072257165.shtml)
-- 2026-06-29 14:47 - [王楚钦周启豪爆分](https://www.blog.kurohicncr.top/Article/details/2657405.shtml)
-- 2026-06-29 14:38 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/994288104529.shtml)
-- 2026-06-29 14:58 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/077669197327.shtml)
-- 2026-06-29 14:44 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/08315.shtml)
-- 2026-06-29 14:56 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/16963.shtml)
-- 2026-06-29 14:55 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/7160875.shtml)
-- 2026-06-29 14:38 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/18587.shtml)
-- 2026-06-29 14:33 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/0972022.shtml)
-- 2026-06-29 14:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/5955011.shtml)
-- 2026-06-29 14:54 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/90584.shtml)
+- 2026-06-29 14:47 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/722613611623.shtml)
+- 2026-06-29 14:39 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/987242423.shtml)
+- 2026-06-29 14:39 - [恋与深空 731](http://www.blog.minike.top/Article/details/8457507.shtml)
+- 2026-06-29 15:04 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.kurohicncr.top/Article/details/1349696.shtml)
+- 2026-06-29 15:00 - [恋与深空底线不该被娱乐化](http://www.blog.kurohicncr.top/Article/details/77293.shtml)
+- 2026-06-29 14:43 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/48689085269.shtml)
+- 2026-06-29 14:52 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/3508938979.shtml)
+- 2026-06-29 14:52 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/910361015386.shtml)
+- 2026-06-29 14:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/08759340.shtml)
+- 2026-06-29 14:56 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.minike.top/Article/details/912358209.shtml)
+- 2026-06-29 15:00 - [《贺子珍》](https://www.blog.minike.top/Article/details/892374.shtml)
+- 2026-06-29 14:55 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/90112.shtml)
+- 2026-06-29 14:47 - [流金岁月](https://www.blog.minike.top/Article/details/3921639.shtml)
+- 2026-06-29 14:42 - [A股](http://www.blog.minike.top/Article/details/4946424.shtml)
+- 2026-06-29 14:36 - [东部机场集团新增釜山航线](https://www.blog.kurohicncr.top/Article/details/7338149402.shtml)

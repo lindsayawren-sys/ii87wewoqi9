@@ -1,50 +1,51 @@
-# 台风“黑格比”9日后强度加强 未来对我国海区无影响
+# 营业部最青睐个股曝光 6股净买入超亿元
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中国天气网讯 据中央气象台消息，今年第5号台风“黑格比”(热带风暴级)的中心今天(5月7日)下午5点钟位于菲律宾马尼拉东偏南方向约2470公里的洋面上，就是北纬7.4度、东经142.4度，中心附近最大风力有8级(18米/秒)，中心最低气压为998百帕，七级风圈半径为160-280公里。 预计，“黑格比”将以每小时20公里左右的速度向西偏北方向移动，9日以后强度逐渐加强，最强可能
+证券时报·数据宝统计，4月21日龙虎榜中营业部资金净买入7.76亿元，其中，净买入的个股23只，净卖出的个股19只。净买入较多个股分别是顺灏股份、巨力索具（维权）、天通股份等，净买入金额占当日成交额比例达11.06%、4.62%、2.71%。此外，营业部净卖出居前个股分别为康盛股份、英维克、佳力图等，净卖出金额占当日成交额比例达9.18%、30.60%、11.57%。4月21日
 
 ## 正文
 
-中国天气网讯 据中央气象台消息，今年第5号台风“黑格比”(热带风暴级)的中心今天(5月7日)下午5点钟位于菲律宾马尼拉东偏南方向约2470公里的洋面上，就是北纬7.4度、东经142.4度，中心附近最大风力有8级(18米/秒)，中心最低气压为998百帕，七级风圈半径为160-280公里。
+证券时报·数据宝统计，4月21日龙虎榜中营业部资金净买入7.76亿元，其中，净买入的个股23只，净卖出的个股19只。
 
-预计，“黑格比”将以每小时20公里左右的速度向西偏北方向移动，9日以后强度逐渐加强，最强可能达到强热带风暴级，12日以后在菲律宾以东洋面转向东北方向移动，逐渐减弱消散。
+净买入较多个股分别是顺灏股份、巨力索具（维权）、天通股份等，净买入金额占当日成交额比例达11.06%、4.62%、2.71%。
 
-“黑格比”未来对我国海区无影响。
+此外，营业部净卖出居前个股分别为康盛股份、英维克、佳力图等，净卖出金额占当日成交额比例达9.18%、30.60%、11.57%。
+
+4月21日龙虎榜营业部净买卖个股排名（数据释义：根据沪深交易所每日盘后公布的龙虎榜数据，买入金额减去卖出金额得到当日营业部净买入额。
+
+）（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-29 14:56 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 14:38 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 14:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 14:43 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 14:59 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 14:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 14:48 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 14:47 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 14:42 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 14:44 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 14:35 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 14:43 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 14:53 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 14:34 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 14:59 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 15:04 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 14:38 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 14:53 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 14:47 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 14:48 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 14:55 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 14:39 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 14:54 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 14:54 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 14:58 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/07358.shtml)
-- 2026-06-29 14:36 - [未来5年全国能源体系将呈现这些特征](http://www.blog.minike.top/Article/details/211672.shtml)
-- 2026-06-29 14:54 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/53215.shtml)
-- 2026-06-29 14:49 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/65006726023.shtml)
-- 2026-06-29 14:33 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/31146906573.shtml)
-- 2026-06-29 14:33 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/9697152.shtml)
-- 2026-06-29 14:52 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/89958154.shtml)
-- 2026-06-29 14:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/205360.shtml)
-- 2026-06-29 14:41 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/568618.shtml)
-- 2026-06-29 14:36 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/587354117338.shtml)
-- 2026-06-29 14:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/8131956.shtml)
-- 2026-06-29 14:36 - [NBA交易](http://www.share.kurohicncr.top/Article/details/1577675378.shtml)
-- 2026-06-29 14:55 - [金刚川](http://www.share.kurohicncr.top/Article/details/201502699.shtml)
-- 2026-06-29 14:55 - [逆天祖国人](https://www.share.minike.top/Article/details/85727.shtml)
-- 2026-06-29 14:36 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/9312880.shtml)
+- 2026-06-29 15:05 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/632926.shtml)
+- 2026-06-29 14:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/34204525521.shtml)
+- 2026-06-29 14:37 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/818723307.shtml)
+- 2026-06-29 14:36 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/995153171.shtml)
+- 2026-06-29 14:44 - [内马尔能上场15分钟](https://www.share.kurohicncr.top/Article/details/02702703.shtml)
+- 2026-06-29 14:49 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/3656511366.shtml)
+- 2026-06-29 15:02 - [周生如故](http://www.share.minike.top/Article/details/096253.shtml)
+- 2026-06-29 14:59 - [下飞机后，我做了个很蠢的决定......](http://www.share.minike.top/Article/details/83204914.shtml)
+- 2026-06-29 15:00 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.kurohicncr.top/Article/details/0826343068.shtml)
+- 2026-06-29 14:47 - [李在明称韩国足协任命了无能之人](https://www.share.minike.top/Article/details/03280552789.shtml)
+- 2026-06-29 15:03 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/164592.shtml)
+- 2026-06-29 14:43 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/1118064973.shtml)
+- 2026-06-29 14:51 - [新一代影后杨紫](https://www.blog.minike.top/Article/details/72359.shtml)
+- 2026-06-29 14:55 - [给阿嬷的情书海外口碑](http://www.share.kurohicncr.top/Article/details/8592673.shtml)
+- 2026-06-29 14:48 - [德国VS巴拉圭前瞻](https://www.blog.minike.top/Article/details/900775310762.shtml)

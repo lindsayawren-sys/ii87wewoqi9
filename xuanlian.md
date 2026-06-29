@@ -1,54 +1,44 @@
-# 国内成品油价今晚要上调 加满一箱油将多花12.5元
+# 绿的谐波拟每10股派息2.1元 分红率30.96%
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-央视财经 【\[话筒\]#油价今晚要上调##加满一箱油将多花12.5元#】记者今天从国家发展改革委了解到，5月8日24时国内成品油调价窗口将开启。据国家发展改革委价格监测中心监测，本轮成品油调价周期内（4月21日24时——5月8日24时），国际油价先扬后抑。5月8日24时起，国内汽、柴油价格每吨分别上调320和310元，全国平均来看，92号汽油、95号汽油和0号柴油每升分别上调0.
+4月22日，绿的谐波（688017）发布公告，公司拟向全体股东每10股派发现金红利2.1元（含税），预计总派发金额为3850万元，占归母净利润的30.96%。
 
 ## 正文
 
-央视财经 【\[话筒\]#油价今晚要上调##加满一箱油将多花12.5元#】记者今天从国家发展改革委了解到，5月8日24时国内成品油调价窗口将开启。
-
-据国家发展改革委价格监测中心监测，本轮成品油调价周期内（4月21日24时——5月8日24时），国际油价先扬后抑。
-
-5月8日24时起，国内汽、柴油价格每吨分别上调320和310元，全国平均来看，92号汽油、95号汽油和0号柴油每升分别上调0.25元、0.27元、0.27元。
-
-央视财经记者给您算了一笔账，用92号汽油加满50升的油箱将多花12.5元。
-
-（记者 平凡 张静也）责任编辑：刘万里 SF014
+4月22日，绿的谐波（688017）发布公告，公司拟向全体股东每10股派发现金红利2.1元（含税），预计总派发金额为3850万元，占归母净利润的30.96%。
 
 ## 相关推荐
 
-- 2026-06-29 14:50 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 14:35 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 14:30 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 14:40 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 14:40 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 14:30 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 14:36 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 14:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 14:39 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 14:38 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 14:58 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 14:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 14:36 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 14:32 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 14:49 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 14:42 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 14:38 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 14:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 14:45 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 15:04 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 14:50 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 15:00 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 15:03 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 14:47 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 15:00 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 15:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:42 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/8353770.shtml)
-- 2026-06-29 14:31 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/681356574916.shtml)
-- 2026-06-29 14:32 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/73545.shtml)
-- 2026-06-29 14:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/87483504.shtml)
-- 2026-06-29 14:32 - [美国近12万名科技员工被解雇](http://www.share.minike.top/Article/details/4647149032.shtml)
-- 2026-06-29 14:36 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/48238732221.shtml)
-- 2026-06-29 14:40 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/074472322.shtml)
-- 2026-06-29 14:38 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/2390166.shtml)
-- 2026-06-29 14:38 - [一生一世](http://www.share.minike.top/Article/details/94803679346.shtml)
-- 2026-06-29 14:34 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/10393092.shtml)
-- 2026-06-29 14:58 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/47744.shtml)
-- 2026-06-29 14:58 - [德国队前往比赛场地遭遇囧途](https://www.share.kurohicncr.top/Article/details/90052588.shtml)
-- 2026-06-29 14:56 - [上海小区惊现鳄鱼](http://www.blog.minike.top/Article/details/32542062.shtml)
-- 2026-06-29 14:39 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/1263108.shtml)
-- 2026-06-29 14:33 - [事关个税 明日截止请抓紧办理](http://www.blog.minike.top/Article/details/74834.shtml)
+- 2026-06-29 14:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/16738100.shtml)
+- 2026-06-29 15:02 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/16697.shtml)
+- 2026-06-29 15:00 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/49083078273.shtml)
+- 2026-06-29 14:47 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/301539.shtml)
+- 2026-06-29 15:04 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/27648193577.shtml)
+- 2026-06-29 14:37 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/921782525628.shtml)
+- 2026-06-29 14:38 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/244626101.shtml)
+- 2026-06-29 15:03 - [扫黑风暴](http://www.share.minike.top/Article/details/691568.shtml)
+- 2026-06-29 15:04 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/077203.shtml)
+- 2026-06-29 14:47 - [啊啊啊](http://www.share.minike.top/Article/details/50318268364.shtml)
+- 2026-06-29 14:47 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/580144.shtml)
+- 2026-06-29 14:47 - [下飞机后，我做了个很蠢的决定......](http://www.share.minike.top/Article/details/073050934.shtml)
+- 2026-06-29 15:02 - [金刚川](http://www.blog.minike.top/Article/details/7468872660.shtml)
+- 2026-06-29 14:40 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.minike.top/Article/details/5544294.shtml)
+- 2026-06-29 15:02 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/12222949769.shtml)

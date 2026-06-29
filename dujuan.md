@@ -1,61 +1,59 @@
-# 美特斯邦威被罚
+# 科学防制病媒生物，筑牢健康防线 | 爱国卫生月
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-国家企业信用信息公示系统显示，近日，上海美特斯邦威服饰股份有限公司，因生产、销售以不合格产品冒充合格产品，被浦东新区市场监督管理局没收违法所得3664.19元、罚款12786.29元。 主要违法事实显示，2025年7月23日，重庆市市场监督管理局委托远东正大检验（重庆）有限公司对秀山县美特斯邦威服装经营秀山店销售的“男针织裤”进行抽样检验。该批次“男针织裤”的检验结论为“经检验
+今年4月是全国第38个爱国卫生月，主题为“共建健康城镇，共筑健康防线”。在这个节点上，我们聚焦一个与每个人息息相关的话题——科学防制病媒生物。 病媒生物，通俗来讲就是我们常说的“四害”——蚊子、老鼠、蟑螂、苍蝇，以及近年来需要警惕的蜱虫、跳蚤等。它们虽然体型不大，却是多种传染病的“移动传播器”。 蚊子可传播登革热、基孔肯雅热、乙脑、疟疾等；老鼠可传播鼠疫、流行性出血热、钩端螺旋
 
 ## 正文
 
-国家企业信用信息公示系统显示，近日，上海美特斯邦威服饰股份有限公司，因生产、销售以不合格产品冒充合格产品，被浦东新区市场监督管理局没收违法所得3664.19元、罚款12786.29元。
+今年4月是全国第38个爱国卫生月，主题为“共建健康城镇，共筑健康防线”。
 
-主要违法事实显示，2025年7月23日，重庆市市场监督管理局委托远东正大检验（重庆）有限公司对秀山县美特斯邦威服装经营秀山店销售的“男针织裤”进行抽样检验。
+在这个节点上，我们聚焦一个与每个人息息相关的话题——科学防制病媒生物。
 
-该批次“男针织裤”的检验结论为“经检验，耐干摩擦色牢度项目不符合GB18401-2010《国家纺织产品基本安全技术规范》B类和FZ/T73020-2019《针织休闲服装》合格品标准，判定为被抽查产品不合格”。
+病媒生物，通俗来讲就是我们常说的“四害”——蚊子、老鼠、蟑螂、苍蝇，以及近年来需要警惕的蜱虫、跳蚤等。
 
-上述产品标示的生产企业为上海美特斯邦威服饰股份有限公司。
+它们虽然体型不大，却是多种传染病的“移动传播器”。
 
-据查，该批次“男针织裤”系当事人委托杭州群沃贸易有限公司生产，共生产120件。
+蚊子可传播登革热、基孔肯雅热、乙脑、疟疾等；老鼠可传播鼠疫、流行性出血热、钩端螺旋体病；蟑螂和苍蝇则可能携带痢疾杆菌、沙门氏菌等病原体。
 
-截至案发，当事人已将涉案产品全部销售。
+可持续综合防制是“核心”很多人以为防制病媒生物就是拿着杀虫剂到处喷一喷，其实不然。
 
-案发后，当事人已不再生产上述产品。
+现代病媒生物防制的核心理念是可持续综合防制，不再单纯依赖化学药物，而是综合运用环境治理、物理阻隔、生物防制等多种手段，形成长效、生态、安全的防控体系。
 
-责任编辑：尉旖涵
+为什么要强调可持续呢？
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 14:53 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 14:52 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 14:49 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 14:53 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 14:42 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 14:54 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 14:37 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 14:44 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 14:34 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 14:36 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 14:54 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 14:47 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 14:30 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 14:33 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 14:42 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 14:56 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 14:41 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 14:40 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 14:46 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 14:46 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 14:46 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 14:46 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 14:59 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 14:37 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 15:02 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 15:03 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 14:56 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:49 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.minike.top/Article/details/733778.shtml)
-- 2026-06-29 14:59 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/154587903589.shtml)
-- 2026-06-29 14:30 - [韩国记者：解码“合肥模式”](https://www.blog.minike.top/Article/details/544094.shtml)
-- 2026-06-29 14:58 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/97366.shtml)
-- 2026-06-29 14:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/14176.shtml)
-- 2026-06-29 14:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/305279586.shtml)
-- 2026-06-29 14:39 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.blog.minike.top/Article/details/0883238.shtml)
-- 2026-06-29 14:45 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/8690950239.shtml)
-- 2026-06-29 14:35 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/62599671359.shtml)
-- 2026-06-29 14:45 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/079970395494.shtml)
-- 2026-06-29 14:41 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/24113.shtml)
-- 2026-06-29 14:43 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/19697.shtml)
-- 2026-06-29 14:48 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/94792960.shtml)
-- 2026-06-29 14:51 - [詹俊预测德国大胜巴拉圭](https://www.blog.minike.top/Article/details/27801.shtml)
-- 2026-06-29 14:50 - [美媒：空警-3000服役即成全球最强](https://www.share.kurohicncr.top/Article/details/95045828811.shtml)
+- 2026-06-29 14:42 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/358160169628.shtml)
+- 2026-06-29 14:40 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/249088175.shtml)
+- 2026-06-29 14:41 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/738844.shtml)
+- 2026-06-29 14:55 - [AG冠军五人组轮换](https://www.share.minike.top/Article/details/005428134.shtml)
+- 2026-06-29 14:54 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/7630739337.shtml)
+- 2026-06-29 14:59 - [韩国记者：解码“合肥模式”](http://www.share.minike.top/Article/details/58867241.shtml)
+- 2026-06-29 14:37 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/953411.shtml)
+- 2026-06-29 14:51 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.kurohicncr.top/Article/details/77944712097.shtml)
+- 2026-06-29 14:52 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/181000891046.shtml)
+- 2026-06-29 14:52 - [大范围炎热天气将至](https://www.blog.kurohicncr.top/Article/details/6316181205.shtml)
+- 2026-06-29 15:05 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/345190943639.shtml)
+- 2026-06-29 14:56 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/946661601419.shtml)
+- 2026-06-29 14:51 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/25973.shtml)
+- 2026-06-29 15:00 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/13769420965.shtml)
+- 2026-06-29 14:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/19673529182.shtml)

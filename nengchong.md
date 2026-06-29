@@ -1,56 +1,60 @@
-# 离岸人民币汇率升破6.8，创三年多新高
+# 特斯拉一季度实现营收224亿美元 同比增长16%
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-伴随强势资本市场“东风”，人民币汇率表现势如破竹，站稳了重要关口。 5月7日，离岸人民币对美元强势涨破6.80关口，盘中最高触及6.7977；在岸人民币对美元同样不甘落后，距离6.80关口“一步之遥”，二者双双创下2023年2月以来最高水平。 截至16时50分发稿，在岸、离岸人民币对美元分别报6.8014、6.7998。 事实上，年初迄今，人民币便呈现稳步升值态势。今年前4个月
+特斯拉公布第一季度财报时，14亿美元的正向自由现金流令华尔街大感意外。 这家车企一季度实现营收224亿美元，同比增长16%；汽车业务营收同样同比上涨16%。 能源业务营收来自工商业及家用储能产品销售，在近期财报中一直是公司亮点，但今年一季度同比下滑12%。 在截至3月31日的季度内，特斯拉净利润增长17%。 尽管分析师普遍预计该公司将出现两年来首次自由现金流为负的情况，特斯拉仍
 
 ## 正文
 
-伴随强势资本市场“东风”，人民币汇率表现势如破竹，站稳了重要关口。
+特斯拉公布第一季度财报时，14亿美元的正向自由现金流令华尔街大感意外。
 
-5月7日，离岸人民币对美元强势涨破6.80关口，盘中最高触及6.7977；在岸人民币对美元同样不甘落后，距离6.80关口“一步之遥”，二者双双创下2023年2月以来最高水平。
+这家车企一季度实现营收224亿美元，同比增长16%；汽车业务营收同样同比上涨16%。
 
-截至16时50分发稿，在岸、离岸人民币对美元分别报6.8014、6.7998。
+能源业务营收来自工商业及家用储能产品销售，在近期财报中一直是公司亮点，但今年一季度同比下滑12%。
 
-事实上，年初迄今，人民币便呈现稳步升值态势。
+在截至3月31日的季度内，特斯拉净利润增长17%。
 
-今年前4个月，在岸、离岸人民币对美元累计升值幅度均在2.5%附近。
+尽管分析师普遍预计该公司将出现两年来首次自由现金流为负的情况，特斯拉仍实现了14亿美元的正向自由现金流。
 
-这一轮人民币走强，背后最大的推手是谁？
+由埃隆·马斯克执掌的特斯拉本季度资本支出达25亿美元，主要用于扩充AI算力基础设施，并建设包括Cybercab无人驾驶出租车在内的全新生产线。
 
-美元的弱势，是直接“导火索”。
+受财报利好推动，特斯拉股价在盘后交易中上涨超4%。
 
-东方金诚首席宏观分析师王青对记者表示，受中东局势缓和以及市场判断日本当局干预汇市等影响，4月底以来美元指数持续走低，截至目前已跌破98，带动了包括人民币在内的主要非美货币普遍出现升值。
+特斯拉一季度全球电动车销量为358，023辆，同比增长6.3%。
 
 ## 相关推荐
 
-- 2026-06-29 14:53 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 14:32 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 14:47 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 14:40 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 14:34 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 14:44 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 14:50 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 14:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 14:39 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 14:50 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 14:47 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 14:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 14:56 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 14:38 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 14:43 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 14:58 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 14:44 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 14:56 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 14:43 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 14:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 14:41 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 14:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 15:00 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 14:38 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:55 - [普京称考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/1920884.shtml)
-- 2026-06-29 14:34 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/008714161.shtml)
-- 2026-06-29 14:50 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/53316827.shtml)
-- 2026-06-29 14:49 - [女心理师](https://www.blog.kurohicncr.top/Article/details/99016.shtml)
-- 2026-06-29 14:54 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/539757180346.shtml)
-- 2026-06-29 14:54 - [久坐小心“死臀综合征”](https://www.share.kurohicncr.top/Article/details/953557.shtml)
-- 2026-06-29 14:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/67968.shtml)
-- 2026-06-29 14:30 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/877418.shtml)
-- 2026-06-29 14:50 - [下飞机后，我做了个很蠢的决定......](http://www.share.minike.top/Article/details/142281.shtml)
-- 2026-06-29 14:58 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/34581566158.shtml)
-- 2026-06-29 14:40 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/6601850.shtml)
-- 2026-06-29 14:48 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/224594642771.shtml)
-- 2026-06-29 14:33 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/046836589.shtml)
-- 2026-06-29 14:52 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/25675612.shtml)
-- 2026-06-29 14:35 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/202030.shtml)
+- 2026-06-29 14:38 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.minike.top/Article/details/484636.shtml)
+- 2026-06-29 15:00 - [宜宾5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/73574.shtml)
+- 2026-06-29 15:05 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/82795670.shtml)
+- 2026-06-29 15:02 - [行程万里不忘初心](https://www.share.minike.top/Article/details/3466151124.shtml)
+- 2026-06-29 14:59 - [一见倾心](https://www.share.minike.top/Article/details/03279820.shtml)
+- 2026-06-29 14:47 - [吴磊爱上回收了](http://www.blog.kurohicncr.top/Article/details/1263267.shtml)
+- 2026-06-29 14:59 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/420872050381.shtml)
+- 2026-06-29 14:39 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/702119.shtml)
+- 2026-06-29 14:41 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/48040049995.shtml)
+- 2026-06-29 14:55 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/0436385.shtml)
+- 2026-06-29 15:03 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/1432047.shtml)
+- 2026-06-29 14:38 - [佛得角到底在哪个“角”](https://www.share.kurohicncr.top/Article/details/733238568.shtml)
+- 2026-06-29 14:58 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/6812174.shtml)
+- 2026-06-29 15:01 - [下飞机后，我做了个很蠢的决定......](http://www.blog.minike.top/Article/details/90473.shtml)
+- 2026-06-29 14:59 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/7145859912.shtml)

@@ -1,46 +1,54 @@
-# 越秀地产前4个月累计合同销售金额约257.11亿元
+# 市场监管总局：严厉查处化肥产品以次充好等违法行为
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-越秀地产（00123）发布公告，2026年4月，本公司实现合同销售（连同合营企业及联营公司项目的合同销售）金额约为人民币85.04亿元，同比下降约17.4%，实现合同销售面积约为26.13万平方米，同比上升约 14.0%。 2026年1月至4月，本公司累计合同销售（连同合营企业及联营公司项目的合同销售）（累计合同销售）金额约为人民币257.11亿元，同比下降约37.5%，累计合
+发布时间：2026年04月21日 22:43 来源：中国新闻网 4月21日，市场监管总局召开市场监管部门查处化肥产品质量执法成效专题新闻发布会。市场监管总局市场稽查专员嵇小灵在会上发言时介绍，我们锚定化肥产品质量提升，深化区域协同、突出源头治理、坚持线上线下全链条打击，全力护航粮食安全，切实维护农民合法权益。全国市场监管部门紧盯行业乱象和质量短板，严厉查处化肥产品不符合强制性国
 
 ## 正文
 
-越秀地产（00123）发布公告，2026年4月，本公司实现合同销售（连同合营企业及联营公司项目的合同销售）金额约为人民币85.04亿元，同比下降约17.4%，实现合同销售面积约为26.13万平方米，同比上升约 14.0%。
+发布时间：2026年04月21日 22:43 来源：中国新闻网 4月21日，市场监管总局召开市场监管部门查处化肥产品质量执法成效专题新闻发布会。
 
-2026年1月至4月，本公司累计合同销售（连同合营企业及联营公司项目的合同销售）（累计合同销售）金额约为人民币257.11亿元，同比下降约37.5%，累计合同销售面积约为 88.43万平方米，同比下降约4.3%。
+市场监管总局市场稽查专员嵇小灵在会上发言时介绍，我们锚定化肥产品质量提升，深化区域协同、突出源头治理、坚持线上线下全链条打击，全力护航粮食安全，切实维护农民合法权益。
 
-责任编辑：卢昱君
+全国市场监管部门紧盯行业乱象和质量短板，严厉查处化肥产品不符合强制性国家标准、不符合生产许可准入要求，伪造产地、伪造或者冒用他人厂名厂址、伪造或者冒用质量标志，以及掺杂掺假、以假充真、以次充好、以不合格产品冒充合格产品等违法行为。
+
+2025年，全国市场监管系统共查办各类化肥质量违法案件3845件，罚没金额5149万元，移送公安机关案件30件。
+
+(记者 谢龙飞 制作 乐小敏) 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-29 14:57 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 14:33 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 14:56 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 14:43 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 14:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 14:56 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 14:46 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 14:58 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 14:35 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 14:58 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 14:50 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 15:02 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 14:51 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 14:48 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 15:02 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 14:52 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 14:50 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 14:55 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 14:50 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 15:05 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 14:55 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 14:54 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 14:44 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 15:01 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:40 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/165953502.shtml)
-- 2026-06-29 14:41 - [国家体育总局政策法规司原副司长获刑](https://www.share.minike.top/Article/details/093006344637.shtml)
-- 2026-06-29 14:51 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/27773090.shtml)
-- 2026-06-29 14:38 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/92541113298.shtml)
-- 2026-06-29 14:44 - [俄军新型无人机战力如何](https://www.blog.kurohicncr.top/Article/details/62409908204.shtml)
-- 2026-06-29 14:55 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.kurohicncr.top/Article/details/4116663.shtml)
-- 2026-06-29 14:54 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/698288657934.shtml)
-- 2026-06-29 14:43 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/17739138236.shtml)
-- 2026-06-29 14:44 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/396070105034.shtml)
-- 2026-06-29 14:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/5322178874.shtml)
-- 2026-06-29 14:30 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/20033.shtml)
-- 2026-06-29 14:44 - [日本主帅：对战胜巴西很有信心](https://www.share.kurohicncr.top/Article/details/0163271.shtml)
-- 2026-06-29 14:54 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/773293925.shtml)
-- 2026-06-29 14:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/851572616.shtml)
-- 2026-06-29 14:30 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/12531379.shtml)
+- 2026-06-29 14:39 - [起风了](http://www.blog.minike.top/Article/details/5820421.shtml)
+- 2026-06-29 14:38 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/95325525733.shtml)
+- 2026-06-29 14:57 - [记者暗访贵州和云南多个养老机构](https://www.blog.kurohicncr.top/Article/details/853950208.shtml)
+- 2026-06-29 14:59 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/43971854857.shtml)
+- 2026-06-29 15:03 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/86408562203.shtml)
+- 2026-06-29 15:00 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/436979519094.shtml)
+- 2026-06-29 14:44 - [恋与深空评分暴跌至1.8](http://www.blog.kurohicncr.top/Article/details/7375689464.shtml)
+- 2026-06-29 14:46 - [德国队前往比赛场地遭遇囧途](https://www.share.kurohicncr.top/Article/details/432260368643.shtml)
+- 2026-06-29 14:42 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/73686883.shtml)
+- 2026-06-29 15:05 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/209002034173.shtml)
+- 2026-06-29 14:36 - [双高胎](http://www.blog.kurohicncr.top/Article/details/9765429.shtml)
+- 2026-06-29 14:56 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/884583199.shtml)
+- 2026-06-29 15:04 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/98837.shtml)
+- 2026-06-29 14:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/97358189001.shtml)
+- 2026-06-29 14:46 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/51187917.shtml)

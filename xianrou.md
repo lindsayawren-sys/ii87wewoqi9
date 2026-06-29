@@ -1,57 +1,56 @@
-# 美国债市：和平预期降温和油价反弹推动国债下跌
+# 谷歌押注AI智能体，企业市场成变现核心战场
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-美国国债收盘接近日内低点，由于市场对美国和伊朗能否达成止战协议的担忧情绪再度升温，原油价格反弹。受有关伊朗军队在阿巴斯港附近交火的报道影响，油价在尾盘上涨。早些时候报道称，美国正考虑恢复在霍尔木兹海峡的护航行动。 纽约时间下午3点刚过，美国国债收益率处于日内高位，全线收益率上涨4个基点至6个基点，呈现熊市趋平走势，带动2s10s和5s30s利差日内分别收窄0.8个基点和1个基点
+谷歌正在将人工智能代理置于其企业战略的核心位置。在周二开幕的Google Cloud Next ‘26大会上，谷歌首席执行官桑达尔·皮查伊明确向投资者释放信号：AI智能体将成为谷歌从人工智能中变现的关键支柱。 战略重心全面转向企业级AI 本次为期三天的拉斯维加斯大会聚焦“代理式AI”，即推动AI从对话式向可自主规划、跨系统执行复杂任务升级。谷歌云首席执行官在接受采访时表示：“随
 
 ## 正文
 
-美国国债收盘接近日内低点，由于市场对美国和伊朗能否达成止战协议的担忧情绪再度升温，原油价格反弹。
+谷歌正在将人工智能代理置于其企业战略的核心位置。
 
-受有关伊朗军队在阿巴斯港附近交火的报道影响，油价在尾盘上涨。
+在周二开幕的Google Cloud Next ‘26大会上，谷歌首席执行官桑达尔·皮查伊明确向投资者释放信号：AI智能体将成为谷歌从人工智能中变现的关键支柱。
 
-早些时候报道称，美国正考虑恢复在霍尔木兹海峡的护航行动。
+战略重心全面转向企业级AI 本次为期三天的拉斯维加斯大会聚焦“代理式AI”，即推动AI从对话式向可自主规划、跨系统执行复杂任务升级。
 
-纽约时间下午3点刚过，美国国债收益率处于日内高位，全线收益率上涨4个基点至6个基点，呈现熊市趋平走势，带动2s10s和5s30s利差日内分别收窄0.8个基点和1个基点。
+谷歌云首席执行官在接受采访时表示：“随着模型变得日益复杂，我们的战略确实发生了转变。
 
-美国10年期国债收益率交投在4.395%附近，日内上涨近5个基点。
+”他指出，Vertex AI的主要用例已从“传统机器学习”转向用户构建自定义AI代理的爆发式增长。
 
-由于市场对重新开放霍尔木兹海峡的担忧加剧，WTI原油期货在尾盘回升至接近盘中高点，日内上涨近2%。
+为整合产品线，谷歌宣布将一系列AI产品统一纳入“Gemini Enterprise”品牌，这包括对Vertex AI进行重塑和强化。
 
-美股早盘的涨幅也悉数回吐，标普500指数在收盘前下跌约0.5%。
+Vertex AI允许云客户从多种AI模型中选择用于商业目的的工具。
 
-当日其他方面，5月联邦基金利率期货在午后交易时段出现一些大额买盘。
+同时，谷歌还发布了针对AI代理的新治理和安全功能，以应对企业对于自主决策AI在安全性、可靠性和监督方面的担忧。
 
 ## 相关推荐
 
-- 2026-06-29 14:58 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 14:39 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 14:30 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 14:42 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 14:52 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 14:41 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 14:44 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 14:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 14:55 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 14:57 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 14:59 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 14:51 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 14:45 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 14:41 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 14:50 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 14:51 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 14:50 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 14:36 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 14:59 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 14:51 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 14:56 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:54 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/80405113034.shtml)
-- 2026-06-29 14:40 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/85380.shtml)
-- 2026-06-29 14:57 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/30849280.shtml)
-- 2026-06-29 14:58 - [毒液2](https://www.share.minike.top/Article/details/3205538690.shtml)
-- 2026-06-29 14:38 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/905852379.shtml)
-- 2026-06-29 14:45 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.minike.top/Article/details/988141745.shtml)
-- 2026-06-29 14:49 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.minike.top/Article/details/76147.shtml)
-- 2026-06-29 14:41 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/8882671.shtml)
-- 2026-06-29 14:44 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/125613772.shtml)
-- 2026-06-29 14:38 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/33406977426.shtml)
-- 2026-06-29 14:39 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/731129489.shtml)
-- 2026-06-29 14:42 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/342859190355.shtml)
-- 2026-06-29 14:35 - [上班主打一个薪尽自然凉](https://www.share.minike.top/Article/details/145716135.shtml)
-- 2026-06-29 14:55 - [扬名立万](https://www.share.minike.top/Article/details/95855323653.shtml)
-- 2026-06-29 14:36 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/678579.shtml)
+- 2026-06-29 14:37 - [美伊同意停止互袭](https://www.blog.minike.top/Article/details/5502790.shtml)
+- 2026-06-29 14:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/37102542223.shtml)
+- 2026-06-29 14:52 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/155480.shtml)
+- 2026-06-29 14:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/233470.shtml)
+- 2026-06-29 14:41 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/440462594593.shtml)
+- 2026-06-29 14:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/9937473873.shtml)
+- 2026-06-29 14:53 - [梅朗雄主张法国退出北约](http://www.share.kurohicncr.top/Article/details/23079017061.shtml)
+- 2026-06-29 14:48 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/81235.shtml)
+- 2026-06-29 14:44 - [给阿嬷的情书海外口碑](https://www.share.kurohicncr.top/Article/details/470454330060.shtml)
+- 2026-06-29 14:39 - [市民骑哈啰单车79分钟付30元](http://www.blog.kurohicncr.top/Article/details/58615346916.shtml)
+- 2026-06-29 14:44 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/01220029417.shtml)
+- 2026-06-29 15:03 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/21261404.shtml)
+- 2026-06-29 14:51 - [时光音乐会](http://www.blog.minike.top/Article/details/287880.shtml)
+- 2026-06-29 14:43 - [乔家的儿女](https://www.blog.minike.top/Article/details/201394.shtml)
+- 2026-06-29 15:01 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.minike.top/Article/details/9490416914.shtml)

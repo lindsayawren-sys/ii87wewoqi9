@@ -1,60 +1,56 @@
-# 京东“换牌”：拿下青岛资管控股权，退出北京资管股东行列
+# 达能销售额增长，美国市场重拾增长动力
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-近期，一则股东变更的工商登记信息，将京东集团在金融领域的最新布局推至台前。 4月28日，全国首家市级资产管理公司（AMC）——中信青岛资产管理有限公司（以下简称“中信青岛资管”）顺利完成公司章程备案及控股股东变更手续。京东科技通过其全资子公司网银在线（北京）商务服务有限公司，正式实现对该公司的控股，认缴出资额达20亿元，持股比例高达66.67%。 历时近一年的股权收购传闻，终于
+专题：聚焦美股2026年第一季度财报 美洲地区可比销售额增长 3.4% 法国食品集团达能公布第一季度可比销售额实现增长，并表示公司正开始在美国市场重获增长动力。 这家旗下拥有 Activia 酸奶与依云矿泉水的法国食品企业公布，季度可比销售额增长 2.7%；销量同比增长 1.5%，价格上涨 1.2%。公司汇总的分析师预期中值为可比销售额增长 2.6%。 达能表示，其在美国的 S
 
 ## 正文
 
-近期，一则股东变更的工商登记信息，将京东集团在金融领域的最新布局推至台前。
+专题：聚焦美股2026年第一季度财报 美洲地区可比销售额增长 3.4% 法国食品集团达能公布第一季度可比销售额实现增长，并表示公司正开始在美国市场重获增长动力。
 
-4月28日，全国首家市级资产管理公司（AMC）——中信青岛资产管理有限公司（以下简称“中信青岛资管”）顺利完成公司章程备案及控股股东变更手续。
+这家旗下拥有 Activia 酸奶与依云矿泉水的法国食品企业公布，季度可比销售额增长 2.7%；销量同比增长 1.5%，价格上涨 1.2%。
 
-京东科技通过其全资子公司网银在线（北京）商务服务有限公司，正式实现对该公司的控股，认缴出资额达20亿元，持股比例高达66.67%。
+公司汇总的分析师预期中值为可比销售额增长 2.6%。
 
-历时近一年的股权收购传闻，终于尘埃落定，这也是继2024年京东集团成功收购捷信消费金融公司、拿下消费金融牌照之后的又一大动作。
+达能表示，其在美国的 Stok 系列产品表现强劲，咖啡奶精品类业务也在改善。
 
-21世纪经济报道记者注意到，在选择控股地方AMC之时，京东悄然退出了北京资产管理公司的股东行列，不再持有该公司股权。
+美洲地区可比销售额增长 3.4%。
 
-公开资料显示，此前京东科技曾持有北京资产管理公司15%的股权，位列第三大股东。
+达能预计，2026 年全年可比销售额增速将在 3% 至 5% 之间。
 
-历时一年，京东拿下地方AMC控股权 这宗备受市场关注的股权交易，始于2025年6月。
+按报表口径计算，第一季度销售额降至 66.7 亿欧元（78.3 亿美元），去年同期为 68.4 亿欧元。
 
-2025年6月25日，中信集团通过上海联合产权交易所挂牌转让中信青岛资管66.67%的股权，转让底价为30.14亿元。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 14:59 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 14:52 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 14:54 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 14:56 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 14:39 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 14:44 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 14:47 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 14:49 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 14:49 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 14:59 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 14:34 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 14:51 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 14:50 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 14:47 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 14:38 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 14:44 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 14:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 15:04 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 14:49 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 14:46 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 15:01 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 14:49 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 15:01 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 14:53 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:31 - [央视起底直播诈骗连环套](http://www.share.kurohicncr.top/Article/details/55760.shtml)
-- 2026-06-29 14:44 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/69598.shtml)
-- 2026-06-29 14:42 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/85576651.shtml)
-- 2026-06-29 14:44 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/57526280797.shtml)
-- 2026-06-29 14:57 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/8420073.shtml)
-- 2026-06-29 14:55 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/870929951727.shtml)
-- 2026-06-29 14:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/32574.shtml)
-- 2026-06-29 14:32 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/8325576473.shtml)
-- 2026-06-29 14:53 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/16936432076.shtml)
-- 2026-06-29 14:44 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/23111.shtml)
-- 2026-06-29 14:50 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/564579401620.shtml)
-- 2026-06-29 14:35 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.kurohicncr.top/Article/details/93449.shtml)
-- 2026-06-29 14:51 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/66049355082.shtml)
-- 2026-06-29 14:56 - [如何“亲菌子”又“远小人儿”](https://www.blog.kurohicncr.top/Article/details/377073918.shtml)
-- 2026-06-29 14:34 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/02507766.shtml)
+- 2026-06-29 14:46 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/560068915846.shtml)
+- 2026-06-29 14:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/07953.shtml)
+- 2026-06-29 14:38 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/3016454.shtml)
+- 2026-06-29 14:38 - [媒体：高考后消费应量力而行适度有度](http://www.share.minike.top/Article/details/289052817748.shtml)
+- 2026-06-29 14:42 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/4295803334.shtml)
+- 2026-06-29 14:46 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/6179105.shtml)
+- 2026-06-29 14:52 - [德国VS巴拉圭前瞻](http://www.share.minike.top/Article/details/815644997988.shtml)
+- 2026-06-29 15:03 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/439773302.shtml)
+- 2026-06-29 14:39 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/969863.shtml)
+- 2026-06-29 14:57 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/0123024.shtml)
+- 2026-06-29 14:50 - [双高胎](https://www.share.kurohicncr.top/Article/details/80788.shtml)
+- 2026-06-29 14:39 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/68592724.shtml)
+- 2026-06-29 14:44 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/1190677.shtml)
+- 2026-06-29 15:05 - [教育部发布高考志愿填报预警](https://www.share.kurohicncr.top/Article/details/62935.shtml)
+- 2026-06-29 14:45 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/9878449.shtml)

@@ -1,61 +1,58 @@
-# “全国销冠”被刑拘，泰康人寿紧急回应
+# 嘉耀控股午后大涨逾35% 公司已正式开展CBD相关业务
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-近日，“泰康人寿‘全国销冠’任晓敏被刑拘”的消息，引发关注。5月8日，泰康人寿对中国证券报·中证金牛座记者表示，近日，公司个人代理人任某某被青岛市公安机关立案侦查。对此，公司高度重视，第一时间组织专项工作组派驻青岛，全力配合公安机关的工作，并同步启动对该事件的内部自查和客户排查，绝不姑息任何违法犯罪行为。 该公司强调，始终将客户权益置于首位，坚定维护客户的合法权益，对任何损害客
+嘉耀控股（01626）午后股价上涨34.88%，现报7.58港元，成交额1627.52万港元。 4月21日，嘉耀控股发布公告，集团近年来持续关注大健康及生物医药相关领域。集团已于2026年四月正式开展大麻二酚（CBD）相关业务。目前，集团主要从事从中国采购CBD及出口业务，产品主要销往欧洲及北美地区的护肤、日化及医药企业。集团已建立专门的运营团队负责此项业务，核心成员拥有相关行
 
 ## 正文
 
-近日，“泰康人寿‘全国销冠’任晓敏被刑拘”的消息，引发关注。
+嘉耀控股（01626）午后股价上涨34.88%，现报7.58港元，成交额1627.52万港元。
 
-5月8日，泰康人寿对中国证券报·中证金牛座记者表示，近日，公司个人代理人任某某被青岛市公安机关立案侦查。
+4月21日，嘉耀控股发布公告，集团近年来持续关注大健康及生物医药相关领域。
 
-对此，公司高度重视，第一时间组织专项工作组派驻青岛，全力配合公安机关的工作，并同步启动对该事件的内部自查和客户排查，绝不姑息任何违法犯罪行为。
+集团已于2026年四月正式开展大麻二酚（CBD）相关业务。
 
-该公司强调，始终将客户权益置于首位，坚定维护客户的合法权益，对任何损害客户权益的行为零容忍。
+目前，集团主要从事从中国采购CBD及出口业务，产品主要销往欧洲及北美地区的护肤、日化及医药企业。
 
-目前，公司已主动联系可能受影响的客户及相关人士，并承诺对于依法应由其承担的责任绝不推卸。
+集团已建立专门的运营团队负责此项业务，核心成员拥有相关行业经验。
 
-此前，有媒体报道，青岛市公安机关以涉嫌诈骗罪对泰康人寿青岛分公司个人代理人任晓敏立案侦查，涉案本金规模约3亿至4亿元。
+截至本公告日期，集团已就相关业务取得必要资质及许可。
 
-记者了解到，任晓敏曾是多项荣誉加身、泰康人寿力捧的标杆代理人。
+现阶段，集团主要利用供应链优势，以具竞争力的价格向海外市场提供CBD。
 
-公开宣传资料显示，2020-2022年任晓敏累计签下“幸福有约”保单超百件，服务高净值客户近百人，2022年度她实现标保业绩1761万元，拿下幸福有约41单，成为当年新业务系列全国第一；2025年，任晓敏仅“开门红”期间的个人标保业绩就突破2900万元。
+截至本公告日期，相关业务虽属早期发展阶段，但已签署实质性贸易合同，并已产生实际销售收入及回款。
 
 ## 相关推荐
 
-- 2026-06-29 14:41 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 14:49 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 14:35 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 14:52 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 14:37 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 14:33 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 14:33 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 14:37 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 14:58 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 14:37 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 14:57 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 14:44 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 14:34 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 14:42 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 14:45 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 15:02 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 14:48 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 15:01 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 14:45 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 14:58 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 14:53 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 15:05 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 14:55 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 15:00 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 15:05 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 15:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 14:43 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:42 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/970958912904.shtml)
-- 2026-06-29 14:54 - [智界V9成为高端圈层共同选择](http://www.blog.minike.top/Article/details/309463.shtml)
-- 2026-06-29 14:44 - [逃狱兄弟](http://www.share.minike.top/Article/details/3898656388.shtml)
-- 2026-06-29 14:36 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/121583.shtml)
-- 2026-06-29 14:48 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.minike.top/Article/details/188632327125.shtml)
-- 2026-06-29 14:36 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/20812004479.shtml)
-- 2026-06-29 14:37 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/74275.shtml)
-- 2026-06-29 14:47 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/713990656151.shtml)
-- 2026-06-29 14:38 - [金牌调解](https://www.share.kurohicncr.top/Article/details/2993761561.shtml)
-- 2026-06-29 14:54 - [光与夜之恋](http://www.blog.minike.top/Article/details/1977350120.shtml)
-- 2026-06-29 14:30 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/38551142.shtml)
-- 2026-06-29 14:56 - [比亚迪为什么卖得越多市值越低](http://www.blog.kurohicncr.top/Article/details/64006778744.shtml)
-- 2026-06-29 14:31 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.minike.top/Article/details/492543032894.shtml)
-- 2026-06-29 14:31 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/408153796.shtml)
-- 2026-06-29 14:37 - [巴基斯坦军方打死29名武装分子](https://www.share.kurohicncr.top/Article/details/4766281.shtml)
+- 2026-06-29 14:52 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/085438182675.shtml)
+- 2026-06-29 14:47 - [斛珠夫人](http://www.blog.minike.top/Article/details/5841058.shtml)
+- 2026-06-29 14:48 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/629217.shtml)
+- 2026-06-29 14:55 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.kurohicncr.top/Article/details/5537437233.shtml)
+- 2026-06-29 14:38 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/591359778799.shtml)
+- 2026-06-29 14:59 - [比亚迪为什么卖得越多市值越低](http://www.blog.minike.top/Article/details/68503470.shtml)
+- 2026-06-29 14:43 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/10064942.shtml)
+- 2026-06-29 14:47 - [吴磊爱上回收了](http://www.share.kurohicncr.top/Article/details/7180887.shtml)
+- 2026-06-29 14:36 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/92337.shtml)
+- 2026-06-29 14:37 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/623037723.shtml)
+- 2026-06-29 14:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/0446447.shtml)
+- 2026-06-29 14:52 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/739403210.shtml)
+- 2026-06-29 14:38 - [中国邮政上海分公司总经理李柏平被查](http://www.share.minike.top/Article/details/464588862.shtml)
+- 2026-06-29 14:48 - [直击宜宾地震：监控剧烈摇晃](http://www.share.kurohicncr.top/Article/details/2951682234.shtml)
+- 2026-06-29 14:56 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/1594526153.shtml)

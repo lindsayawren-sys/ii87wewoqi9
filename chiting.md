@@ -1,52 +1,56 @@
-# 古特雷斯呼吁美伊保持克制 避免局势进一步升级
+# ASMPT绩后涨逾7% 第一季度持续经营业务盈利同比增超1.9倍
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-联合国秘书长古特雷斯的副发言人哈克8日说，古特雷斯呼吁美国和伊朗保持最大限度克制，以避免局势进一步升级。 哈克当天在例行记者会上回答有关提问时表示，古特雷斯对霍尔木兹海峡发生的交火事件表示关切。秘书长强调，当前正处于缓解局势的关键时刻，他敦促各方保持最大限度克制，以避免局势进一步升级。 哈克说，古特雷斯同时呼吁各方全面遵守停火协议，并避免采取任何可能导致局势重新升级或破坏当前外
+ASMPT（00522）绩后涨超7%，截至发稿，股价上涨6.96%，现报158.40港元，成交额4.73亿港元。 4月22日，ASMPT公布2026年第一季度业绩，持续经营业务销售收入为港币39.7亿元（5.08亿美元），高于销售收入预测的中位数，按季增长0.2%，按年亦增长32.0%。新增订单总额为港币56.7亿元（7.27亿美元），远超预期，按季增长46.0%，按年亦增长7
 
 ## 正文
 
-联合国秘书长古特雷斯的副发言人哈克8日说，古特雷斯呼吁美国和伊朗保持最大限度克制，以避免局势进一步升级。
+ASMPT（00522）绩后涨超7%，截至发稿，股价上涨6.96%，现报158.40港元，成交额4.73亿港元。
 
-哈克当天在例行记者会上回答有关提问时表示，古特雷斯对霍尔木兹海峡发生的交火事件表示关切。
+4月22日，ASMPT公布2026年第一季度业绩，持续经营业务销售收入为港币39.7亿元（5.08亿美元），高于销售收入预测的中位数，按季增长0.2%，按年亦增长32.0%。
 
-秘书长强调，当前正处于缓解局势的关键时刻，他敦促各方保持最大限度克制，以避免局势进一步升级。
+新增订单总额为港币56.7亿元（7.27亿美元），远超预期，按季增长46.0%，按年亦增长71.6%，创下四年来新高。
 
-哈克说，古特雷斯同时呼吁各方全面遵守停火协议，并避免采取任何可能导致局势重新升级或破坏当前外交努力的行动。
+经调整毛利率为39.5%，按季上升357点子，按年则下降151点子。
 
-据伊朗方面8日消息，伊朗武装部队哈塔姆安比亚中央总部发言人表示，由于美国违反停火协议，袭击伊朗油轮和另一艘进入霍尔木兹海峡的船只，伊朗武装力量当晚打击了霍尔木兹海峡以东的美国军舰。
+盈利约3.24亿港元，环比减少70.8%，同比增长192.9%。
 
-美军中央司令部证实美驱逐舰遭袭，并称进行了回击，但美方无意寻求局势升级。
+经调整盈利为港币3.35亿元，由经营利润增加所推动按季增加123.8%，按年亦增长193.5%。
+
+公告称，经调整毛利率按季改善归因于半导体解决方案分部的较高毛利率及销售收入贡献增加。
+
+按年下降则由于表面贴装技术解决方案分部的销售收入贡献较高。
 
 ## 相关推荐
 
-- 2026-06-29 14:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 14:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 14:56 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 14:50 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 14:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 14:50 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 14:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 14:45 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 14:46 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 14:33 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 14:36 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 15:03 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 14:59 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 14:54 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 14:54 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 15:03 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 14:56 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 14:47 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 14:36 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 14:45 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:58 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/673554177675.shtml)
-- 2026-06-29 14:58 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/979593.shtml)
-- 2026-06-29 14:49 - [光与夜之恋](https://www.blog.minike.top/Article/details/062741851096.shtml)
-- 2026-06-29 14:53 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/3220023252.shtml)
-- 2026-06-29 14:31 - [A股](https://www.share.minike.top/Article/details/855420632544.shtml)
-- 2026-06-29 14:47 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/375408.shtml)
-- 2026-06-29 14:33 - [宜宾5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/95515.shtml)
-- 2026-06-29 14:44 - [金刚川](http://www.share.minike.top/Article/details/37823791731.shtml)
-- 2026-06-29 14:55 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.kurohicncr.top/Article/details/01804751.shtml)
-- 2026-06-29 14:58 - [3D打印不是工业革命，它是……](http://www.blog.minike.top/Article/details/738277475.shtml)
-- 2026-06-29 14:45 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.share.kurohicncr.top/Article/details/45134.shtml)
-- 2026-06-29 14:53 - [Canna纳尔8-0对位单杀Doran](http://www.blog.kurohicncr.top/Article/details/963402.shtml)
-- 2026-06-29 14:37 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/894458.shtml)
-- 2026-06-29 14:35 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/026949040881.shtml)
-- 2026-06-29 14:35 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/41390.shtml)
+- 2026-06-29 15:00 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.minike.top/Article/details/208276299514.shtml)
+- 2026-06-29 14:54 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/449748.shtml)
+- 2026-06-29 14:39 - [袁隆平院士 不容诋毁！](http://www.share.kurohicncr.top/Article/details/562382320264.shtml)
+- 2026-06-29 15:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/46563624.shtml)
+- 2026-06-29 14:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/9686294667.shtml)
+- 2026-06-29 14:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/71027.shtml)
+- 2026-06-29 14:42 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/38796533778.shtml)
+- 2026-06-29 14:38 - [俄军新型无人机战力如何](https://www.share.kurohicncr.top/Article/details/79850.shtml)
+- 2026-06-29 15:00 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/368112668.shtml)
+- 2026-06-29 14:58 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/85094742376.shtml)
+- 2026-06-29 14:55 - [乔家的儿女](http://www.blog.minike.top/Article/details/33274180.shtml)
+- 2026-06-29 15:03 - [教育部发布高考志愿填报预警](http://www.blog.minike.top/Article/details/60860813874.shtml)
+- 2026-06-29 14:42 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/664896.shtml)
+- 2026-06-29 14:42 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/38733590222.shtml)
+- 2026-06-29 14:36 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/905577.shtml)

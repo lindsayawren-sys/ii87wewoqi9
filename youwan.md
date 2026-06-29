@@ -1,56 +1,56 @@
-# 美国称伊朗应在周五就止战方案作出答复 交火令紧张局势升级
+# 特朗普：美伊第二轮谈判最快或于周五举行
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-美国表示，期望伊朗很快就总统唐纳德·特朗普为结束双方战争提出的最新方案作出回应。而隔夜的冲突对持续一个月的停火构成进一步威胁。 美国国务卿对记者表示，伊朗“应该”在周五给出答复。 伊朗仍未表明是否会接受特朗普周三发出的方案。该方案提议，德黑兰在未来一个月内重新开放霍尔木兹海峡，美国则结束对伊朗港口的封锁。 这份一页纸文件暗示，只要伊朗接受，战争就将结束。尽管双方此后仍需就伊朗核
+当地时间周三，特朗普及巴基斯坦消息人士透露，有关美伊举行第二轮谈判的“好消息”最快可能在周五出炉。 伊斯兰堡方面消息称，巴方对伊朗的斡旋取得积极进展，未来“36至72小时内”重启更多和平谈判的可能性重新出现。就这一可能的突破向特朗普求证时，他在短信中回复：“有可能！特朗普总统。”（It’s possible！ President DJT） 这一最新进展公布的前一天，这位美国总统
 
 ## 正文
 
-美国表示，期望伊朗很快就总统唐纳德·特朗普为结束双方战争提出的最新方案作出回应。
+当地时间周三，特朗普及巴基斯坦消息人士透露，有关美伊举行第二轮谈判的“好消息”最快可能在周五出炉。
 
-而隔夜的冲突对持续一个月的停火构成进一步威胁。
+伊斯兰堡方面消息称，巴方对伊朗的斡旋取得积极进展，未来“36至72小时内”重启更多和平谈判的可能性重新出现。
 
-美国国务卿对记者表示，伊朗“应该”在周五给出答复。
+就这一可能的突破向特朗普求证时，他在短信中回复：“有可能！
 
-伊朗仍未表明是否会接受特朗普周三发出的方案。
+特朗普总统。
 
-该方案提议，德黑兰在未来一个月内重新开放霍尔木兹海峡，美国则结束对伊朗港口的封锁。
+”（It’s possible！
 
-这份一页纸文件暗示，只要伊朗接受，战争就将结束。
+President DJT） 这一最新进展公布的前一天，这位美国总统曾宣布，将延长当前对伊朗的停火期限，直至内部分歧明显的伊朗领导层拿出一份“统一方案”。
 
-尽管双方此后仍需就伊朗核计划达成协议。
+他周二在真实社交平台发文称：“我已……指示我方军方继续实施封锁，同时在其他所有方面保持戒备与作战能力，并因此延长停火，直至他们提交方案，谈判以某种方式结束为止。
 
-这场战争已经在中东造成数千人死亡，并推动能源价格飙升。
+” 一名巴基斯坦消息人士表示，在此后的数小时里，伊斯兰堡方面持续通过外交渠道与伊朗沟通，上述时间范围正是基于对这一斡旋进程的评估得出。
 
 ## 相关推荐
 
-- 2026-06-29 14:51 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 14:45 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 14:33 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 14:34 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 14:54 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 14:36 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 14:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 14:48 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 14:47 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 14:45 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 15:01 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 14:55 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 14:46 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 14:42 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 14:51 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 14:53 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 14:51 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 14:55 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 14:58 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 14:38 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/39116362.shtml)
-- 2026-06-29 14:43 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/43489.shtml)
-- 2026-06-29 14:31 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/01880236.shtml)
-- 2026-06-29 14:30 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/205705463.shtml)
-- 2026-06-29 14:41 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.kurohicncr.top/Article/details/474332000.shtml)
-- 2026-06-29 14:37 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/208175.shtml)
-- 2026-06-29 14:59 - [薛之谦演唱会](https://www.share.kurohicncr.top/Article/details/335819974.shtml)
-- 2026-06-29 14:54 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/49591.shtml)
-- 2026-06-29 14:36 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/872788371.shtml)
-- 2026-06-29 14:58 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.minike.top/Article/details/02171394.shtml)
-- 2026-06-29 14:42 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/741526.shtml)
-- 2026-06-29 14:57 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/885738012112.shtml)
-- 2026-06-29 14:41 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/0652089031.shtml)
-- 2026-06-29 14:36 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/2156428.shtml)
-- 2026-06-29 14:32 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/03232541808.shtml)
+- 2026-06-29 15:01 - [周杰伦演唱会真的好多人啊](https://www.share.kurohicncr.top/Article/details/72064653.shtml)
+- 2026-06-29 14:45 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/356054253533.shtml)
+- 2026-06-29 14:54 - [记者暗访贵州和云南多个养老机构](https://www.share.kurohicncr.top/Article/details/7743813.shtml)
+- 2026-06-29 15:01 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.minike.top/Article/details/914628326227.shtml)
+- 2026-06-29 14:39 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.kurohicncr.top/Article/details/1080885857.shtml)
+- 2026-06-29 14:47 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/7357331.shtml)
+- 2026-06-29 14:56 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/28728.shtml)
+- 2026-06-29 14:52 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/6505877987.shtml)
+- 2026-06-29 14:54 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/4192726.shtml)
+- 2026-06-29 14:45 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/85297.shtml)
+- 2026-06-29 14:48 - [崔韩率还以为韩娱来新人了](https://www.blog.minike.top/Article/details/754118.shtml)
+- 2026-06-29 15:05 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/707888.shtml)
+- 2026-06-29 14:44 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.minike.top/Article/details/16463115378.shtml)
+- 2026-06-29 14:50 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/25813.shtml)
+- 2026-06-29 15:04 - [日本主帅：对战胜巴西很有信心](https://www.share.kurohicncr.top/Article/details/95716.shtml)

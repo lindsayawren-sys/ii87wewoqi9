@@ -1,56 +1,60 @@
-# 北京2026年高招工作规定出炉 高考安排公布
+# 伊朗媒体披露伊方拒绝二轮会谈原因：美多次违背承诺
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网5月8日电 据北京教育考试院网站消息，北京教育考试院今天发布北京市2026年普通高等学校(以下简称“高校”)招生工作规定，公布了2026年统一高考时间安排和学考等级考时间安排等。 2026年北京市普通高等学校招生考试包括统一高考和学考等级考。统一高考科目为语文、数学、外语3门。学考等级考科目为思想政治、历史、地理、物理、化学、生物6门，由考生自主选择3门参加考试。 (一)
+中新网4月22日电 据伊朗塔斯尼姆通讯社21日报道，伊朗谈判代表团已通过巴基斯坦方面告知美方，出于多种原因，伊朗代表团不会前往巴基斯坦首都伊斯兰堡出席谈判，目前也没有参加谈判的前景。 报道援引消息人士的话说，巴基斯坦最初介入调解，是基于伊朗提出的10点框架进行斡旋。但是在首轮伊斯兰堡会谈中，美国提出许多违反这一框架的过分要求，导致会谈陷入僵局。 此外，伊美在本月上旬达成停火协议
 
 ## 正文
 
-中新网5月8日电 据北京教育考试院网站消息，北京教育考试院今天发布北京市2026年普通高等学校(以下简称“高校”)招生工作规定，公布了2026年统一高考时间安排和学考等级考时间安排等。
+中新网4月22日电 据伊朗塔斯尼姆通讯社21日报道，伊朗谈判代表团已通过巴基斯坦方面告知美方，出于多种原因，伊朗代表团不会前往巴基斯坦首都伊斯兰堡出席谈判，目前也没有参加谈判的前景。
 
-2026年北京市普通高等学校招生考试包括统一高考和学考等级考。
+报道援引消息人士的话说，巴基斯坦最初介入调解，是基于伊朗提出的10点框架进行斡旋。
 
-统一高考科目为语文、数学、外语3门。
+但是在首轮伊斯兰堡会谈中，美国提出许多违反这一框架的过分要求，导致会谈陷入僵局。
 
-学考等级考科目为思想政治、历史、地理、物理、化学、生物6门，由考生自主选择3门参加考试。
+此外，伊美在本月上旬达成停火协议仅几天后，美国就开始违背承诺。
 
-(一)统一高考时间安排 外语考试分英语、俄语、日语、德语、法语、西班牙语六个语种，由考生任选一种。
+美国没有向以色列提出在黎巴嫩停火的要求，给伊美谈判造成严重障碍。
 
-统考英语听说考试与笔试分离，实行计算机考试，一年两次考试，第一次考试于2025年12月13日进行，第二次考试于2026年3月21日进行。
+报道称，在美国迫于形势要求以色列在黎巴嫩落实停火后，伊朗宣布在达成的停火框架内开放霍尔木兹海峡，允许商船通行。
 
-其他外语(非英语)考试使用全国卷，听力考试一年两考，第一次考试于2026年1月8日进行，第二次考试于2026年6月8日进行。
+但美军对进出伊朗港口的海上交通实施封锁。
 
-(二)学考等级考时间安排
+过去几天，美方坚持提出侵犯伊朗人民权利的过分要求，致使双方沟通不能取得任何实质性进展。
 
 ## 相关推荐
 
-- 2026-06-29 14:48 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 14:38 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 14:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 14:56 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 14:58 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 14:42 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 14:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 14:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 14:32 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 14:31 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 14:49 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 14:42 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 14:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 14:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 14:38 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 14:55 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 15:00 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 14:42 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 14:43 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 14:37 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 14:53 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 14:36 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 14:44 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 14:47 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:58 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/64011489.shtml)
-- 2026-06-29 14:49 - [韩国队如何把94%出线概率打到0%](https://www.share.minike.top/Article/details/08255.shtml)
-- 2026-06-29 14:35 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.kurohicncr.top/Article/details/6098359326.shtml)
-- 2026-06-29 14:45 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/9911440.shtml)
-- 2026-06-29 14:30 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/077585795.shtml)
-- 2026-06-29 14:31 - [女生雨天开车发现雨刮条被掰走](http://www.blog.minike.top/Article/details/0075040.shtml)
-- 2026-06-29 14:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/6125624.shtml)
-- 2026-06-29 14:52 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/7024346930.shtml)
-- 2026-06-29 14:36 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/326576.shtml)
-- 2026-06-29 14:49 - [手游300亿数据或被军事化运用](http://www.blog.kurohicncr.top/Article/details/6310516286.shtml)
-- 2026-06-29 14:37 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/7507968.shtml)
-- 2026-06-29 14:55 - [崔韩率还以为韩娱来新人了](http://www.share.minike.top/Article/details/78369519950.shtml)
-- 2026-06-29 14:41 - [高考公平需要延伸到志愿填报这一环](http://www.blog.minike.top/Article/details/50151.shtml)
-- 2026-06-29 14:56 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/428500379.shtml)
-- 2026-06-29 14:32 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/9004761.shtml)
+- 2026-06-29 15:03 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/4324188.shtml)
+- 2026-06-29 14:49 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/40186.shtml)
+- 2026-06-29 14:49 - [媒体人：警惕日本再次成战争加害国](https://www.blog.kurohicncr.top/Article/details/285036642952.shtml)
+- 2026-06-29 14:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/620200.shtml)
+- 2026-06-29 14:58 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.kurohicncr.top/Article/details/92198.shtml)
+- 2026-06-29 14:42 - [异世界一点都不好玩！](https://www.blog.minike.top/Article/details/62968.shtml)
+- 2026-06-29 14:43 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.kurohicncr.top/Article/details/24522119.shtml)
+- 2026-06-29 15:03 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/2234943.shtml)
+- 2026-06-29 15:02 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/004766.shtml)
+- 2026-06-29 14:49 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/466079634.shtml)
+- 2026-06-29 14:57 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/741988830.shtml)
+- 2026-06-29 14:44 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/33558.shtml)
+- 2026-06-29 14:49 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/15480083.shtml)
+- 2026-06-29 14:42 - [恋与深空失控领地](https://www.share.minike.top/Article/details/2920296211.shtml)
+- 2026-06-29 14:53 - [金刚川](https://www.blog.minike.top/Article/details/2796619.shtml)

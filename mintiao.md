@@ -1,60 +1,57 @@
-# 高原之上，绘就绿色画卷——“十四五”西藏国家生态文明高地创建纪实
+# 第十九届北京车展将开幕 中国车企如何突破超越
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-从拉萨南北山万亩绿廊，到羌塘草原生灵自在栖居；从雅鲁藏布江奔流不息，到高原和美乡村处处浸润草木清香。“十四五”以来，西藏紧扣国家生态文明高地创建目标，严格落实《中华人民共和国青藏高原生态保护法》，出台《西藏自治区国家生态文明高地建设条例》，以“五地一体系”“十大行动”为抓手，走出了一条契合高原实际、独具西藏特色的绿色发展之路。“十四五”时期，西藏生态文明建设蹄疾步稳、成效斐然。
+从北京车展看中国车企创新(小经说汽车) 再过两天，第十九届北京国际车展将拉开帷幕。38万平方米展位、181款全球首发车型，吸引着全球目光。不过，在笔者看来，本届车展最具价值和影响力的，却是国产HEV(油电混合动力)技术的群体突破。在吉利、奇瑞、长安展台，你不仅能亲身感受到国产HEV节能减排、智能电感的非凡体验，更会为中国车企创新的又一重大成果倍感自豪。 全球量产最高48.41%
 
 ## 正文
 
-从拉萨南北山万亩绿廊，到羌塘草原生灵自在栖居；从雅鲁藏布江奔流不息，到高原和美乡村处处浸润草木清香。
+从北京车展看中国车企创新(小经说汽车) 再过两天，第十九届北京国际车展将拉开帷幕。
 
-“十四五”以来，西藏紧扣国家生态文明高地创建目标，严格落实《中华人民共和国青藏高原生态保护法》，出台《西藏自治区国家生态文明高地建设条例》，以“五地一体系”“十大行动”为抓手，走出了一条契合高原实际、独具西藏特色的绿色发展之路。
+38万平方米展位、181款全球首发车型，吸引着全球目光。
 
-“十四五”时期，西藏生态文明建设蹄疾步稳、成效斐然。
+不过，在笔者看来，本届车展最具价值和影响力的，却是国产HEV(油电混合动力)技术的群体突破。
 
-国家生态文明高地创建成效评估结果显示：38项创建指标中，21项位居全国前列或优于全国平均水平，其中9项位居全国第一；创建成效综合指数得分从49提升至68，着力创建国家生态文明高地“十大行动”全面完成并取得显著成效。
+在吉利、奇瑞、长安展台，你不仅能亲身感受到国产HEV节能减排、智能电感的非凡体验，更会为中国车企创新的又一重大成果倍感自豪。
 
-一幅天蓝地绿水清人和的生态画卷在高原大地徐徐铺展。
+全球量产最高48.41%发动机热效率、打破吉尼斯世界纪录的2.22升实测百公里综合油耗、在WLTC(全球轻型测试循环)工况下拥有80%以上电感体验且比传统油电混动节油、与同级燃油车相比一箱油可以多跑500多公里……以4月13日发布的吉利i-HEV智擎混动为例，无论是发动机热效率、百公里油耗还是纯电行驶工况，都打破了日系油电混动技术近30年的技术垄断，补上了我国汽车核心技术的短板，更树立了全球油混技术新标杆。
 
-以绿为底 筑牢生态根基 拉萨市城关区慈觉林村的卓玛，时常望向宝瓶山那片郁郁葱葱的山林感慨：“父亲当年亲手栽下的树，如今不仅扎根成活，林间还长出了新苗，可惜他没能亲眼见证这片青山常在。
+面对核心专利的绝对垄断、地毯式的专利布局、成熟架构超强的成本控制力，中国车企是如何完成突破并一举实现超越的呢？
 
-” 这份对青山常绿的朴素心愿，在岁月流转中代代相传，道出了高原人守护家园的共同心声。
+坚持换道超车的战略导向。
 
-2021年，南北山绿化工程启动。
+如同中国新能源汽车产业抓住电动化、智能化转型机遇，锚定纯电赛道，成功实现换道超车并持续引领全球汽车产业发展一样，国产混合动力技术突破，同样没有选择跟随模仿，而是主动开辟了新赛道——既然电驱为辅、油驱为主的主流技术路线，需要硬刚丰田打磨近30年、高效低成本的行星齿轮系统，为何不另辟蹊径，以我们擅长、电驱为主的长续航插混为蓝本，开发出一款既省油又电感十足的新系统呢？
 
 ## 相关推荐
 
-- 2026-06-29 14:50 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 14:47 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 14:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 14:41 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 14:38 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 14:31 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 14:33 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 14:57 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 14:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 14:34 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 14:30 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 14:47 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 14:51 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 14:48 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 15:00 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 14:41 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 14:52 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 14:39 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 15:00 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 15:03 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 14:45 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 14:43 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 14:51 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 14:57 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 14:56 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/689684.shtml)
-- 2026-06-29 14:41 - [异世界一点都不好玩！](http://www.blog.minike.top/Article/details/7919188.shtml)
-- 2026-06-29 14:56 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.kurohicncr.top/Article/details/26522191.shtml)
-- 2026-06-29 14:56 - [游戏数据被用于军事目的 国安部提醒](https://www.share.minike.top/Article/details/5042298755.shtml)
-- 2026-06-29 14:47 - [美人鱼](https://www.share.minike.top/Article/details/131699820.shtml)
-- 2026-06-29 14:42 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/08085762990.shtml)
-- 2026-06-29 14:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/650217.shtml)
-- 2026-06-29 14:44 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/696987.shtml)
-- 2026-06-29 14:51 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/5527341429.shtml)
-- 2026-06-29 14:34 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.minike.top/Article/details/34559369.shtml)
-- 2026-06-29 14:30 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/7497385.shtml)
-- 2026-06-29 14:45 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/83206896617.shtml)
-- 2026-06-29 14:40 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/109950321712.shtml)
-- 2026-06-29 14:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/4127798894.shtml)
-- 2026-06-29 14:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/468620602.shtml)
+- 2026-06-29 14:57 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/119040365337.shtml)
+- 2026-06-29 14:50 - [记者暗访贵州和云南多个养老机构](http://www.blog.kurohicncr.top/Article/details/461103.shtml)
+- 2026-06-29 14:50 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/39506219860.shtml)
+- 2026-06-29 15:04 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/468804.shtml)
+- 2026-06-29 14:37 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/436903152832.shtml)
+- 2026-06-29 15:00 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/06052.shtml)
+- 2026-06-29 14:58 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/6977034641.shtml)
+- 2026-06-29 14:44 - [巴基斯坦军方打死29名武装分子](http://www.share.minike.top/Article/details/74545.shtml)
+- 2026-06-29 15:01 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/8907240.shtml)
+- 2026-06-29 14:57 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/1465587612.shtml)
+- 2026-06-29 14:43 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/2674525490.shtml)
+- 2026-06-29 15:04 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/2845274.shtml)
+- 2026-06-29 15:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/071921.shtml)
+- 2026-06-29 14:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/003120321.shtml)
+- 2026-06-29 14:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/546827035897.shtml)

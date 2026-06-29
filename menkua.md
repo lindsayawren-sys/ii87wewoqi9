@@ -1,58 +1,56 @@
-# 高血压患者如何健康运动
+# 如何区分感冒与过敏？各类过敏症状该如何应对？专家解答
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-高血压患者如何健康运动(健身视野·服务站) “科学规律的运动可以改善神经功能和心脑血管功能，提升身体代谢水平，减轻体重负担，从而降低血压。”北京大学第三医院心血管内科主任医师赵威说。 赵威介绍，有助于降低血压的运动方式多种多样，主要分为有氧运动、力量训练(抗阻运动)、柔韧性训练。常见有氧运动有游泳、慢跑、快走、骑自行车、打太极拳、练八段锦等，每次持续30分钟以上、每周进行5次左
+本报记者 吴佳佳 感冒与过敏性鼻炎均可能出现打喷嚏、流鼻涕、鼻塞等症状，但感冒多伴随发热、肌肉酸痛等全身症状，而过敏性鼻炎的核心表现是鼻痒、眼痒、咽喉发痒及连续打喷嚏，部分患者还会出现严重鼻塞，全身症状不明显。 过敏的发生需要两个条件共同作用：一是个体为特应性体质(过敏体质)，与遗传因素密切相关；二是接触了对应的过敏原。 春季踏青赏景正当时，过敏高发也随之而来。近日，社交媒体上
 
 ## 正文
 
-高血压患者如何健康运动(健身视野·服务站) “科学规律的运动可以改善神经功能和心脑血管功能，提升身体代谢水平，减轻体重负担，从而降低血压。
+本报记者 吴佳佳 感冒与过敏性鼻炎均可能出现打喷嚏、流鼻涕、鼻塞等症状，但感冒多伴随发热、肌肉酸痛等全身症状，而过敏性鼻炎的核心表现是鼻痒、眼痒、咽喉发痒及连续打喷嚏，部分患者还会出现严重鼻塞，全身症状不明显。
 
-”北京大学第三医院心血管内科主任医师赵威说。
+过敏的发生需要两个条件共同作用：一是个体为特应性体质(过敏体质)，与遗传因素密切相关；二是接触了对应的过敏原。
 
-赵威介绍，有助于降低血压的运动方式多种多样，主要分为有氧运动、力量训练(抗阻运动)、柔韧性训练。
+春季踏青赏景正当时，过敏高发也随之而来。
 
-常见有氧运动有游泳、慢跑、快走、骑自行车、打太极拳、练八段锦等，每次持续30分钟以上、每周进行5次左右可达到锻炼效果。
+近日，社交媒体上关于春季过敏的讨论持续升温，抗过敏药物氯雷他定一度成为热议话题。
 
-常见的力量训练有举哑铃、平板支撑、拉弹力带、靠墙蹲等。
+不少人出现打喷嚏、流鼻涕等症状时，如何区分感冒与过敏？
 
-柔韧性训练包括练瑜伽、拉伸等。
+各类过敏症状该如何应对？
 
-“多种运动方式结合，可以起到更好的降血压效果，提升身体素质。
+此外，“过敏是免疫力低的表现”的说法是否正确？
 
-”赵威说。
+针对公众关心的这些问题，记者采访了有关专家。
 
 ## 相关推荐
 
-- 2026-06-29 14:56 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 14:34 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 14:51 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 14:35 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 14:48 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 14:40 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 14:38 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 14:36 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 14:41 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 14:54 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 14:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 14:51 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 14:38 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 14:47 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 15:03 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 14:44 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 14:56 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 14:53 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 14:58 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 14:47 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 15:01 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 14:51 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:49 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/438154.shtml)
-- 2026-06-29 14:31 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/156552276407.shtml)
-- 2026-06-29 14:47 - [马斯克也站到了光里](http://www.share.kurohicncr.top/Article/details/035880905.shtml)
-- 2026-06-29 14:35 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/782285562.shtml)
-- 2026-06-29 14:30 - [斛珠夫人](http://www.blog.minike.top/Article/details/79811898.shtml)
-- 2026-06-29 14:35 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/1674393163.shtml)
-- 2026-06-29 14:58 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/1762116059.shtml)
-- 2026-06-29 14:34 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/6296284144.shtml)
-- 2026-06-29 14:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/17734013167.shtml)
-- 2026-06-29 14:30 - [第一炉香](http://www.share.kurohicncr.top/Article/details/32425229.shtml)
-- 2026-06-29 14:51 - [韩媒破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/50907399649.shtml)
-- 2026-06-29 14:44 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/852300477.shtml)
-- 2026-06-29 14:46 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/1171855.shtml)
-- 2026-06-29 14:35 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/926969421.shtml)
-- 2026-06-29 14:36 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/4687312012.shtml)
+- 2026-06-29 14:38 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/302491955520.shtml)
+- 2026-06-29 15:01 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/059596266.shtml)
+- 2026-06-29 14:53 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/30372281.shtml)
+- 2026-06-29 14:55 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/626524.shtml)
+- 2026-06-29 14:53 - [志愿选择倒计时！浙大学生送祝福](http://www.share.minike.top/Article/details/3262112.shtml)
+- 2026-06-29 14:37 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/18980.shtml)
+- 2026-06-29 14:52 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/55528.shtml)
+- 2026-06-29 14:56 - [警方回应东鹏饮料董事长不喝东鹏](https://www.blog.minike.top/Article/details/198460.shtml)
+- 2026-06-29 14:48 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/79517.shtml)
+- 2026-06-29 14:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/463123928.shtml)
+- 2026-06-29 14:39 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/748425.shtml)
+- 2026-06-29 14:43 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/22150076262.shtml)
+- 2026-06-29 14:54 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/0358983.shtml)
+- 2026-06-29 14:48 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/112924686.shtml)
+- 2026-06-29 14:37 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/434688955291.shtml)

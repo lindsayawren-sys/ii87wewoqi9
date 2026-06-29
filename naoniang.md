@@ -1,53 +1,61 @@
-# 上海平价社区超市圈粉外国友人
+# 盘前：纳指期货涨0.7% 特朗普单方面宣布无限期停火
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 20:56 来源：中国新闻网 近日，一块标价0.79元人民币的内酯豆腐，让在上海居住的美国人尤金成了网络红人，也让“中国平价社区超市”走进海外网友视野。这家主打“天天低价、件件爆款”的超市通过工厂直采、精简包装严控成本，单店面积不到800平方米，但是“麻雀虽小，五脏俱全”，店内通常都会精选约1500款聚焦一日三餐与日常生活的高频商品。不少外国顾
+在美国总统特朗普宣布将与伊朗的停火安排无限期延长后，市场风险情绪有所企稳，周三美股股指期货走高，美元震荡整理。与此同时，投资者也将目光转向当日密集出炉的企业财报，以判断企业盈利能否继续支撑股市高位运行。 市场对战争即将结束的乐观预期仍相对有限。尽管特朗普释放出延长停火信号，但霍尔木兹海峡大部分航运仍处于关闭状态，美伊之间也尚未出现恢复谈判的迹象，这使投资者对中东局势前景依然保持
 
 ## 正文
 
-发布时间：2026年05月08日 20:56 来源：中国新闻网 近日，一块标价0.79元人民币的内酯豆腐，让在上海居住的美国人尤金成了网络红人，也让“中国平价社区超市”走进海外网友视野。
+在美国总统特朗普宣布将与伊朗的停火安排无限期延长后，市场风险情绪有所企稳，周三美股股指期货走高，美元震荡整理。
 
-这家主打“天天低价、件件爆款”的超市通过工厂直采、精简包装严控成本，单店面积不到800平方米，但是“麻雀虽小，五脏俱全”，店内通常都会精选约1500款聚焦一日三餐与日常生活的高频商品。
+与此同时，投资者也将目光转向当日密集出炉的企业财报，以判断企业盈利能否继续支撑股市高位运行。
 
-不少外国顾客表示，这里不仅有别处难寻的特色水果和饮品，环境也干净整洁，每天都会前来采购。
+市场对战争即将结束的乐观预期仍相对有限。
 
-今年“五一”假期，某在线旅游平台的数据显示，上海、北京等中国核心城市仍是外国游客的首选目的地，而据上海公安出入境管理部门数据，2025年累计办理的外国人永久居留身份证“五星卡”已突破1万张，居全国首位。
+尽管特朗普释放出延长停火信号，但霍尔木兹海峡大部分航运仍处于关闭状态，美伊之间也尚未出现恢复谈判的迹象，这使投资者对中东局势前景依然保持谨慎。
 
-(李佳佳 杨海燕 制作 王佳琪） 责任编辑：【卢岩】
+尽管能源市场承压，美国股指期货全线上涨。
+
+标普500指数期货仍上涨0.6%，此前该基准指数刚录得本月首次连续两个交易日下跌。
+
+道指期货上涨0.5%，纳斯达克期货上涨0.7%。
+
+此前美国三大股指周二集体回落。
 
 ## 相关推荐
 
-- 2026-06-29 14:57 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 14:41 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 14:32 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 14:42 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 14:38 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 14:53 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 14:41 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 14:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 14:31 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 14:40 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 14:51 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 14:52 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 14:44 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 14:48 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 15:04 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 14:43 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 14:43 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 15:01 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 14:55 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 14:48 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 14:54 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 14:52 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 14:36 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 14:54 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 14:44 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 14:56 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 14:50 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 14:40 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:31 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/228123144278.shtml)
-- 2026-06-29 14:47 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/82242472.shtml)
-- 2026-06-29 14:30 - [专家建议城乡居民养老金增至每月千元](http://www.share.kurohicncr.top/Article/details/300780.shtml)
-- 2026-06-29 14:41 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/799790612573.shtml)
-- 2026-06-29 14:41 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/24126655559.shtml)
-- 2026-06-29 14:54 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/2549606.shtml)
-- 2026-06-29 14:59 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/568660553334.shtml)
-- 2026-06-29 14:49 - [媒体：网络测评不能只剩“生意”](http://www.blog.kurohicncr.top/Article/details/3191001082.shtml)
-- 2026-06-29 14:59 - [沉睡花园](https://www.blog.minike.top/Article/details/413299199707.shtml)
-- 2026-06-29 14:45 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/276637532851.shtml)
-- 2026-06-29 14:51 - [王楚钦周启豪爆分](https://www.blog.minike.top/Article/details/912356005620.shtml)
-- 2026-06-29 14:42 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/8362105267.shtml)
-- 2026-06-29 14:44 - [T1对战KC](https://www.share.kurohicncr.top/Article/details/447444263545.shtml)
-- 2026-06-29 14:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/583401.shtml)
-- 2026-06-29 14:47 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/322624064.shtml)
+- 2026-06-29 14:45 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/49383578.shtml)
+- 2026-06-29 15:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/23252711.shtml)
+- 2026-06-29 14:40 - [俄军新型无人机战力如何](https://www.share.minike.top/Article/details/41049715895.shtml)
+- 2026-06-29 15:00 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/850632.shtml)
+- 2026-06-29 14:43 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/9313732157.shtml)
+- 2026-06-29 14:41 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/16990665.shtml)
+- 2026-06-29 14:55 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/3724477235.shtml)
+- 2026-06-29 14:49 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/6942961336.shtml)
+- 2026-06-29 14:44 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/997569250.shtml)
+- 2026-06-29 14:36 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/8648732508.shtml)
+- 2026-06-29 14:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/847367382444.shtml)
+- 2026-06-29 14:59 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/148969.shtml)
+- 2026-06-29 14:51 - [高考公平需要延伸到志愿填报这一环](https://www.share.minike.top/Article/details/576295772431.shtml)
+- 2026-06-29 14:57 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/819578780143.shtml)
+- 2026-06-29 14:59 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/2641249978.shtml)

@@ -1,58 +1,58 @@
-# 第八届全国青年美术作品展览（青海巡展）在西宁市开展
+# 若欧盟修订其《网络安全法》，中方如何反制？商务部回应
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-海底电缆成美以伊博弈关键变量全国已有13个省份全省实施中小学春秋假夹娃娃成瘾？香港拟修订《赌博条例》！美国博主带老外组团“朝圣”中国电车，在车展集体破防：凭什么？星空卫视暂停卫星传输服务：一代华语电视记忆谢幕一张照片刷开门锁？消协实测曝光：智能锁这些功能有隐患一场爱心接力暖陕鄂 8000余斤苹果19小时售空悼念烈士：中国人民不会忘记北约犯下的这一野蛮罪行“恐发生人际传播”！大西
+【环球时报-环球网报道 记者 倪浩】4月23日下午，商务部举行例行新闻发布会。有媒体提问称，商务部近日表示，如果欧盟修订其《网络安全法案》，并对中国企业采取歧视性干预，中方将不得不采取相应的反制措施。请问能否进一步介绍正在考虑中的具体反制措施有哪些？ 对此，商务部新闻发言人何咏前说，中方商务部已于4月17日向欧委会正式提交了对欧盟《网络安全法》修订草案的评论意见，表达了中方正式
 
 ## 正文
 
-海底电缆成美以伊博弈关键变量全国已有13个省份全省实施中小学春秋假夹娃娃成瘾？
+【环球时报-环球网报道 记者 倪浩】4月23日下午，商务部举行例行新闻发布会。
 
-香港拟修订《赌博条例》！
+有媒体提问称，商务部近日表示，如果欧盟修订其《网络安全法案》，并对中国企业采取歧视性干预，中方将不得不采取相应的反制措施。
 
-美国博主带老外组团“朝圣”中国电车，在车展集体破防：凭什么？
+请问能否进一步介绍正在考虑中的具体反制措施有哪些？
 
-星空卫视暂停卫星传输服务：一代华语电视记忆谢幕一张照片刷开门锁？
+对此，商务部新闻发言人何咏前说，中方商务部已于4月17日向欧委会正式提交了对欧盟《网络安全法》修订草案的评论意见，表达了中方正式立场和严正关切，希望欧方高度重视，并认真考虑中方提交的评论意见和修改建议。
 
-消协实测曝光：智能锁这些功能有隐患一场爱心接力暖陕鄂 8000余斤苹果19小时售空悼念烈士：中国人民不会忘记北约犯下的这一野蛮罪行“恐发生人际传播”！
+何咏前说，如中国企业由此遭到歧视性待遇，中方可依据《中华人民共和国对外贸易法》《国务院关于产业链供应链安全的规定》，采取措施维护中国企业合法权益。
 
-大西洋涉疫游轮最新情况三分钟就能看完100页书？
+同时中方认为合作对话才是解决中欧问题的正确途径，愿与欧方通过磋商妥处分歧，共同维护全球产供链的稳定畅通。
 
-！
-
-披上“新科学外衣”的伪科学骗局卷土重来驾培行业新国标落地！
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 14:31 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 14:56 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 14:43 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 14:46 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 14:48 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 14:45 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 14:38 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 14:59 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 14:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 14:52 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 14:48 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 14:48 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 14:51 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 15:05 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 14:43 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 14:50 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 15:00 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 14:43 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 14:59 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 14:52 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 14:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 14:39 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 14:51 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 14:57 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 14:42 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 14:51 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/506338184444.shtml)
-- 2026-06-29 14:34 - [金价银价下跌 油价上涨](https://www.share.kurohicncr.top/Article/details/863541269.shtml)
-- 2026-06-29 14:50 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/95021.shtml)
-- 2026-06-29 14:56 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/4278677.shtml)
-- 2026-06-29 14:32 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/6725760.shtml)
-- 2026-06-29 14:58 - [吴昕要助理买的药6年前已停产](http://www.share.minike.top/Article/details/902006.shtml)
-- 2026-06-29 14:33 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/3684073197.shtml)
-- 2026-06-29 14:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/26003121476.shtml)
-- 2026-06-29 14:56 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/8263897.shtml)
-- 2026-06-29 14:45 - [金价银价下跌 油价上涨](https://www.share.minike.top/Article/details/7307834.shtml)
-- 2026-06-29 14:50 - [光与夜之恋](https://www.blog.kurohicncr.top/Article/details/7979831143.shtml)
-- 2026-06-29 14:50 - [唐艺昕女儿接唐艺昕回家](http://www.share.minike.top/Article/details/228418269566.shtml)
-- 2026-06-29 14:40 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/70792492.shtml)
-- 2026-06-29 14:49 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/50817509.shtml)
-- 2026-06-29 14:37 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/447242915811.shtml)
+- 2026-06-29 14:46 - [沙丘](https://www.blog.kurohicncr.top/Article/details/143032641.shtml)
+- 2026-06-29 15:00 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/9992083186.shtml)
+- 2026-06-29 14:42 - [时光音乐会](http://www.share.minike.top/Article/details/98269198044.shtml)
+- 2026-06-29 14:49 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/2705025.shtml)
+- 2026-06-29 14:47 - [比亚迪市值为何蒸发8000亿](https://www.blog.kurohicncr.top/Article/details/65930659.shtml)
+- 2026-06-29 14:57 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/377653890098.shtml)
+- 2026-06-29 14:46 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.minike.top/Article/details/32665578.shtml)
+- 2026-06-29 14:54 - [锐评浪姐7总决赛](https://www.blog.kurohicncr.top/Article/details/36541759939.shtml)
+- 2026-06-29 14:49 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/60283908739.shtml)
+- 2026-06-29 14:49 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/253256.shtml)
+- 2026-06-29 15:02 - [四川宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/83032.shtml)
+- 2026-06-29 14:49 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/47980534.shtml)
+- 2026-06-29 14:52 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/24360344685.shtml)
+- 2026-06-29 14:38 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/1395680618.shtml)
+- 2026-06-29 14:45 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/254248931.shtml)

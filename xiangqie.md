@@ -1,57 +1,59 @@
-# “五一”假期广西新能源汽车充电量创历史同期新高
+# 乳腺癌、胰腺癌盯上年轻人，男性过早死亡率出现双增长
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网南宁5月7日电(黄令妍 陆冬琦 陈丽婷)广西“八桂充”省级电动汽车充电服务与监管平台7日提供的信息显示，今年“五一”假期，广西新能源汽车充电总量达4158万千瓦时，同比增长35.93%，创历史同期新高。从5月1日起，广西连续5天单日充电量均突破700万千瓦时。亮眼的充电数据，折射出广西“绿色文旅”与“低碳出行”深度融合。 在“五一”假期期间，广西文旅市场持续火热。南方电网
+考虑到人口老龄化和普遍存在的不健康生活方式，全球及中国的癌症相关死亡人数预计继续上升 截至目前，中国恶性肿瘤疾病负担持续加重，60岁及以上老年人群新发病例数占全人群总发病数六成以上，人口老龄化还加剧了“中国第一大癌”肺癌的发病和死亡风险。而与此同时，“发病年轻化”或“过早死亡率”增加则成为甲状腺癌、乳腺癌和胰腺癌等癌种流行的新趋势，提示防控策略转向。 近日，国家癌症中心和地方疾
 
 ## 正文
 
-中新网南宁5月7日电(黄令妍 陆冬琦 陈丽婷)广西“八桂充”省级电动汽车充电服务与监管平台7日提供的信息显示，今年“五一”假期，广西新能源汽车充电总量达4158万千瓦时，同比增长35.93%，创历史同期新高。
+考虑到人口老龄化和普遍存在的不健康生活方式，全球及中国的癌症相关死亡人数预计继续上升 截至目前，中国恶性肿瘤疾病负担持续加重，60岁及以上老年人群新发病例数占全人群总发病数六成以上，人口老龄化还加剧了“中国第一大癌”肺癌的发病和死亡风险。
 
-从5月1日起，广西连续5天单日充电量均突破700万千瓦时。
+而与此同时，“发病年轻化”或“过早死亡率”增加则成为甲状腺癌、乳腺癌和胰腺癌等癌种流行的新趋势，提示防控策略转向。
 
-亮眼的充电数据，折射出广西“绿色文旅”与“低碳出行”深度融合。
+近日，国家癌症中心和地方疾控相继更新了全国和地方性的最新癌症流行图谱，国家疾控局局长沈洪兵与中疾控团队还在《柳叶刀-区域健康(西太平洋)》上针对中国高发癌种近33年来(1993-2023年)全国过早死亡率作出分析，这些研究共同揭示了上述结论。
 
-在“五一”假期期间，广西文旅市场持续火热。
+“过去十年，癌症一直是中国的首要死因，其发病率、死亡率和疾病负担持续上升。
 
-南方电网广西电动汽车服务有限公司作为广西站点最多、容量最大的充换电运营服务商，全力保障假期充电需求。
+”沈洪兵等在前述文章中提到，尽管近三十余年，中国癌症导致的过早死亡率从13.11% 下降至6.66%。
 
-该公司运营服务部副总经理韦静媛介绍，假期期间累计服务新能源汽车超24万辆次，高速服务区、热门景区、县域乡镇充电需求尤为旺盛。
+但考虑到人口老龄化和普遍存在的不健康生活方式，全球及中国的癌症相关死亡人数预计继续上升。
 
-针对南宁、桂林阳朔等充电需求激增区域，该公司提前优化站点运维，保障充电效率，全力保障民众出行补能。
+文章认为，按照当前趋势，仅香港、上海和湖北三地可以如期实现“联合国可持续发展目标”——到2030年，包括癌症在内的主要非传染性疾病所致过早死亡率较2015年水平降低三分之一。
 
-假期期间，南宁青秀山等核心景区结合节日特点推出系列活动，南方电网南宁区域充电量同比增长98.4%。
+老龄化加剧肺癌、消化道恶性肿瘤死亡风险 根据国家癌症中心最新发布的《2024年中国人群恶性肿瘤发病与死亡年龄特征分析》(以下简称“报告”)，2024年全国新发恶性肿瘤病例约515.06万例，其中男性267.20万例，女性247.86万例。
 
 ## 相关推荐
 
-- 2026-06-29 14:46 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 14:36 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 14:56 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 14:59 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 14:45 - [光与夜之恋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 14:45 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 14:35 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 14:32 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 14:49 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 14:47 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 14:45 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 14:37 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 14:51 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 14:44 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 14:50 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 14:47 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 14:39 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 14:42 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 14:44 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 14:53 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 14:47 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 14:58 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 15:05 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 14:52 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:52 - [欧洲多国激辩“装不装空调”](http://www.share.kurohicncr.top/Article/details/3792451942.shtml)
-- 2026-06-29 14:43 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/68425888543.shtml)
-- 2026-06-29 14:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/0499986710.shtml)
-- 2026-06-29 14:39 - [爱很美味](https://www.share.minike.top/Article/details/89424.shtml)
-- 2026-06-29 14:52 - [去了一趟潮汕。](http://www.share.minike.top/Article/details/91773899.shtml)
-- 2026-06-29 14:50 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/8898627784.shtml)
-- 2026-06-29 14:30 - [众星恭喜吴建豪](https://www.blog.kurohicncr.top/Article/details/132429657587.shtml)
-- 2026-06-29 14:47 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/953358130.shtml)
-- 2026-06-29 14:55 - [高考公平需要延伸到志愿填报这一环](https://www.share.minike.top/Article/details/66262317231.shtml)
-- 2026-06-29 14:43 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/3460833.shtml)
-- 2026-06-29 14:45 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/53912.shtml)
-- 2026-06-29 14:42 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/5539132.shtml)
-- 2026-06-29 14:49 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/78558187.shtml)
-- 2026-06-29 14:36 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/82417186356.shtml)
-- 2026-06-29 14:56 - [周生如故](https://www.share.kurohicncr.top/Article/details/02165041.shtml)
+- 2026-06-29 14:44 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/278556305.shtml)
+- 2026-06-29 14:41 - [双高胎](https://www.blog.kurohicncr.top/Article/details/5535037.shtml)
+- 2026-06-29 14:58 - [事关个税 明日截止请抓紧办理](http://www.share.minike.top/Article/details/6199583.shtml)
+- 2026-06-29 14:48 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/241536.shtml)
+- 2026-06-29 14:48 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/487628601937.shtml)
+- 2026-06-29 14:49 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/31019.shtml)
+- 2026-06-29 15:03 - [俄军新型无人机战力如何](http://www.share.kurohicncr.top/Article/details/342954077404.shtml)
+- 2026-06-29 15:04 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/2773001683.shtml)
+- 2026-06-29 15:05 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/771936.shtml)
+- 2026-06-29 15:05 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/954175.shtml)
+- 2026-06-29 14:55 - [未来5年全国能源体系将呈现这些特征](http://www.share.minike.top/Article/details/219652.shtml)
+- 2026-06-29 14:39 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/46687100.shtml)
+- 2026-06-29 14:45 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/7523997.shtml)
+- 2026-06-29 14:46 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/05718180.shtml)
+- 2026-06-29 14:59 - [詹俊预测德国大胜巴拉圭](https://www.share.kurohicncr.top/Article/details/1108574.shtml)

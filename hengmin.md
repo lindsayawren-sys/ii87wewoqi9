@@ -1,56 +1,45 @@
-# 英国Quantum Motion融资1.6亿美元，押注硅基量子计算“晶体管时刻”
+# 招商银行：伦敦分行发行30亿元票据获伦敦证交所准交易
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-伦敦量子计算初创公司Quantum Motion宣布完成1.6亿美元C轮融资，致力于利用标准硅晶体管制造可扩展的量子计算机。本轮融资由DCVC和Kembara共同领投，英国商业银行、Firgun及现有投资者跟投，创下英国量子公司最大单笔VC融资纪录。 Quantum Motion采用硅基晶体管架构制造量子比特，所用技术与智能手机、电脑芯片相同。与传统量子计算方案需要大型定制设施
+4月22日金融一线消息，招商银行公告称，公司伦敦分行在50亿美元中期票据计划下发行的于2029年到期、票息为1.73%的30亿元人民币票据，于2026年4月22日在伦敦证券交易所国际证券市场获准交易。 责任编辑：李琳琳
 
 ## 正文
 
-伦敦量子计算初创公司Quantum Motion宣布完成1.6亿美元C轮融资，致力于利用标准硅晶体管制造可扩展的量子计算机。
+4月22日金融一线消息，招商银行公告称，公司伦敦分行在50亿美元中期票据计划下发行的于2029年到期、票息为1.73%的30亿元人民币票据，于2026年4月22日在伦敦证券交易所国际证券市场获准交易。
 
-本轮融资由DCVC和Kembara共同领投，英国商业银行、Firgun及现有投资者跟投，创下英国量子公司最大单笔VC融资纪录。
-
-Quantum Motion采用硅基晶体管架构制造量子比特，所用技术与智能手机、电脑芯片相同。
-
-与传统量子计算方案需要大型定制设施、功耗达数兆瓦不同，该公司的系统可部署于标准数据中心机架，成本与空间需求降低100倍，能耗降低1000倍。
-
-该公司CEO James Palles-Dimmock表示：“量子计算只有建立在可扩展的平台上才能发挥全部潜力，而硅是实现这一目标的最强路径。
-
-”2025年，Quantum Motion已在英国国家量子计算中心部署了全球首台全栈式硅CMOS量子计算机，并已进入DARPA量子基准测试计划的B阶段。
-
-该公司由牛津大学和伦敦大学学院教授于2017年创立，目前已拓展至西班牙和澳大利亚，并与GlobalFoundries深化制造合作。
-
-英国商业银行直接投资总监Charlotte Lawrence指出：“我们不再仅仅停留在理论层面，而是在英国切实开始构建量子计算平台。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 14:55 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 14:48 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 14:38 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 14:56 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 14:32 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 14:57 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 14:48 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 14:30 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 14:51 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 14:56 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 15:03 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 14:52 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-29 15:01 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 14:59 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 14:49 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 14:53 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 14:36 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 14:44 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 14:50 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 14:36 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 14:56 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:59 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/115161.shtml)
-- 2026-06-29 14:54 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/62810456789.shtml)
-- 2026-06-29 14:44 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/93122.shtml)
-- 2026-06-29 14:53 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/291991429.shtml)
-- 2026-06-29 14:40 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/1287621.shtml)
-- 2026-06-29 14:34 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/27508747.shtml)
-- 2026-06-29 14:30 - [血糖高的人能吃西瓜吗](http://www.share.minike.top/Article/details/644196135.shtml)
-- 2026-06-29 14:39 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/4736926.shtml)
-- 2026-06-29 14:30 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/686595094.shtml)
-- 2026-06-29 14:48 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/560960.shtml)
-- 2026-06-29 14:34 - [恋与深空底线不该被娱乐化](https://www.share.kurohicncr.top/Article/details/06091373972.shtml)
-- 2026-06-29 14:36 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.minike.top/Article/details/20252844.shtml)
-- 2026-06-29 14:43 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/74026127731.shtml)
-- 2026-06-29 14:50 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/641558105.shtml)
-- 2026-06-29 14:42 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/4007832.shtml)
+- 2026-06-29 14:55 - [斛珠夫人](http://www.blog.minike.top/Article/details/444397127751.shtml)
+- 2026-06-29 14:54 - [斛珠夫人](http://www.blog.minike.top/Article/details/5373164241.shtml)
+- 2026-06-29 14:59 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/38518546668.shtml)
+- 2026-06-29 14:58 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/364459.shtml)
+- 2026-06-29 14:50 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/88470644.shtml)
+- 2026-06-29 14:44 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/46523.shtml)
+- 2026-06-29 15:01 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/131108871162.shtml)
+- 2026-06-29 14:48 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/2959963984.shtml)
+- 2026-06-29 14:54 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.minike.top/Article/details/85211508645.shtml)
+- 2026-06-29 14:42 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/2236450.shtml)
+- 2026-06-29 14:38 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/327489.shtml)
+- 2026-06-29 14:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/66070.shtml)
+- 2026-06-29 14:55 - [ENC瓦中国香港负印度数据图](http://www.share.kurohicncr.top/Article/details/584782933195.shtml)
+- 2026-06-29 14:46 - [行程万里不忘初心](https://www.share.minike.top/Article/details/4911308.shtml)
+- 2026-06-29 14:46 - [爱很美味](https://www.share.minike.top/Article/details/57221792734.shtml)

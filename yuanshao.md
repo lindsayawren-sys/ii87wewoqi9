@@ -1,52 +1,56 @@
-# 重庆今年前4月查处400余起网络餐饮违法案件
+# 高市向靖国神社献祭品，是对历史正义的公然亵渎（钟声）
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网重庆5月7日电 (梁钦卿)重庆市市场监督管理局7日公布，今年前4个月，重庆市各级市场监管部门累计查处涉及虚假资质、超范围经营、转单加工、原料过期伪劣、卫生脏乱差等违法案件404起。 为强化警示教育、推动社会共治，重庆市市场监管局当天公开曝光了22起典型案件。其中，伪造和未审查入网资质的案件有6起，超范围经营冷食的案件有3起，转单他人加工制作的案件有2起，原料过期伪劣和食品
+4月21日，日本首相高市早苗以“内阁总理大臣”名义，向供奉二战甲级战犯、臭名昭著的靖国神社供奉名为“真榊”的祭品。在东京审判开庭80周年的特殊年份，高市冒天下之大不韪，一意孤行，是对人类良知的执意践踏，是对历史正义的公然亵渎，更是对二战胜利成果的狂妄挑衅。全世界正义力量应对这种倒行逆施保持高度警惕，并对日本的战略走向作出清醒判断。靖国神社从来就不是单纯的宗教祭祀场所，而是日本军
 
 ## 正文
 
-中新网重庆5月7日电 (梁钦卿)重庆市市场监督管理局7日公布，今年前4个月，重庆市各级市场监管部门累计查处涉及虚假资质、超范围经营、转单加工、原料过期伪劣、卫生脏乱差等违法案件404起。
+4月21日，日本首相高市早苗以“内阁总理大臣”名义，向供奉二战甲级战犯、臭名昭著的靖国神社供奉名为“真榊”的祭品。
 
-为强化警示教育、推动社会共治，重庆市市场监管局当天公开曝光了22起典型案件。
+在东京审判开庭80周年的特殊年份，高市冒天下之大不韪，一意孤行，是对人类良知的执意践踏，是对历史正义的公然亵渎，更是对二战胜利成果的狂妄挑衅。
 
-其中，伪造和未审查入网资质的案件有6起，超范围经营冷食的案件有3起，转单他人加工制作的案件有2起，原料过期伪劣和食品霉变的案件有4起，从业人员无健康证明的案件有4起，过程控制不合规的案件有3起。
+全世界正义力量应对这种倒行逆施保持高度警惕，并对日本的战略走向作出清醒判断。
 
-重庆市市场监管局负责人表示，下一步将结合群众身边不正之风和腐败问题集中整治及市场监管执法队伍“清风铁纪”教育整顿专项行动，进一步强化网络餐饮食品安全治理，切实保障人民群众“舌尖上的安全”。
+靖国神社从来就不是单纯的宗教祭祀场所，而是日本军国主义历史的象征，是事实上的“战犯神社”。
 
-(完)
+这里供奉的14名二战甲级战犯，包括战争狂人、头号战犯东条英机，侵华阴谋家土肥原贤二，南京大屠杀元凶松井石根，偷袭珍珠港的下令者永野修身，镇压朝鲜人民抗日运动的罪魁小矶国昭等，均是对亚洲乃至世界人民犯下滔天罪行的战争责任者。
+
+东京审判早已对日本发动侵略战争责任和军国主义暴行进行了正义裁决，有关战犯已被永远钉上了耻辱柱。
+
+高市对这些历史罪人顶礼膜拜，无论其把理由编得多圆，都掩盖不了其否定东京审判、为侵略历史翻案、为战争罪犯张目的真实意图和恶劣影响。
+
+高市向靖国神社献祭品，再次暴露了部分日本政客极端错误、极为危险的右翼史观。
 
 ## 相关推荐
 
-- 2026-06-29 14:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 14:52 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 14:52 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 14:57 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 14:49 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 14:56 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 14:38 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 14:35 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 14:57 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 14:59 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 14:51 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 14:34 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 14:43 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 14:38 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 14:56 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 15:05 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 14:42 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 15:00 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 14:58 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 15:02 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 14:56 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 14:44 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:34 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/3007345256.shtml)
-- 2026-06-29 14:30 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/36090297687.shtml)
-- 2026-06-29 14:59 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/563592.shtml)
-- 2026-06-29 14:35 - [美人鱼](https://www.share.minike.top/Article/details/077801019336.shtml)
-- 2026-06-29 14:57 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.minike.top/Article/details/0703361.shtml)
-- 2026-06-29 14:53 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.kurohicncr.top/Article/details/508087.shtml)
-- 2026-06-29 14:36 - [普京介绍前线战事](http://www.blog.minike.top/Article/details/329640.shtml)
-- 2026-06-29 14:59 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/20680668574.shtml)
-- 2026-06-29 14:47 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/281902.shtml)
-- 2026-06-29 14:35 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.kurohicncr.top/Article/details/1246485714.shtml)
-- 2026-06-29 14:32 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/64768726.shtml)
-- 2026-06-29 14:43 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/01378870.shtml)
-- 2026-06-29 14:31 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/8668411126.shtml)
-- 2026-06-29 14:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/226226957.shtml)
-- 2026-06-29 14:56 - [我和我的家乡](http://www.share.minike.top/Article/details/78476.shtml)
+- 2026-06-29 15:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/941829826.shtml)
+- 2026-06-29 14:48 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/183869169976.shtml)
+- 2026-06-29 14:36 - [王楚钦3比0周启豪](https://www.blog.kurohicncr.top/Article/details/480664013055.shtml)
+- 2026-06-29 14:56 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/2924093.shtml)
+- 2026-06-29 14:36 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/64847453.shtml)
+- 2026-06-29 14:47 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.minike.top/Article/details/72804.shtml)
+- 2026-06-29 14:59 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/326456.shtml)
+- 2026-06-29 14:59 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/2195371.shtml)
+- 2026-06-29 14:45 - [汪东城回应45岁婚约](http://www.share.minike.top/Article/details/35849444.shtml)
+- 2026-06-29 14:43 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.minike.top/Article/details/81288769.shtml)
+- 2026-06-29 14:42 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/632109.shtml)
+- 2026-06-29 14:45 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/58322707890.shtml)
+- 2026-06-29 14:42 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/9067203377.shtml)
+- 2026-06-29 14:50 - [绘画区你赢了](http://www.blog.minike.top/Article/details/51692.shtml)
+- 2026-06-29 14:43 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/0716589.shtml)

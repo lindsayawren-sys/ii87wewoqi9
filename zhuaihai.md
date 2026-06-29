@@ -1,56 +1,59 @@
-# 美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨
+# 华安基金：建筑与银行双轮驱动，红利资产配置价值持续提升
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-文章来源：国际金融报 据伊朗塔斯尼姆通讯社5月8日报道，伊朗正在制定霍尔木兹海峡相关法律草案。 伊朗议会国家安全委员会主席表示，议会已和外交部、港口与海事组织等相关机构召开多次会议，就草案内容进行讨论。待议会复会后，草案将立即提交审议。 船舶追踪数据显示，截至当地时间8日上午，没有大型船只在过去24小时内通过霍尔木兹海峡。据悉，这已是自7日以来连续第二天没有大型商船通过该海峡。
+行情回顾及主要观点： 港股方面，上周恒生港股通中国央企红利指数下跌0.31%，恒生指数上涨1.03%，恒生科技指数上涨3.75%。A股方面，上周中证国企红利指数下跌0.03%，沪深300上涨2.00%。（数据来源：Wind，截至2026/4/17，均为对应全收益指数的收益率） 上周恒生港股通中国央企红利指数呈现震荡态势。建筑央企方面，稳增长政策持续加码，龙头公司估值处于历史底部
 
 ## 正文
 
-文章来源：国际金融报 据伊朗塔斯尼姆通讯社5月8日报道，伊朗正在制定霍尔木兹海峡相关法律草案。
+行情回顾及主要观点： 港股方面，上周恒生港股通中国央企红利指数下跌0.31%，恒生指数上涨1.03%，恒生科技指数上涨3.75%。
 
-伊朗议会国家安全委员会主席表示，议会已和外交部、港口与海事组织等相关机构召开多次会议，就草案内容进行讨论。
+A股方面，上周中证国企红利指数下跌0.03%，沪深300上涨2.00%。
 
-待议会复会后，草案将立即提交审议。
+（数据来源：Wind，截至2026/4/17，均为对应全收益指数的收益率） 上周恒生港股通中国央企红利指数呈现震荡态势。
 
-船舶追踪数据显示，截至当地时间8日上午，没有大型船只在过去24小时内通过霍尔木兹海峡。
+建筑央企方面，稳增长政策持续加码，龙头公司估值处于历史底部区域，股息回报率具备较强吸引力，随着地方政府债务化解工作推进，企业现金回流与分红稳定性进一步巩固。
 
-据悉，这已是自7日以来连续第二天没有大型商船通过该海峡。
+银行板块方面，低估值与高股息的双重优势在低利率环境中持续放大，稳健的盈利韧性与充足的拨备水平为高分红提供坚实保障，持续获得长线配置型资金青睐。
 
-“就在伊朗表示正在考虑美国提出的结束战争的提议之际，美国和伊朗突然再次发生交火。
+整体看，在政策托底与红利需求共振下，建筑央企与银行板块共同构筑了红利资产的防御底仓，其配置价值正从短期避险逻辑向中长期价值逻辑延伸。
 
-”美国《纽约时报》8日报道称，霍尔木兹海峡局势再次骤然紧张。
+稳增长政策持续发力。
 
-双方对袭击起因各执一词，并互相指责对方破坏停火协议。
+恒生港股通中国央企红利指数覆盖的建筑央企作为核心红利资产，其高股息与低估值特性在震荡市中配置价值突出。
 
 ## 相关推荐
 
-- 2026-06-29 14:57 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 14:53 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 14:48 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 14:53 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 14:46 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 14:57 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 14:39 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 14:33 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 14:55 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 14:44 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 14:42 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 15:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 14:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 14:44 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 14:36 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 14:52 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 14:41 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 14:49 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 14:39 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 14:47 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 14:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 15:01 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 15:05 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:49 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/8337462693.shtml)
-- 2026-06-29 14:44 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/5982163681.shtml)
-- 2026-06-29 14:47 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/35624555.shtml)
-- 2026-06-29 14:30 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/662040008093.shtml)
-- 2026-06-29 14:32 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/037038.shtml)
-- 2026-06-29 14:45 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/6309629270.shtml)
-- 2026-06-29 14:51 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/8748739182.shtml)
-- 2026-06-29 14:38 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/355681863.shtml)
-- 2026-06-29 14:55 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/018435206545.shtml)
-- 2026-06-29 14:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/3754589.shtml)
-- 2026-06-29 14:53 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/058894293402.shtml)
-- 2026-06-29 14:55 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/55718311.shtml)
-- 2026-06-29 14:37 - [小娘惹](https://www.share.kurohicncr.top/Article/details/84552.shtml)
-- 2026-06-29 14:32 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/8749655205.shtml)
-- 2026-06-29 14:48 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/2751477.shtml)
+- 2026-06-29 14:41 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/883175.shtml)
+- 2026-06-29 14:46 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/951133.shtml)
+- 2026-06-29 14:46 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/492562534.shtml)
+- 2026-06-29 14:40 - [马斯克也站到了光里](https://www.share.kurohicncr.top/Article/details/462226509.shtml)
+- 2026-06-29 14:43 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/02147393950.shtml)
+- 2026-06-29 14:40 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/9115426.shtml)
+- 2026-06-29 14:52 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/299021.shtml)
+- 2026-06-29 14:47 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/057779886819.shtml)
+- 2026-06-29 15:04 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/4786920.shtml)
+- 2026-06-29 14:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/6697285438.shtml)
+- 2026-06-29 14:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/160870154.shtml)
+- 2026-06-29 14:38 - [詹俊预测德国大胜巴拉圭](http://www.share.kurohicncr.top/Article/details/2432323229.shtml)
+- 2026-06-29 14:46 - [如何“亲菌子”又“远小人儿”](https://www.blog.minike.top/Article/details/4266408.shtml)
+- 2026-06-29 14:47 - [F1奥地利正赛战报](https://www.share.minike.top/Article/details/0287039408.shtml)
+- 2026-06-29 14:53 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/2041913.shtml)

@@ -1,57 +1,61 @@
-# 硕腾成标普500今日最差成分股：财报“比看上去更糟”
+# UPS与联邦快递已开始申请部分关税退款
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-动物保健巨头硕腾周四股价暴跌逾20%，创下七年新低，成为标普500指数中表现最差的成分股。尽管财报数据已经令人失望，但多位分析师指出，实际情况比看上去更糟。 硕腾一季度营收22.6亿美元，同比增长仅1.9%，低于市场预期的23亿美元；调整后每股收益1.53美元，亦不及预期的1.60至1.62美元。更令市场担忧的是，公司将2026年全年营收指引从98.3至100.3亿美元下调至9
+联合包裹和联邦快递已开始通过美国政府退税流程申请部分关税退款。此类退款仅适用于依据《国际紧急经济权力法》征收的关税，美国最高法院已于今年2月裁定该法案相关征收行为违宪。 退税流程正式启动 在美国最高法院裁定部分关税违宪后，美国海关与边境保护局于周一正式开放了退税门户，允许企业开始申请退款。该退税流程仅适用于《国际紧急经济权力法》项下征收的关税，而依据其他法律条款征收的关税则依然
 
 ## 正文
 
-动物保健巨头硕腾周四股价暴跌逾20%，创下七年新低，成为标普500指数中表现最差的成分股。
+联合包裹和联邦快递已开始通过美国政府退税流程申请部分关税退款。
 
-尽管财报数据已经令人失望，但多位分析师指出，实际情况比看上去更糟。
+此类退款仅适用于依据《国际紧急经济权力法》征收的关税，美国最高法院已于今年2月裁定该法案相关征收行为违宪。
 
-硕腾一季度营收22.6亿美元，同比增长仅1.9%，低于市场预期的23亿美元；调整后每股收益1.53美元，亦不及预期的1.60至1.62美元。
+退税流程正式启动 在美国最高法院裁定部分关税违宪后，美国海关与边境保护局于周一正式开放了退税门户，允许企业开始申请退款。
 
-更令市场担忧的是，公司将2026年全年营收指引从98.3至100.3亿美元下调至96.8至99.6亿美元，每股收益指引从7.00至7.10美元下调至6.85至7.00美元。
+该退税流程仅适用于《国际紧急经济权力法》项下征收的关税，而依据其他法律条款征收的关税则依然有效。
 
-Stifel分析师Jonathan Block团队直言，这一季度比看上去还要糟。
+海关将分阶段处理退税申请，第一阶段仅覆盖海关在过去80天内完成清关的货物。
 
-首先，当季业绩受益于一项1亿美元的国际财年调整提前确认收入，剔除这一因素后，有机运营收入实际为低个位数负增长。
+两大快递公司代客申请 联合包裹本周表示，对于公司作为登记进口商的所有货物，将代客户向海关申请并取回关税退款，客户无需主动联系联合包裹。
 
-其次，美国核心宠物业务严重恶化。
+不过公司指出，退款可能需要长达三个月才能拨付至联合包裹，之后公司才能向客户发放退款。
 
-美国业务营收下降8%至11亿美元，其中伴侣动物产品销售额更骤降11%，主要因宠物主价格敏感度提高、兽医就诊减少。
+联合包裹在声明中表示：“我们始终致力于保障货物运输畅通，并在这一复杂流程中帮助客户充分行使其权利。
 
 ## 相关推荐
 
-- 2026-06-29 14:52 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 14:49 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 14:45 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 14:42 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 14:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 14:54 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 14:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 14:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 14:45 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 14:37 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 14:43 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 14:58 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 15:01 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 14:36 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 14:40 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 14:50 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 14:53 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 14:55 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 14:48 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 14:40 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 14:55 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 14:59 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 14:42 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 14:57 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 14:45 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 14:44 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:58 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/840299187.shtml)
-- 2026-06-29 14:57 - [AG 宫斗](https://www.blog.minike.top/Article/details/5851053.shtml)
-- 2026-06-29 14:30 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/33562903773.shtml)
-- 2026-06-29 14:33 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/649889652922.shtml)
-- 2026-06-29 14:53 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/259059503.shtml)
-- 2026-06-29 14:44 - [高考志愿今起开始填报](https://www.blog.kurohicncr.top/Article/details/828626.shtml)
-- 2026-06-29 14:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/2108131.shtml)
-- 2026-06-29 14:50 - [森保一：日本队要亲手改写历史](http://www.blog.kurohicncr.top/Article/details/073495.shtml)
-- 2026-06-29 14:30 - [高考志愿今起开始填报](https://www.blog.kurohicncr.top/Article/details/234849189.shtml)
-- 2026-06-29 14:33 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/022745639.shtml)
-- 2026-06-29 14:50 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/0524660773.shtml)
-- 2026-06-29 14:36 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/51071204.shtml)
-- 2026-06-29 14:35 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/9018168396.shtml)
-- 2026-06-29 14:56 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/029040512.shtml)
-- 2026-06-29 14:38 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/290337.shtml)
+- 2026-06-29 14:43 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/1613114794.shtml)
+- 2026-06-29 14:57 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/199273511247.shtml)
+- 2026-06-29 14:40 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/582633491.shtml)
+- 2026-06-29 14:58 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/3087961.shtml)
+- 2026-06-29 14:57 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/87412.shtml)
+- 2026-06-29 15:05 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/29389680367.shtml)
+- 2026-06-29 14:40 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/369360.shtml)
+- 2026-06-29 14:54 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/22199.shtml)
+- 2026-06-29 14:46 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/141111478363.shtml)
+- 2026-06-29 14:47 - [TOP 无畏契约](https://www.share.minike.top/Article/details/38934113740.shtml)
+- 2026-06-29 15:04 - [航空运输旅客服务质量国标将实施](https://www.blog.kurohicncr.top/Article/details/300208897276.shtml)
+- 2026-06-29 14:43 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/51219515.shtml)
+- 2026-06-29 14:46 - [爸爸当家](http://www.blog.minike.top/Article/details/1669477327.shtml)
+- 2026-06-29 14:41 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/31032685761.shtml)
+- 2026-06-29 15:00 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/594585030.shtml)

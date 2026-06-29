@@ -1,53 +1,58 @@
-# 机构：油价 “负面杀伤力” 拖累印度股市
+# 多地楼市新政密集落地 市场积极信号加速释放
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-巴贾杰金融服务投资总裁拉克希米・艾耶表示，油价需企稳在100 美元下方，印度股市才能重拾上涨动能；目前小盘股已率先走强并步入牛市行情。 艾耶称：“原油仍是市场中最捉摸不定的变数，时而成为行情主角，而更多时候，原油正展现出利空拖累的负面一面。” 艾耶警示，印度小盘股已出现过度乐观情绪，后续行情将呈现个股分化特征。 她还指出，受伊朗局势影响，分析师对印度企业15%—16%的盈利增长
+近日，房地产市场迎来新一轮政策优化窗口期。珠海、济南、青岛等多地接连发布房地产新政，涵盖优化限购限贷政策、推进“以旧换新”模式、加大高品质住宅供给力度、调整公积金使用规则等多个维度。随着政策效应逐步显现，市场预期正稳步修复，成交量回升、看房热度攀升等积极信号持续释放，楼市企稳向好的基础进一步夯实。作为粤港澳大湾区的重要节点城市，珠海近日正式发布《关于优化调整本市房地产政策措施的
 
 ## 正文
 
-巴贾杰金融服务投资总裁拉克希米・艾耶表示，油价需企稳在100 美元下方，印度股市才能重拾上涨动能；目前小盘股已率先走强并步入牛市行情。
+近日，房地产市场迎来新一轮政策优化窗口期。
 
-艾耶称：“原油仍是市场中最捉摸不定的变数，时而成为行情主角，而更多时候，原油正展现出利空拖累的负面一面。
+珠海、济南、青岛等多地接连发布房地产新政，涵盖优化限购限贷政策、推进“以旧换新”模式、加大高品质住宅供给力度、调整公积金使用规则等多个维度。
 
-” 艾耶警示，印度小盘股已出现过度乐观情绪，后续行情将呈现个股分化特征。
+随着政策效应逐步显现，市场预期正稳步修复，成交量回升、看房热度攀升等积极信号持续释放，楼市企稳向好的基础进一步夯实。
 
-她还指出，受伊朗局势影响，分析师对印度企业15%—16%的盈利增长预测并不现实；本季度将成为企业盈利的严峻考验，甚至可能触发市场回调。
+作为粤港澳大湾区的重要节点城市，珠海近日正式发布《关于优化调整本市房地产政策措施的通知》，从八个方面出台一揽子优化措施，旨在促进房地产市场平稳健康发展。
 
-责任编辑：刘明亮
+具体来看，珠海将推进高品质“好房子”供给，增加改善型与刚需型住房供应；延长住房“以旧换新”补贴政策至今年年底，单套住房补贴金额最高不超过3万元；契税优惠方面，申报缴纳契税时，将不计入横琴粤澳深度合作区的住房套数。
+
+此外，珠海还提高了公积金贷款额度，扩大对多子女家庭的购房支持力度。
+
+同时，鼓励市民购买绿色建筑，助力居住品质升级。
+
+不仅是珠海，济南、青岛也相继出台了房地产新政，旨在激活当地购房需求。
 
 ## 相关推荐
 
-- 2026-06-29 14:35 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 14:57 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 14:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 14:56 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 14:41 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 14:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 14:58 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 14:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 14:49 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 14:35 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 14:32 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 14:50 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 14:49 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 14:55 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 15:00 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 14:42 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 14:41 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 15:03 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 14:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 14:40 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 14:44 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 14:53 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 15:01 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 14:55 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 14:51 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/76974.shtml)
-- 2026-06-29 14:56 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/6736634390.shtml)
-- 2026-06-29 14:59 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/165050298.shtml)
-- 2026-06-29 14:36 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/952694874.shtml)
-- 2026-06-29 14:54 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/9555369980.shtml)
-- 2026-06-29 14:31 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/6189884517.shtml)
-- 2026-06-29 14:48 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/194461.shtml)
-- 2026-06-29 14:56 - [德国队前往比赛场地遭遇囧途](https://www.share.kurohicncr.top/Article/details/517986849.shtml)
-- 2026-06-29 14:31 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/573541563.shtml)
-- 2026-06-29 14:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/303105.shtml)
-- 2026-06-29 14:58 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/411320912.shtml)
-- 2026-06-29 14:57 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/92925.shtml)
-- 2026-06-29 14:50 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/335854334.shtml)
-- 2026-06-29 14:41 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/606068.shtml)
-- 2026-06-29 14:53 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/0917985505.shtml)
+- 2026-06-29 14:44 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/455095.shtml)
+- 2026-06-29 14:47 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/55807555.shtml)
+- 2026-06-29 15:05 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/0941209.shtml)
+- 2026-06-29 14:46 - [斛珠夫人](http://www.share.minike.top/Article/details/9134553.shtml)
+- 2026-06-29 15:02 - [小娘惹](https://www.share.kurohicncr.top/Article/details/08684074923.shtml)
+- 2026-06-29 14:44 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/95084559832.shtml)
+- 2026-06-29 14:41 - [当我回母校教书](https://www.share.minike.top/Article/details/4765359.shtml)
+- 2026-06-29 15:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/08600.shtml)
+- 2026-06-29 14:39 - [复盘曾沛慈浪姐夺冠之路](https://www.share.minike.top/Article/details/49289.shtml)
+- 2026-06-29 14:43 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/20163825546.shtml)
+- 2026-06-29 14:56 - [金牌调解](https://www.share.kurohicncr.top/Article/details/92914405604.shtml)
+- 2026-06-29 15:03 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/653877812.shtml)
+- 2026-06-29 14:59 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/046961380994.shtml)
+- 2026-06-29 14:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/8022258648.shtml)
+- 2026-06-29 14:47 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/21808459.shtml)

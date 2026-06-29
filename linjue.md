@@ -1,60 +1,61 @@
-# 华安基金：地缘风险提振油运景气，高股息央企配置价值凸显
+# 从业绩“变脸”到蹭热点 今年以来证券监管密集出手
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-行情回顾及主要观点： 港股方面，上周恒生港股通中国央企红利指数上涨0.25%，恒生指数下跌0.78%，恒生科技指数下跌0.63%。A股方面，上周中证国企红利指数上涨0.45%，沪深300上涨0.81%。（数据来源：Wind，截至2026/4/30，均为对应全收益指数的收益率） 受地缘局势持续紧张的催化，全球避险情绪升温，具备重资产“护城河”与稳定现金流特征的油运板块配置价值进一
+登录新浪财经APP 搜索【信披】查看更多考评等级 今年以来，上市公司收到监管函及警示函的节奏明显加快。据不完全统计，仅开年首月，就有20余家公司因信息披露违规被监管点名或立案；截至目前，已有95家公司收到监管函或警示函。密集的监管动作背后，暴露出业绩预告“变脸”、信息披露违规、内控治理缺失等多重问题。业绩预告大幅修正问题突出今年以来，多家公司因业绩预告与修正值之间存在巨大差异，
 
 ## 正文
 
-行情回顾及主要观点： 港股方面，上周恒生港股通中国央企红利指数上涨0.25%，恒生指数下跌0.78%，恒生科技指数下跌0.63%。
+登录新浪财经APP 搜索【信披】查看更多考评等级 今年以来，上市公司收到监管函及警示函的节奏明显加快。
 
-A股方面，上周中证国企红利指数上涨0.45%，沪深300上涨0.81%。
+据不完全统计，仅开年首月，就有20余家公司因信息披露违规被监管点名或立案；截至目前，已有95家公司收到监管函或警示函。
 
-（数据来源：Wind，截至2026/4/30，均为对应全收益指数的收益率） 受地缘局势持续紧张的催化，全球避险情绪升温，具备重资产“护城河”与稳定现金流特征的油运板块配置价值进一步凸显。
+密集的监管动作背后，暴露出业绩预告“变脸”、信息披露违规、内控治理缺失等多重问题。
 
-上周国际油价受美伊和谈反复扰动，布伦特原油一度冲高至114美元/桶，虽后续有所回落，但霍尔木兹海峡实质封锁未解，供应端紧绷格局为油运需求提供有力支撑。
+业绩预告大幅修正问题突出今年以来，多家公司因业绩预告与修正值之间存在巨大差异，收到交易所监管函。
 
-油轮运价维持历史高位区间，中远海能一季度归母净利润同比增长超200%，充分验证行业高景气。
+具体来看，皇氏集团（维权）(002329.SZ)于今年1月披露2025年度业绩预告，预计归母净利润亏损1.9亿元至2.8亿元。
 
-在此背景下，恒生港股通中国央企红利指数中权重占比较高的油运及能源类央企，凭借高景气与高股息的双重属性，成为资金避险的重要方向。
+4月1日，公司发布业绩预告修正公告，将亏损区间大幅下修至4.2亿元至4.9亿元。
 
-地缘风险反复扰动，油价高位宽幅震荡。
+4月17日，深交所向皇氏集团下发监管函，认定公司两次业绩预告披露的净利润存在较大差异，未能在规定期限内披露真实、准确、完整的业绩预告。
 
-上周国际油价上演“过山车”行情。
+类似情形也出现在大叶股份（维权）(300879.SZ)。
 
 ## 相关推荐
 
-- 2026-06-29 14:52 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 14:41 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 14:35 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-29 14:55 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 14:51 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 14:37 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 14:44 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 14:56 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 14:57 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 14:56 - [20年前的周杰伦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 14:37 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 14:51 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 14:38 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 14:35 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 14:48 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 14:56 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 15:03 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 15:05 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 14:36 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 14:57 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 14:44 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 14:59 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 14:51 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 14:41 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 14:49 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 14:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 14:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 14:43 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 14:46 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:47 - [《贺子珍》](https://www.share.minike.top/Article/details/98701121045.shtml)
-- 2026-06-29 14:35 - [毒液2](https://www.share.kurohicncr.top/Article/details/81796016.shtml)
-- 2026-06-29 14:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/957042588.shtml)
-- 2026-06-29 14:35 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/533741146621.shtml)
-- 2026-06-29 14:34 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/65784980412.shtml)
-- 2026-06-29 14:53 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/77476576.shtml)
-- 2026-06-29 14:46 - [叶一茜森碟一起回北京了](https://www.blog.minike.top/Article/details/46177104.shtml)
-- 2026-06-29 14:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/267538.shtml)
-- 2026-06-29 14:56 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/46054545092.shtml)
-- 2026-06-29 14:50 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/5076111.shtml)
-- 2026-06-29 14:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/21808863.shtml)
-- 2026-06-29 14:32 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/473974.shtml)
-- 2026-06-29 14:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/046436432.shtml)
-- 2026-06-29 14:40 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/54543431.shtml)
-- 2026-06-29 14:35 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/194734634905.shtml)
+- 2026-06-29 14:49 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/7679271.shtml)
+- 2026-06-29 14:45 - [锐评浪姐7总决赛](http://www.share.kurohicncr.top/Article/details/990608707707.shtml)
+- 2026-06-29 14:38 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/489572648.shtml)
+- 2026-06-29 15:01 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/05094852.shtml)
+- 2026-06-29 14:38 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.minike.top/Article/details/32537870.shtml)
+- 2026-06-29 14:40 - [李在明称韩国足协任命了无能之人](https://www.blog.minike.top/Article/details/95672158714.shtml)
+- 2026-06-29 14:53 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/2845103415.shtml)
+- 2026-06-29 14:46 - [下飞机后，我做了个很蠢的决定......](https://www.blog.kurohicncr.top/Article/details/16300014014.shtml)
+- 2026-06-29 14:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/08862313476.shtml)
+- 2026-06-29 14:50 - [国家体育总局政策法规司原副司长获刑](https://www.share.kurohicncr.top/Article/details/22887157.shtml)
+- 2026-06-29 14:57 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/636541.shtml)
+- 2026-06-29 14:49 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/380879.shtml)
+- 2026-06-29 14:53 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/8519650.shtml)
+- 2026-06-29 14:44 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.kurohicncr.top/Article/details/96610738.shtml)
+- 2026-06-29 14:42 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/166508702.shtml)

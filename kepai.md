@@ -1,57 +1,42 @@
-# 港教大举办“爱国主义教育论坛” 深化师生国家认同与文化自信
+# 创业板综指刷新历史高点
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网香港5月8日电 香港教育大学(简称“港教大”)于6日至7日举办“爱国主义教育论坛”。论坛以大思政教育、国家安全教育、中华文化教育及价值观教育四大元素为核心，邀请政治、法律及学术界嘉宾分享专业见解，旨在增进师生对国家与中华文化的理解与认同，培育具社会责任感和文化自信的公民。 在活动首日举行的开幕典礼上，全国港澳研究会副会长、香港再出发大联盟秘书长谭耀宗表示，香港国安法和《维
+中新网4月22日电(记者 谢艺观)4月22日，创业板综指盘中持续走强，突破2015年6月的4449.42历史高点，创历史新高。
 
 ## 正文
 
-中新网香港5月8日电 香港教育大学(简称“港教大”)于6日至7日举办“爱国主义教育论坛”。
-
-论坛以大思政教育、国家安全教育、中华文化教育及价值观教育四大元素为核心，邀请政治、法律及学术界嘉宾分享专业见解，旨在增进师生对国家与中华文化的理解与认同，培育具社会责任感和文化自信的公民。
-
-在活动首日举行的开幕典礼上，全国港澳研究会副会长、香港再出发大联盟秘书长谭耀宗表示，香港国安法和《维护国家安全条例》实施后，社会恢复安全稳定，为开展爱国教育提供良好环境，特区政府亦专门成立了工作小组，推动爱国主义教育。
-
-他强调，香港青年需理解“一国两制”的内涵与成就，自觉维护国家安全和发展利益。
-
-港教大校董会成员何建宗在致辞中表示，爱国主义是民族精神的根与魂，也是教育工作的价值底色。
-
-推进爱国教育需要与时俱进、守正创新，既要立足中华传统文化的深厚根基，也要回应当代社会发展的现实需要。
-
-港教大在相关领域持续探索，逐渐构建出多层次、多维度的教育体系，为培养德才兼备的教育人才奠定基础。
-
-一连两日的论坛共举行9场主题演讲、4场圆桌论坛以及9场平行论坛，多位主题演讲嘉宾就何为国家安全、如何推广爱国主义教育、如何开展价值观教育等议题进行分享与讨论。
+中新网4月22日电(记者 谢艺观)4月22日，创业板综指盘中持续走强，突破2015年6月的4449.42历史高点，创历史新高。
 
 ## 相关推荐
 
-- 2026-06-29 14:56 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 14:56 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 14:56 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 14:44 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 14:31 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 14:33 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 14:41 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 14:58 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 14:41 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 14:58 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 14:51 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 14:47 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 14:50 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 14:46 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 14:48 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 14:47 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 14:42 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 14:39 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 14:50 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 14:42 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 14:45 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:54 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/04844.shtml)
-- 2026-06-29 14:42 - [美人鱼](http://www.share.minike.top/Article/details/112354539288.shtml)
-- 2026-06-29 14:52 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/514133569.shtml)
-- 2026-06-29 14:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/826342439701.shtml)
-- 2026-06-29 14:57 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/21984106.shtml)
-- 2026-06-29 14:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/446390306.shtml)
-- 2026-06-29 14:36 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/22923.shtml)
-- 2026-06-29 14:58 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.minike.top/Article/details/816930.shtml)
-- 2026-06-29 14:48 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/998059543.shtml)
-- 2026-06-29 14:52 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/9918266.shtml)
-- 2026-06-29 14:50 - [3D打印不是工业革命，它是……](http://www.blog.kurohicncr.top/Article/details/77880561860.shtml)
-- 2026-06-29 14:54 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/03075979448.shtml)
-- 2026-06-29 14:50 - [送你一朵小红花](http://www.share.minike.top/Article/details/7286080752.shtml)
-- 2026-06-29 14:47 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.kurohicncr.top/Article/details/130075678761.shtml)
-- 2026-06-29 14:42 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/7123792557.shtml)
+- 2026-06-29 14:59 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/76687367579.shtml)
+- 2026-06-29 14:47 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/26333367.shtml)
+- 2026-06-29 14:51 - [网警提醒4类高考查分陷阱考生速看](https://www.share.minike.top/Article/details/6658088.shtml)
+- 2026-06-29 14:51 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/79271746834.shtml)
+- 2026-06-29 14:45 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/7281331501.shtml)
+- 2026-06-29 15:01 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/5085683034.shtml)
+- 2026-06-29 14:58 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/3406143.shtml)
+- 2026-06-29 14:57 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/989637.shtml)
+- 2026-06-29 14:57 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/646719.shtml)
+- 2026-06-29 14:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/5472572.shtml)
+- 2026-06-29 14:45 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/27842.shtml)
+- 2026-06-29 15:04 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/72496.shtml)
+- 2026-06-29 14:52 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/19386.shtml)
+- 2026-06-29 14:47 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/9714809997.shtml)
+- 2026-06-29 15:04 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.minike.top/Article/details/10154316053.shtml)

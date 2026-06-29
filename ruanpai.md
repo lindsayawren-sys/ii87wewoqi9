@@ -1,56 +1,61 @@
-# 亚航联合创始人拟逆势成立新航空公司
+# 微软旗下领英任命资深高管丹・沙佩罗为新任首席执行官
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-尽管燃油价格高企冲击航空业，亚洲航空联合创始人托尼·费尔南德斯仍计划推出新的航空公司，预计未来一两个月内公布详情。 费尔南德斯近日在蒙特利尔接受彭博社采访时表示，新公司将利用当前市场动荡中的机遇进行扩张，集团正为此调拨部分飞机。他直言：“为何浪费一场危机？危机中蕴藏着机遇。”他预计中东冲突不会持续两年，并拒绝为燃油成本进行对冲，认为油价终将回落。 与此同时，亚航正筹备发行最多6
+核心要点 微软已选定丹・沙佩罗出任旗下领英部门新任首席执行官，接替瑞安・罗斯兰斯基。罗斯兰斯基自 2020 年起掌管这家子公司，并于去年在微软 Office 办公软件业务板块承担了更多职责。此次人事调整即刻生效。 “丹曾负责销售、营销与产品业务，覆盖了公司最重要的多个业务板块，” 罗斯兰斯基周三在领英发文宣布这一任命时写道，“他了解我们的用户与客户，并且以一种极为难得的方式践行
 
 ## 正文
 
-尽管燃油价格高企冲击航空业，亚洲航空联合创始人托尼·费尔南德斯仍计划推出新的航空公司，预计未来一两个月内公布详情。
+核心要点 微软已选定丹・沙佩罗出任旗下领英部门新任首席执行官，接替瑞安・罗斯兰斯基。
 
-费尔南德斯近日在蒙特利尔接受彭博社采访时表示，新公司将利用当前市场动荡中的机遇进行扩张，集团正为此调拨部分飞机。
+罗斯兰斯基自 2020 年起掌管这家子公司，并于去年在微软 Office 办公软件业务板块承担了更多职责。
 
-他直言：“为何浪费一场危机？
+此次人事调整即刻生效。
 
-危机中蕴藏着机遇。
+“丹曾负责销售、营销与产品业务，覆盖了公司最重要的多个业务板块，” 罗斯兰斯基周三在领英发文宣布这一任命时写道，“他了解我们的用户与客户，并且以一种极为难得的方式践行着公司使命。
 
-”他预计中东冲突不会持续两年，并拒绝为燃油成本进行对冲，认为油价终将回落。
+” 罗斯兰斯基于 2009 年从 Glam Media 加入领英担任产品负责人，六年前从杰夫・韦纳手中接掌领英业务，他将继续保留微软执行副总裁的职位。
 
-与此同时，亚航正筹备发行最多6亿美元债券，并与马来西亚银行洽谈大规模再融资贷款以降低利息成本。
+在其任职的六年里，领英用户规模从约 7 亿增长至 13 亿。
 
-费尔南德斯还计划与加拿大养老基金接洽以吸引投资。
+领英第四季度营收同比增长 11%，这家商务社交平台不断扩充用户规模，并致力于从每位用户身上挖掘更多收入。
 
-他坦言，短期内公司将面临阵痛，不太可能实现最初的利润目标，但全年收入预计与此前预测大致持平。
+自 2016 年微软以 270 亿美元收购领英以来，其增长速度有所放缓。
 
 ## 相关推荐
 
-- 2026-06-29 14:31 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 14:31 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 14:44 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 14:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 14:36 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 14:59 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 14:51 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 14:57 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 14:40 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 14:57 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 15:04 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 14:42 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 15:02 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 14:41 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 15:00 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 14:40 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 14:46 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 14:45 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 14:49 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 14:49 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 15:04 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 15:00 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 14:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 14:45 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 14:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:58 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/57180740502.shtml)
-- 2026-06-29 14:49 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/39155921128.shtml)
-- 2026-06-29 14:33 - [记者暗访贵州和云南多个养老机构](http://www.blog.kurohicncr.top/Article/details/228484702805.shtml)
-- 2026-06-29 14:41 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/4849588849.shtml)
-- 2026-06-29 14:58 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/275253079.shtml)
-- 2026-06-29 14:39 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/079606.shtml)
-- 2026-06-29 14:50 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/0205025532.shtml)
-- 2026-06-29 14:56 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/486311214.shtml)
-- 2026-06-29 14:35 - [内马尔能上场15分钟](https://www.share.kurohicncr.top/Article/details/993257.shtml)
-- 2026-06-29 14:50 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/44138.shtml)
-- 2026-06-29 14:52 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/058033072014.shtml)
-- 2026-06-29 14:35 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/796776213990.shtml)
-- 2026-06-29 14:55 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/508009117902.shtml)
-- 2026-06-29 14:57 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/1896300.shtml)
-- 2026-06-29 14:53 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/08777205609.shtml)
+- 2026-06-29 14:52 - [医药股集体爆发](http://www.blog.kurohicncr.top/Article/details/23257139.shtml)
+- 2026-06-29 14:42 - [媒体：网络测评不能只剩“生意”](https://www.blog.kurohicncr.top/Article/details/922019333979.shtml)
+- 2026-06-29 14:50 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/5725531299.shtml)
+- 2026-06-29 14:40 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/197815828233.shtml)
+- 2026-06-29 15:00 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/02042698.shtml)
+- 2026-06-29 14:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/061149524041.shtml)
+- 2026-06-29 14:57 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/7979523.shtml)
+- 2026-06-29 14:57 - [ENC瓦中国香港负印度数据图](https://www.share.minike.top/Article/details/49765.shtml)
+- 2026-06-29 15:01 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/20389.shtml)
+- 2026-06-29 14:43 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/6379398.shtml)
+- 2026-06-29 14:49 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/307856150062.shtml)
+- 2026-06-29 14:54 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/3479822062.shtml)
+- 2026-06-29 14:56 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/54794385.shtml)
+- 2026-06-29 14:36 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/2570297.shtml)
+- 2026-06-29 14:51 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.minike.top/Article/details/2161478393.shtml)

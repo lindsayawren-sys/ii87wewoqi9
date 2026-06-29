@@ -1,56 +1,58 @@
-# 英超俱乐部伯恩茅斯调查社交媒体帖文，希门尼斯暂被移出阵容
+# 酒价内参4月22日价格发布：五粮液1618下跌3元
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-英超俱乐部伯恩茅斯周四宣布，前锋劳尔·希门尼斯因社交媒体上出现的“可能具有冒犯性的历史帖文”而被暂时移出球队阵容，俱乐部已对此展开内部调查。 事件经过 伯恩茅斯在声明中表示，俱乐部获悉近日流传的与希门尼斯相关的社交媒体历史内容后，决定立即将他从一线队阵容中撤下，直至调查完成。俱乐部强调“高度重视所有球员和工作人员的言行责任”，并将全力配合相关机构核查事实。 31岁的希门尼斯于2
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月22日延续回升态势。如果主要单品各取一瓶整体打包售卖，今日总售价为9926元，较昨日上涨21元，升至近13日最高位。市场连续三日修复，终端交投情绪继续改善，但核心单品涨跌分化依然显著。 今日白酒市场11大单品七涨四跌，赢家优势明显。上
 
 ## 正文
 
-英超俱乐部伯恩茅斯周四宣布，前锋劳尔·希门尼斯因社交媒体上出现的“可能具有冒犯性的历史帖文”而被暂时移出球队阵容，俱乐部已对此展开内部调查。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月22日延续回升态势。
 
-事件经过 伯恩茅斯在声明中表示，俱乐部获悉近日流传的与希门尼斯相关的社交媒体历史内容后，决定立即将他从一线队阵容中撤下，直至调查完成。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9926元，较昨日上涨21元，升至近13日最高位。
 
-俱乐部强调“高度重视所有球员和工作人员的言行责任”，并将全力配合相关机构核查事实。
+市场连续三日修复，终端交投情绪继续改善，但核心单品涨跌分化依然显著。
 
-31岁的希门尼斯于2024年夏天从富勒姆自由转会加盟伯恩茅斯，本赛季代表球队出场30次，贡献7球3助攻，是球队保级路上的重要球员。
+今日白酒市场11大单品七涨四跌，赢家优势明显。
 
-他因伤缺席了最近两场比赛，但此前一直在随队训练。
+上涨方面，青花汾20涨幅居前，上涨8元/瓶，创下近一个月最大单日涨幅，价格升至近一个月最高，一举突破近期交易区间；古井贡古20上涨6元/瓶，连续两日上行，价格再度刷新本月最高；国窖1573与青花郎均上涨5元/瓶，其中国窖1573价格收获五连阳，亦创近一个月最高；精品茅台上涨4元/瓶，三连涨走势稳健；习酒君品、水晶剑南春均上涨2元/瓶。
 
-球员回应 希门尼斯通过个人社交媒体发文表示，他“从未有意冒犯任何群体”，并对由此引发的混乱表示遗憾。
+下跌方面，洋河梦之蓝M6+下跌4元/瓶；飞天茅台与五粮液1618均下跌3元/瓶；五粮液普五八代小幅回落1元/瓶。
 
-“有些内容发布于多年前，被断章取义或脱离原始语境传播。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-我愿意配合俱乐部的任何调查，澄清事实。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 14:47 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 14:46 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 14:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 14:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 14:40 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 14:57 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 14:34 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 14:34 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 14:47 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 14:40 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 14:46 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 15:01 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 14:37 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 15:00 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 14:50 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 15:01 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 14:45 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 14:37 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 14:46 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 15:01 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 14:45 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 15:05 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:48 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/6482542.shtml)
-- 2026-06-29 14:50 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/986718227940.shtml)
-- 2026-06-29 14:48 - [航空运输旅客服务质量国标将实施](https://www.share.minike.top/Article/details/63402353.shtml)
-- 2026-06-29 14:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/27497902.shtml)
-- 2026-06-29 14:46 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/97522.shtml)
-- 2026-06-29 14:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/388288475.shtml)
-- 2026-06-29 14:49 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/27779356.shtml)
-- 2026-06-29 14:58 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.minike.top/Article/details/1675710845.shtml)
-- 2026-06-29 14:43 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/32023714225.shtml)
-- 2026-06-29 14:43 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/19166265.shtml)
-- 2026-06-29 14:31 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/73257.shtml)
-- 2026-06-29 14:33 - [Canna纳尔8-0对位单杀Doran](https://www.blog.kurohicncr.top/Article/details/39164.shtml)
-- 2026-06-29 14:41 - [42岁郭碧婷纯素颜状态](https://www.share.kurohicncr.top/Article/details/344187598894.shtml)
-- 2026-06-29 14:59 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.kurohicncr.top/Article/details/413056762.shtml)
-- 2026-06-29 14:55 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/97422.shtml)
+- 2026-06-29 14:45 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/09704.shtml)
+- 2026-06-29 14:37 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.minike.top/Article/details/159304.shtml)
+- 2026-06-29 14:42 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.kurohicncr.top/Article/details/839676086.shtml)
+- 2026-06-29 15:02 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/65121.shtml)
+- 2026-06-29 14:55 - [AG 钟意](http://www.blog.minike.top/Article/details/4815494263.shtml)
+- 2026-06-29 15:02 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/60119.shtml)
+- 2026-06-29 14:46 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/925749588627.shtml)
+- 2026-06-29 14:57 - [恋与深空底线不该被娱乐化](https://www.blog.minike.top/Article/details/214900140145.shtml)
+- 2026-06-29 14:58 - [韩国队如何把94%出线概率打到0%](http://www.blog.kurohicncr.top/Article/details/349458.shtml)
+- 2026-06-29 14:41 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/35817852017.shtml)
+- 2026-06-29 14:46 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/52343.shtml)
+- 2026-06-29 14:53 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/4226909446.shtml)
+- 2026-06-29 14:38 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/64709393504.shtml)
+- 2026-06-29 14:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/051210654.shtml)
+- 2026-06-29 14:37 - [海军舰艇编队将赴香港](http://www.share.kurohicncr.top/Article/details/152249409881.shtml)

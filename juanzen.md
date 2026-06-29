@@ -1,54 +1,57 @@
-# 各地加快推动“好房子”建设
+# 2025年支付机构业绩分化明显 跨境深耕成为突围方向
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：记者5月6日从住房城乡建设部获悉，《住宅项目规范》实施一年来，各地加快制定地方标准，出台支持政策，有序推动安全、舒适、绿色、智慧的“好房子”建设。 今年4月份以来，内蒙古、海南等地结合本地情况，因地制宜明确了“好房子”建设地方标准或行动方案。截至目前，各地一年来共发布近50条与“好房子”相关的技术规范与支持政策。具体指标既包括层高净高、隔音降噪、电梯配置
+随着2025年年报季逐渐落幕，主要支付机构年报均已披露完毕。当前，我国支付行业已从高速扩张期全面进入稳定发展阶段，行业整体交易规模增速放缓、存量竞争加剧。与此同时，监管框架的不断完善与技术创新的持续突破，共同重塑着行业的演进路径，推动行业周期性调整从规模扩张向质量升级转型，不同机构的经营分化也随之进一步凸显。 在此背景下，国内市场竞争日趋激烈，跨境支付成为众多支付机构突破增长瓶
 
 ## 正文
 
-央视网消息(新闻联播)：记者5月6日从住房城乡建设部获悉，《住宅项目规范》实施一年来，各地加快制定地方标准，出台支持政策，有序推动安全、舒适、绿色、智慧的“好房子”建设。
+随着2025年年报季逐渐落幕，主要支付机构年报均已披露完毕。
 
-今年4月份以来，内蒙古、海南等地结合本地情况，因地制宜明确了“好房子”建设地方标准或行动方案。
+当前，我国支付行业已从高速扩张期全面进入稳定发展阶段，行业整体交易规模增速放缓、存量竞争加剧。
 
-截至目前，各地一年来共发布近50条与“好房子”相关的技术规范与支持政策。
+与此同时，监管框架的不断完善与技术创新的持续突破，共同重塑着行业的演进路径，推动行业周期性调整从规模扩张向质量升级转型，不同机构的经营分化也随之进一步凸显。
 
-具体指标既包括层高净高、隔音降噪、电梯配置、安全防护等硬性底线指标，也包括绿色建材使用、智能家居、全龄友好等品质提升指标。
+在此背景下，国内市场竞争日趋激烈，跨境支付成为众多支付机构突破增长瓶颈的重要抓手，越来越多企业将战略布局转向海外，寻求新的增长空间。
 
-与此同时，围绕保障房如何建设“好房子”，湖北等多地先后明确，新建保障性住房将全部建成“好房子”。
+博通咨询首席分析师王蓬博向21世纪经济报道记者表示，已披露业绩的上市支付公司呈现明显的结构性分化，传统收单业务普遍承压，而具备跨境能力或增值服务支撑的机构则实现收入与利润双升。
+
+行业增长逻辑已从依赖交易规模转向依赖业务结构优化与合规能力建设。
+
+境内收单增长见顶 盈利质量取代规模扩张 2025年，国内第三方支付行业进入规范成熟的深度发展阶段，交易规模增速持续放缓，机构业绩分化态势进一步加剧，盈利质量取代规模扩张，成为衡量企业核心竞争力的关键指标。
+
+移卡集团的业绩具有一定的代表性。
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 14:31 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 14:40 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 14:37 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 14:32 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 14:39 - [医药股集体爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 14:55 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 14:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 14:45 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 14:53 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 14:36 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 14:35 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 14:52 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 14:51 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 14:37 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 15:01 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 14:44 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 14:56 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 14:55 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 14:53 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 14:53 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 14:40 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 14:47 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 14:42 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 14:49 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:49 - [女心理师](http://www.share.minike.top/Article/details/61054463805.shtml)
-- 2026-06-29 14:57 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/624783474.shtml)
-- 2026-06-29 14:35 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/43369559016.shtml)
-- 2026-06-29 14:44 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/0061192200.shtml)
-- 2026-06-29 14:38 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/21710506.shtml)
-- 2026-06-29 14:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/81601279575.shtml)
-- 2026-06-29 14:31 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/988873.shtml)
-- 2026-06-29 14:55 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/594543960.shtml)
-- 2026-06-29 14:37 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/359805265382.shtml)
-- 2026-06-29 14:34 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/59772439.shtml)
-- 2026-06-29 14:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/6794526443.shtml)
-- 2026-06-29 14:32 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/73197172499.shtml)
-- 2026-06-29 14:35 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/809717419.shtml)
-- 2026-06-29 14:42 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/524581.shtml)
-- 2026-06-29 14:59 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/568213653.shtml)
+- 2026-06-29 15:04 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/04542.shtml)
+- 2026-06-29 14:47 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/873177847788.shtml)
+- 2026-06-29 14:43 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/97156468929.shtml)
+- 2026-06-29 14:48 - [青春环游记第三季](https://www.blog.minike.top/Article/details/461092.shtml)
+- 2026-06-29 14:53 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/50640.shtml)
+- 2026-06-29 14:43 - [叶一茜森碟一起回北京了](http://www.share.kurohicncr.top/Article/details/58160006.shtml)
+- 2026-06-29 14:43 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/43710152.shtml)
+- 2026-06-29 14:39 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/1503616597.shtml)
+- 2026-06-29 15:02 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/376401194064.shtml)
+- 2026-06-29 14:44 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/17342.shtml)
+- 2026-06-29 14:45 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/5367485.shtml)
+- 2026-06-29 14:37 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.kurohicncr.top/Article/details/182358812040.shtml)
+- 2026-06-29 15:02 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/53351.shtml)
+- 2026-06-29 14:40 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/83760943.shtml)
+- 2026-06-29 14:56 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/60095.shtml)

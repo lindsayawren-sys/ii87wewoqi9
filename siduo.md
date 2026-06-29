@@ -1,57 +1,57 @@
-# 夏季养生防范动物咬伤 医护人员传授“应急处置指南”
+# 感冒流感药品销售疲软 利洁时股价下跌5.9%
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新网长沙5月8日电 (付敬懿)入夏之后晴雨交替、湿热交织、冷暖多变，人体脾胃运化不畅、呼吸道不适、心神不宁等季节性问题进入高发时段。湖南省卫生健康委员会8日召开“时令节气与健康湖南·立夏篇”，围绕立夏时节的夏季养生、哮喘防治、动物咬伤、运动康复等普及时令养生、疾病防控健康知识。 夏季整体湿气偏重，湿邪侵入人体，容易阻滞脾胃运化，进而让人普遍感到困倦乏力、精神不振；暑热邪气容易
+专题：聚焦美股2026年第一季度财报 欧美感冒流感季症状较轻导致欧洲净收入下滑 受欧美感冒流感季症状较轻影响，利洁时集团在欧洲与北美地区销售表现不佳，公司股价随之走低。 这家英国快消品巨头旗下拥有 Mucinex 感冒药、杜蕾斯避孕套及来苏尔消毒液等品牌，其公布的一季度净收入为 32.5 亿英镑（43.9 亿美元），去年同期为 36.8 亿英镑。 公司汇总的分析师预期为：一季度
 
 ## 正文
 
-中新网长沙5月8日电 (付敬懿)入夏之后晴雨交替、湿热交织、冷暖多变，人体脾胃运化不畅、呼吸道不适、心神不宁等季节性问题进入高发时段。
+专题：聚焦美股2026年第一季度财报 欧美感冒流感季症状较轻导致欧洲净收入下滑 受欧美感冒流感季症状较轻影响，利洁时集团在欧洲与北美地区销售表现不佳，公司股价随之走低。
 
-湖南省卫生健康委员会8日召开“时令节气与健康湖南·立夏篇”，围绕立夏时节的夏季养生、哮喘防治、动物咬伤、运动康复等普及时令养生、疾病防控健康知识。
+这家英国快消品巨头旗下拥有 Mucinex 感冒药、杜蕾斯避孕套及来苏尔消毒液等品牌，其公布的一季度净收入为 32.5 亿英镑（43.9 亿美元），去年同期为 36.8 亿英镑。
 
-夏季整体湿气偏重，湿邪侵入人体，容易阻滞脾胃运化，进而让人普遍感到困倦乏力、精神不振；暑热邪气容易侵扰心神，极易引发心绪烦躁、睡眠不宁等问题。
+公司汇总的分析师预期为：一季度净收入 31.9 亿英镑，可比口径增长 1.6%。
 
-湖南省人民医院中医学科副主任医师谭浩表示，中医有个名字叫“疰夏”，最早人们就是希望“立夏吃了蛋，热天不疰夏”，通过立夏茶叶蛋来补虚、强体质。
+伦敦早盘交易中，该公司股价下跌 5.9%。
 
-谭浩表示，立夏时节的饮食，要清补养心不燥热：优先选择湖南时令食材，比如莲子、百合、桑葚、樱桃，可煮制麦冬莲子粥，既能清心火，又能养心阴；同时避免过辣等重口味食物，以免加重心火耗损。
+利洁时表示，因感冒流感季表现疲软，欧洲地区净收入出现下滑；公司此前已预警该地区业绩将持续面临挑战。
 
-立夏时节湿热交错容易诱发哮喘、咳嗽、过敏性呼吸道问题。
+本季度欧洲可比净收入下降 4.2%，集团非处方药业务可比销售额录得双位数跌幅。
 
-谭浩表示，可以通过百合茯苓山药粥、乌梅山楂饮、紫苏生姜茶等食疗调理；每天按摩肺俞穴、定喘穴、足三里、丰隆穴四个关键穴位两次，每次3至5分钟；日常要注意勤通风、除霉菌、少吹直冷风、出汗后及时避风，抓住立夏到三伏的黄金期进行冬病夏治。
+伯恩斯坦分析师在致客户报告中写道：“过去数月管理层已多次提示感冒流感品类表现疲软，但市场似乎仍低估了此次压力的程度。
 
-入夏后猫狗抓咬伤、蛇咬伤等动物致伤进入高发期。
+” 不过，集团整体可比净收入仍增长 0.6%，其中新兴市场大幅增长 7.6%。
 
 ## 相关推荐
 
-- 2026-06-29 14:56 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 14:42 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 14:34 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 14:38 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 14:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 14:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 14:59 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 14:46 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 14:57 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 14:38 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 14:31 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 14:43 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 14:55 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 14:46 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 14:58 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 14:49 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 14:46 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 14:49 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 14:41 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 14:44 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 15:05 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 15:02 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:52 - [航空运输旅客服务质量国标将实施](https://www.share.minike.top/Article/details/096998630.shtml)
-- 2026-06-29 14:35 - [上海小区惊现鳄鱼](http://www.blog.minike.top/Article/details/96618980.shtml)
-- 2026-06-29 14:31 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/085628.shtml)
-- 2026-06-29 14:46 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/641692.shtml)
-- 2026-06-29 14:47 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/34862.shtml)
-- 2026-06-29 14:34 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.share.kurohicncr.top/Article/details/23716.shtml)
-- 2026-06-29 14:42 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.kurohicncr.top/Article/details/4593386.shtml)
-- 2026-06-29 14:30 - [世界杯用球成部分门将噩梦](http://www.share.kurohicncr.top/Article/details/54980.shtml)
-- 2026-06-29 14:42 - [毒液2](http://www.share.minike.top/Article/details/86113.shtml)
-- 2026-06-29 14:36 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/4701032622.shtml)
-- 2026-06-29 14:42 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/82285.shtml)
-- 2026-06-29 14:32 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/050491174874.shtml)
-- 2026-06-29 14:40 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/0184996382.shtml)
-- 2026-06-29 14:45 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/975840672.shtml)
-- 2026-06-29 14:49 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/5125744.shtml)
+- 2026-06-29 14:39 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/2424711742.shtml)
+- 2026-06-29 14:36 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/326042.shtml)
+- 2026-06-29 14:59 - [美人鱼](http://www.share.kurohicncr.top/Article/details/0062067.shtml)
+- 2026-06-29 14:41 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/638984.shtml)
+- 2026-06-29 14:47 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/040575.shtml)
+- 2026-06-29 14:45 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/081425169736.shtml)
+- 2026-06-29 14:55 - [崔韩率还以为韩娱来新人了](http://www.blog.minike.top/Article/details/563977328.shtml)
+- 2026-06-29 14:58 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/259994167.shtml)
+- 2026-06-29 14:48 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/6628444650.shtml)
+- 2026-06-29 15:01 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/0554257.shtml)
+- 2026-06-29 15:02 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/25635477634.shtml)
+- 2026-06-29 14:59 - [王楚钦周启豪爆分](https://www.blog.kurohicncr.top/Article/details/913364.shtml)
+- 2026-06-29 15:04 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/72364.shtml)
+- 2026-06-29 14:45 - [天道](http://www.blog.kurohicncr.top/Article/details/65689979384.shtml)
+- 2026-06-29 15:01 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/3055663428.shtml)

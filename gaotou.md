@@ -1,57 +1,58 @@
-# 【新思想引领新征程】新型能源体系加快建设 筑牢能源安全根基
+# 贝森特：美国的海湾和亚洲盟友已提出外汇互换安排请求
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-央视网消息（新闻联播）：习近平总书记强调，能源保障和安全事关国计民生，是须臾不可忽视的“国之大者”。当前，我国加快推进新型能源体系建设，加大清洁能源开发力度，提升清洁能源利用水平，能源安全韧性不断增强，为经济社会发展提供有力支撑。 今天的中国能源版图上，跃动着蓬勃的绿色动力。 在海上，153米的风机叶片旋转一圈发出62度电。一天时间里，全国所有风机发出的电，足够一座2000万人
+美国财政部长贝森特周三表示，许多波斯湾盟友以及一些亚洲国家已请求与美国进行货币互换，并指出这类安排可支持海外以美元计价的贷款。 贝森特在参议院拨款委员会一个小组委员会答问时表示：“我们的许多海湾盟友已请求进行外汇互换安排。”此前一天，美国总统特朗普证实，在考虑与阿联酋建立互换安排。“其他许多国家也提出了请求，其中包括我们的一些亚洲盟友。” 外汇互换传统上在央行之间设立。美联储目
 
 ## 正文
 
-央视网消息（新闻联播）：习近平总书记强调，能源保障和安全事关国计民生，是须臾不可忽视的“国之大者”。
+美国财政部长贝森特周三表示，许多波斯湾盟友以及一些亚洲国家已请求与美国进行货币互换，并指出这类安排可支持海外以美元计价的贷款。
 
-当前，我国加快推进新型能源体系建设，加大清洁能源开发力度，提升清洁能源利用水平，能源安全韧性不断增强，为经济社会发展提供有力支撑。
+贝森特在参议院拨款委员会一个小组委员会答问时表示：“我们的许多海湾盟友已请求进行外汇互换安排。
 
-今天的中国能源版图上，跃动着蓬勃的绿色动力。
+”此前一天，美国总统特朗普证实，在考虑与阿联酋建立互换安排。
 
-在海上，153米的风机叶片旋转一圈发出62度电。
+“其他许多国家也提出了请求，其中包括我们的一些亚洲盟友。
 
-一天时间里，全国所有风机发出的电，足够一座2000万人口的超大城市居民用上一个月，也可以支撑238万辆新能源汽车的制造。
+” 外汇互换传统上在央行之间设立。
 
-如今，全国每发出10度电，就有约4度来自于可再生能源。
+美联储目前与欧洲央行、日本央行及其他几家央行维持常设互换安排。
 
-从2012年到2021年，不到十年，我国可再生能源装机量翻了2倍多，突破10亿千瓦，建成全球最大可再生能源体系；到2023年，我国可再生能源装机占全国电力总装机比重首次过半，历史性超过火电。
+贝森特去年则首创利用一项财政部基金，向阿根廷提供美元互换，帮助该国支撑本币。
 
-目前，全国可再生能源装机已近24亿千瓦，占全球可再生能源装机近一半，有力支撑我国能源自给率稳定保持在80%以上。
+贝森特表示：“无论是由美联储还是财政部提供，货币互换都是为了维持美元融资市场秩序，并防止美国资产遭到无序抛售。
 
 ## 相关推荐
 
-- 2026-06-29 14:59 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 14:46 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 14:53 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 14:45 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 14:58 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 14:56 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 14:50 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 14:40 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 14:42 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 14:47 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 14:56 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 14:48 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 14:39 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 15:05 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 14:50 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 14:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 15:05 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 14:41 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 14:48 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 15:03 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 14:46 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 14:43 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 14:55 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:48 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/609211905.shtml)
-- 2026-06-29 14:45 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/6505870.shtml)
-- 2026-06-29 14:57 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/1478805.shtml)
-- 2026-06-29 14:40 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/2459440.shtml)
-- 2026-06-29 14:39 - [高考志愿今起开始填报](https://www.blog.minike.top/Article/details/24755.shtml)
-- 2026-06-29 14:33 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.kurohicncr.top/Article/details/10629651899.shtml)
-- 2026-06-29 14:30 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/60903653.shtml)
-- 2026-06-29 14:41 - [德国队前往比赛场地遭遇囧途](https://www.share.kurohicncr.top/Article/details/39100391288.shtml)
-- 2026-06-29 14:30 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/1904445.shtml)
-- 2026-06-29 14:31 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.minike.top/Article/details/862895233.shtml)
-- 2026-06-29 14:51 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/9805300.shtml)
-- 2026-06-29 14:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/476625162162.shtml)
-- 2026-06-29 14:43 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/06112589683.shtml)
-- 2026-06-29 14:59 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/10349811499.shtml)
-- 2026-06-29 14:57 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/7182129.shtml)
+- 2026-06-29 15:03 - [乔家的儿女](https://www.blog.minike.top/Article/details/1307325449.shtml)
+- 2026-06-29 14:42 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/925885748162.shtml)
+- 2026-06-29 15:04 - [美国近12万名科技员工被解雇](https://www.blog.kurohicncr.top/Article/details/172658649981.shtml)
+- 2026-06-29 15:00 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/1673630907.shtml)
+- 2026-06-29 14:59 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/139676773341.shtml)
+- 2026-06-29 14:41 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/29158433.shtml)
+- 2026-06-29 14:44 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/00008579.shtml)
+- 2026-06-29 14:40 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/608188171309.shtml)
+- 2026-06-29 14:48 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/2305621.shtml)
+- 2026-06-29 15:04 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/24915508164.shtml)
+- 2026-06-29 14:50 - [勇敢的心第二部](http://www.share.minike.top/Article/details/39145.shtml)
+- 2026-06-29 14:52 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/5321068.shtml)
+- 2026-06-29 14:47 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/118039924.shtml)
+- 2026-06-29 14:55 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/574361.shtml)
+- 2026-06-29 15:02 - [农发行总行专家委员会委员杜晓力被查](http://www.blog.minike.top/Article/details/37474025.shtml)

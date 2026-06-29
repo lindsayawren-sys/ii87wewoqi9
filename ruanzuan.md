@@ -1,61 +1,45 @@
-# 德国3月工业新订单环比增长5%
+# 东部战区组织133编队完成西太平洋海域演训活动 经与西水道返回
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-中新社柏林5月7日电 (记者 马秀秀)德国联邦统计局7日公布的数据显示，经季节和工作日调整后，德国3月工业新订单环比增长5.0%。 若剔除大额订单，3月新订单环比增长5.1%，达到2023年2月以来最高水平。 数据显示，增幅明显的行业包括电气设备制造业，其新订单环比增长21.5%；机械制造业新订单增长6.9%；数据处理设备、电子和光学产品制造业新订单环比增长14.4%。 从订单
+东部战区新闻发言人徐承华陆军大校表示，4月22日，中国人民解放军东部战区组织133编队完成西太平洋海域演训活动，经与西水道返回，有效检验了部队远海作战能力。
 
 ## 正文
 
-中新社柏林5月7日电 (记者 马秀秀)德国联邦统计局7日公布的数据显示，经季节和工作日调整后，德国3月工业新订单环比增长5.0%。
-
-若剔除大额订单，3月新订单环比增长5.1%，达到2023年2月以来最高水平。
-
-数据显示，增幅明显的行业包括电气设备制造业，其新订单环比增长21.5%；机械制造业新订单增长6.9%；数据处理设备、电子和光学产品制造业新订单环比增长14.4%。
-
-从订单来源看，3月国内新订单环比增长4.0%；国外新订单环比增长5.6%，其中来自欧元区的订单增长10.1%，欧元区以外的订单增长2.7%。
-
-不过，第一季度德国工业新订单较上一季度下降4.1%。
-
-联邦统计局将此归因于2025年底大额订单规模尤其高。
-
-此外，伊朗战争也带来了巨大不确定性，并推高了能源价格。
-
-联合投资公司经济专家迈克尔·赫尔祖姆表示，伊朗战争影响尚未在3月数据中体现出来。
+东部战区新闻发言人徐承华陆军大校表示，4月22日，中国人民解放军东部战区组织133编队完成西太平洋海域演训活动，经与西水道返回，有效检验了部队远海作战能力。
 
 ## 相关推荐
 
-- 2026-06-29 14:49 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 14:32 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 14:56 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 14:50 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 14:40 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 14:48 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 14:42 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 14:49 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 14:53 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 14:37 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 14:53 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 14:57 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 14:58 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 14:53 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 14:36 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 14:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 14:38 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 15:04 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 14:43 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 14:53 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 14:41 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 15:02 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 14:58 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 14:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 14:37 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 14:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 14:49 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 14:40 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:42 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/89209187301.shtml)
-- 2026-06-29 14:54 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/7106850.shtml)
-- 2026-06-29 14:50 - [比亚迪市值为何蒸发8000亿](http://www.share.minike.top/Article/details/8073296067.shtml)
-- 2026-06-29 14:54 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/1495961937.shtml)
-- 2026-06-29 14:41 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/4149220923.shtml)
-- 2026-06-29 14:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/49618.shtml)
-- 2026-06-29 14:55 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/01854284.shtml)
-- 2026-06-29 14:53 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.minike.top/Article/details/42670637682.shtml)
-- 2026-06-29 14:47 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/4578741.shtml)
-- 2026-06-29 14:50 - [高考志愿今起开始填报](http://www.blog.minike.top/Article/details/81621291477.shtml)
-- 2026-06-29 14:43 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/665179200817.shtml)
-- 2026-06-29 14:49 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/43963.shtml)
-- 2026-06-29 14:44 - [中国避暑神器在欧洲卖爆了](https://www.share.minike.top/Article/details/1629446142.shtml)
-- 2026-06-29 14:57 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.minike.top/Article/details/62573.shtml)
-- 2026-06-29 14:48 - [市民骑哈啰单车79分钟付30元](http://www.share.kurohicncr.top/Article/details/8577233793.shtml)
+- 2026-06-29 14:52 - [Canna纳尔8-0对位单杀Doran](https://www.blog.kurohicncr.top/Article/details/72198.shtml)
+- 2026-06-29 14:46 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/82911076485.shtml)
+- 2026-06-29 14:49 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/2539263835.shtml)
+- 2026-06-29 14:48 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/782184316293.shtml)
+- 2026-06-29 14:53 - [张真源解读相思锁](http://www.share.minike.top/Article/details/81933289.shtml)
+- 2026-06-29 14:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/285649.shtml)
+- 2026-06-29 15:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/790608881477.shtml)
+- 2026-06-29 14:56 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/986103367.shtml)
+- 2026-06-29 14:58 - [比亚迪为什么卖得越多市值越低](http://www.share.kurohicncr.top/Article/details/382061.shtml)
+- 2026-06-29 14:44 - [吴建豪老婆](http://www.share.minike.top/Article/details/945519128561.shtml)
+- 2026-06-29 14:59 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/212490887.shtml)
+- 2026-06-29 14:45 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/221168889.shtml)
+- 2026-06-29 14:57 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/22304196967.shtml)
+- 2026-06-29 14:51 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.kurohicncr.top/Article/details/3851894.shtml)
+- 2026-06-29 14:49 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.minike.top/Article/details/15880594.shtml)

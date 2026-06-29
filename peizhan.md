@@ -1,48 +1,45 @@
-# 特朗普称美国不需要限制石油和燃料出口
+# 百克生物2026年第一季度归母净利润亏损约347万元
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-美国总统特朗普在被问及是否会考虑限制石油或航空燃油出口时，他回答道：“我们不需要它们。” 特朗普在华盛顿向记者发表讲话。 特朗普说：“我们拥有大量的石油”。责任编辑：王永生
+4月21日晚间，百克生物（688276.SH）发布一季度业绩公告，2026年第一季度营收约1.47亿元，同比减少9.21%；归属于上市公司股东的净利润亏损约347万元，基本每股收益亏损0.01元。（央广财经）（文章来源：央广财经）
 
 ## 正文
 
-美国总统特朗普在被问及是否会考虑限制石油或航空燃油出口时，他回答道：“我们不需要它们。
+4月21日晚间，百克生物（688276.SH）发布一季度业绩公告，2026年第一季度营收约1.47亿元，同比减少9.21%；归属于上市公司股东的净利润亏损约347万元，基本每股收益亏损0.01元。
 
-” 特朗普在华盛顿向记者发表讲话。
-
-特朗普说：“我们拥有大量的石油”。
-
-责任编辑：王永生
+（央广财经）（文章来源：央广财经）
 
 ## 相关推荐
 
-- 2026-06-29 14:52 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 14:38 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 14:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 14:41 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 14:46 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 14:56 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 14:40 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 14:41 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 14:34 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 14:41 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 14:40 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 14:49 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 14:57 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 14:39 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 14:56 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 14:54 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 14:43 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 14:46 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 14:53 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 14:49 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 14:37 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:31 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.kurohicncr.top/Article/details/48237680.shtml)
-- 2026-06-29 14:33 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/40945023882.shtml)
-- 2026-06-29 14:40 - [王楚钦周启豪爆分](http://www.share.minike.top/Article/details/141937993.shtml)
-- 2026-06-29 14:34 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/385958370.shtml)
-- 2026-06-29 14:54 - [北极荒岛生存挑战](http://www.share.minike.top/Article/details/0763544.shtml)
-- 2026-06-29 14:35 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/181336488042.shtml)
-- 2026-06-29 14:38 - [曝歌手第七期帮唱阵容](http://www.share.minike.top/Article/details/7650819.shtml)
-- 2026-06-29 14:46 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/1179815968.shtml)
-- 2026-06-29 14:41 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/8091022.shtml)
-- 2026-06-29 14:41 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/64918360.shtml)
-- 2026-06-29 14:42 - [韩媒破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/081103702436.shtml)
-- 2026-06-29 14:37 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/5491903202.shtml)
-- 2026-06-29 14:39 - [世界杯用球成部分门将噩梦](http://www.share.kurohicncr.top/Article/details/65319870172.shtml)
-- 2026-06-29 14:41 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/215085232118.shtml)
-- 2026-06-29 14:56 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/02253.shtml)
+- 2026-06-29 14:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/5382306.shtml)
+- 2026-06-29 15:03 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/60022667.shtml)
+- 2026-06-29 14:51 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/7846889.shtml)
+- 2026-06-29 14:46 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/412888848.shtml)
+- 2026-06-29 14:52 - [血糖高的人能吃西瓜吗](http://www.share.kurohicncr.top/Article/details/4781586.shtml)
+- 2026-06-29 14:55 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/15943.shtml)
+- 2026-06-29 14:40 - [T1 vs KC MSI](http://www.share.minike.top/Article/details/5441488.shtml)
+- 2026-06-29 14:55 - [以前不让妆女二可以艳压女主](http://www.blog.minike.top/Article/details/75648.shtml)
+- 2026-06-29 14:55 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/254787726.shtml)
+- 2026-06-29 15:02 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/991130705414.shtml)
+- 2026-06-29 14:54 - [北极荒岛生存挑战](https://www.blog.kurohicncr.top/Article/details/362722822518.shtml)
+- 2026-06-29 14:37 - [河南考699分女生已接到清华大学电话](http://www.share.minike.top/Article/details/6485542162.shtml)
+- 2026-06-29 15:05 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/9304073.shtml)
+- 2026-06-29 14:46 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/2101561093.shtml)
+- 2026-06-29 14:58 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/91267961166.shtml)

@@ -1,60 +1,59 @@
-# 总投资超84亿元！多个家居建材企业密集扩产
+# 华为正式发布智擎动力品牌！余承东：同样100度电 我们能比别人多跑50公里
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-过去一个多月，多家家居建材企业密集披露投资计划，相继拿地建设新总部或新生产基地，相关项目总投资金额已超过84亿元。从具体布局来看，顾家家居拟投资不超过11.88亿元，在杭州打造集智能制造、创新研发、全球运营与品牌展示于一体的综合性新总部；悍高集团则计划投入超20亿元建设新生产基地，以进一步扩大优势产品产能；志豪家具斥资2.36亿元竞得顺德龙江137亩工业用地，拟总投资20亿元建
+快科技4月22日消息，今日晚间，在鸿蒙智行春季新品发布会上，余承东宣布：华为智能电驱系统叫华为智擎，今天华为正式发布智擎品牌。余承东表示，我们的华为智擎，电机系统连续三年动力总成质量排名第一，而且是连续两年30万元以上国内动力总成发货量第一名，累计安全行驶里程超过400亿公里。华为智擎采用双94%的碳化硅动力平台，同样50升油，我们能够比别人多发六度电；同样100度电，我们能比
 
 ## 正文
 
-过去一个多月，多家家居建材企业密集披露投资计划，相继拿地建设新总部或新生产基地，相关项目总投资金额已超过84亿元。
+快科技4月22日消息，今日晚间，在鸿蒙智行春季新品发布会上，余承东宣布：华为智能电驱系统叫华为智擎，今天华为正式发布智擎品牌。
 
-从具体布局来看，顾家家居拟投资不超过11.88亿元，在杭州打造集智能制造、创新研发、全球运营与品牌展示于一体的综合性新总部；悍高集团则计划投入超20亿元建设新生产基地，以进一步扩大优势产品产能；志豪家具斥资2.36亿元竞得顺德龙江137亩工业用地，拟总投资20亿元建设现代化工厂。
+余承东表示，我们的华为智擎，电机系统连续三年动力总成质量排名第一，而且是连续两年30万元以上国内动力总成发货量第一名，累计安全行驶里程超过400亿公里。
 
-此外，千年舟、雍兴集团、宏誉盛、度尚家具等多家企业也纷纷推进新基地建设。
+华为智擎采用双94%的碳化硅动力平台，同样50升油，我们能够比别人多发六度电；同样100度电，我们能比别人多跑50公里。
 
-从空间分布看，上述项目高度集中于佛山、杭州、肇庆等家居建材产业核心集聚区。
+性能升级方面，我们推出了自适应牙嵌式差速锁，锁止力更强，因为传统的越野车挂锁需要手动，华为智擎能够毫秒级识别自动挂锁。
 
-在当前市场整体承压的背景下，这类逆势投资并非简单的规模扩张，而是头部企业通过强化核心能力，深化产业链协同，构筑更深层次的竞争壁垒，从而为下一轮增长周期抢占战略先机。
+当业界低速蠕行普遍只能做到6公里每小时的时候，华为智擎已经实现了最低0.5公里每小时时速的超低速蠕行，能够更轻松地驾驭全地形路况，而且将颠簸路况下的速度波动大幅度下降。
 
-顾家投11.88亿元打造新总部国内海外双线并进4月23日，顾家家居发布公告称，为满足公司未来发展规划对经营场所的需求，进一步优化资源配置并促进稳健可持续发展，公司计划投资建设产业总部项目。
+安全性上，华为智擎采用我们自己的芯片，高压碳化硅功率芯片模组，超过车规级的标准。
 
-该项目选址于杭州东部湾新城大创小镇，总投资不超过11.88亿元，资金来源于自有及自筹资金。
+同时还有AI监控的质量监控体系，架构更加安全。
 
-项目用地面积约6万平方米(约90亩)，计划于2027年一季度开工建设，建设周期为4年，预计在2031年初竣工。
+我们面向下一代L3/L4的电驱系统架构体系，包括双冗余备份。
 
 ## 相关推荐
 
-- 2026-06-29 14:55 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 14:51 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 14:52 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 14:31 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 14:46 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 14:33 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 14:34 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 14:36 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 14:57 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 14:43 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 14:44 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 14:47 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 14:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 14:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 14:41 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 15:02 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 14:40 - [中国战机大片上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 15:02 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 15:00 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 14:40 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 14:55 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 14:49 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 14:53 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 14:44 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 14:48 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 14:39 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 14:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:30 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/400122.shtml)
-- 2026-06-29 14:43 - [比亚迪为什么卖得越多市值越低](https://www.share.minike.top/Article/details/1268996602.shtml)
-- 2026-06-29 14:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/7142425.shtml)
-- 2026-06-29 14:46 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/5839382.shtml)
-- 2026-06-29 14:56 - [美媒：空警-3000服役即成全球最强](http://www.blog.minike.top/Article/details/55802.shtml)
-- 2026-06-29 14:36 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/54186782606.shtml)
-- 2026-06-29 14:41 - [世界杯看到肖战了](http://www.blog.minike.top/Article/details/132370701732.shtml)
-- 2026-06-29 14:43 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/967308416.shtml)
-- 2026-06-29 14:39 - [如何“亲菌子”又“远小人儿”](https://www.blog.kurohicncr.top/Article/details/566214.shtml)
-- 2026-06-29 14:55 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/358650351271.shtml)
-- 2026-06-29 14:32 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/026890186.shtml)
-- 2026-06-29 14:31 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/588240833.shtml)
-- 2026-06-29 14:33 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/640530.shtml)
-- 2026-06-29 14:35 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/2397874651.shtml)
-- 2026-06-29 14:36 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/002185568.shtml)
+- 2026-06-29 15:01 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/51693.shtml)
+- 2026-06-29 14:40 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/960337034.shtml)
+- 2026-06-29 14:57 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/050863868.shtml)
+- 2026-06-29 14:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/889639044230.shtml)
+- 2026-06-29 14:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/4557337.shtml)
+- 2026-06-29 15:03 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/282163452101.shtml)
+- 2026-06-29 15:04 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/075669434.shtml)
+- 2026-06-29 14:54 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.kurohicncr.top/Article/details/318084.shtml)
+- 2026-06-29 14:41 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/738700693.shtml)
+- 2026-06-29 14:50 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/7114385.shtml)
+- 2026-06-29 14:41 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.kurohicncr.top/Article/details/87732511.shtml)
+- 2026-06-29 14:47 - [锐评浪姐7总决赛](http://www.share.minike.top/Article/details/629058289.shtml)
+- 2026-06-29 15:02 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/2921515593.shtml)
+- 2026-06-29 14:57 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/2337975416.shtml)
+- 2026-06-29 14:36 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/9161554.shtml)

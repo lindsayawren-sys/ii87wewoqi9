@@ -1,59 +1,59 @@
-# 非洲首富丹格特筹划水泥帝国伦敦上市
+# 万亿中原银行董事长、行长同一天换人！三类行业贷款不良率超5%
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-非洲首富阿里科·丹格特正筹划将其水泥帝国在伦敦证券交易所上市，这将是这家非洲最大水泥企业多年国际化战略的重要一步。 丹格特水泥公司是非洲大陆最大的水泥生产商，年产能达5200万吨，业务遍及尼日利亚、喀麦隆、埃塞俄比亚、南非等10个非洲国家。该公司已在尼日利亚证券交易所上市，市值约13.43万亿奈拉(按当前约1美元兑1370奈拉的汇率计算约合98亿美元)。 消息人士透露，丹格特已
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！作者 | 郑理、谢美浴 来源 | 独角金融 站在资产超1.4万亿元的“金融豫军”排头兵高位，4月21日，中原银行（1216.HK）一则公告，揭开了这家万亿级城商行又一轮高层变局的序幕。 公告显示，中原银行董事长、执行董事郭浩由于工作调动，向董事会提交辞呈；接任董事长职务的是中原银行行长周锋，这距离周锋获批行
 
 ## 正文
 
-非洲首富阿里科·丹格特正筹划将其水泥帝国在伦敦证券交易所上市，这将是这家非洲最大水泥企业多年国际化战略的重要一步。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-丹格特水泥公司是非洲大陆最大的水泥生产商，年产能达5200万吨，业务遍及尼日利亚、喀麦隆、埃塞俄比亚、南非等10个非洲国家。
+作者 | 郑理、谢美浴 来源 | 独角金融 站在资产超1.4万亿元的“金融豫军”排头兵高位，4月21日，中原银行（1216.HK）一则公告，揭开了这家万亿级城商行又一轮高层变局的序幕。
 
-该公司已在尼日利亚证券交易所上市，市值约13.43万亿奈拉(按当前约1美元兑1370奈拉的汇率计算约合98亿美元)。
+公告显示，中原银行董事长、执行董事郭浩由于工作调动，向董事会提交辞呈；接任董事长职务的是中原银行行长周锋，这距离周锋获批行长任职资格仅过去仅4个月。
 
-消息人士透露，丹格特已与美银美林等投行就伦敦上市事宜展开接洽。
+与此同时，董事会决定由河南农商银行原副行长张涛接任行长职位。
 
-此前，丹格特水泥曾于2018年考虑伦敦IPO，但未能成行。
+表面看，这家河南最大的省属城商行正处在“光鲜”时刻。
 
-该公司近年来通过发行商业票据和债券筹集资金用于扩张，并计划投资10亿美元在2030年前将产能提升45%至8000万吨。
+2025年年报显示，总资产达14142.93亿元，全年实现营业收入265.07亿元、净利润35.76亿元，同比分别增长2.1%和3.1%，不良贷款率连续三年下降至1.96%，刚公布一份体面的成绩单，为何紧接着对核心管理层“动刀”？
 
-分析人士指出，伦敦上市将有助于丹格特水泥拓宽投资者基础，为其泛非扩张计划提供更充足的资金支持。
+实际上，该行整体不良率依然高于城商行平均水平。
 
-丹格特本人于2025年卸任公司董事长，但仍是这家水泥帝国的核心控制人。
+其中，房地产不良贷款率飙升至5.89%，个人消费贷不良率攀升至3.39%，信用卡不良率达5.31%，关注类贷款增至240.43亿元，一场“将帅齐换”背后，是为了下一阶段存量风险化解的提前排兵布阵，还是为更深层次的战略转向铺路？
 
 ## 相关推荐
 
-- 2026-06-29 14:31 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 14:50 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 14:30 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 14:52 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 14:55 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 14:33 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 14:39 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 14:30 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 14:44 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 14:46 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 14:49 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 14:31 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 14:47 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 15:02 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 14:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 14:48 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 14:43 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 14:59 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 14:41 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 14:54 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 14:57 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 14:53 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 14:56 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 15:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 14:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 14:50 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:46 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/219619.shtml)
-- 2026-06-29 14:51 - [世界杯看到肖战了](https://www.share.kurohicncr.top/Article/details/96721965566.shtml)
-- 2026-06-29 14:43 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.kurohicncr.top/Article/details/16349972433.shtml)
-- 2026-06-29 14:36 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/89468151052.shtml)
-- 2026-06-29 14:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/28674.shtml)
-- 2026-06-29 14:38 - [中国避暑神器在欧洲卖爆了](https://www.share.kurohicncr.top/Article/details/8852390.shtml)
-- 2026-06-29 14:44 - [航空运输旅客服务质量国标将实施](http://www.share.minike.top/Article/details/606017.shtml)
-- 2026-06-29 14:49 - [记者率先试乘西十高铁](http://www.blog.kurohicncr.top/Article/details/588444932856.shtml)
-- 2026-06-29 14:31 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/782933.shtml)
-- 2026-06-29 14:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/950190157.shtml)
-- 2026-06-29 14:52 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/985292.shtml)
-- 2026-06-29 14:36 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/05935869552.shtml)
-- 2026-06-29 14:46 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/78137692.shtml)
-- 2026-06-29 14:45 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/123868801.shtml)
-- 2026-06-29 14:48 - [金牌调解](https://www.share.minike.top/Article/details/478306214452.shtml)
+- 2026-06-29 14:49 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/48846661.shtml)
+- 2026-06-29 14:47 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/8647714.shtml)
+- 2026-06-29 14:57 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/671765212.shtml)
+- 2026-06-29 14:51 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/7552916293.shtml)
+- 2026-06-29 14:38 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/7379546.shtml)
+- 2026-06-29 14:53 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/058741.shtml)
+- 2026-06-29 14:40 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/51350.shtml)
+- 2026-06-29 14:47 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/302253374212.shtml)
+- 2026-06-29 14:59 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/5320640992.shtml)
+- 2026-06-29 14:38 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/1246231.shtml)
+- 2026-06-29 14:41 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/792310.shtml)
+- 2026-06-29 15:00 - [第一炉香](http://www.share.kurohicncr.top/Article/details/7802128.shtml)
+- 2026-06-29 14:46 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/01782.shtml)
+- 2026-06-29 15:05 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/769274679502.shtml)
+- 2026-06-29 14:54 - [志愿选择倒计时！浙大学生送祝福](http://www.share.minike.top/Article/details/325788.shtml)

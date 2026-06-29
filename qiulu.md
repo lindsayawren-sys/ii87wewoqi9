@@ -1,56 +1,49 @@
-# 商务部：拒绝接受并坚决反对欧盟禁止对使用中国逆变器项目提供资金支持
+# 万斯取消周二前往巴基斯坦行程 谈判后续安排仍存不确定性
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-新华社北京5月7日电 商务部新闻发言人7日表示，欧盟在没有任何实际证据的情况下，首次将中国划定为所谓“高风险国家”，并以此为由禁止对使用中国逆变器的项目提供资金支持，这是对中国的污名化行为，且对中国产品构成不公平、歧视性待遇。中方拒绝接受，并坚决反对。 有记者问：据媒体报道，有欧盟官员称，对于使用中国等“高风险国家”逆变器的项目，欧盟将禁止提供资金支持。请问中方对此有何评论？
+当地时间4月21日，央视记者获悉，白宫表示，在美国总统特朗普宣布延长停火并等待伊朗提出谈判方案后，美国副总统万斯及美方谈判代表团将不会于周二前往巴基斯坦。 白宫未就后续是否举行面对面会谈提供更多信息，相关安排仍存在不确定性。(央视记者 许骁）
 
 ## 正文
 
-新华社北京5月7日电 商务部新闻发言人7日表示，欧盟在没有任何实际证据的情况下，首次将中国划定为所谓“高风险国家”，并以此为由禁止对使用中国逆变器的项目提供资金支持，这是对中国的污名化行为，且对中国产品构成不公平、歧视性待遇。
+当地时间4月21日，央视记者获悉，白宫表示，在美国总统特朗普宣布延长停火并等待伊朗提出谈判方案后，美国副总统万斯及美方谈判代表团将不会于周二前往巴基斯坦。
 
-中方拒绝接受，并坚决反对。
+白宫未就后续是否举行面对面会谈提供更多信息，相关安排仍存在不确定性。
 
-有记者问：据媒体报道，有欧盟官员称，对于使用中国等“高风险国家”逆变器的项目，欧盟将禁止提供资金支持。
-
-请问中方对此有何评论？
-
-发言人表示，欧盟将中国划定为“高风险国家”，将影响中欧互信，破坏双边经贸合作，不利于中欧乃至全球产供链稳定，甚至带来“脱钩断链”的风险。
-
-欧盟强行采取措施排挤中国产品，违背市场规律和公平原则，不仅损害中国企业利益，更将反噬自身，影响欧盟绿色转型和能源安全。
-
-发言人说，中方敦促欧方立即停止将中国列为“高风险国家”的污名化行为，取消对中国产品的不公平、歧视性做法。
-
-中方将密切关注，并认真评估欧方政策对中国企业利益和中欧产供链的影响，将采取措施维护中国企业正当合法权益。
+(央视记者 许骁）
 
 ## 相关推荐
 
-- 2026-06-29 14:56 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 14:51 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 14:40 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 14:54 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 14:58 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 14:55 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 14:41 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 14:45 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 14:54 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 14:32 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 15:01 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 14:42 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 14:56 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 14:41 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 14:54 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 14:42 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 15:02 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 14:47 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 15:02 - [双高胎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 14:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 14:47 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 14:54 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 14:40 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/929729204136.shtml)
-- 2026-06-29 14:48 - [记者率先试乘西十高铁](https://www.share.minike.top/Article/details/033584757.shtml)
-- 2026-06-29 14:51 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/60257530442.shtml)
-- 2026-06-29 14:38 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/6004970.shtml)
-- 2026-06-29 14:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/61400.shtml)
-- 2026-06-29 14:57 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.kurohicncr.top/Article/details/008877.shtml)
-- 2026-06-29 14:36 - [王楚钦 表演球擦网](https://www.share.kurohicncr.top/Article/details/8081932525.shtml)
-- 2026-06-29 14:30 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/582404.shtml)
-- 2026-06-29 14:43 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/193263980851.shtml)
-- 2026-06-29 14:58 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/65306.shtml)
-- 2026-06-29 14:41 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/5101957912.shtml)
-- 2026-06-29 14:55 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.minike.top/Article/details/325912.shtml)
-- 2026-06-29 14:46 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/973656.shtml)
-- 2026-06-29 14:42 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/2364835.shtml)
-- 2026-06-29 14:55 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/994522.shtml)
+- 2026-06-29 15:00 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.minike.top/Article/details/4840964786.shtml)
+- 2026-06-29 14:42 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/91343.shtml)
+- 2026-06-29 14:54 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/944552925.shtml)
+- 2026-06-29 14:47 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/537475.shtml)
+- 2026-06-29 14:50 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/08352683986.shtml)
+- 2026-06-29 14:46 - [T1 vs KC MSI](http://www.blog.kurohicncr.top/Article/details/983144.shtml)
+- 2026-06-29 14:38 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/21981215578.shtml)
+- 2026-06-29 14:42 - [给阿嬷的情书海外口碑](https://www.share.kurohicncr.top/Article/details/092366.shtml)
+- 2026-06-29 15:00 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/010173436.shtml)
+- 2026-06-29 14:39 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/3436234.shtml)
+- 2026-06-29 15:05 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/104503.shtml)
+- 2026-06-29 14:40 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/67706.shtml)
+- 2026-06-29 14:38 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/50403753316.shtml)
+- 2026-06-29 14:40 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.kurohicncr.top/Article/details/6297395536.shtml)
+- 2026-06-29 15:05 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.minike.top/Article/details/610930.shtml)

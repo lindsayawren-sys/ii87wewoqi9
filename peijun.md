@@ -1,56 +1,57 @@
-# 华商品质慧选混合基金经理邓默：新质生产力是今年投资布局的重要锚点
+# 软银据悉寻求以OpenAI股份作抵押 获得100亿美元保证金贷款
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-随着经济增长动能正逐步向科技制造领域切换，新质生产力作为驱动经济高质量发展的核心引擎，也是投资布局的重要锚点。在这轮产业变革中，华商基金量化投资部总经理邓默掌舵的华商品质慧选混合基金，依托量化模型构建投资组合，重点采用GARP策略挖掘兼具低估值与高成长特征的标的，积极捕捉小盘成长机会，为持有人带来了良好的投资体验。 截至2026年3月31日，华商品质慧选混合A近一年净值增长率达
+知情人士称，软银集团正寻求一笔100亿美元的贷款，以所持美国人工智能（AI）巨头OpenAI的股份作抵押。因大力进军AI领域，这家日本企业集团正背上更多债务。 知情人士透露，这笔期限两年的保证金贷款将附带一项选择权，允许软银将借款期限再延长一年。 软银的一位代表不予置评。 随着软银创始人孙正义通过大规模投资ChatGPT开发者OpenAI，寻求将自己定位为全球AI热潮中的核心角
 
 ## 正文
 
-随着经济增长动能正逐步向科技制造领域切换，新质生产力作为驱动经济高质量发展的核心引擎，也是投资布局的重要锚点。
+知情人士称，软银集团正寻求一笔100亿美元的贷款，以所持美国人工智能（AI）巨头OpenAI的股份作抵押。
 
-在这轮产业变革中，华商基金量化投资部总经理邓默掌舵的华商品质慧选混合基金，依托量化模型构建投资组合，重点采用GARP策略挖掘兼具低估值与高成长特征的标的，积极捕捉小盘成长机会，为持有人带来了良好的投资体验。
+因大力进军AI领域，这家日本企业集团正背上更多债务。
 
-截至2026年3月31日，华商品质慧选混合A近一年净值增长率达43.94%，超同期业绩比较基准收益率32个百分点（详见下表）。
+知情人士透露，这笔期限两年的保证金贷款将附带一项选择权，允许软银将借款期限再延长一年。
 
-据权威基金评价机构数据显示，截至2026年1季度末，该基金近一年、近三年在同类基金中排名位居前1/5（详见文末数据说明）。
+软银的一位代表不予置评。
 
-华商品质慧选混合基金业绩表现 华商品质慧选混合基金是由华商基金量化投资部总经理邓默博士管理。
+随着软银创始人孙正义通过大规模投资ChatGPT开发者OpenAI，寻求将自己定位为全球AI热潮中的核心角色，该公司的债务负担也日益加重。
 
-他具备极为扎实的数理专业背景和近15年证券从业经历（4.3年证券研究经历、10.5年证券投资经历）。
+3月时，标普将软银评级展望从稳定下调至负面，理由是该公司近期对OpenAI追加300亿美元投资的计划可能会损害其流动性及资产的信用质量。
 
-邓默自2011年加入华商基金，现任公司量化投资总监、量化投资部总经理、投资决策委员会委员。
+关于软银目前正在寻求的保证金贷款，目前尚未做出任何决定，具体细节可能仍会有变化。
 
-邓默 博士 华商基金量化投资部总经理 华商品质慧选混合基金经理 华商新量化灵活配置混合等基金经理 邓默博士擅长发挥量化模型客观理性的优势，同时结合华商基金投研的主动管理能力，在管理华商品质慧选混合基金的过程中，在不同市场环境下使用不同选股逻辑，以GARP策略为核心，掘金兼具低估值与高成长特征的优质标的。
+知情人士称，讨论内容包括初始利差可能在基准隔夜担保融资利率（SOFR）基础上加425个基点左右。
 
 ## 相关推荐
 
-- 2026-06-29 14:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 14:59 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 14:36 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 14:44 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 14:46 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 14:51 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 14:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 14:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 14:34 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 14:58 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 14:42 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 14:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 14:44 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 15:03 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 14:39 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 15:00 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 14:38 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 14:59 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 14:38 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 14:49 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 14:58 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:48 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/7250481595.shtml)
-- 2026-06-29 14:36 - [逃狱兄弟](http://www.share.minike.top/Article/details/552774138.shtml)
-- 2026-06-29 14:42 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/353751.shtml)
-- 2026-06-29 14:45 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/55636571449.shtml)
-- 2026-06-29 14:44 - [斛珠夫人](https://www.blog.minike.top/Article/details/080426.shtml)
-- 2026-06-29 14:46 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/3727863641.shtml)
-- 2026-06-29 14:45 - [斛珠夫人](http://www.blog.minike.top/Article/details/40773867608.shtml)
-- 2026-06-29 14:51 - [陈靖可虞书欣领衔主演](https://www.share.kurohicncr.top/Article/details/98001.shtml)
-- 2026-06-29 14:35 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/498673.shtml)
-- 2026-06-29 14:43 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/61283746.shtml)
-- 2026-06-29 14:54 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/86677808644.shtml)
-- 2026-06-29 14:32 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/010232763.shtml)
-- 2026-06-29 14:50 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/25034659424.shtml)
-- 2026-06-29 14:35 - [3D打印不是工业革命，它是……](http://www.share.minike.top/Article/details/214803.shtml)
-- 2026-06-29 14:30 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/13470095903.shtml)
+- 2026-06-29 15:03 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/47114920782.shtml)
+- 2026-06-29 14:59 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/051101243.shtml)
+- 2026-06-29 14:38 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/13161971.shtml)
+- 2026-06-29 14:50 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/669320512.shtml)
+- 2026-06-29 14:43 - [男孩复读一年减重20斤涨分111分](http://www.share.kurohicncr.top/Article/details/327594127390.shtml)
+- 2026-06-29 14:43 - [高考公平需要延伸到志愿填报这一环](http://www.share.kurohicncr.top/Article/details/1367843.shtml)
+- 2026-06-29 14:47 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/9235524978.shtml)
+- 2026-06-29 14:38 - [四川宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/98561208.shtml)
+- 2026-06-29 14:52 - [詹俊预测德国大胜巴拉圭](http://www.share.minike.top/Article/details/5640974957.shtml)
+- 2026-06-29 14:52 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.minike.top/Article/details/785852504276.shtml)
+- 2026-06-29 15:02 - [四川宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/431903316.shtml)
+- 2026-06-29 15:02 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/883788.shtml)
+- 2026-06-29 14:52 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/11441804.shtml)
+- 2026-06-29 14:58 - [天道](https://www.blog.kurohicncr.top/Article/details/46100747204.shtml)
+- 2026-06-29 15:02 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/01972.shtml)

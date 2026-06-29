@@ -1,59 +1,58 @@
-# 美伊协议预期提振市场，油价下跌股市创纪录
+# 香港创新科技及工业局局长：相信会有更多优秀企业落户港深创科园
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-受美伊可能达成和平协议的乐观情绪推动，全球股市周四普遍上扬，原油价格则大幅下跌。 在巴基斯坦的斡旋下，美国和伊朗即将就一份一页的谅解备忘录达成一致。该备忘录旨在结束两国冲突，内容包括伊朗暂停核浓缩活动、美国解除制裁并解冻部分伊朗资金，以及双方逐步解除对霍尔木兹海峡通航的限制。美国总统特朗普表示，双方过去24小时进行了非常富有成效的对话，很有可能达成协议。不过伊朗方面称，有关接近
+中新网香港4月22日电 (记者 戴小橦)联想集团(Lenovo)人工智能创新中心启动礼22日在港深创新及科技园(简称“港深创科园”)举行，联想集团成为首批落户河套深港科技创新合作区香港园区的大型跨国公司。香港特区政府创新科技及工业局局长孙东表示，今年底园区将有5栋新大楼投入使用，加上特区政府宣布注资100亿港元予园区公司以加速发展，相信未来会有更多优秀创科企业落户园区，形成强大
 
 ## 正文
 
-受美伊可能达成和平协议的乐观情绪推动，全球股市周四普遍上扬，原油价格则大幅下跌。
+中新网香港4月22日电 (记者 戴小橦)联想集团(Lenovo)人工智能创新中心启动礼22日在港深创新及科技园(简称“港深创科园”)举行，联想集团成为首批落户河套深港科技创新合作区香港园区的大型跨国公司。
 
-在巴基斯坦的斡旋下，美国和伊朗即将就一份一页的谅解备忘录达成一致。
+香港特区政府创新科技及工业局局长孙东表示，今年底园区将有5栋新大楼投入使用，加上特区政府宣布注资100亿港元予园区公司以加速发展，相信未来会有更多优秀创科企业落户园区，形成强大集群效应。
 
-该备忘录旨在结束两国冲突，内容包括伊朗暂停核浓缩活动、美国解除制裁并解冻部分伊朗资金，以及双方逐步解除对霍尔木兹海峡通航的限制。
+孙东致辞表示，国家“十五五”规划纲要明确支持香港建设国际创新科技中心，并加速推动北部都会区建设。
 
-美国总统特朗普表示，双方过去24小时进行了非常富有成效的对话，很有可能达成协议。
+港深创科园是河套深港科技创新合作区香港园区，其愿景是成为世界级的创新枢纽，以及国家培育发展新质生产力的重要策源地。
 
-不过伊朗方面称，有关接近达成停战谅解备忘录的报道失实，正在审阅美方方案。
+联想集团选择落户港深创科园，不但是企业发展的重要布局，同时也是对香港创科的未来投下信心票。
 
-受此影响，布伦特原油期货周三暴跌7.83%至每桶101.27美元，盘中一度跌破100美元关口。
+港深创新及科技园有限公司行政总裁马惟善表示，联想集团落户园区并成立人工智能创新中心，聚焦孵化初创企业、促进核心技术研发及培育香港本地科技人才，预计为香港带来超过500名科技人才。
 
-分析人士指出，即使协议达成，油轮恢复通行仍需数周时间，全球库存正持续下降。
+未来期待与联想集团携手，推动人工智能与先进制造产业集群发展，引入高技术研发团队，构建产学研用一体化生态圈，助力推动河套深港科技创新合作区香港园区成为联通内地与国际的世界级科技创新枢纽。
 
-股市方面，投资者风险偏好显著回升。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 14:50 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 14:56 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 14:42 - [高考志愿今起开始填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 14:43 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 14:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 14:58 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 14:55 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 14:41 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 14:40 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 14:35 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 14:54 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 14:31 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 15:00 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 14:58 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 14:51 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 15:00 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 14:56 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 14:36 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 14:41 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 14:47 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 15:05 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 15:02 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 14:55 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 14:55 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:58 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/33424545957.shtml)
-- 2026-06-29 14:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/8323973.shtml)
-- 2026-06-29 14:47 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.kurohicncr.top/Article/details/4941921.shtml)
-- 2026-06-29 14:42 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/935039078756.shtml)
-- 2026-06-29 14:44 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/5122904.shtml)
-- 2026-06-29 14:55 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.minike.top/Article/details/38630542219.shtml)
-- 2026-06-29 14:58 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/530415297.shtml)
-- 2026-06-29 14:54 - [高考志愿今起开始填报](https://www.share.kurohicncr.top/Article/details/5303819738.shtml)
-- 2026-06-29 14:33 - [和阿根廷球员家属一起看球](http://www.blog.minike.top/Article/details/2914394.shtml)
-- 2026-06-29 14:58 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/05893.shtml)
-- 2026-06-29 14:54 - [把古诗里的动作换成加班](http://www.blog.minike.top/Article/details/582961258237.shtml)
-- 2026-06-29 14:39 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/8709429075.shtml)
-- 2026-06-29 14:36 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/3440321.shtml)
-- 2026-06-29 14:42 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/07444748.shtml)
-- 2026-06-29 14:39 - [周深双眼皮贴又掉了](https://www.blog.kurohicncr.top/Article/details/862441667583.shtml)
+- 2026-06-29 14:57 - [欧委会总部只给高层开空调](http://www.blog.kurohicncr.top/Article/details/09188242422.shtml)
+- 2026-06-29 14:50 - [志愿选择倒计时！浙大学生送祝福](http://www.share.kurohicncr.top/Article/details/85308405.shtml)
+- 2026-06-29 14:36 - [新一代影后杨紫](https://www.share.kurohicncr.top/Article/details/9729640.shtml)
+- 2026-06-29 14:44 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/385116410.shtml)
+- 2026-06-29 14:50 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.minike.top/Article/details/088141.shtml)
+- 2026-06-29 15:04 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/919927365.shtml)
+- 2026-06-29 14:45 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/6402664922.shtml)
+- 2026-06-29 14:59 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.minike.top/Article/details/340787.shtml)
+- 2026-06-29 14:58 - [佛得角到底在哪个“角”](https://www.share.kurohicncr.top/Article/details/093055.shtml)
+- 2026-06-29 14:57 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/8743841038.shtml)
+- 2026-06-29 14:43 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.minike.top/Article/details/747429320501.shtml)
+- 2026-06-29 14:59 - [海军舰艇编队将赴香港](https://www.blog.kurohicncr.top/Article/details/542208975587.shtml)
+- 2026-06-29 14:53 - [新一代影后杨紫](http://www.blog.minike.top/Article/details/134976449855.shtml)
+- 2026-06-29 14:43 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/243671.shtml)
+- 2026-06-29 14:46 - [吴建豪老婆](https://www.blog.minike.top/Article/details/741803752.shtml)

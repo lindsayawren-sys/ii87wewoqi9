@@ -1,57 +1,56 @@
-# 酒价内参5月8日价格发布：精品茅台下跌1元/瓶
+# 东北地区首单“地方牌照”企业为国际航行船舶加注保税燃料油业务在大连落地
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月8日小幅回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9944元，较昨日上涨5元，结束前一日的回调。市场在短暂走弱后重回平稳，终端交投情绪保持稳定，核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨四跌两平，赢家略占上风。
+中新网大连4月21日电 (记者 杨毅)大连海关21日发布消息称，东北地区首单“地方牌照”企业开展保税船用燃料油加注业务近日在大连落地。 此次业务采用保税(低硫)燃料油“管道输送+码头加注”一体化运作模式，这是大连地区国际航行船舶保税燃油经营牌照发放后的首单加注。本次装船的1800吨燃料油，已于4月19日在大连港集装箱码头完成首船加注，并将于近期完成剩余1300吨低硫保税船燃的二
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月8日小幅回升。
+中新网大连4月21日电 (记者 杨毅)大连海关21日发布消息称，东北地区首单“地方牌照”企业开展保税船用燃料油加注业务近日在大连落地。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9944元，较昨日上涨5元，结束前一日的回调。
+此次业务采用保税(低硫)燃料油“管道输送+码头加注”一体化运作模式，这是大连地区国际航行船舶保税燃油经营牌照发放后的首单加注。
 
-市场在短暂走弱后重回平稳，终端交投情绪保持稳定，核心单品涨跌分化依然显著。
+本次装船的1800吨燃料油，已于4月19日在大连港集装箱码头完成首船加注，并将于近期完成剩余1300吨低硫保税船燃的二次加注。
 
-今日白酒市场11大单品五涨四跌两平，赢家略占上风。
+在以往，国际航行船舶保税燃油加注许可权由商务部审批，自今年1月6日商务部下发《大连等9城市服务业扩大开放综合试点任务》后，赋予大连市国际航行船舶保税燃油加注许可权，允许保税油供应企业在辽宁省内开展保税油直供业务。
 
-上涨方面，青花郎涨幅居前，上涨7元/瓶，重返700元关口上方；洋河梦之蓝M6+上涨4元/瓶，平近一月最高价格；五粮液1618上涨2元/瓶；古井贡古20与习酒君品均上涨1元/瓶。
+本次作业的低硫燃料油，全部产自大连腹地炼厂，通过大港石化管道输送至公司建罐客户的保税罐区进行储存，并经该公司码头完成出库装船作业，以“一船多供”的模式于大连海域实现同航次多船连续加注服务。
 
-下跌方面，国窖1573跌幅居前，下跌5元/瓶，近期该酒品的价格波动较为剧烈，在900元大关附近反复震荡；水晶剑南春下跌3元/瓶；飞天茅台与精品茅台均下跌1元/瓶。
+作为首家获大连市批准开展该项业务的企业，中石油(大连)燃料油有限责任公司负责人田兴宇坦言，“政策下放后，地方有关部门直接受理审核、核发牌照，审批周期大幅缩短。
 
-五粮液普五八代与青花汾20的价格环比保持不变。
+同时，企业可在辽宁省全域开展保税油直供业务，经营版图全面拓宽。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+”田兴宇说，依托大连港的区位优势与自身储运实力，能够更快速响应国际航行船舶的供油需求，也让东北港口在东北亚航运补给市场中更具优势。
 
 ## 相关推荐
 
-- 2026-06-29 14:44 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 14:46 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 14:46 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 14:51 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 14:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 14:40 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 14:31 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 14:39 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 14:55 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 14:34 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 14:35 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 15:00 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 15:04 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 14:42 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 14:46 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 15:03 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 14:44 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 14:52 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 14:50 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 14:46 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 14:42 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:48 - [啊啊啊](https://www.share.minike.top/Article/details/695477.shtml)
-- 2026-06-29 14:50 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/411085124.shtml)
-- 2026-06-29 14:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/325362.shtml)
-- 2026-06-29 14:41 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/3950900214.shtml)
-- 2026-06-29 14:50 - [灿如繁星定档](http://www.blog.kurohicncr.top/Article/details/48842621.shtml)
-- 2026-06-29 14:49 - [异世界一点都不好玩！](https://www.blog.minike.top/Article/details/53957805395.shtml)
-- 2026-06-29 14:41 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/434896552782.shtml)
-- 2026-06-29 14:47 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/9364084.shtml)
-- 2026-06-29 14:30 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/849606118.shtml)
-- 2026-06-29 14:59 - [吴建豪老婆](http://www.blog.kurohicncr.top/Article/details/4588271.shtml)
-- 2026-06-29 14:38 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/04106697240.shtml)
-- 2026-06-29 14:37 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/452790143.shtml)
-- 2026-06-29 14:35 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/664051899.shtml)
-- 2026-06-29 14:44 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/84170860.shtml)
-- 2026-06-29 14:44 - [美人鱼](http://www.share.minike.top/Article/details/4929250.shtml)
+- 2026-06-29 14:54 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/668625.shtml)
+- 2026-06-29 14:37 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/86806475861.shtml)
+- 2026-06-29 14:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/8939584625.shtml)
+- 2026-06-29 14:49 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/896419751459.shtml)
+- 2026-06-29 14:43 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/988049604150.shtml)
+- 2026-06-29 14:42 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/131873463.shtml)
+- 2026-06-29 15:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/448069.shtml)
+- 2026-06-29 14:37 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/4355164.shtml)
+- 2026-06-29 15:04 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/21887527.shtml)
+- 2026-06-29 14:51 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/4153304238.shtml)
+- 2026-06-29 14:52 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/432744642327.shtml)
+- 2026-06-29 14:53 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/5957993529.shtml)
+- 2026-06-29 14:51 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/2364810241.shtml)
+- 2026-06-29 14:42 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/90158.shtml)
+- 2026-06-29 14:53 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/7921686581.shtml)

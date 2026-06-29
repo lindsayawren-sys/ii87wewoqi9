@@ -1,58 +1,60 @@
-# 机场口岸客流攀升！APEC中国年，深圳准备好了
+# 先锋集团逆势加仓美债：4.25%以上收益率即是“黄金坑”，押注美联储今年降息
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-今年是APEC中国年，作为东道主城市，广东深圳全市氛围持续升温。越来越多的APEC经济体客商来到深圳，感受中国经济发展。目前，经深圳机场口岸APEC经济体客商出入境流量稳步攀升。 5月8日中午，一架国际航班顺利抵达深圳宝安国际机场。墨西哥旅客塞萨尔·米努蒂手持护照和APEC商务旅行卡，通过专用通道入境，全程快捷顺畅。 墨西哥旅客 塞萨尔·米努蒂：我相信今年在深圳举办的APEC会
+先锋集团表示，正在增持美国国债，利用中东冲突后收益率上升的机会锁定利率，对冲潜在的经济增长放缓风险。先锋集团，重申其观点，即美联储今年将降息一次，但利率互换市场尚未完全反映出这一预期。 该资产管理公司在其最新的季度展望报告中指出，其主动型固定收益团队表示，由于美国10年期国债收益率已升至3.75%至4.25%的“公允价值”区间之上，因此该团队一直在增持长期债券。该基准利率（该利
 
 ## 正文
 
-今年是APEC中国年，作为东道主城市，广东深圳全市氛围持续升温。
+先锋集团表示，正在增持美国国债，利用中东冲突后收益率上升的机会锁定利率，对冲潜在的经济增长放缓风险。
 
-越来越多的APEC经济体客商来到深圳，感受中国经济发展。
+先锋集团，重申其观点，即美联储今年将降息一次，但利率互换市场尚未完全反映出这一预期。
 
-目前，经深圳机场口岸APEC经济体客商出入境流量稳步攀升。
+该资产管理公司在其最新的季度展望报告中指出，其主动型固定收益团队表示，由于美国10年期国债收益率已升至3.75%至4.25%的“公允价值”区间之上，因此该团队一直在增持长期债券。
 
-5月8日中午，一架国际航班顺利抵达深圳宝安国际机场。
+该基准利率（该利率影响着从企业借贷成本到抵押贷款条款等诸多因素）自2月下旬以来已攀升超过30个基点，达到4.3%左右，原因是伊朗冲突推高了油价，并重新引发了人们对通胀的担忧。
 
-墨西哥旅客塞萨尔·米努蒂手持护照和APEC商务旅行卡，通过专用通道入境，全程快捷顺畅。
+“我们仍然认为收益率高于 4.25% 是有吸引力的水平，可以延长久期，并增强投资组合抵御潜在增长风险的能力，”先锋集团全球固定收益主管Sara Devereux在报告中写道。
 
-墨西哥旅客 塞萨尔·米努蒂：我相信今年在深圳举办的APEC会议会更加精彩，创造出更多互利共赢合作新机遇。
+Devereux表示，其团队是在能源市场部分压力缓解后进入市场的，这降低了央行政策走向极端化的风险。
 
-目前，我国已对APEC成员经济体中的12个国家实施免签政策，深圳机场与APEC成员经济体中的15个国家和地区开通了直航客运航线。
+4月初原油价格一度突破每桶110美元，但随着美伊之间长达两周的停火协议生效，油价已从近期高位回落，不过价格仍然波动。
 
-随着APEC中国年系列活动不断开展，越来越多来自APEC成员经济体的外国人到访深圳。
+Devereux指出，这场冲突的后果之一是全球货币政策走向分歧，这为各地区创造了相对价值投资机会。
 
 ## 相关推荐
 
-- 2026-06-29 14:51 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 14:33 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 14:46 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 14:34 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 14:36 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 14:37 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 14:36 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 14:49 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 14:57 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 14:41 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 14:48 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 14:34 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 14:38 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 14:59 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 14:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 14:38 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 14:37 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 14:40 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 14:39 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 14:43 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 14:39 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 14:52 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 14:57 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 14:59 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 14:59 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 14:50 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:50 - [志愿选择倒计时！浙大学生送祝福](http://www.share.kurohicncr.top/Article/details/280888462323.shtml)
-- 2026-06-29 14:35 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/932811.shtml)
-- 2026-06-29 15:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/3123654375.shtml)
-- 2026-06-29 14:38 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/3134847.shtml)
-- 2026-06-29 14:53 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/34232566875.shtml)
-- 2026-06-29 14:54 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/612316.shtml)
-- 2026-06-29 14:32 - [明星大侦探第一季](https://www.share.minike.top/Article/details/478608715923.shtml)
-- 2026-06-29 14:49 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/555259.shtml)
-- 2026-06-29 14:41 - [李连杰回应网传不管前妻俩女儿](http://www.share.minike.top/Article/details/75249286411.shtml)
-- 2026-06-29 14:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/8210779301.shtml)
-- 2026-06-29 14:38 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/9217719861.shtml)
-- 2026-06-29 14:36 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.kurohicncr.top/Article/details/94952512.shtml)
-- 2026-06-29 14:56 - [王楚钦周启豪爆分](http://www.share.minike.top/Article/details/337412665.shtml)
-- 2026-06-29 14:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/16660.shtml)
-- 2026-06-29 14:33 - [小娘惹](http://www.share.kurohicncr.top/Article/details/838906.shtml)
+- 2026-06-29 14:42 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/27909859010.shtml)
+- 2026-06-29 14:57 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/60590954.shtml)
+- 2026-06-29 14:47 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/907144164.shtml)
+- 2026-06-29 14:39 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.minike.top/Article/details/011353121.shtml)
+- 2026-06-29 14:45 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.minike.top/Article/details/51971568482.shtml)
+- 2026-06-29 14:57 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/940391474.shtml)
+- 2026-06-29 14:36 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/180161465830.shtml)
+- 2026-06-29 14:50 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/136229799296.shtml)
+- 2026-06-29 14:59 - [拄拐少年高考663分：用行动回报社会](https://www.share.minike.top/Article/details/018652275.shtml)
+- 2026-06-29 15:05 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/84197962632.shtml)
+- 2026-06-29 14:59 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/036304.shtml)
+- 2026-06-29 15:00 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/3700910980.shtml)
+- 2026-06-29 14:59 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/22835943.shtml)
+- 2026-06-29 14:38 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/366495381390.shtml)
+- 2026-06-29 15:04 - [沙丘](https://www.blog.kurohicncr.top/Article/details/1530503692.shtml)

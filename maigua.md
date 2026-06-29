@@ -1,53 +1,60 @@
-# 美联储称与私募信贷赎回相关的风险“可控”
+# GE Vernova 股价飙升：AI 引爆电力需求，业绩全面爆发
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-尽管近几个月私募信贷市场部分头部机构限制投资者赎回基金，但美联储表示，后续私募信贷赎回请求引发的稳定性风险似乎“有限且可控”。 该机构在周五发布的金融稳定报告中指出：“尽管2026年第一季度这些基金的资金流出小幅超过新资金流入，但赎回请求仍保持可控。” 美联储指出，持续的赎回和负面情绪可能导致部分借款人的信贷可得性下降，尤其是信用风险相对较高的借款人。责任编辑：丁文武
+受益于AI数据中心引发的全球电力需求井喷，GE Vernova在2026年第一季度交出了一份远超预期的成绩单。公司股价盘前飙升逾10%，创下历史新高，总市值突破3000亿美元。季度订单额达到183亿美元，同比激增71%；自由现金流高达48亿美元，不仅同比增长逾三倍，更一举超过了2025年全年的总额。 AI浪潮是业绩爆发的核心推手。数据中心对电力的饥渴需求直接转化为巨额订单，仅第
 
 ## 正文
 
-尽管近几个月私募信贷市场部分头部机构限制投资者赎回基金，但美联储表示，后续私募信贷赎回请求引发的稳定性风险似乎“有限且可控”。
+受益于AI数据中心引发的全球电力需求井喷，GE Vernova在2026年第一季度交出了一份远超预期的成绩单。
 
-该机构在周五发布的金融稳定报告中指出：“尽管2026年第一季度这些基金的资金流出小幅超过新资金流入，但赎回请求仍保持可控。
+公司股价盘前飙升逾10%，创下历史新高，总市值突破3000亿美元。
 
-” 美联储指出，持续的赎回和负面情绪可能导致部分借款人的信贷可得性下降，尤其是信用风险相对较高的借款人。
+季度订单额达到183亿美元，同比激增71%；自由现金流高达48亿美元，不仅同比增长逾三倍，更一举超过了2025年全年的总额。
 
-责任编辑：丁文武
+AI浪潮是业绩爆发的核心推手。
+
+数据中心对电力的饥渴需求直接转化为巨额订单，仅第一季度向数据中心交付的电气化订单就超过24亿美元，超过了该业务整个2025年的总额。
+
+同时，燃气轮机积压订单突破100吉瓦，由于产能紧张，部分新订单交付周期已排到了2029年和2030年。
+
+基于强劲开局，GE Vernova全面上调了2026年全年财务指引，其中自由现金流目标中值提升近40%至65亿-75亿美元，营收和利润率预期也同步上调，显示出管理层对行业“超级周期”的强烈信心。
+
+尽管电力和电气化业务表现强劲，但风电业务依然是公司的短板。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 14:44 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 14:54 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 14:40 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 14:31 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 14:44 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 14:32 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 14:50 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 14:42 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 14:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 14:35 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 14:58 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 14:38 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 14:34 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 14:30 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 15:00 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 14:59 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 14:54 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 14:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 14:44 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 15:05 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 15:01 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 15:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 14:51 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 14:59 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 15:03 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 14:48 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 14:49 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 14:38 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:55 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/7753441.shtml)
-- 2026-06-29 14:34 - [国家体育总局政策法规司原副司长获刑](https://www.blog.kurohicncr.top/Article/details/1233478863.shtml)
-- 2026-06-29 14:54 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.minike.top/Article/details/5602946.shtml)
-- 2026-06-29 14:45 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/2184005.shtml)
-- 2026-06-29 14:35 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/8097554579.shtml)
-- 2026-06-29 14:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/4613982.shtml)
-- 2026-06-29 14:34 - [这一刀 会很帅](http://www.share.minike.top/Article/details/42868005.shtml)
-- 2026-06-29 14:31 - [沉睡花园](https://www.blog.minike.top/Article/details/45450530711.shtml)
-- 2026-06-29 14:42 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/72331755.shtml)
-- 2026-06-29 14:53 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/96338384.shtml)
-- 2026-06-29 14:30 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/2858184.shtml)
-- 2026-06-29 14:42 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/35014099782.shtml)
-- 2026-06-29 14:48 - [海军舰艇编队将赴香港](https://www.share.kurohicncr.top/Article/details/07781.shtml)
-- 2026-06-29 14:45 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/8551702.shtml)
-- 2026-06-29 14:46 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/2089252775.shtml)
+- 2026-06-29 14:54 - [起风了](http://www.share.minike.top/Article/details/94040.shtml)
+- 2026-06-29 15:01 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/963308039.shtml)
+- 2026-06-29 15:01 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/154053462.shtml)
+- 2026-06-29 15:05 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/481266.shtml)
+- 2026-06-29 14:47 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/082029452794.shtml)
+- 2026-06-29 14:49 - [市民骑哈啰单车79分钟付30元](http://www.share.kurohicncr.top/Article/details/211525730977.shtml)
+- 2026-06-29 14:39 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/91792.shtml)
+- 2026-06-29 14:54 - [赵露思爸爸拍vlog翻车了](http://www.blog.kurohicncr.top/Article/details/4437967538.shtml)
+- 2026-06-29 14:38 - [乔家的儿女](https://www.share.minike.top/Article/details/1403630936.shtml)
+- 2026-06-29 14:42 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/533004.shtml)
+- 2026-06-29 15:04 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/46639360.shtml)
+- 2026-06-29 14:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/157420973.shtml)
+- 2026-06-29 14:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/17214250.shtml)
+- 2026-06-29 14:50 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/7524030.shtml)
+- 2026-06-29 14:56 - [极限挑战第一季](https://www.blog.minike.top/Article/details/1003218634.shtml)

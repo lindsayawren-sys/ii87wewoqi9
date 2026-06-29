@@ -1,60 +1,55 @@
-# 美司法部调查26亿美元伊朗战争可疑石油交易
+# 旷日持久的冲突或将对铜价构成压力
 
-> 更新时间：2026-06-29 15:00:02 UTC+8
+> 更新时间：2026-06-29 15:06:03 UTC+8
 
 ## 摘要
 
-美国司法部正与商品期货交易委员会联合调查一系列时机极为可疑的石油市场交易，这些交易均发生在美国总统特朗普和伊朗高级官员发布伊朗战争相关重大公告之前，涉及总金额超过26亿美元。 据知情人士透露，监管机构正在审查至少四笔大规模做空交易，交易者在油价下跌前精准押注，获利异常丰厚。根据伦敦证券交易所集团提供的数据，这些交易的具体情况如下： 3月23日，在特朗普宣布推迟对伊朗电网发动攻击
+全球多家大型金属交易商警告，若中东冲突长期化并引发经济衰退，铜价可能出现下跌。 以看涨铜价著称的Mercuria公司金属业务主管表示：“市场目前尚未计入长期危机带来的担忧。” 他补充道，若此次危机能快速解决，将提振铜价。铜是制造业和电线生产的关键原料，也被视为全球经济的晴雨表。 伦敦金属交易所基准铜价现约每吨13292美元，该品种曾在1月29日创下每吨13618美元的历史收盘高
 
 ## 正文
 
-美国司法部正与商品期货交易委员会联合调查一系列时机极为可疑的石油市场交易，这些交易均发生在美国总统特朗普和伊朗高级官员发布伊朗战争相关重大公告之前，涉及总金额超过26亿美元。
+全球多家大型金属交易商警告，若中东冲突长期化并引发经济衰退，铜价可能出现下跌。
 
-据知情人士透露，监管机构正在审查至少四笔大规模做空交易，交易者在油价下跌前精准押注，获利异常丰厚。
+以看涨铜价著称的Mercuria公司金属业务主管表示：“市场目前尚未计入长期危机带来的担忧。
 
-根据伦敦证券交易所集团提供的数据，这些交易的具体情况如下： 3月23日，在特朗普宣布推迟对伊朗电网发动攻击前15分钟，交易员押注逾5亿美元赌油价下跌。
+” 他补充道，若此次危机能快速解决，将提振铜价。
 
-4月7日，在特朗普宣布临时停火前数小时，交易员押注9.6亿美元。
+铜是制造业和电线生产的关键原料，也被视为全球经济的晴雨表。
 
-4月17日，在伊朗外长阿拉格齐宣布霍尔木兹海峡保持开放前20分钟，交易员押注7.6亿美元。
+伦敦金属交易所基准铜价现约每吨13292美元，该品种曾在1月29日创下每吨13618美元的历史收盘高位。
 
-4月21日，在特朗普宣布延长停火前15分钟，交易者下注合计4.3亿美元。
-
-美国参议员伊丽莎白·沃伦等民主党议员此前已致函商品期货交易委员会主席，要求彻查这一反复出现的可疑模式，并警告此类行为严重质疑是否存在重大非公开政府信息的反复挪用。
-
-目前，司法部和商品期货交易委员会均未正式确认调查，也未对相关交易置评。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 14:55 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 14:30 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 14:45 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 14:34 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 14:48 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 14:58 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 14:57 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 14:41 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 14:44 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 14:51 - [沙特足协主席发布声明主动请辞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 14:43 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 14:49 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 14:58 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 14:40 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 14:51 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 14:54 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 14:55 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 14:55 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 14:48 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 14:41 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 14:59 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 14:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 15:05 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 14:49 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 15:02 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 14:52 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 15:06 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:37 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/9716448003.shtml)
-- 2026-06-29 14:58 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/8760625844.shtml)
-- 2026-06-29 14:43 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.kurohicncr.top/Article/details/491419.shtml)
-- 2026-06-29 14:48 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/6451764650.shtml)
-- 2026-06-29 14:45 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/794435845.shtml)
-- 2026-06-29 14:42 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/2442081.shtml)
-- 2026-06-29 14:44 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/84225.shtml)
-- 2026-06-29 14:43 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/78109.shtml)
-- 2026-06-29 14:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/37726348602.shtml)
-- 2026-06-29 14:52 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/293823559909.shtml)
-- 2026-06-29 14:44 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/29778.shtml)
-- 2026-06-29 14:50 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/592454903149.shtml)
-- 2026-06-29 14:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/654104316.shtml)
-- 2026-06-29 14:47 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/275319858.shtml)
-- 2026-06-29 14:33 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/158749822.shtml)
+- 2026-06-29 14:43 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/4634513.shtml)
+- 2026-06-29 14:51 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/178098134160.shtml)
+- 2026-06-29 14:55 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/463575959.shtml)
+- 2026-06-29 14:55 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/589104.shtml)
+- 2026-06-29 14:45 - [网警提醒4类高考查分陷阱考生速看](https://www.share.minike.top/Article/details/094832.shtml)
+- 2026-06-29 15:05 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/96766.shtml)
+- 2026-06-29 14:55 - [一见倾心](https://www.share.minike.top/Article/details/72975717.shtml)
+- 2026-06-29 14:47 - [记者暗访贵州和云南多个养老机构](http://www.blog.kurohicncr.top/Article/details/1488874098.shtml)
+- 2026-06-29 14:59 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/086311580.shtml)
+- 2026-06-29 14:55 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.minike.top/Article/details/874210.shtml)
+- 2026-06-29 14:37 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/1125049.shtml)
+- 2026-06-29 14:46 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/76956107556.shtml)
+- 2026-06-29 14:39 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/3427558.shtml)
+- 2026-06-29 14:50 - [宜宾发生5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/89522919.shtml)
+- 2026-06-29 14:51 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/427200988814.shtml)
