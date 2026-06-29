@@ -1,58 +1,57 @@
-# 超8000家泛人工智能企业集聚 数字经济向实而行、向新而进
+# 由于燃料成本上涨，斯里兰卡将电价上调18%
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-数读中国开局新活力｜超8000家泛人工智能企业集聚 数字经济向实而行、向新而进 编者按：2026年是“十五五”开局之年。内需市场潜力持续释放，消费新场景不断涌现，文旅融合、冰雪经济、国潮消费等热点频现，展现出超大规模市场的韧性与活力。为深入解读开局新气象，央广网推出《数读中国开局新活力》系列报道，以数据为支撑，聚焦各地消费场景、产业升级与民生改善的生动实践，呈现中国经济稳中求进
+据斯里兰卡公用事业委员会主席KPL Chandralal称，由于燃料进口成本上涨，斯里兰卡将从当地时间5月10日午夜起将电价上调18%，小型家庭用户和商业用户除外。 他周六表示，预计到2026年9月，发电成本将增加380亿卢比。对于不受此次电价上涨影响的客户，每月用电量上限设定为180度。 斯里兰卡财政部承诺提供150亿卢比的补贴，用于避免小用户电价上涨。电力公司已被指示制定一
 
 ## 正文
 
-数读中国开局新活力｜超8000家泛人工智能企业集聚 数字经济向实而行、向新而进 编者按：2026年是“十五五”开局之年。
+据斯里兰卡公用事业委员会主席KPL Chandralal称，由于燃料进口成本上涨，斯里兰卡将从当地时间5月10日午夜起将电价上调18%，小型家庭用户和商业用户除外。
 
-内需市场潜力持续释放，消费新场景不断涌现，文旅融合、冰雪经济、国潮消费等热点频现，展现出超大规模市场的韧性与活力。
+他周六表示，预计到2026年9月，发电成本将增加380亿卢比。
 
-为深入解读开局新气象，央广网推出《数读中国开局新活力》系列报道，以数据为支撑，聚焦各地消费场景、产业升级与民生改善的生动实践，呈现中国经济稳中求进、活力迸发的时代图景。
+对于不受此次电价上涨影响的客户，每月用电量上限设定为180度。
 
-央广网广州4月8日消息(记者罗世伟)新一轮科技革命和产业变革加速演进，越来越多新技术走出实验室、走向产业一线，从制造车间到消费终端，从内容生产到城市服务，持续嵌入产业链、供应链、价值链，推动数字经济与实体经济深度融合，不断拓展中国经济高质量发展的新空间。
+斯里兰卡财政部承诺提供150亿卢比的补贴，用于避免小用户电价上涨。
 
-在粤港澳大湾区，广交会这个中国对外开放的重要窗口，见证着中国制造、中国市场与全球经济的深度连接。
+电力公司已被指示制定一项发电计划，以在2030年前逐步淘汰液体燃料的使用。
 
-2008年，广交会永久落户琶洲，带动珠江南岸这片土地加快跃升，也让广州海珠区更深嵌入国家开放与产业变革的大潮之中。
-
-此后，平台企业、创新资源和产业项目接续集聚，推动这里由会展高地迈向数字经济新高地。
-
-近几年，人工智能、大模型、算法应用、数字服务等新赛道快速起势，海珠又在新一轮产业竞逐中抢占先机。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 01:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 01:22 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 01:25 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 01:27 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 01:34 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 01:34 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 01:43 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 01:37 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 01:19 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 01:18 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 01:21 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 01:44 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 01:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 01:26 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-30 01:35 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 01:41 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 01:46 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 01:42 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 01:30 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 01:42 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 01:35 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 01:24 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-30 01:28 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 01:36 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 01:40 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 01:43 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-30 01:49 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:27 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/8782352720.shtml)
-- 2026-06-30 01:18 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/792021.shtml)
-- 2026-06-30 01:18 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/5870144.shtml)
-- 2026-06-30 01:42 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/91886427426.shtml)
-- 2026-06-30 01:23 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/03591.shtml)
-- 2026-06-30 01:24 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/499594786188.shtml)
-- 2026-06-30 01:40 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/11828866.shtml)
-- 2026-06-30 01:38 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/534236748.shtml)
-- 2026-06-30 01:46 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/642481988.shtml)
-- 2026-06-30 01:42 - [《贺子珍》](https://www.blog.minike.top/Article/details/99836738393.shtml)
-- 2026-06-30 01:44 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/9152354.shtml)
-- 2026-06-30 01:34 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/7025676680.shtml)
-- 2026-06-30 01:31 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/64048734.shtml)
-- 2026-06-30 01:22 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/99207.shtml)
-- 2026-06-30 01:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/65789261.shtml)
+- 2026-06-30 01:52 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/56859900763.shtml)
+- 2026-06-30 01:26 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/6572302.shtml)
+- 2026-06-30 01:30 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/41420368263.shtml)
+- 2026-06-30 01:31 - [天道](https://www.blog.minike.top/Article/details/62530483.shtml)
+- 2026-06-30 01:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/455880954.shtml)
+- 2026-06-30 01:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/794366897.shtml)
+- 2026-06-30 01:52 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/2286650.shtml)
+- 2026-06-30 01:38 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/11662.shtml)
+- 2026-06-30 01:35 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/24294.shtml)
+- 2026-06-30 01:34 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/335494879.shtml)
+- 2026-06-30 01:33 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/764665.shtml)
+- 2026-06-30 01:36 - [速度与激情9](https://www.share.minike.top/Article/details/21891134.shtml)
+- 2026-06-30 01:44 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/21764844.shtml)
+- 2026-06-30 01:44 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/970000.shtml)
+- 2026-06-30 01:46 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/566261.shtml)

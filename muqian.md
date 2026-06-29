@@ -1,61 +1,57 @@
-# 伊朗民众大规模集会悼念哈梅内伊，总统出席！霍尔木兹海峡传来消息 美媒：超级油轮可能要付200万美元通行费
+# 推广普及国家通用语言文字是统一多民族国家建设的题中之义
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-伊朗总统佩泽希齐扬今天（4月9日）在社交媒体发文表示，以色列对黎巴嫩的“反复侵犯”是对初步停火协议的公然违背，也释放出其在未来可能达成的协议中存在“欺诈与不履行承诺行为”的危险信号。 佩泽希齐扬指出，“若侵略行动持续下去，谈判将失去意义。”并表示，“伊朗将继续把手扣在扳机上，绝不会抛弃其黎巴嫩的兄弟姐妹。” 伊朗议会议长卡利巴夫今天（4月9日）在社交媒体发帖表示，黎巴嫩以及整个
+新时代，依法推广普及国家通用语言文字是促进各民族人心归聚、精神相依的必要条件，有助于铸牢中华民族共同体意识，推进中华民族共同体建设，为推动民族复兴伟业注入持久动力。 通用语言文字承载着国家整合与民族建构等多重功能，是推进统一多民族国家建设的重要内容。马克思指出，“语言本身是一定共同体的产物，同样从另一方面说，语言本身就是这个共同体的存在，而且是它的不言而喻的存在”。语同音则心相
 
 ## 正文
 
-伊朗总统佩泽希齐扬今天（4月9日）在社交媒体发文表示，以色列对黎巴嫩的“反复侵犯”是对初步停火协议的公然违背，也释放出其在未来可能达成的协议中存在“欺诈与不履行承诺行为”的危险信号。
+新时代，依法推广普及国家通用语言文字是促进各民族人心归聚、精神相依的必要条件，有助于铸牢中华民族共同体意识，推进中华民族共同体建设，为推动民族复兴伟业注入持久动力。
 
-佩泽希齐扬指出，“若侵略行动持续下去，谈判将失去意义。
+通用语言文字承载着国家整合与民族建构等多重功能，是推进统一多民族国家建设的重要内容。
 
-”并表示，“伊朗将继续把手扣在扳机上，绝不会抛弃其黎巴嫩的兄弟姐妹。
+马克思指出，“语言本身是一定共同体的产物，同样从另一方面说，语言本身就是这个共同体的存在，而且是它的不言而喻的存在”。
 
-” 伊朗议会议长卡利巴夫今天（4月9日）在社交媒体发帖表示，黎巴嫩以及整个“抵抗阵线”作为伊朗的盟友，是停火安排中不可分割的一部分，相关内容已被列为此前伊方提出的“10点方案”中的第一点。
+语同音则心相通，心相通则情相融，在统一多民族国家内坚定不移推广普及国家通用语言文字，有利于打破语言隔阂、凝聚民族情感、塑造政治认同。
 
-他同时提到，巴基斯坦总理夏巴兹·谢里夫此前已公开、明确强调黎巴嫩问题的重要性，“此事不容否认，亦无回旋余地。
+历史上，大一统朝代的通用语言文字政策促进了中国统一多民族国家的形成和发展。
 
-” 卡利巴夫还警告称，任何违反停火的行为都将付出明确代价，并将招致强有力回击，强调应 “立即熄灭战火”。
+新时代，依法推广普及国家通用语言文字是促进各民族人心归聚、精神相依的必要条件，有助于铸牢中华民族共同体意识，推进中华民族共同体建设，为推动民族复兴伟业注入持久动力。
 
-伊朗总统出席悼念哈梅内伊活动 伊朗民众今天（4月9日）在首都德黑兰举行集会，悼念已故最高领袖哈梅内伊。
+一、推广普及国家通用语言文字是世界多民族国家的通行做法 当前，全球约有200多个国家和地区，存在着2500多个民族和7000多种语言。
 
-伊朗媒体3月1日证实，阿里·哈梅内伊在美国和以色列对伊朗的袭击中身亡。
+推广普及通用语言文字是增强共同体凝聚力的重要资源，是多民族国家建设的基础性工程。
 
 ## 相关推荐
 
-- 2026-06-30 01:47 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-30 01:30 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 01:44 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 01:39 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 01:30 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 01:18 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 01:29 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 01:35 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 01:44 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 01:40 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 01:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 01:43 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 01:26 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 01:24 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 01:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 01:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 01:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 01:37 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 01:50 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 01:34 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 01:52 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 01:41 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 01:46 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 01:36 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 01:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 01:39 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/048213058.shtml)
-- 2026-06-30 01:18 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/8377865.shtml)
-- 2026-06-30 01:34 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/162202549094.shtml)
-- 2026-06-30 01:21 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/712844.shtml)
-- 2026-06-30 01:26 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/821736.shtml)
-- 2026-06-30 01:26 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/40727571.shtml)
-- 2026-06-30 01:26 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/796030220477.shtml)
-- 2026-06-30 01:29 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/400088819836.shtml)
-- 2026-06-30 01:40 - [毒液2](https://www.blog.minike.top/Article/details/442719823541.shtml)
-- 2026-06-30 01:44 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/906065.shtml)
-- 2026-06-30 01:38 - [一生一世](http://www.blog.kurohicncr.top/Article/details/4151539825.shtml)
-- 2026-06-30 01:45 - [我和我的家乡](http://www.share.minike.top/Article/details/54285975.shtml)
-- 2026-06-30 01:28 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/467317605025.shtml)
-- 2026-06-30 01:26 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/65432805622.shtml)
-- 2026-06-30 01:27 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/02182.shtml)
+- 2026-06-30 01:33 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/698981539384.shtml)
+- 2026-06-30 01:27 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/819520525036.shtml)
+- 2026-06-30 01:44 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/544416530.shtml)
+- 2026-06-30 01:30 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/790699005.shtml)
+- 2026-06-30 01:51 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/94131047011.shtml)
+- 2026-06-30 01:47 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/6908707395.shtml)
+- 2026-06-30 01:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/907739.shtml)
+- 2026-06-30 01:39 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/8376526.shtml)
+- 2026-06-30 01:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/545624309.shtml)
+- 2026-06-30 01:28 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/03011716.shtml)
+- 2026-06-30 01:31 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/125025.shtml)
+- 2026-06-30 01:38 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/1779198.shtml)
+- 2026-06-30 01:36 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/69137651.shtml)
+- 2026-06-30 01:40 - [明星大侦探第一季](http://www.share.minike.top/Article/details/06436.shtml)
+- 2026-06-30 01:52 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/403119513635.shtml)

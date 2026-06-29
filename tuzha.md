@@ -1,61 +1,56 @@
-# 四川：让代表“良言”转化为治理实效
+# 黄仁勋毕业演讲：抓住AI时代 要奔跑不要缓步
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网成都4月9日电 (程兆)四川省十四届人大五次会议代表建议、批评和意见交办会议9日在成都举行。会议聚焦高质量做好代表建议办理工作，承办单位代表与四川省人大代表现场交流发言，推动代表建议从“提得好”进一步迈向“办得实、落得下”。 代表建议工作，一头连着发展大局，一头系着民生冷暖。四川省人大常委会党组书记、副主任王雁飞在讲话中指出，代表建议的高质量提出，是将“良言”变为“良策”
+英伟达创始人兼首席执行官黄仁勋昨天在匹兹堡卡内基梅隆大学告诉毕业生，对人工智能基础设施的需求正在创造“一个千载难逢的机会，可以重新工业化美国并恢复这个国家建设的能力”。 尽管许多美国大学毕业生担心人工智能可能会摧毁他们的职业梦想，但黄仁勋指出了无限的机会，因为“一个新行业正在诞生。一个科学与发现的新时代正在开始……我无法想象一个比现在更令人兴奋的时刻来开始你一生的事业。” 英伟
 
 ## 正文
 
-中新网成都4月9日电 (程兆)四川省十四届人大五次会议代表建议、批评和意见交办会议9日在成都举行。
+英伟达创始人兼首席执行官黄仁勋昨天在匹兹堡卡内基梅隆大学告诉毕业生，对人工智能基础设施的需求正在创造“一个千载难逢的机会，可以重新工业化美国并恢复这个国家建设的能力”。
 
-会议聚焦高质量做好代表建议办理工作，承办单位代表与四川省人大代表现场交流发言，推动代表建议从“提得好”进一步迈向“办得实、落得下”。
+尽管许多美国大学毕业生担心人工智能可能会摧毁他们的职业梦想，但黄仁勋指出了无限的机会，因为“一个新行业正在诞生。
 
-代表建议工作，一头连着发展大局，一头系着民生冷暖。
+一个科学与发现的新时代正在开始……我无法想象一个比现在更令人兴奋的时刻来开始你一生的事业。
 
-四川省人大常委会党组书记、副主任王雁飞在讲话中指出，代表建议的高质量提出，是将“良言”变为“良策”；代表建议的高质量办理，则让“良策”结出“良效”。
+” 英伟达是人工智能芯片制造商，也是世界上市值最大的公司。
 
-王雁飞表示，今年是“十五五”开局之年，今年四川省人代会上，代表们提出的1328件建议中，近一半聚焦当前四川经济社会发展的重点工作和瓶颈短板。
+黄仁勋告诉5800名获得本科和研究生学位的毕业生，人工智能的建设将需要管道工、电工、铁匠以及芯片工厂、数据中心和先进制造设施的建筑工人。
 
-各承办单位要把办理代表建议同贯彻落实“十五五”发展目标任务、本领域本部门重点工作结合起来，认真回应代表关切，提升办理落实率和满意率，更好把人民代表大会制度优势转化为治理效能。
+“没有哪一代人比你们拥有更强大的工具——或更大的机会——进入这个世界，”他说。
 
-会上，四川省法院、省检察院、省广播电视局交流办理经验，四川省人大常委会委员罗毅和省人大预算委委员张睿作交流发言。
+“我们都站在同一起跑线上。
 
-“每一条建议背后都是老百姓的期盼。
+这是你们帮助塑造未来的时刻。
 
 ## 相关推荐
 
-- 2026-06-30 01:24 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 01:20 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-30 01:42 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 01:33 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 01:32 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 01:30 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 01:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 01:25 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 01:38 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 01:46 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 01:45 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 01:35 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 01:20 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 01:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 01:29 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 01:46 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 01:25 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 01:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 01:29 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 01:47 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 01:39 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 01:31 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 01:53 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 01:26 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 01:45 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:37 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/1366667.shtml)
-- 2026-06-30 01:42 - [第一炉香](https://www.share.kurohicncr.top/Article/details/024876.shtml)
-- 2026-06-30 01:45 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/75953.shtml)
-- 2026-06-30 01:26 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/762269163.shtml)
-- 2026-06-30 01:22 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/15576156025.shtml)
-- 2026-06-30 01:22 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/4866133736.shtml)
-- 2026-06-30 01:24 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/27663997.shtml)
-- 2026-06-30 01:40 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/599570451.shtml)
-- 2026-06-30 01:28 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/337415244.shtml)
-- 2026-06-30 01:27 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/751600118464.shtml)
-- 2026-06-30 01:23 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/18112.shtml)
-- 2026-06-30 01:40 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/2751553.shtml)
-- 2026-06-30 01:36 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/75329.shtml)
-- 2026-06-30 01:37 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/40254114967.shtml)
-- 2026-06-30 01:30 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/1130566.shtml)
+- 2026-06-30 01:26 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/383431557.shtml)
+- 2026-06-30 01:32 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/0400736.shtml)
+- 2026-06-30 01:38 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/07862350528.shtml)
+- 2026-06-30 01:24 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/81841485.shtml)
+- 2026-06-30 01:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/129499379.shtml)
+- 2026-06-30 01:26 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/53318471.shtml)
+- 2026-06-30 01:25 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/977245788.shtml)
+- 2026-06-30 01:29 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/34892.shtml)
+- 2026-06-30 01:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/94675.shtml)
+- 2026-06-30 01:46 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/18072459.shtml)
+- 2026-06-30 01:47 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/7173974391.shtml)
+- 2026-06-30 01:41 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/7351146542.shtml)
+- 2026-06-30 01:35 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/868433240540.shtml)
+- 2026-06-30 01:47 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/270831.shtml)
+- 2026-06-30 01:47 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/859536.shtml)

@@ -1,51 +1,58 @@
-# 富瑞：降阿里巴巴-W目标价至179港元 料MaaS为未来五年关键增长动力
+# 天舟十号“送货”清单公布 41项实验物资将抵达中国空间站
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-富瑞发布研报称，预期阿里巴巴-W（09988）的云业务将继续强劲增长，并在3月季度加速。该行认为，模型即服务（MaaS）是未来五年的关键增长动力，近期推出的Happy Horse（文生视频）取得成功。此外，在即时零售（QC）方面，三月季度亏损持续改善，预计2027财年亏损将比2026财年减少一半； 但预测其他业务的亏损将增加。维持对阿里的“买入”评级，阿里（BABA.US）美股
+今天(11日)，天舟十号货运飞船在海南文昌航天发射场成功发射升空。本次任务随飞船上行的物资涵盖实验载荷、实验单元及样品、实验耗材等共67件，总重量约768公斤。这批物资送达中国空间站后，将及时转运安置，后续将依托空间站实验设施，分批开展空间生命科学与生物技术、微重力物理科学、空间应用新技术、空间天文与地球科学等领域的41项在轨科学实验项目。构建太空胚胎研究链条 为深空探索筑牢生
 
 ## 正文
 
-富瑞发布研报称，预期阿里巴巴-W（09988）的云业务将继续强劲增长，并在3月季度加速。
+今天(11日)，天舟十号货运飞船在海南文昌航天发射场成功发射升空。
 
-该行认为，模型即服务（MaaS）是未来五年的关键增长动力，近期推出的Happy Horse（文生视频）取得成功。
+本次任务随飞船上行的物资涵盖实验载荷、实验单元及样品、实验耗材等共67件，总重量约768公斤。
 
-此外，在即时零售（QC）方面，三月季度亏损持续改善，预计2027财年亏损将比2026财年减少一半； 但预测其他业务的亏损将增加。
+这批物资送达中国空间站后，将及时转运安置，后续将依托空间站实验设施，分批开展空间生命科学与生物技术、微重力物理科学、空间应用新技术、空间天文与地球科学等领域的41项在轨科学实验项目。
 
-维持对阿里的“买入”评级，阿里（BABA.US）美股目标价由212美元下调至185美元，港股目标价从206港元下调至179港元。
+构建太空胚胎研究链条 为深空探索筑牢生命保障 随着天舟十号上行，我国空间应用系统将搭建起覆盖低等脊椎动物到高等哺乳动物的完整太空胚胎研究链条，通过多项核心实验，破解太空环境对生命孕育影响的密码，为人类长期驻留太空提供关键生命保障。
 
-责任编辑：史丽君
+随着人类太空探索的脚步不断延伸，在空间环境中能不能孕育生命成为大家关注的焦点。
+
+天舟十号任务将搭建起一套完整的太空胚胎研究体系，稳步推进系统性“空间胚胎发育”研究。
+
+本次任务中将重点开展5项空间生命科学实验，主要研究太空环境如何损伤哺乳动物早期胚胎、失重环境下骨骼丢失和心肌变化的调控机制、空间环境下人类“人工胚胎”的构建与发育等关键问题。
+
+这些研究与太空探索息息相关，未来人类若想长期驻留太空甚至实现星际移民，必须解决太空环境下的生殖和健康保障问题。
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 01:45 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 01:22 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 01:26 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-30 01:45 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 01:35 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 01:34 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 01:41 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 01:37 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 01:41 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 01:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 01:33 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 01:31 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 01:27 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 01:52 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 01:31 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 01:46 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 01:37 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 01:27 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 01:52 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 01:44 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 01:24 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 01:48 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:38 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/4716444385.shtml)
-- 2026-06-30 01:21 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/653268739.shtml)
-- 2026-06-30 01:30 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/95552493636.shtml)
-- 2026-06-30 01:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/992474030.shtml)
-- 2026-06-30 01:25 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/931142016202.shtml)
-- 2026-06-30 01:20 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/109990347034.shtml)
-- 2026-06-30 01:44 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/252628332.shtml)
-- 2026-06-30 01:37 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/79350.shtml)
-- 2026-06-30 01:32 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/33664.shtml)
-- 2026-06-30 01:43 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/47867079.shtml)
-- 2026-06-30 01:45 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/14455621.shtml)
-- 2026-06-30 01:38 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/381514.shtml)
-- 2026-06-30 01:18 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/7265864243.shtml)
-- 2026-06-30 01:47 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/154825052.shtml)
-- 2026-06-30 01:39 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/88316930064.shtml)
+- 2026-06-30 01:39 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/172187742.shtml)
+- 2026-06-30 01:46 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/22011547378.shtml)
+- 2026-06-30 01:34 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/3544595177.shtml)
+- 2026-06-30 01:25 - [毒液2](http://www.blog.minike.top/Article/details/121736675832.shtml)
+- 2026-06-30 01:40 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/751249776638.shtml)
+- 2026-06-30 01:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/32205552.shtml)
+- 2026-06-30 01:38 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/2439456197.shtml)
+- 2026-06-30 01:27 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/735611.shtml)
+- 2026-06-30 01:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/4250010920.shtml)
+- 2026-06-30 01:35 - [金刚川](http://www.share.kurohicncr.top/Article/details/89657764238.shtml)
+- 2026-06-30 01:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/47406.shtml)
+- 2026-06-30 01:47 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/330214988.shtml)
+- 2026-06-30 01:50 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/509627124157.shtml)
+- 2026-06-30 01:47 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/88572.shtml)
+- 2026-06-30 01:33 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/198807.shtml)

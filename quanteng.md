@@ -1,59 +1,57 @@
-# 翔楼新材定增注册获同意 拟于深交所上市
+# 光大证券，离头部券商越来越远
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中国上市公司网讯4月8日，深交所官网显示，苏州翔楼新材料股份有限公司(股票简称：翔楼新材，股票代码：301160)向特定对象发行股票申请获得中国证监会同意注册的批复。公司本次向特定对象发行股票数量为2,000,000股，拟于深交所创业板上市。翔楼新材是一家精密冲压新材料和解决方案供应商，专注于定制化精密冲压新材料的研发、生产和销售，产品包括汽车零部件用的精冲材料，应用范围覆盖汽
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源丨腾讯财经 文 | 王立广 编辑 | 刘鹏 2025年，A股市场走出了一轮资产重估行情，上证指数全年上涨18.41%，创业板指更是大涨近50%。在资本市场活跃的市场环境下，券商行业普遍交出了营收利润双增的成绩单。数据显示，上市券商在2025年营业收入超过百亿元的有16家，较2024年增加5家，其中光大证
 
 ## 正文
 
-中国上市公司网讯4月8日，深交所官网显示，苏州翔楼新材料股份有限公司(股票简称：翔楼新材，股票代码：301160)向特定对象发行股票申请获得中国证监会同意注册的批复。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-公司本次向特定对象发行股票数量为2,000,000股，拟于深交所创业板上市。
+来源丨腾讯财经 文 | 王立广 编辑 | 刘鹏 2025年，A股市场走出了一轮资产重估行情，上证指数全年上涨18.41%，创业板指更是大涨近50%。
 
-翔楼新材是一家精密冲压新材料和解决方案供应商，专注于定制化精密冲压新材料的研发、生产和销售，产品包括汽车零部件用的精冲材料，应用范围覆盖汽车安全系统、座椅系统、内饰系统及动力系统等结构件及功能件。
+在资本市场活跃的市场环境下，券商行业普遍交出了营收利润双增的成绩单。
 
-公司也持续关注国家需要和市场紧缺的高端金属材料领域，重点在轴承、机器人等领域进行高端化、差异化、精细化布局。
+数据显示，上市券商在2025年营业收入超过百亿元的有16家，较2024年增加5家，其中光大证券重新回到百亿营收阵营。
 
-公司产品需结合下游客户产品的功能特性、使用环境、加工工艺等进行定制化研发方案设计，经试制后确定差异化的生产工艺路线，并进行批量生产、销售。
+财报显示，2025年，光大证券实现营业收入108.52亿元，同比增加13.06%；实现净利润37.24亿元，同比增加21.77%。
 
-公司作为定制化精密冲压材料领域的高新技术企业，采取自主研发为主、合作开发为辅相结合的协同创新研发模式，注重工艺积累与技术创新。
+总资产规模达到3181.14亿元，较2024年末增长8.59%；归属于母公司股东的权益为719.24亿元，同比增长5.17%。
 
-国家工信部授予公司国家级“专精特新小巨人”称号，公司先后被认定为苏州市企业技术中心、苏州市工程技术研究中心、江苏省企业技术中心、江苏省工程技术研究中心、苏州市工业设计中心，并获“江苏省民营科技企业”、“苏州市服务型制造企业”、“吴江区领军人才企业”、“吴江区百强企业”、“吴江区纳税大户”、“慈善明星企业”等称号。
+2025年是券商行业业绩大爆发的一年，中信证券营收增长28.79%，净利润增长38.58%；中金公司营收增长33.50%，净利润大增71.93%；广发证券营收增长34.33%，净利润增长42.18%。
 
-公司已与舍弗勒、慕贝尔、麦格纳、佛吉亚、法雷奥、普思信、法因图尔、富临精工、上海沿浦等多家国内外知名汽车零部件供应商建立了长期稳定合作关系，间接配套特斯拉、比亚迪、问界、理想、蔚来、小米、奔驰、奥迪、宝马等知名汽车品牌。
+相较之下，光大证券营收和净利润增速相对明显偏弱，呈现落后态势。
 
 ## 相关推荐
 
-- 2026-06-30 01:43 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 01:33 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 01:46 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 01:28 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-30 01:32 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 01:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 01:46 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 01:41 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 01:45 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 01:47 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 01:36 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 01:41 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 01:18 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 01:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 01:26 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 01:27 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 01:30 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 01:45 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 01:53 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 01:29 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 01:48 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 01:43 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 01:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 01:42 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:28 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/808485016.shtml)
-- 2026-06-30 01:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/21119584.shtml)
-- 2026-06-30 01:27 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/017237.shtml)
-- 2026-06-30 01:36 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/823103545.shtml)
-- 2026-06-30 01:36 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/42043875251.shtml)
-- 2026-06-30 01:30 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/2838837362.shtml)
-- 2026-06-30 01:39 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/183891963.shtml)
-- 2026-06-30 01:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/248727072.shtml)
-- 2026-06-30 01:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/8547276273.shtml)
-- 2026-06-30 01:22 - [美人鱼](https://www.blog.minike.top/Article/details/88128774.shtml)
-- 2026-06-30 01:28 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/3687484.shtml)
-- 2026-06-30 01:19 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/43161513337.shtml)
-- 2026-06-30 01:24 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/5972879.shtml)
-- 2026-06-30 01:44 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/6438150.shtml)
-- 2026-06-30 01:44 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/9522655722.shtml)
+- 2026-06-30 01:34 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/740361329767.shtml)
+- 2026-06-30 01:38 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/94814904.shtml)
+- 2026-06-30 01:52 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/1839194.shtml)
+- 2026-06-30 01:44 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/155463.shtml)
+- 2026-06-30 01:34 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/118750069.shtml)
+- 2026-06-30 01:45 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/920954201.shtml)
+- 2026-06-30 01:29 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/74504.shtml)
+- 2026-06-30 01:41 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/552595558.shtml)
+- 2026-06-30 01:44 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/83333157848.shtml)
+- 2026-06-30 01:39 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/328954702953.shtml)
+- 2026-06-30 01:24 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/31265.shtml)
+- 2026-06-30 01:37 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/52274678534.shtml)
+- 2026-06-30 01:53 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/124769.shtml)
+- 2026-06-30 01:30 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/08475371151.shtml)
+- 2026-06-30 01:46 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/60781521084.shtml)

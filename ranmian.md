@@ -1,55 +1,59 @@
-# 凯盛新能盘中一度涨超19% 玻璃基板成AI算力封装新赛道
+# 捷克央行发布最新经济预测，称将视能源价格走势灵活调整货币政策
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-凯盛新能（01108）盘中一度涨超19%，高见4.42港元，公司A股涨停。截至发稿，股价上涨8.63%，现报4.03港元，成交额1.35亿港元。 根据半导体产业纵横报道，玻璃基板行业正经历从技术验证向早期量产的关键转折，2026年有望成为玻璃基板小批量商业化出货的节点。据证券时报·数据宝统计，A股市场上合计有22只玻璃基板概念股。其中，凯盛新能等个股机构一致预测今明两年净利增速
+捷克国家银行（CNB）当地时间11日在与分析师举行的会议上发布最新经济预测报告，提出基于能源价格波动的多种政策预案。捷克央行官员强调，尽管中东冲突导致国际油价走高并带来通胀风险，但央行目前仍处于“舒适区间”，暂无急于收紧货币政策的压力。 捷克央行上周四投票决定维持基准利率在3.50%不变。尽管其基准预测显示本季度市场利率或有约50个基点的上行空间，但决策层在此次会议上重申了审慎
 
 ## 正文
 
-凯盛新能（01108）盘中一度涨超19%，高见4.42港元，公司A股涨停。
+捷克国家银行（CNB）当地时间11日在与分析师举行的会议上发布最新经济预测报告，提出基于能源价格波动的多种政策预案。
 
-截至发稿，股价上涨8.63%，现报4.03港元，成交额1.35亿港元。
+捷克央行官员强调，尽管中东冲突导致国际油价走高并带来通胀风险，但央行目前仍处于“舒适区间”，暂无急于收紧货币政策的压力。
 
-根据半导体产业纵横报道，玻璃基板行业正经历从技术验证向早期量产的关键转折，2026年有望成为玻璃基板小批量商业化出货的节点。
+捷克央行上周四投票决定维持基准利率在3.50%不变。
 
-据证券时报·数据宝统计，A股市场上合计有22只玻璃基板概念股。
+尽管其基准预测显示本季度市场利率或有约50个基点的上行空间，但决策层在此次会议上重申了审慎观望的立场。
 
-其中，凯盛新能等个股机构一致预测今明两年净利增速均超100%。
+捷克央行副行长埃娃·扎姆拉齐洛娃在会上指出，与2022年乌克兰危机爆发后的能源价格冲击相比，捷克当前的货币政策环境更为稳健。
 
-责任编辑：卢昱君
+她表示，捷克通胀率已连续两年多接近2%的政策目标，且实际利率维持在正值区间。
+
+扎姆拉齐洛娃强调，央行已做好充分准备，将根据实际需要随时做出政策反应，但目前“不急于加息”。
+
+针对中东地缘政治局势及关键航道安全对全球能源市场的潜在威胁，捷克央行在此次预测中构建了不同的替代情境：若能源价格受冲突影响持续攀升，央行或将不得不转入加息路径；若价格回落，市场利率则存在小幅下调的可能。
 
 ## 相关推荐
 
-- 2026-06-30 01:28 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 01:23 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 01:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 01:30 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 01:28 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 01:27 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 01:38 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 01:27 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 01:31 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 01:47 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-30 01:45 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 01:26 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 01:20 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 01:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 01:48 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 01:35 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 01:48 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 01:36 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 01:35 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 01:34 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 01:27 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 01:32 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 01:31 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 01:26 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 01:25 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 01:48 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:29 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/92383099.shtml)
-- 2026-06-30 01:26 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/71272493914.shtml)
-- 2026-06-30 01:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/06269021039.shtml)
-- 2026-06-30 01:38 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/2257891423.shtml)
-- 2026-06-30 01:32 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/742222.shtml)
-- 2026-06-30 01:19 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/53191.shtml)
-- 2026-06-30 01:19 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/859189762.shtml)
-- 2026-06-30 01:41 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/922933451029.shtml)
-- 2026-06-30 01:37 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/6863116205.shtml)
-- 2026-06-30 01:36 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/382903585.shtml)
-- 2026-06-30 01:47 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/726060041.shtml)
-- 2026-06-30 01:39 - [张凌赫 客串](http://www.share.minike.top/Article/details/228740.shtml)
-- 2026-06-30 01:36 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/3922808786.shtml)
-- 2026-06-30 01:22 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/34691332430.shtml)
-- 2026-06-30 01:21 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/975918186747.shtml)
+- 2026-06-30 01:50 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/15496105600.shtml)
+- 2026-06-30 01:49 - [扬名立万](https://www.share.minike.top/Article/details/71531687941.shtml)
+- 2026-06-30 01:28 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/872276.shtml)
+- 2026-06-30 01:37 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/7526667333.shtml)
+- 2026-06-30 01:25 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/630820660.shtml)
+- 2026-06-30 01:25 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/11730.shtml)
+- 2026-06-30 01:28 - [日本反击率先破门](http://www.share.minike.top/Article/details/100640.shtml)
+- 2026-06-30 01:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/7823398095.shtml)
+- 2026-06-30 01:38 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/02293.shtml)
+- 2026-06-30 01:53 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/6680323.shtml)
+- 2026-06-30 01:53 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/5980295895.shtml)
+- 2026-06-30 01:28 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/970057.shtml)
+- 2026-06-30 01:47 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/6824131.shtml)
+- 2026-06-30 01:52 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/60534557400.shtml)
+- 2026-06-30 01:38 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/5730864.shtml)

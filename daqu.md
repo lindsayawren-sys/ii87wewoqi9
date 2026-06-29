@@ -1,61 +1,59 @@
-# 进境海捕蟹保税仓储项目落地广州黄埔综合保税区
+# “人类命运共同体理念与中国国际关系自主知识体系构建”学术研讨会举行
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网广州4月9日电(许青青 张璐)据黄埔海关9日消息，随着首单1750公斤活雪蟹由广州黄埔综合保税区(下称“黄埔综保区”)8日出区运往境外市场，也标志着进境海捕蟹保税仓储项目也正式在黄埔综保区落地。 雪蟹又称松叶蟹，与帝王蟹、毛蟹并称为“三大名蟹”。这批雪蟹产自太平洋深海，经陆路口岸进境，通过低温保鲜专用车运至黄埔综保区出境水生动物中转场，境外买家确定后再申报出境。黄埔综保区
+中新网北京5月11日电 近日，由人类命运共同体研究中心、中国国际关系学会主办的“人类命运共同体理念与中国国际关系自主知识体系构建”学术研讨会在外交学院举办。 外交部副部长、人类命运共同体研究中心副主任苗得雨出席开幕式并作主旨讲话。来自国内60余家知名高校及科研机构的150余位专家学者出席研讨会，外交学院党委书记、中心秘书长王世廷致辞，外交学院院长、中心副秘书长高飞主持会议。 苗
 
 ## 正文
 
-中新网广州4月9日电(许青青 张璐)据黄埔海关9日消息，随着首单1750公斤活雪蟹由广州黄埔综合保税区(下称“黄埔综保区”)8日出区运往境外市场，也标志着进境海捕蟹保税仓储项目也正式在黄埔综保区落地。
+中新网北京5月11日电 近日，由人类命运共同体研究中心、中国国际关系学会主办的“人类命运共同体理念与中国国际关系自主知识体系构建”学术研讨会在外交学院举办。
 
-雪蟹又称松叶蟹，与帝王蟹、毛蟹并称为“三大名蟹”。
+外交部副部长、人类命运共同体研究中心副主任苗得雨出席开幕式并作主旨讲话。
 
-这批雪蟹产自太平洋深海，经陆路口岸进境，通过低温保鲜专用车运至黄埔综保区出境水生动物中转场，境外买家确定后再申报出境。
+来自国内60余家知名高校及科研机构的150余位专家学者出席研讨会，外交学院党委书记、中心秘书长王世廷致辞，外交学院院长、中心副秘书长高飞主持会议。
 
-黄埔综保区出境水生动物中转场现有10个暂养池，暂养雪蟹4000公斤。
+苗得雨指出，构建人类命运共同体是习近平外交思想的核心理念，是指引世界前行之路的科学罗盘，是新时代中国外交的思想旗帜，是中国式现代化的本质要求，是构建中国国际关系自主知识体系的统领和遵循。
 
-据了解，过去活体水生动物只能在港口清关，资金周转时限短，贸易模式单一。
+人类命运共同体研究中心牵头发起人类命运共同体国内研究合作网络，旨在汇聚全国高校和科研机构力量，围绕学理化阐释和自主知识体系构建开展联合研究、协同攻关和成果共享。
 
-黄埔海关联合广州穗港智造合作区管委会指导属地主管海关研究制定个性化监管方案，创新打造了进境海捕蟹陆运保税仓储转口一体化监管服务模式。
+希望各成员单位提高政治站位、加强理论武装；坚持标志性成果牵引、提升自主知识体系建设集成；坚持开放协同、形成全国学术力量共同参与的研究格局；着力提升国际阐释传播效能，推动人类命运共同体理念更好走向世界；以学理研究反哺政策研究、提升服务中国特色大国外交的资政能力；加强育人聚才、夯实自主知识体系建设的长远基础。
 
-与一般贸易进口完税模式相比，综保区“先仓储、后出境”的保税模式，能有效减少企业成本。
+开幕式上，人类命运共同体国内研究合作网络启动仪式和中心中英文网站上线仪式举行。
 
-广州王大海鲜贸易有限公司在海关指导下，顺利获得出境水生动物中转场注册资格，成为广东省首个在综保区内获批该资质的企业。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:42 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 01:19 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 01:18 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 01:30 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 01:19 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 01:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-30 01:45 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 01:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 01:27 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 01:22 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 01:31 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 01:43 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 01:36 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 01:39 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 01:26 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 01:30 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 01:47 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 01:31 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 01:50 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 01:46 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 01:33 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 01:27 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 01:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 01:30 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 01:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 01:39 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 01:50 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 01:35 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:38 - [电影后室值得看吗](http://www.share.minike.top/Article/details/45650.shtml)
-- 2026-06-30 01:23 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/694221.shtml)
-- 2026-06-30 01:24 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/989723282557.shtml)
-- 2026-06-30 01:32 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/15913475.shtml)
-- 2026-06-30 01:35 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/190343496.shtml)
-- 2026-06-30 01:35 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/563971.shtml)
-- 2026-06-30 01:35 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/8052675.shtml)
-- 2026-06-30 01:47 - [田曦薇没招了](https://www.share.minike.top/Article/details/22248498253.shtml)
-- 2026-06-30 01:43 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/7388362.shtml)
-- 2026-06-30 01:36 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/98108.shtml)
-- 2026-06-30 01:18 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/05725.shtml)
-- 2026-06-30 01:18 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/120792911463.shtml)
-- 2026-06-30 01:35 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/136296.shtml)
-- 2026-06-30 01:40 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/5459546.shtml)
-- 2026-06-30 01:26 - [斗破苍穹](http://www.share.minike.top/Article/details/231946.shtml)
+- 2026-06-30 01:48 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/2059380.shtml)
+- 2026-06-30 01:24 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/198976139946.shtml)
+- 2026-06-30 01:46 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/6741128538.shtml)
+- 2026-06-30 01:44 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/95415460.shtml)
+- 2026-06-30 01:47 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/23616445943.shtml)
+- 2026-06-30 01:41 - [请回答王牌2019](https://www.blog.minike.top/Article/details/692899.shtml)
+- 2026-06-30 01:26 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/1115539788.shtml)
+- 2026-06-30 01:49 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/105370690857.shtml)
+- 2026-06-30 01:29 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/19473.shtml)
+- 2026-06-30 01:43 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/631594.shtml)
+- 2026-06-30 01:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/010027.shtml)
+- 2026-06-30 01:29 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/410735569.shtml)
+- 2026-06-30 01:36 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/66093515.shtml)
+- 2026-06-30 01:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/979277940.shtml)
+- 2026-06-30 01:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/605786297.shtml)

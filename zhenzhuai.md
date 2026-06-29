@@ -1,61 +1,56 @@
-# 女孩玩“拼豆”不幸触电离世！这种加热设备千万别用
+# 以鲜活群像呈演徽墨文化传承 电视剧《家业》定档
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-最近 “拼豆”手工火爆出圈 它的玩法是 排列组合彩色塑料“豆”粒经加热固定成型制成各种创意作品 然而，拼豆背后潜藏的 安全隐患不容忽视 昨天(4月9日) 话题#女孩玩拼豆不幸触电离世# 登上社交平台热搜榜 “拼豆”玩具引发多起事故 今年3月，贵州贵阳一名小女孩玩“拼豆”时，在熨烫环节发生触电事故，经医治无效不幸离世。目前，警方正在对事故具体原因进行调查。 3月中旬，山西运城一名
+中新网北京5月11日电 (记者 高凯)5月11日，徽墨文化传承大剧《家业》官宣定档，将于5月17日登陆CCTV-8黄金档独家电视首播。 电视剧《家业》由徐颐乐任总制片人，惠楷栋、王成欣执导，高璇、任宝茹任文学总监，熊周虎任总编剧，杨紫、韩东君领衔主演，剧集讲述了由于一场贡墨案掀起了徽州墨业格局改变，李墨八房幺女李祯(杨紫 饰)凭借天赋以黑马之姿惊艳徽州墨业，并在与骆墨次子骆文谦
 
 ## 正文
 
-最近 “拼豆”手工火爆出圈 它的玩法是 排列组合彩色塑料“豆”粒经加热固定成型制成各种创意作品 然而，拼豆背后潜藏的 安全隐患不容忽视 昨天(4月9日) 话题#女孩玩拼豆不幸触电离世# 登上社交平台热搜榜 “拼豆”玩具引发多起事故 今年3月，贵州贵阳一名小女孩玩“拼豆”时，在熨烫环节发生触电事故，经医治无效不幸离世。
+中新网北京5月11日电 (记者 高凯)5月11日，徽墨文化传承大剧《家业》官宣定档，将于5月17日登陆CCTV-8黄金档独家电视首播。
 
-目前，警方正在对事故具体原因进行调查。
+电视剧《家业》由徐颐乐任总制片人，惠楷栋、王成欣执导，高璇、任宝茹任文学总监，熊周虎任总编剧，杨紫、韩东君领衔主演，剧集讲述了由于一场贡墨案掀起了徽州墨业格局改变，李墨八房幺女李祯(杨紫 饰)凭借天赋以黑马之姿惊艳徽州墨业，并在与骆墨次子骆文谦(韩东君 饰)屡次交手切磋的过程中，由针锋相对到相知相惜，二人携手共渡难关，再造徽墨传世光彩的故事。
 
-3月中旬，山西运城一名女孩在家玩“拼豆”时，手中的小熨斗突然漏电起火，火花四溅，女孩立刻拔掉电源，手却被烫伤。
+剧集由成功打造《我是刑警》《橙红年代》的徐颐乐担任总制片人，由执导过《鬓边不是海棠红》《我是刑警》的惠楷栋担任导演，荣获过飞天奖、白玉兰奖、金鹰奖等奖项的高璇、任宝茹担任文学总监，《我是刑警》总策划、文学统筹熊周虎担任总编剧。
 
-受伤女孩妈妈表示，“经过这个事情之后觉得挺害怕的，想引起更多的妈妈注意，孩子玩这个玩具的时候操心一点。
+剧集以扎实的笔触塑造出鲜活众生群像，通过将家风、家训、家规等深度融入剧情细节，聚焦徽墨的文化传承。
 
-” “拼豆”玩具 暗藏多种隐患 加热设备电压超标 “拼豆”玩具引发的事故，引起了相关部门注意。
+剧集将徽墨作为贯穿全剧的核心叙事线索，对烧烟、合胶、捶打、晾墨、描金等繁复工序进行完整呈现，并让徽墨制作的每一个环节都与人物命运紧密交织，通过“以戏带文”的叙事策略，让非遗在戏剧冲突和情感共鸣中实现文化传递。
 
-3月下旬以来，贵州省贵阳市市场监管部门在全市范围展开针对“拼豆”玩具的专项检查，发现最严重的问题就是玩具配置的加热设备存在外接电压超标情况。
+在呈现制墨技艺之余，《家业》将徽雕、徽菜、徽剧、徽派建筑、新安画派等自然融入剧情肌理。
 
-在贵阳市南明区某玩具店内，执法人员发现一款“拼豆”玩具，套盒内配有一个外接220伏市电的小熨斗。
+粉墙黛瓦间的祠堂议事、鱼灯游曳中的节庆民俗、古村落里的生活日常，皆成为故事中不可或缺的一角。
 
-根据我国《电玩具的安全》国家标准，玩具应为电池玩具、变压器玩具或者双电源玩具，其供电电压不应超过24伏。
+该剧定档当天发布的“墨起”版定档预告以墨规、墨技、墨法、墨道为筋骨，层层晕染开一幅关于传承、坚守与新生的徽墨长卷。
 
 ## 相关推荐
 
-- 2026-06-30 01:18 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 01:26 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 01:35 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 01:46 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 01:39 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 01:29 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 01:47 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 01:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 01:39 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 01:43 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 01:38 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 01:29 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 01:26 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 01:22 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 01:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 01:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 01:52 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 01:36 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 01:49 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 01:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 01:51 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 01:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 01:37 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 01:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 01:46 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:29 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/97197880070.shtml)
-- 2026-06-30 01:33 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/41789.shtml)
-- 2026-06-30 01:37 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/290728592.shtml)
-- 2026-06-30 01:21 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/1662201.shtml)
-- 2026-06-30 01:23 - [世界杯](https://www.share.minike.top/Article/details/666694.shtml)
-- 2026-06-30 01:33 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/590273049853.shtml)
-- 2026-06-30 01:23 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/862667028937.shtml)
-- 2026-06-30 01:38 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/077443.shtml)
-- 2026-06-30 01:23 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/970901.shtml)
-- 2026-06-30 01:32 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/395672.shtml)
-- 2026-06-30 01:23 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/72794271571.shtml)
-- 2026-06-30 01:36 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/546903004.shtml)
-- 2026-06-30 01:21 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/4739858.shtml)
-- 2026-06-30 01:39 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/477551413424.shtml)
-- 2026-06-30 01:43 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/6135140.shtml)
+- 2026-06-30 01:29 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/66713326.shtml)
+- 2026-06-30 01:29 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/12893720262.shtml)
+- 2026-06-30 01:34 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/01123753639.shtml)
+- 2026-06-30 01:50 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/10888326.shtml)
+- 2026-06-30 01:48 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/96102191.shtml)
+- 2026-06-30 01:40 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/75110680.shtml)
+- 2026-06-30 01:34 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/34822594513.shtml)
+- 2026-06-30 01:40 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/55619.shtml)
+- 2026-06-30 01:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/369769500409.shtml)
+- 2026-06-30 01:40 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/24791379264.shtml)
+- 2026-06-30 01:34 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/325453.shtml)
+- 2026-06-30 01:49 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/9522730.shtml)
+- 2026-06-30 01:53 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/53537039762.shtml)
+- 2026-06-30 01:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/618288.shtml)
+- 2026-06-30 01:53 - [世界杯](https://www.blog.minike.top/Article/details/33974.shtml)

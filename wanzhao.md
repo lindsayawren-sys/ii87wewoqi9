@@ -1,56 +1,61 @@
-# 突然！超190亿，“跑了”
+# 伊朗和谈陷入僵局，欧洲股市涨跌分化、国防板块走低
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【导读】昨日股票ETF资金净流出超192亿元 中国基金报记者 曹雯璟 4月9日，A股三大指数全线收跌，CPO、稀土、光纤概念股轮番演绎。股票ETF资金净流出超192亿元，化工、创新药、黄金、通信等热门主题ETF成为“吸金”大户，中证500指数、中证1000指数、沪深300指数相关宽基ETF成为“失血”大户。
+周一欧洲股市走势分化，投资者正在消化美伊和平谈判陷入最新僵局带来的影响。 伦敦时间上午 8 点 40 分过后不久，欧洲斯托克 600 指数在平盘线上下震荡徘徊。 欧洲各大板块整体涨跌不一。伦敦、米兰股市走高，而法兰克福与巴黎股市则收跌走弱。 中东和平谈判如今陷入僵局，欧洲国防股应声回落。 德国国防巨头莱茵金属（Rheinmetall）下跌 3.6%，坦克零部件制造商Renk跌
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+周一欧洲股市走势分化，投资者正在消化美伊和平谈判陷入最新僵局带来的影响。
 
-【导读】昨日股票ETF资金净流出超192亿元 中国基金报记者 曹雯璟 4月9日，A股三大指数全线收跌，CPO、稀土、光纤概念股轮番演绎。
+伦敦时间上午 8 点 40 分过后不久，欧洲斯托克 600 指数在平盘线上下震荡徘徊。
 
-股票ETF资金净流出超192亿元，化工、创新药、黄金、通信等热门主题ETF成为“吸金”大户，中证500指数、中证1000指数、沪深300指数相关宽基ETF成为“失血”大户。
+欧洲各大板块整体涨跌不一。
 
-昨日股票ETF资金净流出超192亿元 4月9日，A股三大指数震荡调整，截至收盘，沪指跌0.72%，深成指跌0.33%，创业板指跌0.73%。
+伦敦、米兰股市走高，而法兰克福与巴黎股市则收跌走弱。
 
-从板块上看，旅游、软件开发、医药商业、保险等板块跌幅居前；CPO、稀土、光纤概念、激光雷达等板块涨幅居前。
+中东和平谈判如今陷入僵局，欧洲国防股应声回落。
 
-4月9日，全市场股票ETF（含跨境ETF）资金净流出192.90亿元。
+德国国防巨头莱茵金属（Rheinmetall）下跌 3.6%，坦克零部件制造商Renk跌 3.2%；意大利国防龙头Leonardo大跌 4.4%，德国Hensoldt暴跌 3.4%，英国航空航天巨头巴布科克国际（Babcock International）下滑 3.5%。
 
-从大类型来看，宽基ETF净流出居前，达168.76亿元；规模变化方面，宽基ETF规模下降259.08亿元。
+此次反转发生之际，美国总统唐纳德・特朗普宣称伊朗提出的结束中东战争的反建议 “不可接受”。
 
-具体到指数维度，中证1000指数单日净流出居前，达41.96亿元。
+伊朗半官方的塔斯尼姆通讯社援引知情人士消息称，谈判代表已收到伊朗对美方和谈提议的回应，德黑兰政权要求全面结束各战线战争并解除对伊制裁。
 
 ## 相关推荐
 
-- 2026-06-30 01:28 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 01:38 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 01:33 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 01:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 01:35 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 01:33 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 01:36 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 01:31 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 01:37 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 01:20 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 01:43 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 01:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 01:37 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 01:26 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 01:40 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 01:51 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 01:34 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 01:28 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 01:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 01:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 01:41 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 01:29 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 01:47 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 01:24 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 01:44 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/77734022268.shtml)
-- 2026-06-30 01:28 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/74450184736.shtml)
-- 2026-06-30 01:30 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/576775.shtml)
-- 2026-06-30 01:26 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/0845901096.shtml)
-- 2026-06-30 01:21 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/8083678816.shtml)
-- 2026-06-30 01:29 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/58945327.shtml)
-- 2026-06-30 01:28 - [把邻居裸体发群算维权还是侵权](http://www.share.minike.top/Article/details/620149533.shtml)
-- 2026-06-30 01:18 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/514762633.shtml)
-- 2026-06-30 01:45 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/30967409.shtml)
-- 2026-06-30 01:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/3923839.shtml)
-- 2026-06-30 01:42 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/4248462.shtml)
-- 2026-06-30 01:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/6088785346.shtml)
-- 2026-06-30 01:25 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/35408688947.shtml)
-- 2026-06-30 01:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/68448.shtml)
-- 2026-06-30 01:28 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/3751704193.shtml)
+- 2026-06-30 01:51 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/822953034751.shtml)
+- 2026-06-30 01:25 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/193032.shtml)
+- 2026-06-30 01:35 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/3695422.shtml)
+- 2026-06-30 01:27 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/368951260.shtml)
+- 2026-06-30 01:32 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/83850361.shtml)
+- 2026-06-30 01:38 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/952328.shtml)
+- 2026-06-30 01:36 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/2411708615.shtml)
+- 2026-06-30 01:28 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/750172533466.shtml)
+- 2026-06-30 01:30 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/396598.shtml)
+- 2026-06-30 01:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/477984329.shtml)
+- 2026-06-30 01:48 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/842544942742.shtml)
+- 2026-06-30 01:24 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/86602325832.shtml)
+- 2026-06-30 01:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/653214810280.shtml)
+- 2026-06-30 01:47 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/87241.shtml)
+- 2026-06-30 01:29 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/079367958995.shtml)

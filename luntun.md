@@ -1,59 +1,56 @@
-# 酒价内参4月9日价格发布，飞天茅台下跌4元
+# 广州民族宗教界聚力共建绿美广州
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月9日延续回调走势。如果主要单品各取一瓶整体打包售卖，今日总售价为9924元，较昨日下跌9元，创下近13天以来新低。市场涨跌分化特征延续，价格在低位区间反复波动，短期仍以震荡整理为主。 今日白酒市场11大单品四涨五跌二平。上涨方面，洋河梦之蓝M6+上涨6元/瓶，渠道补货带动价格修复；青花汾20
+中新网广州5月9日电 (记者 蔡敏婕)“穗同心·共筑绿美广州”——广州市民族宗教界“同心林”植树活动暨流花湖公园民族同心园揭幕活动9日在广州越秀举行。 活动现场气氛热烈，大家分工协作、默契配合，种植了象征民族团结的石榴树以及各类乡土树种，如凤凰木、樟树等，为流花湖增添了一抹浓浓的绿意。 活动期间还举行流花湖公园“民族同心园”揭幕仪式，同心园内的中华纹样展以图文并茂的方式，展示了
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月9日延续回调走势。
+中新网广州5月9日电 (记者 蔡敏婕)“穗同心·共筑绿美广州”——广州市民族宗教界“同心林”植树活动暨流花湖公园民族同心园揭幕活动9日在广州越秀举行。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9924元，较昨日下跌9元，创下近13天以来新低。
+活动现场气氛热烈，大家分工协作、默契配合，种植了象征民族团结的石榴树以及各类乡土树种，如凤凰木、樟树等，为流花湖增添了一抹浓浓的绿意。
 
-市场涨跌分化特征延续，价格在低位区间反复波动，短期仍以震荡整理为主。
+活动期间还举行流花湖公园“民族同心园”揭幕仪式，同心园内的中华纹样展以图文并茂的方式，展示了中华传统纹样等中华文化符号。
 
-今日白酒市场11大单品四涨五跌二平。
+广州市委常委、统战部部长王焕清表示，本次活动是广州市民族宗教界积极响应美丽中国和绿美广东生态建设号召，共植“同心林”、共建美好家园的实际举措。
 
-上涨方面，洋河梦之蓝M6+上涨6元/瓶，渠道补货带动价格修复；青花汾20上涨4元/瓶；五粮液普五八代上涨3元/瓶；习酒君品上涨2元/瓶。
+希望大家以此次活动为新起点，进一步铸牢中华民族共同体意识，进一步坚持我国宗教中国化方向，始终同心同德、同向同行，把每个人的智慧、每个团体的力量，汇聚到广州发展的大局中来。
 
-下跌方面，青花郎跌幅居前，下调7元/瓶，连续第二天自高位回探；精品茅台下跌6元/瓶；飞天茅台与国窖1573均下跌4元/瓶；古井贡古20下跌3元/瓶。
+参与活动的民族宗教界人士表示，将以此次活动为契机，牢记生态使命、厚植绿美根基，也希望全市各族群众进一步铸牢中华民族共同体意识，同心同向、携手同行。
 
-五粮液1618及水晶剑南春价格环比保持不变。
+据了解，去年以来，广州民族宗教界持续开展“同心林”植树工作，建设绿美宗教活动场所，先后共计种植95片、7000余棵树木，将生态建设与中华民族共有精神家园建设紧密相连。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+各类“同心林”不仅成为植绿护绿的生态阵地，更成为促进民族团结进步、推动我国宗教中国化实践的特色窗口。
 
 ## 相关推荐
 
-- 2026-06-30 01:40 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 01:47 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 01:20 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 01:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 01:23 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 01:28 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 01:26 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 01:38 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 01:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 01:34 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 01:46 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 01:43 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 01:42 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 01:26 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 01:40 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 01:53 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 01:44 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 01:38 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 01:42 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 01:44 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 01:46 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 01:40 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 01:39 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:21 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/90441048501.shtml)
-- 2026-06-30 01:18 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/22152744.shtml)
-- 2026-06-30 01:36 - [房价什么时候能涨](http://www.share.minike.top/Article/details/098929.shtml)
-- 2026-06-30 01:36 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/74179.shtml)
-- 2026-06-30 01:38 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/65540211.shtml)
-- 2026-06-30 01:24 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/679690423.shtml)
-- 2026-06-30 01:46 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/2116820.shtml)
-- 2026-06-30 01:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/2059433612.shtml)
-- 2026-06-30 01:23 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/16783649657.shtml)
-- 2026-06-30 01:45 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/97176.shtml)
-- 2026-06-30 01:21 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/60637177.shtml)
-- 2026-06-30 01:38 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/71283283.shtml)
-- 2026-06-30 01:44 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/56388034.shtml)
-- 2026-06-30 01:38 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/5534632782.shtml)
-- 2026-06-30 01:22 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/2953037.shtml)
+- 2026-06-30 01:48 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/0506500449.shtml)
+- 2026-06-30 01:41 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/19630536.shtml)
+- 2026-06-30 01:38 - [斗破苍穹](http://www.share.minike.top/Article/details/487757304.shtml)
+- 2026-06-30 01:50 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/0210299358.shtml)
+- 2026-06-30 01:39 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/14210650180.shtml)
+- 2026-06-30 01:53 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/538876555839.shtml)
+- 2026-06-30 01:32 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/87079332.shtml)
+- 2026-06-30 01:48 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/35934173377.shtml)
+- 2026-06-30 01:49 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/00434.shtml)
+- 2026-06-30 01:46 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/8448809.shtml)
+- 2026-06-30 01:54 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/43963279403.shtml)
+- 2026-06-30 01:39 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/38462281.shtml)
+- 2026-06-30 01:25 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/8647801.shtml)
+- 2026-06-30 01:24 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/32997913.shtml)
+- 2026-06-30 01:43 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/85034693.shtml)

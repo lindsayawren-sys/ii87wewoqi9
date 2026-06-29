@@ -1,53 +1,45 @@
-# 美媒：8日仅有4艘船只获准通过霍尔木兹海峡
+# 中远海发于5月8日斥资408.85万元回购150万股A股
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网4月9日电 据美国《华尔街日报》8日援引标普全球市场财智公司的数据报道称，美国和伊朗宣布停火后，8日仅有4艘船只获准通过霍尔木兹海峡，是4月份以来最少的一天。而在美伊战事开始以前，每天有超过100艘船通过霍尔木兹海峡。 报道称，在这条重要水道外等待通行的船只已严重拥堵，包括超过425艘油轮，以及近20艘液化天然气运输船。停火协议并不意味着这条航道能在短期内恢复正常。
+中远海发（02866）发布公告，于2026年5月8日，该公司斥资408.85万元回购150万股A股。责任编辑：卢昱君
 
 ## 正文
 
-中新网4月9日电 据美国《华尔街日报》8日援引标普全球市场财智公司的数据报道称，美国和伊朗宣布停火后，8日仅有4艘船只获准通过霍尔木兹海峡，是4月份以来最少的一天。
+中远海发（02866）发布公告，于2026年5月8日，该公司斥资408.85万元回购150万股A股。
 
-而在美伊战事开始以前，每天有超过100艘船通过霍尔木兹海峡。
-
-报道称，在这条重要水道外等待通行的船只已严重拥堵，包括超过425艘油轮，以及近20艘液化天然气运输船。
-
-停火协议并不意味着这条航道能在短期内恢复正常。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:32 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 01:32 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 01:25 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 01:31 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 01:41 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 01:37 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 01:30 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 01:25 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 01:30 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-30 01:26 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 01:39 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 01:35 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 01:43 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 01:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 01:25 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 01:36 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 01:53 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 01:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 01:49 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 01:40 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 01:37 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 01:24 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 01:50 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 01:53 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 01:30 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 01:42 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/94936821.shtml)
-- 2026-06-30 01:27 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/40295652331.shtml)
-- 2026-06-30 01:43 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/81673998565.shtml)
-- 2026-06-30 01:44 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/343530.shtml)
-- 2026-06-30 01:46 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/6227362065.shtml)
-- 2026-06-30 01:34 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/6156852.shtml)
-- 2026-06-30 01:18 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/2488367156.shtml)
-- 2026-06-30 01:44 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/45491.shtml)
-- 2026-06-30 01:20 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/257865.shtml)
-- 2026-06-30 01:36 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/422065.shtml)
-- 2026-06-30 01:43 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/705190698.shtml)
-- 2026-06-30 01:34 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/76741383031.shtml)
-- 2026-06-30 01:42 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/7097653841.shtml)
-- 2026-06-30 01:42 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/1634054.shtml)
-- 2026-06-30 01:45 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/7463085763.shtml)
+- 2026-06-30 01:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/15034.shtml)
+- 2026-06-30 01:36 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/970930195.shtml)
+- 2026-06-30 01:37 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/82942453.shtml)
+- 2026-06-30 01:48 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/95244422.shtml)
+- 2026-06-30 01:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/87780032834.shtml)
+- 2026-06-30 01:36 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/19817997.shtml)
+- 2026-06-30 01:50 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/1112821809.shtml)
+- 2026-06-30 01:29 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/098039634529.shtml)
+- 2026-06-30 01:45 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/31668.shtml)
+- 2026-06-30 01:40 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/52631763266.shtml)
+- 2026-06-30 01:43 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/25304304.shtml)
+- 2026-06-30 01:50 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/476101361747.shtml)
+- 2026-06-30 01:40 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/9869549139.shtml)
+- 2026-06-30 01:38 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/291805638280.shtml)
+- 2026-06-30 01:32 - [明星大侦探第一季](https://www.share.minike.top/Article/details/39623002.shtml)

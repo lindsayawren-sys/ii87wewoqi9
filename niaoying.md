@@ -1,57 +1,56 @@
-# 沪果协作十五年：从物质帮扶升华为情感共生的系统性工程
+# 合规漏洞百出 乐刷支付八项违法被罚没近844万元！涉违反清算管理规定等
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网上海4月10日电 (记者 陈静)“帮扶理念深刻转变、帮扶路径系统升级、协作机制持续深化，已走过十五个年头的沪果协作，从最初的‘起步摸索’到如今的‘系统深化’，已经发生了根本性变化。”在果洛挂职的上海援青干部徐晓峰10日在此间接受记者采访时表示，最大的升级在于“对口支援”已超越单纯的物质帮扶，升华为理念交融、情感共生的系统性工程。 果洛藏族自治州隶属于青海省，简称“果洛州”
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月9日，中国人民银行深圳市分行行政处罚决定信息公示表显示，乐刷支付科技有限公司被罚没843.95万元。 行政处罚决定书显示，乐刷支付存在以下违法行为： 1．未按照规定根据经营规模和洗钱风险状况配备相应人员； 2．未按照规定开展客户尽职调查； 3．未按照规定对洗钱高风险情形采取相应洗钱风险管理措施； 4．未
 
 ## 正文
 
-中新网上海4月10日电 (记者 陈静)“帮扶理念深刻转变、帮扶路径系统升级、协作机制持续深化，已走过十五个年头的沪果协作，从最初的‘起步摸索’到如今的‘系统深化’，已经发生了根本性变化。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-”在果洛挂职的上海援青干部徐晓峰10日在此间接受记者采访时表示，最大的升级在于“对口支援”已超越单纯的物质帮扶，升华为理念交融、情感共生的系统性工程。
+5月9日，中国人民银行深圳市分行行政处罚决定信息公示表显示，乐刷支付科技有限公司被罚没843.95万元。
 
-果洛藏族自治州隶属于青海省，简称“果洛州”，位于青海省东南部，地处青藏高原腹地、黄河源头。
+行政处罚决定书显示，乐刷支付存在以下违法行为： 1．未按照规定根据经营规模和洗钱风险状况配备相应人员； 2．未按照规定开展客户尽职调查； 3．未按照规定对洗钱高风险情形采取相应洗钱风险管理措施； 4．未按照规定报告可疑交易； 5．为身份不明的客户提供服务、与其进行交易； 6．未按照规定制定、完善交易监测标准； 7．违反商户管理规定； 8．违反清算管理规定。
 
-据悉，十五年来，上海累计在果洛州实施援建项目1097个，投入资金达37.38亿元，其中超80%用于教育、医疗、住房等民生领域。
+中国人民银行深圳市分行对乐刷支付处以警告、通报批评，罚没合计843.95万元的行政处罚。
 
-“对果洛州的帮扶早期聚焦‘补短板、保基本’，建学校、盖医院，解决最紧迫的民生困难。
+同时，时任职于乐刷支付科技有限公司孙某，对乐刷支付“未按照规定根据经营规模和洗钱风险状况配备相应人员”的违法行为负有责任，被罚款5.5万元。
 
-现在，沪果协作重心已从‘输血’向‘造血’深度跃迁，更注重增强果洛州发展的内生动力。
+资料显示，乐刷支付科技有限公司成立于2013年，成立之初即获腾讯等知名机构投资，于2014年取得由中国人民银行颁发的《支付业务许可证》，可在全国范围内开展银行卡收单、移动电话支付业务，并于2019年7月成功续牌。
 
-”身为上海市援青干部联络组产业招商组组长的徐晓峰指出。
+乐刷支付以移动支付业务为基础和核心入口，致力于为各行业商户提供支付平台、商户运营SaaS服务、数据营销、金融科技及人工智能等多层次的智慧服务产品，目前业务遍布全国，合作商户涵盖餐饮、零售、文娱、美容、家装、物流、医疗等多个业，已逐步成为金融科技领域的领先企业。
 
-刚刚参加了2026国际乡村发展创新博览会(下称：2026乡村振兴展)的徐晓峰介绍，果洛州的牦牛、藏羊、藏雪茶、冬虫夏草等特色产品亮相2026乡村振兴展，受到不少关注，生态有机、品质优良、种类丰富的展品吸引不少参观者驻足。
+据不完全统计，2025年，乐刷支付3次共被罚没938.68万元。
 
 ## 相关推荐
 
-- 2026-06-30 01:18 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 01:47 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 01:45 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 01:44 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 01:30 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 01:27 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 01:45 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-30 01:38 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 01:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 01:20 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 01:27 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 01:47 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 01:43 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 01:44 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 01:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 01:50 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-30 01:42 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 01:33 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 01:28 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 01:37 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 01:24 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:27 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/1085093.shtml)
-- 2026-06-30 01:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/1083973870.shtml)
-- 2026-06-30 01:40 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/5582974972.shtml)
-- 2026-06-30 01:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/073121084078.shtml)
-- 2026-06-30 01:24 - [锐评T1零封KC](http://www.share.minike.top/Article/details/6536188.shtml)
-- 2026-06-30 01:25 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/52340.shtml)
-- 2026-06-30 01:37 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/69105.shtml)
-- 2026-06-30 01:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/678202747.shtml)
-- 2026-06-30 01:32 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/66284.shtml)
-- 2026-06-30 01:24 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/91541.shtml)
-- 2026-06-30 01:42 - [绘画区你赢了](http://www.share.minike.top/Article/details/0808130.shtml)
-- 2026-06-30 01:36 - [女心理师](https://www.blog.minike.top/Article/details/51843.shtml)
-- 2026-06-30 01:46 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/762150705.shtml)
-- 2026-06-30 01:28 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/3593563648.shtml)
-- 2026-06-30 01:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/073609063208.shtml)
+- 2026-06-30 01:35 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/922561985792.shtml)
+- 2026-06-30 01:25 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/5477797.shtml)
+- 2026-06-30 01:51 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/70373108.shtml)
+- 2026-06-30 01:31 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/442084031326.shtml)
+- 2026-06-30 01:44 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/409145646.shtml)
+- 2026-06-30 01:40 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/392711118.shtml)
+- 2026-06-30 01:39 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/88198.shtml)
+- 2026-06-30 01:48 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/30038737.shtml)
+- 2026-06-30 01:25 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/437211957698.shtml)
+- 2026-06-30 01:46 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/161533681567.shtml)
+- 2026-06-30 01:47 - [追觅称质量不行终身包修也没意义](http://www.share.minike.top/Article/details/863879914390.shtml)
+- 2026-06-30 01:39 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/377214425.shtml)
+- 2026-06-30 01:49 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/9177677007.shtml)
+- 2026-06-30 01:42 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/086020359.shtml)
+- 2026-06-30 01:27 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/5685836356.shtml)

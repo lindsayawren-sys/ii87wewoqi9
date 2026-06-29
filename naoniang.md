@@ -1,59 +1,56 @@
-# 最新医学研究：基因差异可能影响减重药物疗效及副作用
+# 天目山实验室发布多项低空经济成果
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网北京4月9日电 (记者 孙自法)国际学术期刊《自然》最新发表一篇医学论文称，研究显示，参与肠道激素通路(调控食欲和消化)的两个基因变异，可能有助于解释胰高血糖样肽(GLP1)药物减重结果和副作用的差异。这项研究发现，有望为未来利用遗传信息指导肥胖症治疗方案的选择提供支持。 该论文介绍，GLP1受体激动剂，包括司美格鲁肽(商品名“诺和泰”Ozempic)和替尔泊肽(商品名“
+中新网杭州5月10日电(鲍梦妮)5月10日，天目山实验室低空经济“两新融合”大会暨中国AOPA电动超轻型飞行器创新发展会议在浙江杭州举行。现场，天目山实验室发布多项低空经济相关科创成果。 当前，在中国大力布局发展中大型航空发动机的同时，研发小型涡扇航空发动机、补齐中小型及轻型飞行器动力配套短板，已成为航空产业高质量发展的重要课题。 由天目山实验室先进燃气涡轮推进系统创新团队自主
 
 ## 正文
 
-中新网北京4月9日电 (记者 孙自法)国际学术期刊《自然》最新发表一篇医学论文称，研究显示，参与肠道激素通路(调控食欲和消化)的两个基因变异，可能有助于解释胰高血糖样肽(GLP1)药物减重结果和副作用的差异。
+中新网杭州5月10日电(鲍梦妮)5月10日，天目山实验室低空经济“两新融合”大会暨中国AOPA电动超轻型飞行器创新发展会议在浙江杭州举行。
 
-这项研究发现，有望为未来利用遗传信息指导肥胖症治疗方案的选择提供支持。
+现场，天目山实验室发布多项低空经济相关科创成果。
 
-该论文介绍，GLP1受体激动剂，包括司美格鲁肽(商品名“诺和泰”Ozempic)和替尔泊肽(商品名“穆峰达”Mounjaro)，是模拟天然肠道激素的药物。
+当前，在中国大力布局发展中大型航空发动机的同时，研发小型涡扇航空发动机、补齐中小型及轻型飞行器动力配套短板，已成为航空产业高质量发展的重要课题。
 
-这些药物有助于调节食欲、胰岛素释放和消化，已广泛用于治疗肥胖。
+由天目山实验室先进燃气涡轮推进系统创新团队自主研制的800公斤级双转子小型涡扇发动机(TMS800-850KG级推力涡扇发动机)，弥补了1000公斤推力以下的小型涡扇航空发动机在国内市场的空白。
 
-不过，该药物治疗过程中，为何有些人减重比其他人多、为何有人会出现恶心和呕吐等副作用，机制尚不明确。
+据悉，此套发动机主要面向喷气式公务机、中大型长航时无人机等高端应用平台，其主要设计指标为巡航油耗0.72kg/(kgf/h)、推重比5.7、大修寿命3000小时，整体性能达到国际在役同类先进民用涡扇发动机水平，关键指标优于国内现有同类产品。
 
-在本项研究中，为探寻这些不同结果的潜在遗传基础，论文通讯作者、美国23andMe研究所Adam Auton和同事一起，调查了23andMe上27885名GLP1药物使用者的自我报告数据，开展全基因组关联研究。
+天目山实验室先进燃气涡轮推进系统创新团队负责人王光秋认为，此套发动机的最大亮点在于其是国内首款一吨级涡扇发动机推进系统样机。
 
-他们发现，GLP1受体变异rs10305420与身体质量指数(BMI)降幅略大(减重0.641%)有关，对应携带此变异的人每有一个此变异，比未携带者减重多约0.76千克；另一个变异rs1800437位于胃抑制肽受体基因，与替尔泊肽使用者的药物相关恶心呕吐有关，但与减重幅度不相关。
+他介绍，从国际行业惯例来看，发动机、短舱、飞机分属航空产业不同的研发制造体系。
 
-论文作者认为，本项研究的这些发现表明，药物靶标基因的遗传差异可能会造成人们对GLP1药物的不同反应。
+短舱相当于包裹在发动机外的“房子”，可防止其风吹日晒，减少空气阻力，却一直被国内市场忽略。
 
 ## 相关推荐
 
-- 2026-06-30 01:18 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 01:24 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 01:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 01:25 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 01:18 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 01:43 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 01:34 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 01:21 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 01:45 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 01:23 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 01:25 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 01:29 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 01:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 01:53 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 01:35 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 01:53 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 01:30 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 01:46 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 01:36 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 01:39 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 01:52 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 01:29 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 01:52 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:41 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/261635205.shtml)
-- 2026-06-30 01:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/31310.shtml)
-- 2026-06-30 01:20 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/7858445.shtml)
-- 2026-06-30 01:27 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/3077622.shtml)
-- 2026-06-30 01:42 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/73589.shtml)
-- 2026-06-30 01:46 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/1667055.shtml)
-- 2026-06-30 01:45 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/25437106198.shtml)
-- 2026-06-30 01:33 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/30070.shtml)
-- 2026-06-30 01:18 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/2970957196.shtml)
-- 2026-06-30 01:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/596449043.shtml)
-- 2026-06-30 01:19 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/295321474170.shtml)
-- 2026-06-30 01:21 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/59226935357.shtml)
-- 2026-06-30 01:23 - [恋与深空致歉](https://www.share.minike.top/Article/details/17592.shtml)
-- 2026-06-30 01:44 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/759261.shtml)
-- 2026-06-30 01:46 - [我和我的家乡](https://www.share.minike.top/Article/details/87218244023.shtml)
+- 2026-06-30 01:45 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/322381.shtml)
+- 2026-06-30 01:24 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/6964502055.shtml)
+- 2026-06-30 01:28 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/5335901167.shtml)
+- 2026-06-30 01:36 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/978561211.shtml)
+- 2026-06-30 01:52 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/46094680.shtml)
+- 2026-06-30 01:38 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/96377161.shtml)
+- 2026-06-30 01:53 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/56629.shtml)
+- 2026-06-30 01:28 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/4968653067.shtml)
+- 2026-06-30 01:50 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/57690621027.shtml)
+- 2026-06-30 01:36 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/109427.shtml)
+- 2026-06-30 01:46 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/19758257531.shtml)
+- 2026-06-30 01:48 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/164317975939.shtml)
+- 2026-06-30 01:32 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/4811004.shtml)
+- 2026-06-30 01:30 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/373623.shtml)
+- 2026-06-30 01:36 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/241717362.shtml)

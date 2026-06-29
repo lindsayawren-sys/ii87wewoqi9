@@ -1,60 +1,52 @@
-# 广西启动“放心农资下乡”活动 护农保春耕
+# 景顺长城全球芯片LOF（501225）发停牌公告：因大幅溢价！5月11日自13:00至15:00收市停牌
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网广西北流4月9日电 (杨陈 韦小婷)2026年广西全区“放心农资下乡”现场活动9日在北流市启动。本次活动以“放心农资进乡村，执法护农促振兴”为主题，通过政策宣讲、企业捐赠、执法检查三维联动，将优质农资与监管服务送到田间地头，为春耕生产筑牢“安全防线”。 广西壮族自治区农业农村厅副厅长刘康出席活动时表示，农资安全是“端牢中国饭碗”的关键基石。2025年广西查处假劣农资案件近
+5月11日，景顺长城基金管旗下全球芯片LOF（501225）市场交易价格明显高于基金份额净值，出现较大幅度溢价。2026年5月11日中午收盘，基金二级市场的最新成交价为4.287元，截至2026年5月7日，该基金基金份额净值为2.9178元。 特此郑重提醒广大投资者，应密切关注二级市场交易价格溢价风险，审慎做出投资决策，如盲目投资，后续可能遭受重大损失。为保护投资者利益，全球芯
 
 ## 正文
 
-中新网广西北流4月9日电 (杨陈 韦小婷)2026年广西全区“放心农资下乡”现场活动9日在北流市启动。
+5月11日，景顺长城基金管旗下全球芯片LOF（501225）市场交易价格明显高于基金份额净值，出现较大幅度溢价。
 
-本次活动以“放心农资进乡村，执法护农促振兴”为主题，通过政策宣讲、企业捐赠、执法检查三维联动，将优质农资与监管服务送到田间地头，为春耕生产筑牢“安全防线”。
+2026年5月11日中午收盘，基金二级市场的最新成交价为4.287元，截至2026年5月7日，该基金基金份额净值为2.9178元。
 
-广西壮族自治区农业农村厅副厅长刘康出席活动时表示，农资安全是“端牢中国饭碗”的关键基石。
+特此郑重提醒广大投资者，应密切关注二级市场交易价格溢价风险，审慎做出投资决策，如盲目投资，后续可能遭受重大损失。
 
-2025年广西查处假劣农资案件近千件，集中销毁伪劣产品72吨，有效避免了约120万亩农田因使用伪劣农资造成减产损失；种子、兽药、饲料抽检合格率超99%，农药、肥料抽检合格率超96%，农资市场秩序持续向好。
+为保护投资者利益，全球芯片LOF（501225）将于2026年5月11日下午开市起停牌至当日收市，停牌期间本基金赎回业务照常办理。
 
-刘康称，当前正值春耕关键期，必须聚焦种子、农药、肥料等重点品类，强化“源头治理+执法监管+宣传引导”三措并举，让农民用上“放心种”“良心药”“安心肥”，切实守护粮食安全生命线。
+资风险，由投资者自行负责。
 
-当天活动汇聚了农业农村、公检法、市场监管、供销社等多部门力量，现场设置了农资展示区、普法咨询台、识假辨劣教学点、投诉举报受理台等，通过有奖问答、现场识假体验等互动形式，向民众普及农资辨假知识。
-
-执法人员同步开展经营门店突击检查，重点排查标签不规范、进销台账不全、超范围经营、隐性添加等突出问题。
-
-下一步，广西将以更严密的法治之网织就农资安全屏障，以更务实的惠民举措畅通农资下乡“最后一公里”，以更高效的跨部门协同提升监管穿透力，持续开展“春耕护农”“农资打假”专项行动，切实保障2026年春耕生产安全有序，为粮食增产和乡村振兴提供坚实保障。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 01:39 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 01:24 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 01:28 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 01:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 01:35 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 01:29 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 01:24 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 01:37 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 01:43 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 01:28 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 01:35 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-30 01:30 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 01:30 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 01:46 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 01:46 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 01:34 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 01:27 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 01:45 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 01:43 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 01:36 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 01:44 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 01:40 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 01:49 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:35 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/922851231.shtml)
-- 2026-06-30 01:28 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/97534688195.shtml)
-- 2026-06-30 01:20 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/038366441260.shtml)
-- 2026-06-30 01:22 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/212939442412.shtml)
-- 2026-06-30 01:23 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/9881080.shtml)
-- 2026-06-30 01:23 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/458109.shtml)
-- 2026-06-30 01:43 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/859448.shtml)
-- 2026-06-30 01:45 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/9552601.shtml)
-- 2026-06-30 01:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/93226867.shtml)
-- 2026-06-30 01:23 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/1743584.shtml)
-- 2026-06-30 01:30 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/73540909.shtml)
-- 2026-06-30 01:35 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/956407.shtml)
-- 2026-06-30 01:37 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/237257041.shtml)
-- 2026-06-30 01:35 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/1640432.shtml)
-- 2026-06-30 01:43 - [金刚川](http://www.share.minike.top/Article/details/97790924765.shtml)
+- 2026-06-30 01:27 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/70731.shtml)
+- 2026-06-30 01:48 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/11641207872.shtml)
+- 2026-06-30 01:53 - [天道](https://www.blog.minike.top/Article/details/17716.shtml)
+- 2026-06-30 01:39 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/4467898.shtml)
+- 2026-06-30 01:50 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/2806993.shtml)
+- 2026-06-30 01:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/941177136508.shtml)
+- 2026-06-30 01:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/956593332.shtml)
+- 2026-06-30 01:45 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/778960.shtml)
+- 2026-06-30 01:44 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/88811.shtml)
+- 2026-06-30 01:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/032127.shtml)
+- 2026-06-30 01:27 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/915417.shtml)
+- 2026-06-30 01:50 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/43690921277.shtml)
+- 2026-06-30 01:37 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/57870902.shtml)
+- 2026-06-30 01:35 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/75796623.shtml)
+- 2026-06-30 01:31 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/895764.shtml)

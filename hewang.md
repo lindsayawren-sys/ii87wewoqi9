@@ -1,58 +1,57 @@
-# 德国2月出口额环比增长3.6%
+# 特朗普：预计“很快”收到伊朗对美方最新和平方案的回应
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新社柏林4月9日电 (记者 马秀秀)德国联邦统计局9日公布的数据显示，经工作日和季节性调整后，德国2026年2月出口额为1352亿欧元，环比增长3.6%，显著高于此前经济学家预测的1.0%。 从地区来看，德国对欧盟国家的贸易表现强劲。2月对欧盟国家出口759亿欧元，环比增长5.8%；自欧盟国家进口593亿欧元，增长5.1%。相比之下，对非欧盟国家出口额594亿欧元，仅增长0.
+当地时间5月9日，央视记者获悉，美国总统特朗普表示，他预计“很快”会收到伊朗方面对美国最新和平方案的回应，并称伊朗“非常希望”达成一项持久和平协议。 据悉，特朗普当天在接受一个电话采访时作出上述表态。他表示，伊朗方面仍有意完成和平协议谈判。 特朗普9日在弗吉尼亚州高尔夫球场对媒体表示，美方“预计今晚会收到伊朗来信”，并称将观察事态进展。 当被问及伊朗是否在故意拖延谈判进程时，特
 
 ## 正文
 
-中新社柏林4月9日电 (记者 马秀秀)德国联邦统计局9日公布的数据显示，经工作日和季节性调整后，德国2026年2月出口额为1352亿欧元，环比增长3.6%，显著高于此前经济学家预测的1.0%。
+当地时间5月9日，央视记者获悉，美国总统特朗普表示，他预计“很快”会收到伊朗方面对美国最新和平方案的回应，并称伊朗“非常希望”达成一项持久和平协议。
 
-从地区来看，德国对欧盟国家的贸易表现强劲。
+据悉，特朗普当天在接受一个电话采访时作出上述表态。
 
-2月对欧盟国家出口759亿欧元，环比增长5.8%；自欧盟国家进口593亿欧元，增长5.1%。
+他表示，伊朗方面仍有意完成和平协议谈判。
 
-相比之下，对非欧盟国家出口额594亿欧元，仅增长0.8%；自非欧盟国家进口额562亿欧元，增长4.4%。
+特朗普9日在弗吉尼亚州高尔夫球场对媒体表示，美方“预计今晚会收到伊朗来信”，并称将观察事态进展。
 
-尽管美国仍是德国最大出口市场，但出口明显回落。
+当被问及伊朗是否在故意拖延谈判进程时，特朗普回应称：“我不知道，我们很快就会知道。
 
-2月对美出口额为122亿欧元，环比下降7.5%，同比下降13.3%。
+”（央视记者 曹健） ©2026中央广播电视总台版权所有。
 
-进口方面，2月德国进口额为1154亿欧元，环比增长4.7%。
+未经许可，请勿转载使用。
 
-其中，自中国进口规模最大，达150亿欧元，环比增长6.5%。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 01:43 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 01:42 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-30 01:25 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 01:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 01:46 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 01:34 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 01:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 01:36 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 01:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-30 01:37 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 01:24 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 01:21 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 01:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 01:36 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 01:41 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 01:45 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 01:50 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 01:34 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 01:49 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 01:28 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 01:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 01:53 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 01:39 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/601030669294.shtml)
-- 2026-06-30 01:40 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/218914575910.shtml)
-- 2026-06-30 01:38 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/755267499977.shtml)
-- 2026-06-30 01:29 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/77835.shtml)
-- 2026-06-30 01:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/5959671.shtml)
-- 2026-06-30 01:18 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/03106459.shtml)
-- 2026-06-30 01:46 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/510191447534.shtml)
-- 2026-06-30 01:28 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/147633344037.shtml)
-- 2026-06-30 01:31 - [青春环游记第三季](http://www.share.minike.top/Article/details/21308865.shtml)
-- 2026-06-30 01:46 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/8076144.shtml)
-- 2026-06-30 01:34 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/509556248.shtml)
-- 2026-06-30 01:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/9851673.shtml)
-- 2026-06-30 01:21 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/0185544726.shtml)
-- 2026-06-30 01:46 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/4789882.shtml)
-- 2026-06-30 01:34 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/04973301.shtml)
+- 2026-06-30 01:27 - [85花告别古偶](https://www.share.minike.top/Article/details/88441.shtml)
+- 2026-06-30 01:43 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/94738555177.shtml)
+- 2026-06-30 01:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/200867685.shtml)
+- 2026-06-30 01:27 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/3890623.shtml)
+- 2026-06-30 01:50 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/85149451743.shtml)
+- 2026-06-30 01:37 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/65278.shtml)
+- 2026-06-30 01:26 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/25184069.shtml)
+- 2026-06-30 01:26 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/24624331718.shtml)
+- 2026-06-30 01:32 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/68950.shtml)
+- 2026-06-30 01:24 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/93852973388.shtml)
+- 2026-06-30 01:45 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/09231820.shtml)
+- 2026-06-30 01:41 - [一见倾心](https://www.share.minike.top/Article/details/880519.shtml)
+- 2026-06-30 01:41 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/234569635.shtml)
+- 2026-06-30 01:31 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/2921973.shtml)
+- 2026-06-30 01:37 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/49381.shtml)

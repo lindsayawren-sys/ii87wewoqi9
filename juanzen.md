@@ -1,61 +1,58 @@
-# 保时捷一季度交付量大幅下滑
+# 商业贿赂还是风险补偿？险企被医药折扣难住了
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-最大市场北美交付量下滑 11%，中国市场下滑 21% 作者：多米尼克・乔平 受燃油版 718 系列停产、美国针对电动及混动车型的税收优惠取消等因素影响，保时捷一季度汽车交付量同比下滑 15%。 保时捷表示，纯电版 Macan 于去年一季度上市后销量表现强劲，也导致今年同期数据基数偏高、同比出现偏差。 这家德国豪华跑车制造商周五公布，今年前三个月共交付汽车 60，991 辆，较去
+2026年4月下旬起，吴昊隔三岔五地向公司风控合规部门征求一款商业健康险新产品的改进意见。 作为一家健康险公司产品部业务负责人，他参与设计的这款商业健康险新产品的一大卖点，是打算根据《商业健康保险创新药品目录》，将目录内多款创新药纳入理赔范畴。 风控合规部门提出了不少疑问：能否与药企、医院管理信息系统实现创新药使用数据共享，实现药品流、资金流与信息流的标准化对齐；能否与第三方服
 
 ## 正文
 
-最大市场北美交付量下滑 11%，中国市场下滑 21% 作者：多米尼克・乔平 受燃油版 718 系列停产、美国针对电动及混动车型的税收优惠取消等因素影响，保时捷一季度汽车交付量同比下滑 15%。
+2026年4月下旬起，吴昊隔三岔五地向公司风控合规部门征求一款商业健康险新产品的改进意见。
 
-保时捷表示，纯电版 Macan 于去年一季度上市后销量表现强劲，也导致今年同期数据基数偏高、同比出现偏差。
+作为一家健康险公司产品部业务负责人，他参与设计的这款商业健康险新产品的一大卖点，是打算根据《商业健康保险创新药品目录》，将目录内多款创新药纳入理赔范畴。
 
-这家德国豪华跑车制造商周五公布，今年前三个月共交付汽车 60，991 辆，较去年同期的 71，470 辆有所下降。
+风控合规部门提出了不少疑问：能否与药企、医院管理信息系统实现创新药使用数据共享，实现药品流、资金流与信息流的标准化对齐；能否与第三方服务机构（PTA）建立一站式理赔直付系统；能否收集到特定病症发病率、用药疗程及临床疗效等数据，为保险公司提供精细化费率定价依据。
 
-全球车企近期处境艰难，一方面面临电动化转型遇冷，另一方面还要应对美国关税政策、中国市场竞争白热化及新增奢侈品税政策带来的严峻环境。
+但最令吴昊伤脑筋的，却是药品折扣问题。
 
-保时捷去年曾表示，由于电动车市场接受度偏低，公司将收缩电动化目标，转而扩充燃油车及插电混动车型阵容。
+所谓药品折扣，是保险公司给目录内创新药设定理赔价格时，基于缓解自身赔付压力的考虑，会向药企提出一定比例的药品折扣。
 
-保时捷最大销售区域北美一季度交付量下滑 11%，至 18，344 辆；而中国市场持续承压，交付量大跌 21%，至 7，519 辆。
+为了纳入保险理赔机制，不少药企都同意保险公司的这项诉求。
 
-中国市场走弱，还受 Panamera 车型即将换代的影响。
+在保险公司与药企看来，药品折扣是一项风险共担机制，通过弥补潜在的赔付损失，使得保险公司面对目录里高价创新药“敢承保、赔得起”，从而减轻居民的巨额自费治疗财务压力。
 
-Panamera 在华颇受欢迎，保时捷专为中国市场打造的系列车型将于今年 4 月上市。
+但是，如何给药品折扣一个合规身份，保险业界仍然没有找到妥善的解决方案。
 
 ## 相关推荐
 
-- 2026-06-30 01:45 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 01:39 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 01:39 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 01:27 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 01:44 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 01:18 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 01:43 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 01:24 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 01:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 01:38 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 01:31 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 01:47 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 01:45 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 01:27 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 01:46 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-30 01:43 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 01:28 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 01:28 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 01:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 01:51 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 01:37 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 01:31 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-30 01:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 01:48 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 01:32 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 01:26 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 01:28 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:23 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/86845891510.shtml)
-- 2026-06-30 01:27 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/46916876506.shtml)
-- 2026-06-30 01:39 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/36577643063.shtml)
-- 2026-06-30 01:25 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/209495.shtml)
-- 2026-06-30 01:46 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/371075386760.shtml)
-- 2026-06-30 01:24 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/1838157267.shtml)
-- 2026-06-30 01:40 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/33485811.shtml)
-- 2026-06-30 01:44 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/5330307.shtml)
-- 2026-06-30 01:43 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/445850839.shtml)
-- 2026-06-30 01:36 - [张凌赫 客串](http://www.blog.minike.top/Article/details/152915.shtml)
-- 2026-06-30 01:26 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/4325397.shtml)
-- 2026-06-30 01:39 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/9843705.shtml)
-- 2026-06-30 01:29 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/4953984511.shtml)
-- 2026-06-30 01:25 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/087693.shtml)
-- 2026-06-30 01:37 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/0460370715.shtml)
+- 2026-06-30 01:48 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/49480354330.shtml)
+- 2026-06-30 01:53 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/372227641247.shtml)
+- 2026-06-30 01:41 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/531880432662.shtml)
+- 2026-06-30 01:46 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/28070.shtml)
+- 2026-06-30 01:40 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/462929499038.shtml)
+- 2026-06-30 01:50 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/567168900.shtml)
+- 2026-06-30 01:43 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/0226004.shtml)
+- 2026-06-30 01:29 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/0186259385.shtml)
+- 2026-06-30 01:30 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/56272.shtml)
+- 2026-06-30 01:53 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/83469051.shtml)
+- 2026-06-30 01:42 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/363875.shtml)
+- 2026-06-30 01:30 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/07685.shtml)
+- 2026-06-30 01:32 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/4488940.shtml)
+- 2026-06-30 01:51 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/6275638563.shtml)
+- 2026-06-30 01:53 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/56112028.shtml)

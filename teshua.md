@@ -1,57 +1,59 @@
-# 津冀海关首票跨关区“水水中转”多式联运业务落地
+# 普京召开记者会：俄乌冲突“正接近尾声”
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网石家庄4月9日电 (赵丹媚 杨飞飞)石家庄海关9日消息，一批载有浮法玻璃的集装箱近日从河北秦皇岛港装船启运，经内支线水路直达出境港口天津东疆口岸，换装国际干线船舶后驶向海外。这是津冀海关联合监管的首票跨关区“水水中转”多式联运货物。秦皇岛港新港湾集装箱码头有限公司业务部经理乔峰称，这种“一次申报、一单到底、一次查验”的通关模式，让企业只需在启运地完成一次申报，货物信息即可
+中新网5月10日电 综合外媒报道，当地时间5月9日，俄罗斯总统普京召开记者会，谈及俄乌局势、红场阅兵活动、伊朗战事等多个问题。 ·关于俄乌局势 据塔斯社报道，普京表示，俄方尚未收到乌方任何换俘方案，而且，早在美国总统特朗普作出相关提议前，俄方就已向乌克兰方面提议交换战俘。 普京说，俄方曾向乌方提供一份包含500人的被俘乌克兰士兵名单，“遗憾的是，到目前为止我们尚未收到(乌方)任
 
 ## 正文
 
-中新网石家庄4月9日电 (赵丹媚 杨飞飞)石家庄海关9日消息，一批载有浮法玻璃的集装箱近日从河北秦皇岛港装船启运，经内支线水路直达出境港口天津东疆口岸，换装国际干线船舶后驶向海外。
+中新网5月10日电 综合外媒报道，当地时间5月9日，俄罗斯总统普京召开记者会，谈及俄乌局势、红场阅兵活动、伊朗战事等多个问题。
 
-这是津冀海关联合监管的首票跨关区“水水中转”多式联运货物。
+·关于俄乌局势 据塔斯社报道，普京表示，俄方尚未收到乌方任何换俘方案，而且，早在美国总统特朗普作出相关提议前，俄方就已向乌克兰方面提议交换战俘。
 
-秦皇岛港新港湾集装箱码头有限公司业务部经理乔峰称，这种“一次申报、一单到底、一次查验”的通关模式，让企业只需在启运地完成一次申报，货物信息即可跨关区自动流转，抵达出境港口后无需二次查验，直接换船出境。
+普京说，俄方曾向乌方提供一份包含500人的被俘乌克兰士兵名单，“遗憾的是，到目前为止我们尚未收到(乌方)任何建议。
 
-这一模式的落地，得益于津冀两地海关的深度协同。
+” 谈及与乌克兰总统泽连斯基的会面，普京表示，他既不会主动提出、也不会拒绝。
 
-秦皇岛海关与天津新港海关打破区域壁垒，统一监管标准、打通数据共享链路、简化中转作业流程，实现货物在途信息实时可视、物流风险精准可控。
+普京表示，他不仅愿意在俄首都莫斯科，也愿意在第三国与泽连斯基会面，但他同时强调，会面只可能在双方准备签署协议的阶段实现。
 
-据悉，该模式业务落地后，企业整体通关时间压缩近30%，单箱物流成本下降约15%。
+普京还表示，美国真诚地寻求解决乌克兰问题的办法，“但这主要还是俄罗斯和乌克兰之间的问题”。
 
-石家庄海关口岸监管处副处长褚栋表示，下一步，石家庄海关与天津海关将持续完善关际协同机制，优化“水水中转”“海铁联运”等多式联运监管服务，拓展联运覆盖范围，服务区域产业链供应链韧性提升。
+他补充说，他认为俄乌冲突“正接近尾声”。
 
-(完)
+·关于红场阅兵 普京表示，此次红场阅兵未展示军事装备，不仅出于安全原因，更因为俄军应集中精力彻底击溃敌人。
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 01:38 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 01:22 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 01:31 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 01:35 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 01:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 01:43 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 01:29 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-30 01:30 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 01:39 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 01:30 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 01:46 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 01:46 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 01:31 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 01:32 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 01:24 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 01:28 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 01:36 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 01:33 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 01:26 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 01:40 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 01:43 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 01:46 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 01:39 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:39 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/916570191003.shtml)
-- 2026-06-30 01:36 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/69807520.shtml)
-- 2026-06-30 01:29 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/8273028.shtml)
-- 2026-06-30 01:28 - [天道](https://www.share.kurohicncr.top/Article/details/642323524.shtml)
-- 2026-06-30 01:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/64115.shtml)
-- 2026-06-30 01:45 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/43943.shtml)
-- 2026-06-30 01:46 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/16861199818.shtml)
-- 2026-06-30 01:27 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/82670.shtml)
-- 2026-06-30 01:45 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/452481990137.shtml)
-- 2026-06-30 01:29 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/87447087.shtml)
-- 2026-06-30 01:41 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/59050330.shtml)
-- 2026-06-30 01:38 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/31554989.shtml)
-- 2026-06-30 01:33 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/09406513188.shtml)
-- 2026-06-30 01:27 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/95182.shtml)
-- 2026-06-30 01:19 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/31500.shtml)
+- 2026-06-30 01:51 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/2007105.shtml)
+- 2026-06-30 01:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/81099611.shtml)
+- 2026-06-30 01:33 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/87262129.shtml)
+- 2026-06-30 01:52 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/04321847518.shtml)
+- 2026-06-30 01:34 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/043631247.shtml)
+- 2026-06-30 01:41 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/61342742.shtml)
+- 2026-06-30 01:40 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/6861797.shtml)
+- 2026-06-30 01:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/15628163291.shtml)
+- 2026-06-30 01:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/24798742.shtml)
+- 2026-06-30 01:34 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/388266536088.shtml)
+- 2026-06-30 01:29 - [送你一朵小红花](https://www.blog.minike.top/Article/details/395493165.shtml)
+- 2026-06-30 01:33 - [美人鱼](https://www.share.kurohicncr.top/Article/details/5613448767.shtml)
+- 2026-06-30 01:46 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/47490827077.shtml)
+- 2026-06-30 01:39 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/96364.shtml)
+- 2026-06-30 01:53 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/51742605.shtml)

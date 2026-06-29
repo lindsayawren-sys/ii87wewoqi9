@@ -1,61 +1,57 @@
-# 4月10日美股成交额前20：亚马逊称自研芯片年化营收已超过200亿美元
+# 第十八届“香港杯”外交知识竞赛决赛在港举行 参赛规模创新高
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-周四美股成交额第1名英伟达收高1.02%，成交211.15亿美元。至此，该股已经连续第七个交易日上涨。分析师指出，在经历数月的收益低迷后，英伟达股价再次反弹，并接近突破其窄幅交易区间，这应视为看涨信号。 这家芯片巨头的股价在过去七个交易日中上涨了10%以上，创下自10月以来最长的连涨纪录。在此之前，该股经历了一段较长的停滞期，从2025年9月到上月底，股价基本持平。 BTIG首
+中新网香港5月10日电 (记者 戴小橦)第十八届“香港杯”外交知识竞赛决赛暨颁奖典礼9日在香港举行。本届赛事以“外交担使命 青年创未来”为主题，吸引香港295所中小学、共计88448人报名参赛，参赛人数及赛事规模均创下历届最高。 决赛环节竞争激烈，中学组五强队伍通过抢答竞答、情景模拟等环节展开角逐，最终香港福建中学获得总决赛精英赛金奖，香港明爱屯门马登基金中学、香港拔萃女书院获
 
 ## 正文
 
-周四美股成交额第1名英伟达收高1.02%，成交211.15亿美元。
+中新网香港5月10日电 (记者 戴小橦)第十八届“香港杯”外交知识竞赛决赛暨颁奖典礼9日在香港举行。
 
-至此，该股已经连续第七个交易日上涨。
+本届赛事以“外交担使命 青年创未来”为主题，吸引香港295所中小学、共计88448人报名参赛，参赛人数及赛事规模均创下历届最高。
 
-分析师指出，在经历数月的收益低迷后，英伟达股价再次反弹，并接近突破其窄幅交易区间，这应视为看涨信号。
+决赛环节竞争激烈，中学组五强队伍通过抢答竞答、情景模拟等环节展开角逐，最终香港福建中学获得总决赛精英赛金奖，香港明爱屯门马登基金中学、香港拔萃女书院获得银奖，香港路德会吕明才中学、香港管理专业协会罗桂祥中学获得铜奖。
 
-这家芯片巨头的股价在过去七个交易日中上涨了10%以上，创下自10月以来最长的连涨纪录。
+香港拔萃女书院学生李怡萱斩获个人奖项“最佳台风奖”。
 
-在此之前，该股经历了一段较长的停滞期，从2025年9月到上月底，股价基本持平。
+多位获奖学生表示，参与本次竞赛，让自己对国家外交方针政策有了更系统、更深刻的认知与认同。
 
-BTIG首席市场技术分析师乔纳森·克林斯基表示：“如果英伟达能突破185美元并维持在其上方，我认为资金已准备好重新回流。
+未来将立足所学所长，主动担当对外传播使者，用心讲好中国故事、香港故事，积极融入国家发展大局，以青年之力服务国家外交事业与香港长期繁荣稳定。
 
-其长期趋势依然积极。
+颁奖典礼上，香港特区行政长官李家超致辞表示，这次竞赛不但丰富了同学们的外交知识、提升了分析能力和合作精神，更有助于引导同学们更深刻理解和平、发展、合作与共赢的核心价值。
 
-” 第2名特斯拉收高0.68%，成交210.22亿美元。
+希望同学们把参赛的见闻，融入到日常的学习中，持续关注国际时事，积极了解国家发展，深入思考香港该如何更好融入和服务国家发展大局、深化国际交往合作，成长为民族复兴、国家富强的栋梁之才。
 
 ## 相关推荐
 
-- 2026-06-30 01:18 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 01:44 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 01:44 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 01:18 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 01:30 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 01:45 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 01:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 01:36 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 01:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-30 01:45 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-30 01:36 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-30 01:18 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 01:19 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 01:21 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 01:26 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 01:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 01:35 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 01:44 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 01:29 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 01:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 01:32 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 01:33 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 01:30 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 01:28 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 01:47 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 01:24 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:29 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/27019.shtml)
-- 2026-06-30 01:38 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/701756636937.shtml)
-- 2026-06-30 01:40 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/2591294295.shtml)
-- 2026-06-30 01:30 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/2273537578.shtml)
-- 2026-06-30 01:29 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/31086019.shtml)
-- 2026-06-30 01:19 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/18617527.shtml)
-- 2026-06-30 01:25 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/57550626.shtml)
-- 2026-06-30 01:45 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/73239752391.shtml)
-- 2026-06-30 01:38 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/3751815715.shtml)
-- 2026-06-30 01:21 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/070559.shtml)
-- 2026-06-30 01:20 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/444384583.shtml)
-- 2026-06-30 01:32 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/347243816.shtml)
-- 2026-06-30 01:26 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/544834.shtml)
-- 2026-06-30 01:24 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/403646.shtml)
-- 2026-06-30 01:20 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/2696590.shtml)
+- 2026-06-30 01:35 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/296530.shtml)
+- 2026-06-30 01:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/58261.shtml)
+- 2026-06-30 01:51 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/92891056908.shtml)
+- 2026-06-30 01:50 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/487234.shtml)
+- 2026-06-30 01:36 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/022089606.shtml)
+- 2026-06-30 01:33 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/509815.shtml)
+- 2026-06-30 01:43 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/7028550.shtml)
+- 2026-06-30 01:51 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/5693343167.shtml)
+- 2026-06-30 01:35 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/961986727943.shtml)
+- 2026-06-30 01:31 - [勇敢的心第二部](https://www.share.minike.top/Article/details/075261040606.shtml)
+- 2026-06-30 01:46 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/13295996.shtml)
+- 2026-06-30 01:26 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/96336.shtml)
+- 2026-06-30 01:46 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/89471.shtml)
+- 2026-06-30 01:52 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/545955854085.shtml)
+- 2026-06-30 01:27 - [请回答王牌2019](http://www.blog.minike.top/Article/details/187102.shtml)

@@ -1,56 +1,54 @@
-# 宇树科技和阿里将有出海战略级合作：宇树机器人上手阿里电脑打字 或将落地速卖通
+# 京西国际控股权可能易主立讯精密 5月11日上午起复牌
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-快科技4月9日消息，据申妈的朋友圈今日消息，知情人士透露，宇树科技与阿里正酝酿一项重要的出海战略合作。宇树科技的最新款机器人R1 近日出现在阿里西溪园区，机器人坐在阿里园区公共区域、在一台电脑前呈打字状态，电脑屏幕上是“邀请函”三个字，并有宇树科技的工作人员随行。 消息提到，围观员工透露，工作人员在现场解释称，此次到访是为一个名为“树卖通”的新项目做准备。该项目预计将在 4 月
+京西国际（02339）发布公告，本公司获本公司控股股东京西智行集团告知，于2026年3月31日，卖方、担保人、立讯精密与京西智行集团订立买卖协议（买卖协议），立讯精密有条件同意收购，而卖方有条件同意出售京西智行集团的全部股权，惟须受买卖协议的条款及条件所规限（潜在收购事项）。于本公告日期，京西智行集团持有京西智行（北京）汽车电子科技有限公司（京西北京）已发行的具表决权股份超过5
 
 ## 正文
 
-快科技4月9日消息，据申妈的朋友圈今日消息，知情人士透露，宇树科技与阿里正酝酿一项重要的出海战略合作。
+京西国际（02339）发布公告，本公司获本公司控股股东京西智行集团告知，于2026年3月31日，卖方、担保人、立讯精密与京西智行集团订立买卖协议（买卖协议），立讯精密有条件同意收购，而卖方有条件同意出售京西智行集团的全部股权，惟须受买卖协议的条款及条件所规限（潜在收购事项）。
 
-宇树科技的最新款机器人R1 近日出现在阿里西溪园区，机器人坐在阿里园区公共区域、在一台电脑前呈打字状态，电脑屏幕上是“邀请函”三个字，并有宇树科技的工作人员随行。
+于本公告日期，京西智行集团持有京西智行（北京）汽车电子科技有限公司（京西北京）已发行的具表决权股份超过50%，而京西北京透过其全资附属公司于合共7.69亿股股份中拥有权益，相当于已发行股份总数约59.50%。
 
-消息提到，围观员工透露，工作人员在现场解释称，此次到访是为一个名为“树卖通”的新项目做准备。
+倘潜在收购事项得以实现，立讯精密将间接持有本公司已发行股份总数的59.50%，并成为本公司最终控股股东。
 
-该项目预计将在 4 月中旬于深圳的一场品牌大会上正式对外官宣。
+立讯精密已就一项确认向证监会申请，以毋须根据收购守则规则26.1附註8（连锁关系原则）对本公司出全面收购要约。
 
-对于“树卖通”项目，有接近阿里的人士分析认为，从项目名称及宇树科技的海外发展计划来看，此次合作极有可能与阿里巴巴旗下的跨境电商平台 —— 速卖通（AliExpress）相关。
+执行人员已向立讯精密表示其有意授出此项确认。
 
-值得关注的是，宇树科技与阿里巴巴之间存在业务合作与资本投资的双重关系。
+本公司已向联交所申请，自2026年5月11日上午九时正起恢复股份于联交所买卖。
 
-具体表现为，在2025年6月19日，阿里巴巴作为领投方之一参与了宇树科技的C轮融资。
-
-据悉，本轮融资始于2024年9月，由中国移动旗下基金、腾讯、锦秋基金、阿里巴巴、蚂蚁集团、吉利资本联合领投，原股东阵营亦大规模跟投。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:20 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 01:19 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 01:34 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 01:20 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 01:28 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 01:35 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 01:19 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 01:27 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 01:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 01:31 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 01:46 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 01:49 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 01:39 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-30 01:32 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 01:41 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 01:43 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 01:42 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 01:35 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 01:32 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 01:47 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:37 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/95324282.shtml)
-- 2026-06-30 01:19 - [流金岁月](https://www.share.minike.top/Article/details/18862693348.shtml)
-- 2026-06-30 01:47 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/2525130312.shtml)
-- 2026-06-30 01:25 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/651858249.shtml)
-- 2026-06-30 01:20 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/43886.shtml)
-- 2026-06-30 01:23 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/7572215.shtml)
-- 2026-06-30 01:18 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/1422910671.shtml)
-- 2026-06-30 01:26 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/076389179075.shtml)
-- 2026-06-30 01:25 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/8371707409.shtml)
-- 2026-06-30 01:26 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/325819003385.shtml)
-- 2026-06-30 01:28 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/950593.shtml)
-- 2026-06-30 01:26 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/0209592240.shtml)
-- 2026-06-30 01:27 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/948887141076.shtml)
-- 2026-06-30 01:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/63654.shtml)
-- 2026-06-30 01:30 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/00831.shtml)
+- 2026-06-30 01:43 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/0564897.shtml)
+- 2026-06-30 01:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/16131.shtml)
+- 2026-06-30 01:49 - [请回答王牌2019](http://www.blog.minike.top/Article/details/35508.shtml)
+- 2026-06-30 01:44 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/3062412448.shtml)
+- 2026-06-30 01:51 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/11150.shtml)
+- 2026-06-30 01:53 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/4532720766.shtml)
+- 2026-06-30 01:35 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/55556.shtml)
+- 2026-06-30 01:49 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/463704085374.shtml)
+- 2026-06-30 01:24 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/041417987316.shtml)
+- 2026-06-30 01:38 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/09754.shtml)
+- 2026-06-30 01:50 - [急先锋](http://www.share.minike.top/Article/details/865173510514.shtml)
+- 2026-06-30 01:31 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/16350.shtml)
+- 2026-06-30 01:49 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/544683948.shtml)
+- 2026-06-30 01:30 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/6017119486.shtml)
+- 2026-06-30 01:31 - [斛珠夫人](http://www.blog.minike.top/Article/details/257079.shtml)

@@ -1,57 +1,50 @@
-# 天天学习｜以自然之道 养万物之生
+# 二十载深耕 温州肯恩大学打造中美教育合作“活样板”
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-视频：天天学习｜以自然之道 养万物之生来源：央视网 习近平总书记十分重视珍稀动物保护工作，主张“以自然之道，养万物之生”。 他说，生物多样性使地球充满生机，也是人类生存和发展的基础。保护生物多样性有助于维护地球家园，促进人类可持续发展。 当前，中国正在积极实施生物多样性保护重大工程，一大批珍稀濒危物种得到有效保护。如今，生性机警的雪豹在三江源优雅踱步，海南长臂猿重新成为雨林的主
+发布时间：2026年05月11日 15:22 来源：中国新闻网 2006年5月8日，温州大学与美国肯恩大学在美国签约，共同创立温州肯恩大学。二十年来，该校已成为中美教育合作的标杆。作为服务国家外交战略的重要平台，两校自2015年启动交换项目以来，已实现学生互访超3000人次。当前，温州肯恩大学正开启“二次创业”，朝着建设“国际化创新型高水平大学”的目标迈进。(曹丹 孙琳茹 浙江
 
 ## 正文
 
-视频：天天学习｜以自然之道 养万物之生来源：央视网 习近平总书记十分重视珍稀动物保护工作，主张“以自然之道，养万物之生”。
+发布时间：2026年05月11日 15:22 来源：中国新闻网 2006年5月8日，温州大学与美国肯恩大学在美国签约，共同创立温州肯恩大学。
 
-他说，生物多样性使地球充满生机，也是人类生存和发展的基础。
+二十年来，该校已成为中美教育合作的标杆。
 
-保护生物多样性有助于维护地球家园，促进人类可持续发展。
+作为服务国家外交战略的重要平台，两校自2015年启动交换项目以来，已实现学生互访超3000人次。
 
-当前，中国正在积极实施生物多样性保护重大工程，一大批珍稀濒危物种得到有效保护。
+当前，温州肯恩大学正开启“二次创业”，朝着建设“国际化创新型高水平大学”的目标迈进。
 
-如今，生性机警的雪豹在三江源优雅踱步，海南长臂猿重新成为雨林的主人，“国宝”大熊猫的受威胁等级已从“濒危”下调为“易危”……一幅万物和谐共生的生态画卷正在徐徐展开。
-
-总监制丨骆红秉 魏驱虎 监 制丨王敬东 主 编丨李璇 编 辑丨蔡纯琳 剪 辑丨李雪菲 视 觉丨颜妮 校 对丨李丹 孙洁 宋春燕 毛长志 闫田田 出 品丨中央广播电视总台央视网
+(曹丹 孙琳茹 浙江温州报道） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 01:40 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 01:35 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 01:34 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 01:41 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 01:35 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 01:38 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 01:18 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 01:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 01:33 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-30 01:39 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 01:22 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 01:34 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 01:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 01:41 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 01:45 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 01:32 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 01:44 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-30 01:53 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 01:24 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 01:34 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 01:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 01:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-30 01:29 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 01:42 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 01:34 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:32 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/96523267.shtml)
-- 2026-06-30 01:27 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/19949872.shtml)
-- 2026-06-30 01:24 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/645544857164.shtml)
-- 2026-06-30 01:19 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/9628187.shtml)
-- 2026-06-30 01:38 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/012460.shtml)
-- 2026-06-30 01:35 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/129698151.shtml)
-- 2026-06-30 01:18 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/34626950.shtml)
-- 2026-06-30 01:40 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/4839301.shtml)
-- 2026-06-30 01:47 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/39009.shtml)
-- 2026-06-30 01:46 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/764439456526.shtml)
-- 2026-06-30 01:29 - [美人鱼](https://www.blog.minike.top/Article/details/76976364053.shtml)
-- 2026-06-30 01:28 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/77105800.shtml)
-- 2026-06-30 01:37 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/33476625.shtml)
-- 2026-06-30 01:23 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/242889.shtml)
-- 2026-06-30 01:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/1631715.shtml)
+- 2026-06-30 01:36 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/657581.shtml)
+- 2026-06-30 01:50 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/2413160.shtml)
+- 2026-06-30 01:53 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/9606699.shtml)
+- 2026-06-30 01:34 - [金牌调解](http://www.share.kurohicncr.top/Article/details/40412132368.shtml)
+- 2026-06-30 01:49 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/1003010.shtml)
+- 2026-06-30 01:45 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/666091.shtml)
+- 2026-06-30 01:38 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/903648610198.shtml)
+- 2026-06-30 01:33 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/0658181546.shtml)
+- 2026-06-30 01:53 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/4888776.shtml)
+- 2026-06-30 01:47 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/71627099.shtml)
+- 2026-06-30 01:34 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/4864555534.shtml)
+- 2026-06-30 01:47 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/36044664.shtml)
+- 2026-06-30 01:31 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/015913.shtml)
+- 2026-06-30 01:34 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/4643078.shtml)
+- 2026-06-30 01:31 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/886935020.shtml)

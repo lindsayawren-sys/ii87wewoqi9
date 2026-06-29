@@ -1,50 +1,58 @@
-# 泰国财长预计油价将高企两年
+# ZFX山海证券:油价宽幅震荡多空博弈
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-泰国财政部长Ekniti Nitithanprapas表示，受中东冲突影响，泰国预计油价将在未来两年内保持高位。 他说：“低油价已经成为过去，至少在未来一两年内不会再出现了。” 他还补充说，政府计划加快采用太阳能、生物燃料和其他可再生能源，以缓解家庭和企业能源成本上涨带来的影响。责任编辑：于健 SF069
+5月11日，国际原油市场近期经历了今年以来波动最为剧烈的一周。六月WTI原油期货在每桶107.46美元与88.66美元之间剧烈摆动，最终企稳于约97美元水平，布伦特原油亦同步收负，周线累计跌幅约7%。ZFX山海证券表示，市场对美伊谈判与中东冲突的反复信号难以充分定价，导致价格在地缘紧张与外交缓和之间快速切换。该机构分析称，短期市场进入多空博弈极度激烈的阶段，前期累积的地缘溢价被
 
 ## 正文
 
-泰国财政部长Ekniti Nitithanprapas表示，受中东冲突影响，泰国预计油价将在未来两年内保持高位。
+5月11日，国际原油市场近期经历了今年以来波动最为剧烈的一周。
 
-他说：“低油价已经成为过去，至少在未来一两年内不会再出现了。
+六月WTI原油期货在每桶107.46美元与88.66美元之间剧烈摆动，最终企稳于约97美元水平，布伦特原油亦同步收负，周线累计跌幅约7%。
 
-” 他还补充说，政府计划加快采用太阳能、生物燃料和其他可再生能源，以缓解家庭和企业能源成本上涨带来的影响。
+ZFX山海证券表示，市场对美伊谈判与中东冲突的反复信号难以充分定价，导致价格在地缘紧张与外交缓和之间快速切换。
 
-责任编辑：于健 SF069
+该机构分析称，短期市场进入多空博弈极度激烈的阶段，前期累积的地缘溢价被快速释放又部分回补。
+
+从基本面看，霍尔木兹海峡的供应阻断风险并未完全消除，全球约20%的海运原油经此通过。
+
+ZFX山海证券认为，全球库存仍处偏紧状态，出口需求维持高位，意味着市场对供应冲击的敏感度仍然较高。
+
+该机构判断，OPEC+产油国后续产量决策、美国页岩油产量弹性、战略石油储备释放节奏，以及主要消费国的需求走势，将共同决定油价的中期方向，多家投行陆续修正年内油价预测以适应高波动格局。
+
+市场层面，原油价格的剧烈震荡已开始影响下游传导节奏，部分炼厂利润空间被压缩，通胀路径的不确定性进一步抬升。
 
 ## 相关推荐
 
-- 2026-06-30 01:18 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 01:19 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 01:25 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 01:27 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 01:29 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 01:36 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 01:29 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 01:18 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 01:45 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 01:24 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 01:39 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 01:31 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 01:45 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 01:47 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 01:53 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 01:28 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 01:38 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 01:49 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 01:47 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 01:28 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 01:48 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-30 01:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 01:42 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 01:47 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:21 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/513689838.shtml)
-- 2026-06-30 01:23 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/53680.shtml)
-- 2026-06-30 01:43 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/2872443991.shtml)
-- 2026-06-30 01:26 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/21130112179.shtml)
-- 2026-06-30 01:44 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/42853440.shtml)
-- 2026-06-30 01:39 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/837630.shtml)
-- 2026-06-30 01:27 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/28301654.shtml)
-- 2026-06-30 01:41 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/33560252538.shtml)
-- 2026-06-30 01:25 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/927636.shtml)
-- 2026-06-30 01:37 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/31273122.shtml)
-- 2026-06-30 01:23 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/037706580139.shtml)
-- 2026-06-30 01:41 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/79583466.shtml)
-- 2026-06-30 01:30 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/6055301363.shtml)
-- 2026-06-30 01:22 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/4453534849.shtml)
-- 2026-06-30 01:27 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/8740817596.shtml)
+- 2026-06-30 01:27 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/2998410.shtml)
+- 2026-06-30 01:43 - [第一炉香](https://www.blog.minike.top/Article/details/665749948.shtml)
+- 2026-06-30 01:50 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/79646.shtml)
+- 2026-06-30 01:48 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/271173916304.shtml)
+- 2026-06-30 01:36 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/944484692.shtml)
+- 2026-06-30 01:43 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/05825002081.shtml)
+- 2026-06-30 01:48 - [沉睡花园](http://www.blog.minike.top/Article/details/925315891323.shtml)
+- 2026-06-30 01:25 - [一见倾心](https://www.share.minike.top/Article/details/92030.shtml)
+- 2026-06-30 01:25 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/41508.shtml)
+- 2026-06-30 01:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/9702702.shtml)
+- 2026-06-30 01:28 - [小娘惹](https://www.share.kurohicncr.top/Article/details/2076268.shtml)
+- 2026-06-30 01:37 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/204598.shtml)
+- 2026-06-30 01:39 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/979229882.shtml)
+- 2026-06-30 01:41 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/6016802.shtml)
+- 2026-06-30 01:40 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/47623656.shtml)

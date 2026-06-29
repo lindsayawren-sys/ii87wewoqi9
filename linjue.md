@@ -1,60 +1,56 @@
-# 三版停火协议藏猫腻？伊朗删帖关海峡，油价或给出答案
+# 酒价内参5月9日价格发布：习酒君品跌幅居前，下跌6元/瓶
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-来源：汇通网 汇通财经APP讯——周四（4月9日）亚欧时段，WTI原油期货高开后继续上冲，目前交投于90.85附近，美伊谈判又出变数，伊朗重新封锁海峡，伊朗驻巴大使9日删除了伊代表团当晚抵达的相关帖文，会谈能否如期举行悬而未决。 4月8日停火生效首日，局势便急剧恶化，以色列对黎巴嫩真主党发动本轮冲突以来最大规模空袭。 伊朗随即认定以方行为违反停火约定，再度关闭全球能源咽喉霍尔木
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月9日整体明显走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9921元，较昨日下跌23元，创下近半个月以来最低。市场在短暂平稳后再度下探，终端交投情绪转冷，高端龙头价格企稳，次高端和腰部单品普遍走弱且跌幅较重。 今日白酒市场11
 
 ## 正文
 
-来源：汇通网 汇通财经APP讯——周四（4月9日）亚欧时段，WTI原油期货高开后继续上冲，目前交投于90.85附近，美伊谈判又出变数，伊朗重新封锁海峡，伊朗驻巴大使9日删除了伊代表团当晚抵达的相关帖文，会谈能否如期举行悬而未决。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月9日整体明显走弱。
 
-4月8日停火生效首日，局势便急剧恶化，以色列对黎巴嫩真主党发动本轮冲突以来最大规模空袭。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9921元，较昨日下跌23元，创下近半个月以来最低。
 
-伊朗随即认定以方行为违反停火约定，再度关闭全球能源咽喉霍尔木兹海峡，并威胁对以色列军事目标采取威慑行动，原油供给风险骤然升温。
+市场在短暂平稳后再度下探，终端交投情绪转冷，高端龙头价格企稳，次高端和腰部单品普遍走弱且跌幅较重。
 
-核心条款遭违背，伊朗再次强调停火条件 伊朗重启海峡封锁的核心导火索，是其提出的10项停战条款中三项关键内容已遭违反，包括黎巴嫩实现停火、禁止侵犯伊朗领空、接受伊朗铀浓缩活动，伊方直言谈判基础已被破坏。
+今日白酒市场11大单品三涨七跌一平，输家占据绝对优势。
 
-伊朗伊斯兰议会官员进一步明确持久停火的硬性前提：美军必须撤离中东、伊朗完全掌控霍尔木兹海峡现有及未来通行权、西方国家解除对伊主要制裁、伊朗相关损失获得全额赔偿，且最终协议需经伊朗最高领袖正式批准。
+上涨方面，精品茅台涨幅居前，上涨4元/瓶，近期走势平稳；飞天茅台与五粮液普五八代均上涨1元/瓶，后者平近一月最高价格。
 
-多版本方案博弈美伊会谈前景存疑 美伊双方围绕停火方案分歧巨大，谈判进程充满不确定性。
+下跌方面，青花郎与习酒君品跌幅居前，均下跌6元/瓶，前者再度失守700元关口，近期该酒品的价格波动较为剧烈，在700元大关附近反复震荡，后者价格今日快速下探，回落至近一个月次低位；国窖1573、洋河梦之蓝M6+及古井贡古20均下跌5元/瓶，其中国窖1573再度跌破900元大关，梦之蓝M6+失守600元关口；青花汾20与水晶剑南春均下跌1元/瓶。
 
-副总统万斯透露，就他所知道的停火协议就有三个版本：首版被美方质疑由ChatGPT撰写并直接否决，经巴基斯坦斡旋的第二版内容相对合理且一度有效，立场更极端的第三版正于社交媒体流传。
+五粮液1618的价格环比保持不变。
 
-美方仅认可修改后的新版方案，同时强调黎巴嫩事宜未纳入美伊停火协议，以军在黎巴嫩的军事行动克制仅为配合美方谈判。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 01:44 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 01:25 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 01:32 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-30 01:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 01:33 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-30 01:34 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 01:35 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 01:47 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 01:19 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 01:28 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 01:26 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 01:37 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 01:22 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-30 01:25 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-30 01:32 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-30 01:38 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 01:52 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 01:35 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 01:26 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 01:44 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 01:50 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 01:42 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 01:41 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:34 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/81979.shtml)
-- 2026-06-30 01:24 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/21562142.shtml)
-- 2026-06-30 01:36 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/30798.shtml)
-- 2026-06-30 01:21 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/064992173897.shtml)
-- 2026-06-30 01:37 - [我们的少年时代2](https://www.share.minike.top/Article/details/50268894810.shtml)
-- 2026-06-30 01:21 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/418993764107.shtml)
-- 2026-06-30 01:34 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/0238402.shtml)
-- 2026-06-30 01:43 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/6720082.shtml)
-- 2026-06-30 01:39 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/1199018016.shtml)
-- 2026-06-30 01:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/592951778.shtml)
-- 2026-06-30 01:21 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/220847.shtml)
-- 2026-06-30 01:45 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/10463.shtml)
-- 2026-06-30 01:39 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/98332.shtml)
-- 2026-06-30 01:47 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/367022207147.shtml)
-- 2026-06-30 01:32 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/18887161306.shtml)
+- 2026-06-30 01:44 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/0910559525.shtml)
+- 2026-06-30 01:38 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/9776972001.shtml)
+- 2026-06-30 01:49 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/8609217775.shtml)
+- 2026-06-30 01:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/24574931.shtml)
+- 2026-06-30 01:36 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/974448.shtml)
+- 2026-06-30 01:29 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/59175347.shtml)
+- 2026-06-30 01:26 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/034254.shtml)
+- 2026-06-30 01:48 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/7914425974.shtml)
+- 2026-06-30 01:25 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/4556930544.shtml)
+- 2026-06-30 01:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/194801.shtml)
+- 2026-06-30 01:37 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/61197.shtml)
+- 2026-06-30 01:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/82036518849.shtml)
+- 2026-06-30 01:44 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/638607152734.shtml)
+- 2026-06-30 01:53 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/11114.shtml)
+- 2026-06-30 01:49 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/27457593.shtml)

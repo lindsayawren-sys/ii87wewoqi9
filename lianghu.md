@@ -1,60 +1,58 @@
-# 中金涨薪了！人均薪酬涨至80万 董事长陈亮年薪微降1万
+# 2026年驻沈高校联席会议举办 “政校企”协同为毕业生就业创业搭平台
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源|腾讯财经 文|王立广 编辑|刘鹏 2025年，中国资本市场走出资产重估行情，在全球主要市场中涨幅靠前，在行情回暖及资本市场改革有序推进的背景下，券商行业业绩普遍上涨，中金公司在成立三十周年之际，交出了一份营收、净利双增的成绩单。 财报显示，2025年中金公司实现营业收入284.81亿元，同比增长33.
+中新网沈阳5月9日电 (李晛)为促进更多高校毕业生来沈留沈就业，5月9日，沈阳市组织召开了2026年驻沈高校联席会议暨辽宁省驻沈高校与东北地区高校联席活动。 本次活动是中共沈阳市委组织部和沈阳市人力资源和社会保障局连续4年携手主办的，以“政校企”高效协同为目的，面对面开展高校毕业生就业创业项目对接的合作平台。 活动聚焦“3+4+3”重点产业集群的人才需求，吸引到与沈阳市重点产业
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网沈阳5月9日电 (李晛)为促进更多高校毕业生来沈留沈就业，5月9日，沈阳市组织召开了2026年驻沈高校联席会议暨辽宁省驻沈高校与东北地区高校联席活动。
 
-来源|腾讯财经 文|王立广 编辑|刘鹏 2025年，中国资本市场走出资产重估行情，在全球主要市场中涨幅靠前，在行情回暖及资本市场改革有序推进的背景下，券商行业业绩普遍上涨，中金公司在成立三十周年之际，交出了一份营收、净利双增的成绩单。
+本次活动是中共沈阳市委组织部和沈阳市人力资源和社会保障局连续4年携手主办的，以“政校企”高效协同为目的，面对面开展高校毕业生就业创业项目对接的合作平台。
 
-财报显示，2025年中金公司实现营业收入284.81亿元，同比增长33.50%，归属于母公司股东的净利润达97.91亿元，同比大幅增长71.93%。
+活动聚焦“3+4+3”重点产业集群的人才需求，吸引到与沈阳市重点产业发展，所急需专业相匹配的68所高校加盟。
 
-2025年末，其总资产为7828.26亿元，同比增长16.02%，净资产为1220.58亿元，同比增长5.82%。
+在哈尔滨工业大学、大连理工大学、吉林大学、东北大学、哈尔滨工程大学等东北地区名校深入参与的情况下，兰州大学、南京航空航天大学等一批国内“双一流”大学也积极加盟，为沈阳市打造东北地区人力资源集聚区、增长极，建设东北亚国际化中心城市提供了重要的人才支撑。
 
-薪酬方面，随着经营业绩的回暖，2025年中金公司员工人均薪酬为79．93万元，较2024年人均薪酬上涨24．40%，不过较2020年其员工人均薪酬仍大幅下降35．53%。
+活动聚焦高校毕业生在沈就业创业，现场发布了“驻沈企业开放日”“创业TYPE-C”“人力资源点单服务”“2026博士沈阳行”“沈阳都市圈联动计划”等13个政校企精准对接场景，将沈阳市的人才政策、高性价比的人才发展环境和特色人才活动向68所高校进行了推介。
 
-与员工人均薪酬上涨不同，中金公司董监高薪酬在2025年普遍微降，且较2020年已经大幅缩水。
+在项目对接的基础上，组织68所高校代表参加了“访企拓岗”活动，实地走访重点企业与园区，深入对接用人需求。
 
-当前，中金公司正积极推进吸收合并东兴证券、信达证券，试图通过“1+2>3”的整合效应，加速迈向国际一流投行目标。
+本次联席会议的召开，进一步巩固了“政校企”协同机制，凝聚了“政校企”各方广泛共识。
 
-中金公司合并东兴、信达后 净利润居行业第四 中金公司2025年全年营收与净利润大幅增长，分季度看，2025年第一季度实现营收57.21亿元，后三个季度营收均超70亿元，分别为71.07亿元、79.33亿元、77.20亿元。
+参会学校代表纷纷表示，将以联盟为纽带，深化合作，精准施策，共同为高校毕业生高质量充分就业保驾护航，为沈阳乃至辽宁的全面振兴持续注入青春动能。
 
 ## 相关推荐
 
-- 2026-06-30 01:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-30 01:38 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 01:38 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 01:25 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 01:39 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 01:45 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-30 01:42 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 01:45 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 01:33 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 01:30 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 01:22 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 01:31 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 01:47 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 01:43 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 01:26 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-30 01:46 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 01:38 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 01:44 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 01:48 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 01:51 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 01:53 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 01:38 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 01:29 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 01:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 01:30 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 01:38 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:26 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/9147601.shtml)
-- 2026-06-30 01:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/18701234.shtml)
-- 2026-06-30 01:45 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/097469956.shtml)
-- 2026-06-30 01:30 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/88434.shtml)
-- 2026-06-30 01:30 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/92039012.shtml)
-- 2026-06-30 01:35 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/945005646758.shtml)
-- 2026-06-30 01:40 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/070346781.shtml)
-- 2026-06-30 01:20 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/6155755892.shtml)
-- 2026-06-30 01:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/53038.shtml)
-- 2026-06-30 01:24 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/87068221.shtml)
-- 2026-06-30 01:26 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/19743.shtml)
-- 2026-06-30 01:38 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/26097086961.shtml)
-- 2026-06-30 01:24 - [新官上任三把火](https://www.blog.minike.top/Article/details/207439822014.shtml)
-- 2026-06-30 01:47 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/5179137082.shtml)
-- 2026-06-30 01:42 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/34806664.shtml)
+- 2026-06-30 01:43 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/593561566501.shtml)
+- 2026-06-30 01:25 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/7296526.shtml)
+- 2026-06-30 01:48 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/63790073.shtml)
+- 2026-06-30 01:42 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/3960283099.shtml)
+- 2026-06-30 01:41 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/541771.shtml)
+- 2026-06-30 01:52 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/4608123.shtml)
+- 2026-06-30 01:24 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/423290.shtml)
+- 2026-06-30 01:36 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/68615.shtml)
+- 2026-06-30 01:36 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/8751211446.shtml)
+- 2026-06-30 01:51 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/3639648081.shtml)
+- 2026-06-30 01:49 - [斛珠夫人](https://www.blog.minike.top/Article/details/265294184.shtml)
+- 2026-06-30 01:25 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/801778662780.shtml)
+- 2026-06-30 01:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/13253189873.shtml)
+- 2026-06-30 01:53 - [小娘惹](https://www.share.kurohicncr.top/Article/details/72851549.shtml)
+- 2026-06-30 01:34 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/577676268.shtml)

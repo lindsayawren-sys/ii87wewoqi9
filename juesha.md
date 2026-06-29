@@ -1,58 +1,59 @@
-# “十五五”期间广交会展品税收优惠新政助企享惠
+# 品浩：伊朗局势或迫使美联储加息
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网广州4月10日电 (许青青 关悦)“我们公司计划在第139届广交会上展示地毯等家用纺织品，请问这些展品是否能享受免税政策？有没有额度限制？展后未销售的展品怎么处理更方便呢？”4月9日，一家来自埃及的参展企业咨询广交会展品税收优惠新政的具体适用细节。针对企业咨询问题，广州会展中心海关的业务专家逐一解答。 今年3月5日，财政部、海关总署、国家税务总局联合发布《关于“十五五”期
+品浩（Pimco）警示，美联储若降息将适得其反；受特朗普对伊朗战事后续影响，美国央行甚至可能需要上调借贷成本。 这家管理资产规模达2.3万亿美元的债券巨头首席投资官表示，伊朗封锁霍尔木兹海峡引发能源价格暴涨，给美国政策制定者带来新挑战。多年来，美联储一直难以将通胀降至2%的政策目标。 首席投资官在加州比弗利山庄举办的米尔肯研究所年度峰会间隙接受采访时称：“我们希望看到各国央行采
 
 ## 正文
 
-中新网广州4月10日电 (许青青 关悦)“我们公司计划在第139届广交会上展示地毯等家用纺织品，请问这些展品是否能享受免税政策？
+品浩（Pimco）警示，美联储若降息将适得其反；受特朗普对伊朗战事后续影响，美国央行甚至可能需要上调借贷成本。
 
-有没有额度限制？
+这家管理资产规模达2.3万亿美元的债券巨头首席投资官表示，伊朗封锁霍尔木兹海峡引发能源价格暴涨，给美国政策制定者带来新挑战。
 
-展后未销售的展品怎么处理更方便呢？
+多年来，美联储一直难以将通胀降至2%的政策目标。
 
-”4月9日，一家来自埃及的参展企业咨询广交会展品税收优惠新政的具体适用细节。
+首席投资官在加州比弗利山庄举办的米尔肯研究所年度峰会间隙接受采访时称：“我们希望看到各国央行采取审慎应对，必要时甚至可能收紧货币政策。
 
-针对企业咨询问题，广州会展中心海关的业务专家逐一解答。
+” “美国目前离收紧政策还有距离，但就当前形势来看，欧洲、英国乃至日本将迎来更多紧缩举措，美国也不能完全排除这一可能性。
 
-今年3月5日，财政部、海关总署、国家税务总局联合发布《关于“十五五”期间中国进出口商品交易会展期内销售的进口展品税收优惠政策的通知》(以下简称《通知》)，“十五五”期间(2026—2030年)，对广交会展期内销售的进口展品，在规定额度内继续免征进口关税、进口环节增值税和消费税。
+” 他补充道，鉴于当前通胀走势、通胀本身及通胀预期的不确定性，美国任何降息举措都将事与愿违，且很可能推高中长期利率。
 
-据了解，自2023年第133届广交会起，财政部、海关总署、国家税务总局分阶段多次联合发布广交会展期内销售进口展品税收优惠政策。
+管理资产规模达1.7万亿美元的美国资管巨头富兰克林邓普顿首席执行官，在峰会另一场采访中表示：“通胀管控难度将进一步加大，美联储很难开启降息周期。
 
-据广州会展中心海关统计，自相关政策落地以来，已累计为货值101万元(人民币，下同)的宝石、床上用品、机械用品等进口展品减免税款约26.8万元。
+” 她指出，投资者对抗通胀资产的配置需求持续上升，房地产尤其受到青睐，原因是租金通常会随整体物价上涨同步走高。
 
 ## 相关推荐
 
-- 2026-06-30 01:44 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-30 01:36 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 01:42 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 01:39 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 01:19 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 01:32 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 01:38 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-30 01:39 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 01:44 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 01:28 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 01:25 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 01:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 01:28 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 01:51 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-30 01:30 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 01:37 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 01:36 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 01:43 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 01:37 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 01:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 01:33 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 01:51 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 01:32 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 01:52 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 01:38 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:45 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/92910628.shtml)
-- 2026-06-30 01:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/42023.shtml)
-- 2026-06-30 01:31 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/32951.shtml)
-- 2026-06-30 01:30 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/44777.shtml)
-- 2026-06-30 01:28 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/146978765.shtml)
-- 2026-06-30 01:18 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/87602535.shtml)
-- 2026-06-30 01:28 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/252328458.shtml)
-- 2026-06-30 01:35 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/05108700.shtml)
-- 2026-06-30 01:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/452372996560.shtml)
-- 2026-06-30 01:27 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/120093997.shtml)
-- 2026-06-30 01:20 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/32374837468.shtml)
-- 2026-06-30 01:25 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/5304657871.shtml)
-- 2026-06-30 01:45 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/54956462.shtml)
-- 2026-06-30 01:20 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/071360.shtml)
-- 2026-06-30 01:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/085158.shtml)
+- 2026-06-30 01:50 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/45382292897.shtml)
+- 2026-06-30 01:28 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/0216818352.shtml)
+- 2026-06-30 01:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/2102393331.shtml)
+- 2026-06-30 01:30 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/54580408607.shtml)
+- 2026-06-30 01:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/480143.shtml)
+- 2026-06-30 01:24 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/50114.shtml)
+- 2026-06-30 01:31 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/355184.shtml)
+- 2026-06-30 01:38 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/19025172326.shtml)
+- 2026-06-30 01:36 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/14183413.shtml)
+- 2026-06-30 01:38 - [沙丘](http://www.blog.kurohicncr.top/Article/details/1816989323.shtml)
+- 2026-06-30 01:29 - [急先锋](https://www.blog.kurohicncr.top/Article/details/22563.shtml)
+- 2026-06-30 01:47 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/07232391730.shtml)
+- 2026-06-30 01:43 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/026029920.shtml)
+- 2026-06-30 01:25 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/2069200155.shtml)
+- 2026-06-30 01:45 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/36816032331.shtml)

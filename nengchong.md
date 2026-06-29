@@ -1,61 +1,59 @@
-# 地缘局势来回拉扯下，为何要关注多元化配置的FOF？
+# 迪瑞医疗更正两年财报，投资者索赔全面启动
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-自中东战事爆发以来，市场随局势变化反复拉扯，不确定性加剧。当行情变得复杂多变，通过多元化配置构建相对均衡的组合，往往比押注单一资产更加稳妥。而近年来，具备多元配置属性的FOF越来越受投资者青睐。 从资金动向来看，中国证券投资基金业协会数据显示，截至2月底，带有资产配置属性的公募FOF总规模达3157.14亿元，较1月底的2811.78亿元环比增长12.28%，规模增速在不同类别
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月30日，迪瑞医疗发布了《关于会计差错更正及追溯调整的公告》，审计机构的一纸“否定意见”，让这家华润系旗下的“白马股”在五一开盘后被迫戴上了“ST”的帽子，股价承压。 上海沪紫律师事务所刘鹏律师表示根据《证券法》及相关司法解释，上市公司因信息披露违法违规导
 
 ## 正文
 
-自中东战事爆发以来，市场随局势变化反复拉扯，不确定性加剧。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当行情变得复杂多变，通过多元化配置构建相对均衡的组合，往往比押注单一资产更加稳妥。
+4月30日，迪瑞医疗发布了《关于会计差错更正及追溯调整的公告》，审计机构的一纸“否定意见”，让这家华润系旗下的“白马股”在五一开盘后被迫戴上了“ST”的帽子，股价承压。
 
-而近年来，具备多元配置属性的FOF越来越受投资者青睐。
+上海沪紫律师事务所刘鹏律师表示根据《证券法》及相关司法解释，上市公司因信息披露违法违规导致投资者损失的，应当承担民事赔偿责任。
 
-从资金动向来看，中国证券投资基金业协会数据显示，截至2月底，带有资产配置属性的公募FOF总规模达3157.14亿元，较1月底的2811.78亿元环比增长12.28%，规模增速在不同类别基金中处于领跑位置。
+目前符合于2024年4月19日-2026年4月29日期间买入，并在2026年4月30日之后卖出或仍持有而亏损的即可参与索赔。
 
-记者获悉，景顺长城FOF货架近日再次上新——景顺长城和熙安泰3个月持有期FOF（代码：A类026912；C类026913）即将发行，该产品主打资产配置的多元化，力争在控制回撤的前提下实现收益增强，给投资者带来更好的持有体验。
+据公司发布的更正公告显示，公司对2023年及2024年的财报进行了大规模追溯调整。
 
-资料显示，景顺长城和熙安泰FOF主投固收资产，在此基础上可用5%-30%的仓位投资权益资产，其中可投资境内股票、股票型基金等资产以外，还可投资港股通标的股票、QDII基金和香港互认基金、商品基金（含商品期货基金和黄金ETF）等多种资产，力争利用不同资产间的低相关性形成对冲效果，提高风险收益。
+2023年：营业收入原披露13.79亿元，调减2.66亿元，调减幅度高达19.3%；净利润原披露2.76亿元，调减1.16亿元，缩水42%。
 
-数据显示，过去10年，A债与A股、美股、港股、日股和黄金等资产的相关系数分别为-0.184、-0.052、-0.169、-0.115、0.017，价格变动的相关性较小，为上述策略的实现提供了条件。
+2024年：营业收入原披露12.15亿元，调减2.41亿元，调减幅度19.8%；净利润原披露1.42亿元，调减0.77亿元，缩水53%。
 
-（数据来源：Wind，分别用中证全债、中证全指、标普500指数、恒生指数、日经225和伦敦金现代表上述资产的表现，截至2026/4/1） 拟任基金经理赵思轩表示，将以最大回撤控制为基金运作的首要目标，其次注重波动率的控制，在此基础上，力求实现基金资产的长期稳健增值。
+两年累计虚增营业收入超过5亿元，虚增净利润近2亿元。
 
 ## 相关推荐
 
-- 2026-06-30 01:46 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 01:47 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 01:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 01:38 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 01:34 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 01:40 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 01:44 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 01:27 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 01:39 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 01:36 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 01:19 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 01:19 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 01:26 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-30 01:37 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 01:33 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 01:46 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 01:31 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 01:24 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 01:40 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 01:43 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 01:30 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 01:47 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 01:26 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 01:48 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 01:28 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 01:45 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 01:52 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 01:45 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/2314489.shtml)
-- 2026-06-30 01:32 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/635549156757.shtml)
-- 2026-06-30 01:19 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/968390736585.shtml)
-- 2026-06-30 01:31 - [第一炉香](https://www.blog.minike.top/Article/details/4474101.shtml)
-- 2026-06-30 01:18 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/45165604949.shtml)
-- 2026-06-30 01:45 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/6815599.shtml)
-- 2026-06-30 01:39 - [沉睡花园](https://www.blog.minike.top/Article/details/583383758.shtml)
-- 2026-06-30 01:26 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/267134.shtml)
-- 2026-06-30 01:39 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/04440263829.shtml)
-- 2026-06-30 01:26 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/98148.shtml)
-- 2026-06-30 01:26 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/56966422.shtml)
-- 2026-06-30 01:19 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5043841.shtml)
-- 2026-06-30 01:39 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/41712979582.shtml)
-- 2026-06-30 01:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/71330405204.shtml)
-- 2026-06-30 01:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/35418.shtml)
+- 2026-06-30 01:35 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/3920278.shtml)
+- 2026-06-30 01:30 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/845525983265.shtml)
+- 2026-06-30 01:44 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/34333740043.shtml)
+- 2026-06-30 01:29 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/29348911.shtml)
+- 2026-06-30 01:51 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/082155.shtml)
+- 2026-06-30 01:30 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/82298676.shtml)
+- 2026-06-30 01:33 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/58825007945.shtml)
+- 2026-06-30 01:48 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/026986.shtml)
+- 2026-06-30 01:47 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/01918.shtml)
+- 2026-06-30 01:34 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/40530.shtml)
+- 2026-06-30 01:43 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/4660220.shtml)
+- 2026-06-30 01:28 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/82780076897.shtml)
+- 2026-06-30 01:35 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/78608284638.shtml)
+- 2026-06-30 01:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/90589296659.shtml)
+- 2026-06-30 01:33 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/824268.shtml)

@@ -1,55 +1,51 @@
-# 亚洲开发银行：亚太地区发展中经济体面临加剧的通胀风险
+# 百年人寿晋中中心支公司被罚18万元：编制、提供虚假的报告报表文件资料
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-专题：科技成长主线贯穿二季度 震荡上行中布局细分龙头 亚洲开发银行表示，在中东冲突提前企稳的情况下，主要受能源价格上涨推动，亚太地区发展中经济体的通胀率预计将从2025年的3.0%升至2026年的3.6%。该行预计，随着大宗商品价格正常化，明年通胀率将回落至3.4%。但亚洲开发银行认为，鉴于中断局面现在看来可能比预期持续更长时间，通胀的上行风险将显著增加。能源和大宗商品市场更持
+5月9日金融一线消息，国家金融监督管理总局晋中监管分局行政处罚信息公开表显示，百年人寿保险股份有限公司晋中中心支公司因编制、提供虚假的报告报表文件资料，被罚款18万元。丁飞（时任百年人寿保险股份有限公司晋中中心支公司银保渠道负责人）对此负有责任，受到警告并被罚款3万元。 责任编辑：曹睿潼
 
 ## 正文
 
-专题：科技成长主线贯穿二季度 震荡上行中布局细分龙头 亚洲开发银行表示，在中东冲突提前企稳的情况下，主要受能源价格上涨推动，亚太地区发展中经济体的通胀率预计将从2025年的3.0%升至2026年的3.6%。
+5月9日金融一线消息，国家金融监督管理总局晋中监管分局行政处罚信息公开表显示，百年人寿保险股份有限公司晋中中心支公司因编制、提供虚假的报告报表文件资料，被罚款18万元。
 
-该行预计，随着大宗商品价格正常化，明年通胀率将回落至3.4%。
+丁飞（时任百年人寿保险股份有限公司晋中中心支公司银保渠道负责人）对此负有责任，受到警告并被罚款3万元。
 
-但亚洲开发银行认为，鉴于中断局面现在看来可能比预期持续更长时间，通胀的上行风险将显著增加。
-
-能源和大宗商品市场更持久的中断将产生更严重的后果，包括化肥价格上涨，从而推高农业生产成本并传导至食品价格。
-
-亚洲开发银行的分析表明，如果紧张局势持续到第三季度，2026年通胀率将达到5.6%，然后在2027年放缓至2.8%。
-
-责任编辑：王永生
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 01:44 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 01:21 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-30 01:41 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 01:26 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 01:26 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 01:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 01:18 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 01:37 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 01:31 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 01:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 01:35 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 01:45 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 01:41 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 01:31 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 01:26 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 01:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 01:34 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 01:32 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 01:40 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 01:30 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 01:28 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 01:47 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 01:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 01:53 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 01:53 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 01:46 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 01:48 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 01:52 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:22 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/14231859.shtml)
-- 2026-06-30 01:35 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/96937236.shtml)
-- 2026-06-30 01:24 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/6029287.shtml)
-- 2026-06-30 01:44 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/729430063864.shtml)
-- 2026-06-30 01:41 - [美人鱼](http://www.share.minike.top/Article/details/408971644287.shtml)
-- 2026-06-30 01:44 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/519429229.shtml)
-- 2026-06-30 01:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/853958554.shtml)
-- 2026-06-30 01:21 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/566057747182.shtml)
-- 2026-06-30 01:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/2437842851.shtml)
-- 2026-06-30 01:26 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/469092.shtml)
-- 2026-06-30 01:33 - [我们的少年时代2](http://www.share.minike.top/Article/details/0259108.shtml)
-- 2026-06-30 01:27 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/78255.shtml)
-- 2026-06-30 01:36 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/04244.shtml)
-- 2026-06-30 01:20 - [速度与激情9](http://www.blog.minike.top/Article/details/18410126596.shtml)
-- 2026-06-30 01:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/72807512113.shtml)
+- 2026-06-30 01:24 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/724205050090.shtml)
+- 2026-06-30 01:27 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/27187878.shtml)
+- 2026-06-30 01:36 - [千与千寻](https://www.share.kurohicncr.top/Article/details/5954633.shtml)
+- 2026-06-30 01:30 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/58620.shtml)
+- 2026-06-30 01:44 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/858437.shtml)
+- 2026-06-30 01:49 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/54155.shtml)
+- 2026-06-30 01:28 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/9900337719.shtml)
+- 2026-06-30 01:51 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/45154.shtml)
+- 2026-06-30 01:40 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/34636.shtml)
+- 2026-06-30 01:52 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/634550078353.shtml)
+- 2026-06-30 01:40 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/7102974.shtml)
+- 2026-06-30 01:37 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/106297.shtml)
+- 2026-06-30 01:27 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/61101738.shtml)
+- 2026-06-30 01:34 - [85花告别古偶](http://www.share.minike.top/Article/details/4871305.shtml)
+- 2026-06-30 01:50 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/5289975.shtml)

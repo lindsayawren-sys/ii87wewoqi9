@@ -1,59 +1,61 @@
-# 这种坚果被称为“固态橄榄油”,70%都是油，但却很值得吃
+# 东西问丨海外热议“Country Walk”：走向更具质感和温度的中国
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-如果让大家选出最油的坚果，夏威夷果几乎一定会榜上有名。 轻轻用包装里那把小“钥匙”一拧，坚硬的果壳裂开，一颗乳白色的果仁露出来。咬下去的第一感觉往往不是脆，而是细腻中带着明显的油润感。正因为这种口感，很多人的第一印象：这也太油了。 但实际上，含油多≠增肥，也不一定不健康。 夏威夷果的高油真相1 脂肪含量在坚果里最高 从食物成分数据来看，夏威夷果确实是一种典型的高脂肪坚果。美国农
+中新网北京5月11日电 题：海外热议“Country Walk”：走向更具质感和温度的中国 中新网记者 韩禹 海外社交媒体上，“China Travel”(中国游)话题有新动向——来华外国游客开启“Country Walk”(乡村漫步)，把镜头对向乡村茶园、集市、街巷、邻里，社交媒体上不断出现“爆款”视频，有的播放量过亿。 这一现象有所从来。一方面，近年中国在免签政策、国际航班
 
 ## 正文
 
-如果让大家选出最油的坚果，夏威夷果几乎一定会榜上有名。
+中新网北京5月11日电 题：海外热议“Country Walk”：走向更具质感和温度的中国 中新网记者 韩禹 海外社交媒体上，“China Travel”(中国游)话题有新动向——来华外国游客开启“Country Walk”(乡村漫步)，把镜头对向乡村茶园、集市、街巷、邻里，社交媒体上不断出现“爆款”视频，有的播放量过亿。
 
-轻轻用包装里那把小“钥匙”一拧，坚硬的果壳裂开，一颗乳白色的果仁露出来。
+这一现象有所从来。
 
-咬下去的第一感觉往往不是脆，而是细腻中带着明显的油润感。
+一方面，近年中国在免签政策、国际航班恢复、支付便利等方面，不断推动入境游便利化，2025年入境旅游人次超过1.5亿，同比增长超17%。
 
-正因为这种口感，很多人的第一印象：这也太油了。
+另一方面，中国乡村旅游近年飞速发展，也具备相当的国际可见度，2025年中国乡村旅游市场规模达1.5万亿元，占国内旅游市场“半壁江山”，且目前共计19个中国村庄入选联合国旅游组织“最佳旅游乡村”，数量位居世界第一。
 
-但实际上，含油多≠增肥，也不一定不健康。
+便利化政策和接待能力，使“Country Walk”的走红水到渠成。
 
-夏威夷果的高油真相1 脂肪含量在坚果里最高 从食物成分数据来看，夏威夷果确实是一种典型的高脂肪坚果。
+“Country Walk”的意义，不只是外国游客的新旅游模式。
 
-美国农业部食品数据库显示，每100g烤制不加盐的夏威夷果含脂肪76.1g，能量为718kcal。
+更重要的是，它改变了中国被观看、被理解的方式。
 
-与常见坚果相比，其脂肪含量明显更高。
+一直以来，海外受众对中国的认知常被互不协调的符号占据：一端是贫困、封闭、咄咄逼人的“落后文明”；一端是人工智能、机器人等组成的“超现实世界”。
 
 ## 相关推荐
 
-- 2026-06-30 01:23 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 01:21 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 01:35 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 01:31 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-30 01:38 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 01:27 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 01:23 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 01:46 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 01:30 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 01:46 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 01:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 01:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 01:32 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 01:48 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 01:51 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 01:36 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 01:51 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 01:33 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 01:32 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 01:33 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 01:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 01:32 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 01:25 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 01:44 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 01:41 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 01:47 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 01:32 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-30 01:31 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:31 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/904093461946.shtml)
-- 2026-06-30 01:19 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/455978757424.shtml)
-- 2026-06-30 01:31 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/5191646160.shtml)
-- 2026-06-30 01:38 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/53372.shtml)
-- 2026-06-30 01:42 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/65527397.shtml)
-- 2026-06-30 01:29 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/6573100.shtml)
-- 2026-06-30 01:31 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/39757861.shtml)
-- 2026-06-30 01:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/931062.shtml)
-- 2026-06-30 01:28 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/909128829757.shtml)
-- 2026-06-30 01:33 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/645509095133.shtml)
-- 2026-06-30 01:28 - [扬名立万](http://www.share.kurohicncr.top/Article/details/87428.shtml)
-- 2026-06-30 01:46 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/3841219970.shtml)
-- 2026-06-30 01:34 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/10694550.shtml)
-- 2026-06-30 01:47 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/50590709.shtml)
-- 2026-06-30 01:32 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/12755505.shtml)
+- 2026-06-30 01:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/71840.shtml)
+- 2026-06-30 01:48 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/1861652.shtml)
+- 2026-06-30 01:40 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/543839103.shtml)
+- 2026-06-30 01:52 - [毒液2](https://www.blog.kurohicncr.top/Article/details/144165.shtml)
+- 2026-06-30 01:27 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/189421642328.shtml)
+- 2026-06-30 01:35 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/132127.shtml)
+- 2026-06-30 01:29 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/742474.shtml)
+- 2026-06-30 01:29 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/14478.shtml)
+- 2026-06-30 01:38 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/52920.shtml)
+- 2026-06-30 01:36 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/3014777119.shtml)
+- 2026-06-30 01:25 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/28653724.shtml)
+- 2026-06-30 01:25 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/27005487.shtml)
+- 2026-06-30 01:35 - [新官上任三把火](https://www.blog.minike.top/Article/details/9547454305.shtml)
+- 2026-06-30 01:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/39375559.shtml)
+- 2026-06-30 01:46 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/061014.shtml)

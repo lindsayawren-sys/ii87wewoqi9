@@ -1,60 +1,53 @@
-# 国家统计局：2026年3月份居民消费价格同比上涨1.0%
+# 华创证券：美图公司维持“推荐”评级 目标价6.70港元
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年3月份，全国居民消费价格同比上涨1.0%。其中，城市上涨1.1%，农村上涨0.9%；食品价格上涨0.3%，非食品价格上涨1.2%；消费品价格上涨1.3%，服务价格上涨0.8%。1—3月平均，全国居民消费价格比上年同期上涨0.9%。 3月份，全国居民消费价格环比下降0.7%。其中，城市下降0.7%，
+华创证券发布研报称，维持对美图公司（01357）“生产力+全球化”主线的判断，关注26H1正式业绩中订阅收入、用量付费和利润率兑现。该行预测公司26-28年的营业收入分别为47.6/57.6/66.2亿元，同比增长23%/21%/15%；经调整归母净利润分别为13.3/16.1/19.4亿元，同比增长38%/21%/21%。采用相对估值法进行分析，给予26年核心主业收入7倍PS
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+华创证券发布研报称，维持对美图公司（01357）“生产力+全球化”主线的判断，关注26H1正式业绩中订阅收入、用量付费和利润率兑现。
 
-2026年3月份，全国居民消费价格同比上涨1.0%。
+该行预测公司26-28年的营业收入分别为47.6/57.6/66.2亿元，同比增长23%/21%/15%；经调整归母净利润分别为13.3/16.1/19.4亿元，同比增长38%/21%/21%。
 
-其中，城市上涨1.1%，农村上涨0.9%；食品价格上涨0.3%，非食品价格上涨1.2%；消费品价格上涨1.3%，服务价格上涨0.8%。
+采用相对估值法进行分析，给予26年核心主业收入7倍PS，26年目标市值269亿元，对应目标价6.7港元，维持“推荐”评级。
 
-1—3月平均，全国居民消费价格比上年同期上涨0.9%。
-
-3月份，全国居民消费价格环比下降0.7%。
-
-其中，城市下降0.7%，农村下降0.5%；食品价格下降2.7%，非食品价格下降0.2%；消费品价格下降0.3%，服务价格下降1.1%。
-
-一、各类商品及服务价格同比变动情况 3月份，食品烟酒及在外餐饮类价格同比上涨0.4%，影响CPI（居民消费价格指数）上涨约0.11个百分点。
-
-食品中，鲜菜价格上涨4.9%，影响CPI上涨约0.08个百分点；鲜果价格上涨4.0%，影响CPI上涨约0.08个百分点；水产品价格上涨3.7%，影响CPI上涨约0.07个百分点；畜肉类价格下降4.2%，影响CPI下降约0.18个百分点，其中猪肉价格下降11.5%，影响CPI下降约0.22个百分点；蛋类价格下降3.1%，影响CPI下降约0.02个百分点。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 01:27 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 01:41 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 01:20 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 01:44 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 01:44 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 01:32 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 01:23 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 01:32 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 01:45 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-30 01:43 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 01:36 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 01:32 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 01:26 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 01:48 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 01:40 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 01:46 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 01:29 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 01:24 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-30 01:32 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 01:32 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 01:37 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 01:24 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 01:49 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 01:45 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 01:29 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 01:46 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 01:36 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 01:31 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:35 - [速度与激情9](https://www.share.minike.top/Article/details/4959474.shtml)
-- 2026-06-30 01:30 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/60937.shtml)
-- 2026-06-30 01:22 - [金刚川](http://www.blog.minike.top/Article/details/76136.shtml)
-- 2026-06-30 01:32 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/1437400337.shtml)
-- 2026-06-30 01:32 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/051990021.shtml)
-- 2026-06-30 01:26 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/30997.shtml)
-- 2026-06-30 01:32 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/474412884.shtml)
-- 2026-06-30 01:25 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/3672706303.shtml)
-- 2026-06-30 01:18 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/973022880129.shtml)
-- 2026-06-30 01:39 - [千香](http://www.share.minike.top/Article/details/93672.shtml)
-- 2026-06-30 01:41 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/045341.shtml)
-- 2026-06-30 01:22 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/969576209590.shtml)
-- 2026-06-30 01:44 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/14277678.shtml)
-- 2026-06-30 01:22 - [急先锋](https://www.blog.minike.top/Article/details/80448.shtml)
-- 2026-06-30 01:20 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/25479604646.shtml)
+- 2026-06-30 01:24 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/616857.shtml)
+- 2026-06-30 01:51 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/193539929.shtml)
+- 2026-06-30 01:49 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/516314.shtml)
+- 2026-06-30 01:24 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/3318942.shtml)
+- 2026-06-30 01:39 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/23653.shtml)
+- 2026-06-30 01:34 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/9877420152.shtml)
+- 2026-06-30 01:41 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/98408109003.shtml)
+- 2026-06-30 01:35 - [急先锋](http://www.blog.kurohicncr.top/Article/details/43335061.shtml)
+- 2026-06-30 01:35 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/8248347032.shtml)
+- 2026-06-30 01:48 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/1650860.shtml)
+- 2026-06-30 01:45 - [乔家的儿女](https://www.blog.minike.top/Article/details/1248757.shtml)
+- 2026-06-30 01:46 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/435223.shtml)
+- 2026-06-30 01:30 - [小娘惹](http://www.share.kurohicncr.top/Article/details/4007764628.shtml)
+- 2026-06-30 01:53 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/7790705043.shtml)
+- 2026-06-30 01:40 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/7708424696.shtml)

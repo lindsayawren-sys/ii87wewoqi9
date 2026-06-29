@@ -1,57 +1,50 @@
-# 豆神教育曾被处罚索赔还可参与，已递交多批次案件立案
+# 母亲节将至，艺术家黄河畔共话“母亲河”
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、案件已递交立案 2025年7月，豆神教育（维权）因信息披露违规问题被监管处罚，随后引发投资者维权事宜。 上海沪紫律师事务所刘鹏律师团队仍在征集受损股民中，前期收到的案件也已陆续递交立案。（刘鹏律师专栏） 依据处罚，于2022年7月1日-2024年8月15日（含当日）之前买入，并在2024年8月16日之后卖出或仍持有而亏损的即
+发布时间：2026年05月09日 13:01 来源：中国新闻网 近日，河南郑州。母亲节将至，多位文化艺术界人士来到黄河岸边，结合各自领域经历，讲述自己心中的黄河故事，表达对母亲河的情感认同。(记者 范晓恒) 责任编辑：【张燕玲】
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、案件已递交立案 2025年7月，豆神教育（维权）因信息披露违规问题被监管处罚，随后引发投资者维权事宜。
+发布时间：2026年05月09日 13:01 来源：中国新闻网 近日，河南郑州。
 
-上海沪紫律师事务所刘鹏律师团队仍在征集受损股民中，前期收到的案件也已陆续递交立案。
+母亲节将至，多位文化艺术界人士来到黄河岸边，结合各自领域经历，讲述自己心中的黄河故事，表达对母亲河的情感认同。
 
-（刘鹏律师专栏） 依据处罚，于2022年7月1日-2024年8月15日（含当日）之前买入，并在2024年8月16日之后卖出或仍持有而亏损的即可参与维权，参与索赔的投资者需要准备相关交易记录以及身份证明等材料，以便律师团队进行后续的维权工作。
-
-（豆神教育维权入口） 刘鹏律师团队已有超过300名投资者完成维权材料提交，将根据监管处罚决定书及交易记录，重点围绕信息披露违规行为与投资者损失之间的因果关系展开论证。
-
-二、多起诉讼未及时披露 据处罚，经查明，2022年7月至2023年3月，豆神教育及其控股子公司涉及未按规定披露诉讼、仲裁事项5件、未按规定及时披露察布查尔锡伯案、德峰广告案，累计涉案金额1204.2万元。
-
-其次，未按规定及时披露张某案、寓乐湾案、张家口案，也未在2023年半年度报告中予以披露，累计涉案金额1.24亿元。
-
-北京证监局决定对豆神教育给予警告，并处以230万元的罚款，相关责任人同样被罚。
-
-相关法律法规中规定发生可能对上市公司证券及其衍生品种交易价格产生较大影响的重大事件，投资者尚未得知时，上市公司应当立即披露。
+(记者 范晓恒) 责任编辑：【张燕玲】
 
 ## 相关推荐
 
-- 2026-06-30 01:43 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 01:47 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 01:41 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 01:31 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 01:43 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 01:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 01:28 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 01:37 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 01:27 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 01:43 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 01:42 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 01:37 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 01:35 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 01:35 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 01:52 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 01:27 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 01:44 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 01:25 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 01:49 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 01:37 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 01:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 01:49 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 01:52 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 01:24 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 01:26 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:27 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/983966681.shtml)
-- 2026-06-30 01:20 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/997542764.shtml)
-- 2026-06-30 01:45 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/07651601.shtml)
-- 2026-06-30 01:18 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/4643947.shtml)
-- 2026-06-30 01:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/31113222.shtml)
-- 2026-06-30 01:29 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/65428436200.shtml)
-- 2026-06-30 01:23 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/513604.shtml)
-- 2026-06-30 01:47 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/034992863.shtml)
-- 2026-06-30 01:37 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/11981173.shtml)
-- 2026-06-30 01:30 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/539032401284.shtml)
-- 2026-06-30 01:33 - [恋与深空致歉](http://www.blog.minike.top/Article/details/269223.shtml)
-- 2026-06-30 01:35 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/84389724.shtml)
-- 2026-06-30 01:36 - [斗破苍穹](https://www.share.minike.top/Article/details/849763.shtml)
-- 2026-06-30 01:37 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/509288696930.shtml)
-- 2026-06-30 01:46 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/1494882.shtml)
+- 2026-06-30 01:30 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/55216.shtml)
+- 2026-06-30 01:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/6174962.shtml)
+- 2026-06-30 01:25 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/68678673.shtml)
+- 2026-06-30 01:48 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/38716399.shtml)
+- 2026-06-30 01:28 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/325722.shtml)
+- 2026-06-30 01:29 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/95270618236.shtml)
+- 2026-06-30 01:30 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/5877608214.shtml)
+- 2026-06-30 01:36 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/6201915.shtml)
+- 2026-06-30 01:40 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/591669.shtml)
+- 2026-06-30 01:38 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/508665.shtml)
+- 2026-06-30 01:45 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/7907980.shtml)
+- 2026-06-30 01:46 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/3556388491.shtml)
+- 2026-06-30 01:34 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/379340073.shtml)
+- 2026-06-30 01:32 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/2715908.shtml)
+- 2026-06-30 01:52 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/6373937622.shtml)

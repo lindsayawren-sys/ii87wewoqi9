@@ -1,55 +1,61 @@
-# 建设银行：同意提名孙孝坤担任执行董事
+# 城市打卡点上新 这些高颜值地铁站你去过吗
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-4月9日金融一线消息，建设银行今日发布董事会会议决议公告，会议审议通过《关于提名孙孝坤先生担任本行执行董事的议案》，同意提名孙孝坤担任建设银行执行董事；同意担任董事会战略发展委员会和风险管理委员会委员，任职期限与其担任本行执行董事的任职期限相同。 简历显示，孙孝坤，1968年7月出生，中国国籍。自2026年3月起任建设银行党委副书记。高级经济师，1990年获复旦大学理学学士学位
+乘地铁出行的同时，还能看到优美的景观，购买时尚的物品，这样的体验您享受过吗？跟随记者的镜头，走进各地最美地铁站。 广东深圳 地铁出站即赏灯光秀 从深圳后海地铁口缓缓走出，海风、灯火扑面而来，一场场灯光秀轮番上演。流光漫过楼宇，繁华都市与海景完美相融，满眼都是深圳的烟火与璀璨。地铁后海站位于深圳市南山区，是深圳地铁2号线、11号线、13号线的重要交汇枢纽，从H口出站步行8分钟即可
 
 ## 正文
 
-4月9日金融一线消息，建设银行今日发布董事会会议决议公告，会议审议通过《关于提名孙孝坤先生担任本行执行董事的议案》，同意提名孙孝坤担任建设银行执行董事；同意担任董事会战略发展委员会和风险管理委员会委员，任职期限与其担任本行执行董事的任职期限相同。
+乘地铁出行的同时，还能看到优美的景观，购买时尚的物品，这样的体验您享受过吗？
 
-简历显示，孙孝坤，1968年7月出生，中国国籍。
+跟随记者的镜头，走进各地最美地铁站。
 
-自2026年3月起任建设银行党委副书记。
+广东深圳 地铁出站即赏灯光秀 从深圳后海地铁口缓缓走出，海风、灯火扑面而来，一场场灯光秀轮番上演。
 
-高级经济师，1990年获复旦大学理学学士学位，2004年获暨南大学经济学硕士学位。
+流光漫过楼宇，繁华都市与海景完美相融，满眼都是深圳的烟火与璀璨。
 
-孙孝坤于2023年9月至2026年3月任中国农业发展银行副行长；2023年5月至2023年9月任国家开发银行信息科技部总经理；2020年8月至2023年5月任国开证券股份有限公司董事长；2019年4月至2020年8月任国家开发银行巡视工作领导小组办公室主任；2017年5月至2019年4月任国开证券股份有限公司监事长；2016年6月至2017年5月任中非发展基金有限公司监事长；2010年10月至2016年6月先后任国家开发银行风险管理局副局长、信息科技局副局长兼数据运行中心主任、信息科技局副局长兼开发测试中心主任、人事局副局长。
+地铁后海站位于深圳市南山区，是深圳地铁2号线、11号线、13号线的重要交汇枢纽，从H口出站步行8分钟即可直达深圳人才公园灯光秀核心观赏区。
 
-责任编辑：曹睿潼
+此刻，高层楼宇变身巨型光影荧幕，无人机在空中变化出各种图景。
+
+市民 温女士：心情挺好的，因为这边也可以吹到海风，在这边散步的人也蛮多的，可以欣赏到这样的夜景。
+
+据了解，深圳人才公园灯光秀每周五、周六及法定节假日上演，每晚三场循环展演，全程免费免预约。
 
 ## 相关推荐
 
-- 2026-06-30 01:36 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 01:39 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 01:27 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 01:46 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 01:20 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 01:42 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 01:32 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 01:29 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 01:19 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 01:21 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 01:42 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 01:27 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-30 01:22 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 01:48 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 01:52 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 01:50 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 01:50 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 01:33 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 01:29 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 01:33 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 01:44 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 01:40 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 01:47 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 01:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 01:30 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 01:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 01:40 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 01:41 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:41 - [速度与激情9](http://www.share.minike.top/Article/details/75930.shtml)
-- 2026-06-30 01:44 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/59869826.shtml)
-- 2026-06-30 01:43 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/0615331.shtml)
-- 2026-06-30 01:36 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/57201029.shtml)
-- 2026-06-30 01:24 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/4176952.shtml)
-- 2026-06-30 01:35 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/032360.shtml)
-- 2026-06-30 01:21 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/93931.shtml)
-- 2026-06-30 01:40 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/21441.shtml)
-- 2026-06-30 01:37 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/76285693.shtml)
-- 2026-06-30 01:38 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/6464293.shtml)
-- 2026-06-30 01:26 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/554777270.shtml)
-- 2026-06-30 01:21 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/535086405.shtml)
-- 2026-06-30 01:40 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/9562193455.shtml)
-- 2026-06-30 01:47 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/793213653356.shtml)
-- 2026-06-30 01:34 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/66555827.shtml)
+- 2026-06-30 01:28 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/86064695662.shtml)
+- 2026-06-30 01:44 - [美股](https://www.share.kurohicncr.top/Article/details/143905.shtml)
+- 2026-06-30 01:53 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/92623704.shtml)
+- 2026-06-30 01:30 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/26264678.shtml)
+- 2026-06-30 01:26 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/0347559.shtml)
+- 2026-06-30 01:29 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/5510153377.shtml)
+- 2026-06-30 01:28 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/511414527.shtml)
+- 2026-06-30 01:25 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/6697113.shtml)
+- 2026-06-30 01:51 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/16664169820.shtml)
+- 2026-06-30 01:47 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/665672110.shtml)
+- 2026-06-30 01:49 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/4421504.shtml)
+- 2026-06-30 01:30 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/342155650810.shtml)
+- 2026-06-30 01:36 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/354477.shtml)
+- 2026-06-30 01:27 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/521429.shtml)
+- 2026-06-30 01:43 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/631479783947.shtml)

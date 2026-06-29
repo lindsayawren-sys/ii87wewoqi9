@@ -1,60 +1,61 @@
-# 聚焦主责主业 推动走深走实
+# 库存全面增加！玻璃期价反弹难持续？
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-各地区各部门各单位深入开展学习教育—— 聚焦主责主业 推动走深走实(树立和践行正确政绩观) 树立和践行正确政绩观学习教育开展以来，各地区各部门各单位高标准严要求抓好组织实施，积极学习研讨，推动党员干部学思践悟、实干笃行。 紧扣重点 筑牢根基坚持读原著、学原文、悟原理，江西九江市通过读书班、理论学习中心组学习、“三会一课”等方式，推动1.17万个党组织、23.28万余名党员干部深
+来源：期货日报 “五一”假期结束后，国内玻璃期货价格有所反弹，但现货市场却呈现出另一番景象。 根据隆众资讯数据，截至5月7日，全国浮法玻璃样本企业总库存7827.1万重箱，环比增加219万重箱，增幅为2.88%，创3月份以来新高，同比增加15.85%，折库存可用天数增加1.1天，至35.7天，各区域库存全面增加。玻璃现货价格整体保持平稳，区域分化特征显著，沙河等局部地区价格小幅
 
 ## 正文
 
-各地区各部门各单位深入开展学习教育—— 聚焦主责主业 推动走深走实(树立和践行正确政绩观) 树立和践行正确政绩观学习教育开展以来，各地区各部门各单位高标准严要求抓好组织实施，积极学习研讨，推动党员干部学思践悟、实干笃行。
+来源：期货日报 “五一”假期结束后，国内玻璃期货价格有所反弹，但现货市场却呈现出另一番景象。
 
-紧扣重点 筑牢根基坚持读原著、学原文、悟原理，江西九江市通过读书班、理论学习中心组学习、“三会一课”等方式，推动1.17万个党组织、23.28万余名党员干部深学细悟习近平总书记关于树立和践行正确政绩观的重要论述，不断筑牢思想根基，自觉树立和践行正确政绩观。
+根据隆众资讯数据，截至5月7日，全国浮法玻璃样本企业总库存7827.1万重箱，环比增加219万重箱，增幅为2.88%，创3月份以来新高，同比增加15.85%，折库存可用天数增加1.1天，至35.7天，各区域库存全面增加。
 
-兰州大学领导班子将个别领学、集中学习、交流研讨结合起来，针对不同群体思想特点强化分类指导，引导广大党员干部求真务实，推动各项工作提质增效，全力以赴建设一流大学。
+玻璃现货价格整体保持平稳，区域分化特征显著，沙河等局部地区价格小幅上调，而华东、华中部分区域价格则略有回落。
 
-中国华电党组举办专题读书班暨党组理论学习中心组学习研讨，研读《习近平关于树立和践行正确政绩观论述摘编》，带动党员干部深学细悟，自觉强化“一张蓝图绘到底”的定力，以高质量党建引领推动绿色低碳发展。
+光大期货资源品高级分析师张凌璐认为，低估值、供应端边际改善、成本支撑三重因素共同推动玻璃期货价格回升。
 
-中储粮集团党组采取逐章逐条读原著和党组理论学习中心组成员重点发言相结合的方式，深学细悟习近平总书记关于树立和践行正确政绩观的重要论述，引导党员干部把政绩体现在守住管好“大国粮仓”的具体实践中。
+中信建投期货能化高级分析师胡鹏表示，上周华北地区玻璃主流成交价上涨10元/吨，华中地区则下调20元/吨，现货价格涨幅低于期货价格的原因是终端需求疲软。
 
-中国太平保险集团开设学习教育读书班，班子成员带头开展交流研讨，抓实个人自学；各子公司党委同步开展讨论，组织党员干部对照政绩观偏差主要问题清单，从党性上找差距、查根源、强修养，弘扬严实作风，校准思想坐标。
+具体来看，当前玻璃现货全行业处于亏损状态，期货主力合约估值更是处于上市以来的极低区间，价格筑底特征明显，下跌空间有限。
 
-创新形式 入脑入心 四川达州市县两级同步举办领导干部读书班，邀请专家学者现场辅导，利用新媒体平台让优质课程直达基层，同时用好本地特色案例等资源，教育引导全市党员干部传承红色基因、砥砺初心使命，将学习教育相关内容纳入各级党校(行政学院)主体班次，聚焦不同层级、不同领域干部分类设置教学内容。
+供应方面，截至5月8日，国内浮法玻璃在产日熔量为14.45万吨，较4月末下降390吨。
 
-在江苏宿迁市宿城区，1320个党组织、2.9万名党员干部通过“第一议题”领学研学、理论学习中心组集中研讨、现场教学点实地体悟等多种方式，深入学习领会习近平总书记关于树立和践行正确政绩观的重要论述，把学习教育成果转化为问需于民的实际行动，梳理出6大类84项民生实事清单，逐项推动解决。
+若市场成交持续低迷，后续冷修产线将增多。
 
 ## 相关推荐
 
-- 2026-06-30 01:36 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 01:26 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 01:33 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 01:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 01:45 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 01:25 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 01:19 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 01:41 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 01:46 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 01:45 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 01:45 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 01:46 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 01:20 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 01:40 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 01:30 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 01:28 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 01:40 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 01:24 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 01:27 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 01:50 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 01:28 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 01:49 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 01:29 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 01:44 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 01:33 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 01:40 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 01:27 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 01:31 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 01:28 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:33 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/257949921.shtml)
-- 2026-06-30 01:41 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/813324724189.shtml)
-- 2026-06-30 01:23 - [内马尔替补](http://www.blog.minike.top/Article/details/735663.shtml)
-- 2026-06-30 01:46 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/5332782.shtml)
-- 2026-06-30 01:26 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/9393587.shtml)
-- 2026-06-30 01:25 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/307451.shtml)
-- 2026-06-30 01:31 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/41836.shtml)
-- 2026-06-30 01:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/660312.shtml)
-- 2026-06-30 01:28 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/793108.shtml)
-- 2026-06-30 01:38 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/1408238.shtml)
-- 2026-06-30 01:35 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/89011719884.shtml)
-- 2026-06-30 01:23 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/6673541849.shtml)
-- 2026-06-30 01:32 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/370413549416.shtml)
-- 2026-06-30 01:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/4115116695.shtml)
-- 2026-06-30 01:33 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/9750477.shtml)
+- 2026-06-30 01:34 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/5810332.shtml)
+- 2026-06-30 01:28 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/79634004460.shtml)
+- 2026-06-30 01:28 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/279894.shtml)
+- 2026-06-30 01:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/05551836156.shtml)
+- 2026-06-30 01:48 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/07392.shtml)
+- 2026-06-30 01:51 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/447818615.shtml)
+- 2026-06-30 01:42 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/63783775724.shtml)
+- 2026-06-30 01:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/3293451427.shtml)
+- 2026-06-30 01:26 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/43626.shtml)
+- 2026-06-30 01:31 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/9751102.shtml)
+- 2026-06-30 01:39 - [沙丘](https://www.share.minike.top/Article/details/98668176491.shtml)
+- 2026-06-30 01:30 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/904173.shtml)
+- 2026-06-30 01:50 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/9241504.shtml)
+- 2026-06-30 01:47 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/2970930010.shtml)
+- 2026-06-30 01:31 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/50308370.shtml)

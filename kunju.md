@@ -1,45 +1,46 @@
-# 习近平会见郑丽文：两岸同胞走亲走近 走到一起的大潮流不会改变
+# 绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月10日 19:18 来源：央视新闻客户端 责任编辑：【姜媛媛】
+绿电概念早盘集体上扬，截至发稿，大唐发电（00991）上涨8.64%，报3.27港元；龙源电力（00916）上涨3.28%，报6.93港元；华电国际电力股份（01071）上涨2.73%，报4.52港元；华能国际电力股份（00902）上涨1.98%，报6.71港元。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年04月10日 19:18 来源：央视新闻客户端 责任编辑：【姜媛媛】
+绿电概念早盘集体上扬，截至发稿，大唐发电（00991）上涨8.64%，报3.27港元；龙源电力（00916）上涨3.28%，报6.93港元；华电国际电力股份（01071）上涨2.73%，报4.52港元；华能国际电力股份（00902）上涨1.98%，报6.71港元。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:41 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 01:25 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 01:19 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 01:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 01:27 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 01:25 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 01:23 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 01:44 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 01:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 01:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 01:36 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 01:39 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 01:26 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 01:39 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 01:42 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 01:49 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 01:53 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 01:37 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 01:51 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 01:45 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-30 01:24 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 01:39 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 01:36 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 01:45 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 01:52 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:33 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/7063399503.shtml)
-- 2026-06-30 01:23 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/46004905122.shtml)
-- 2026-06-30 01:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/730074472.shtml)
-- 2026-06-30 01:28 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/002430.shtml)
-- 2026-06-30 01:32 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/056726095038.shtml)
-- 2026-06-30 01:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/523179.shtml)
-- 2026-06-30 01:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/3445119.shtml)
-- 2026-06-30 01:32 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/56492211630.shtml)
-- 2026-06-30 01:31 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/0899566557.shtml)
-- 2026-06-30 01:33 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/95851347963.shtml)
-- 2026-06-30 01:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/81665754.shtml)
-- 2026-06-30 01:30 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/357230846514.shtml)
-- 2026-06-30 01:43 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/067873647.shtml)
-- 2026-06-30 01:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/26998635407.shtml)
-- 2026-06-30 01:28 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/099842029899.shtml)
+- 2026-06-30 01:32 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/450703845379.shtml)
+- 2026-06-30 01:25 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/99265.shtml)
+- 2026-06-30 01:49 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/02357.shtml)
+- 2026-06-30 01:38 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/84691918.shtml)
+- 2026-06-30 01:45 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/29428327914.shtml)
+- 2026-06-30 01:50 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/887396766.shtml)
+- 2026-06-30 01:29 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/17700503.shtml)
+- 2026-06-30 01:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/337463292835.shtml)
+- 2026-06-30 01:39 - [天道](http://www.blog.kurohicncr.top/Article/details/841863104.shtml)
+- 2026-06-30 01:31 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/39130.shtml)
+- 2026-06-30 01:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/77587544407.shtml)
+- 2026-06-30 01:40 - [恋与深空 日服](https://www.share.minike.top/Article/details/19830166.shtml)
+- 2026-06-30 01:33 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/263888999698.shtml)
+- 2026-06-30 01:51 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/29053424.shtml)
+- 2026-06-30 01:45 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/6548800.shtml)

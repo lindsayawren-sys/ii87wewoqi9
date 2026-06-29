@@ -1,56 +1,57 @@
-# 营收微增难掩利润“失血”：中国武夷计提4.17亿减值，房地产业务深陷调整期
+# 菲律宾众议院将就针对副总统萨拉·杜特尔特的弹劾案进行投票
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-4月9日，中国武夷披露2025年年度业绩快报。报告期内，公司实现营业总收入71.26亿元，同比增长4.97%，增速微弱；但营业利润、利润总额、归母净利润、扣非净利润及基本每股收益等核心盈利指标同比均出现大幅下降。在“增收不增利”的表象之下，房地产深度调整带来的减值冲击与国际工程回款不畅双重夹击，正将这家老牌国企拖入业绩寒冬。 一、计提4.17亿减值：利润“黑洞”从何而来？ 公司
+菲律宾副总统萨拉·杜特尔特最早可能在周一面临第二次弹劾，这可能成为她昔日盟友、如今的对手——小费迪南德·马科斯总统的胜利，并可能会加剧该国的政治和经济动荡。 国会众议院318名成员中需要三分之一的议员支持才能对她进行弹劾，弹劾程序随后会提交参议院，参议院24名成员中需要三分之二的议员支持才能定罪。 若参议院判决弹劾罪名成立，她将被终身禁止参政，并被免去公职，当然目前这一点还远无
 
 ## 正文
 
-4月9日，中国武夷披露2025年年度业绩快报。
+菲律宾副总统萨拉·杜特尔特最早可能在周一面临第二次弹劾，这可能成为她昔日盟友、如今的对手——小费迪南德·马科斯总统的胜利，并可能会加剧该国的政治和经济动荡。
 
-报告期内，公司实现营业总收入71.26亿元，同比增长4.97%，增速微弱；但营业利润、利润总额、归母净利润、扣非净利润及基本每股收益等核心盈利指标同比均出现大幅下降。
+国会众议院318名成员中需要三分之一的议员支持才能对她进行弹劾，弹劾程序随后会提交参议院，参议院24名成员中需要三分之二的议员支持才能定罪。
 
-在“增收不增利”的表象之下，房地产深度调整带来的减值冲击与国际工程回款不畅双重夹击，正将这家老牌国企拖入业绩寒冬。
+若参议院判决弹劾罪名成立，她将被终身禁止参政，并被免去公职，当然目前这一点还远无定论。
 
-一、计提4.17亿减值：利润“黑洞”从何而来？
+众议院副议长珍妮特·加林表示，众议院周一将就针对萨拉·杜特尔特的弹劾案进行投票，但未提供更多细节。
 
-公司财报中最触目惊心的数字，莫过于拟计提资产减值损失及信用减值损失合计约4.17亿元。
+众议员特里·里东在X上发帖表示，至少有215票支持弹劾这位副总统。
 
-这一规模对于一家年营收仅70余亿元的企业而言，无异于直接吞噬了过半利润空间。
+里东说：“目前，证据已明确指向存在背叛公众信任和严重违反宪法的情况。
 
-具体拆解来看，减值主要来自两大业务板块： 房地产业务： 受项目所在区域行业和市场波动影响，房地产项目结转毛利率同比下降。
+” 萨拉·杜特尔特面临四项指控，包括滥用公款和威胁刺杀马科斯。
 
-同时，公司根据谨慎性原则，结合市场状况和实际销售情况，对存货等资产计提相应减值准备。
+她否认有任何不当行为，声称这些指控是出于政治动机。
 
 ## 相关推荐
 
-- 2026-06-30 01:30 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 01:23 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 01:38 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 01:37 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 01:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 01:28 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 01:37 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 01:25 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 01:30 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 01:22 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 01:38 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 01:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 01:34 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 01:45 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 01:41 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 01:36 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 01:24 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 01:35 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 01:40 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 01:48 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 01:46 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:22 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/22149.shtml)
-- 2026-06-30 01:32 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/88156720.shtml)
-- 2026-06-30 01:34 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/516522602.shtml)
-- 2026-06-30 01:23 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/688675954.shtml)
-- 2026-06-30 01:21 - [锐评T1零封KC](http://www.share.minike.top/Article/details/121546616474.shtml)
-- 2026-06-30 01:38 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/02609858.shtml)
-- 2026-06-30 01:32 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/813502821266.shtml)
-- 2026-06-30 01:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/83592.shtml)
-- 2026-06-30 01:39 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/88298995433.shtml)
-- 2026-06-30 01:22 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/647572.shtml)
-- 2026-06-30 01:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/85296.shtml)
-- 2026-06-30 01:18 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/183410198.shtml)
-- 2026-06-30 01:25 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/213344170540.shtml)
-- 2026-06-30 01:26 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/63517303873.shtml)
-- 2026-06-30 01:41 - [刘念回应](http://www.blog.minike.top/Article/details/796093619833.shtml)
+- 2026-06-30 01:42 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/53751309869.shtml)
+- 2026-06-30 01:27 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/1017037011.shtml)
+- 2026-06-30 01:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/850493.shtml)
+- 2026-06-30 01:39 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/4125471384.shtml)
+- 2026-06-30 01:28 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/547712793388.shtml)
+- 2026-06-30 01:36 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/660489.shtml)
+- 2026-06-30 01:27 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/132728141.shtml)
+- 2026-06-30 01:45 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/400918.shtml)
+- 2026-06-30 01:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/80614063190.shtml)
+- 2026-06-30 01:31 - [TOP Prada](http://www.blog.minike.top/Article/details/931556230.shtml)
+- 2026-06-30 01:53 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/51674320061.shtml)
+- 2026-06-30 01:48 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/567558.shtml)
+- 2026-06-30 01:46 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/7221755.shtml)
+- 2026-06-30 01:46 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/181168364.shtml)
+- 2026-06-30 01:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/268971228.shtml)

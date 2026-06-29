@@ -1,60 +1,56 @@
-# 西安交通大学丝绸之路历史文化研究院揭牌
+# 苏州：个人公积金最高贷款额度提至150万元
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网西安4月9日电 (记者 阿琳娜)西安交通大学丝绸之路历史文化研究院7日揭牌，旨在发挥学科交叉优势，推进新文科建设。 西安交通大学校长、中国工程院院士张立群表示，研究院的成立是学校深耕人文社科、服务国家“一带一路”倡议的重要举措，也是西安交大传承文明、面向世界的责任担当。希望研究院能够打破学科壁垒，推动交叉创新，积极探索人文与理工的深度融合，走出一条具有交大特色的新文科发展
+中新网5月10日电 据“苏州公积金”微信公众号消息，为促进房地产市场平稳健康发展，更好满足缴存人刚性和多样化住房需求，充分发挥住房公积金制度保障作用，苏州市住房公积金管理中心印发了《关于优化住房公积金使用政策的通知》(苏州房金〔2026〕24号)(以下简称《通知》)，具体内容如下。一.提高贷款最高限额 个人公积金最高贷款额度调整为150万元，家庭公积金最高贷款额度调整为200万
 
 ## 正文
 
-中新网西安4月9日电 (记者 阿琳娜)西安交通大学丝绸之路历史文化研究院7日揭牌，旨在发挥学科交叉优势，推进新文科建设。
+中新网5月10日电 据“苏州公积金”微信公众号消息，为促进房地产市场平稳健康发展，更好满足缴存人刚性和多样化住房需求，充分发挥住房公积金制度保障作用，苏州市住房公积金管理中心印发了《关于优化住房公积金使用政策的通知》(苏州房金〔2026〕24号)(以下简称《通知》)，具体内容如下。
 
-西安交通大学校长、中国工程院院士张立群表示，研究院的成立是学校深耕人文社科、服务国家“一带一路”倡议的重要举措，也是西安交大传承文明、面向世界的责任担当。
+一.提高贷款最高限额 个人公积金最高贷款额度调整为150万元，家庭公积金最高贷款额度调整为200万元。
 
-希望研究院能够打破学科壁垒，推动交叉创新，积极探索人文与理工的深度融合，走出一条具有交大特色的新文科发展道路。
+二.优化贷款次数、套数认定标准 主要内容：购买、建造、翻建、大修我市行政区域内自住住房申请公积金贷款(不含“商转公”贷款)，申请时全国范围内无公积金贷款余额的，执行首套房公积金贷款政策。
 
-期待未来依托研究院这一平台，进一步加强文化交流，服务国家战略，为增进各国人民之间的相互理解和深厚友谊贡献西安交大智慧与力量。
+案例解析 1. 问：缴存人李某家庭之前使用公积金贷款购买了我市房产A和B，且均已结清，2026年6月购买房产C，还可以申请公积金贷款吗？
 
-西安交通大学党委常委、宣传部部长、统战部部长成进围绕研究院发展定位、学科布局、研究方向、人才团队、平台建设及未来规划等方面作介绍。
+利率多少？
 
-他表示，研究院以学科交叉、国际视野为特色，深耕丝绸之路历史文化研究，未来将围绕国家战略需求，汇聚校内外一流人才，打造高端学术平台，助力文化传承创新与国际学术交流。
+答：可以，执行首套房公积金贷款政策。
 
-西安交通大学丝绸之路历史文化研究院院长熊召政表示，研究院将坚守学术初心，秉持文史贯通、知行合一、开放包容的理念，持续推出高质量学术成果与文化精品，助力学校文科学科发展，努力建设成为丝路研究的学术高地、人才培养的重要基地、文明传播的前沿阵地。
+2. 问：缴存人李某家庭之前购买了我市W区房产A和B，均已还清贷款，2026年6月购买W区房产C，还可以申请公积金贷款吗？
 
-(完)
+利率多少？
 
 ## 相关推荐
 
-- 2026-06-30 01:20 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-30 01:42 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 01:19 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 01:40 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 01:22 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 01:33 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 01:25 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 01:30 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 01:31 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-30 01:34 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 01:18 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-30 01:28 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 01:22 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 01:28 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 01:32 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 01:49 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 01:44 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 01:46 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 01:32 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 01:25 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 01:29 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 01:31 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 01:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 01:47 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/76767620.shtml)
-- 2026-06-30 01:23 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/343128726.shtml)
-- 2026-06-30 01:29 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/40854.shtml)
-- 2026-06-30 01:30 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/62759824489.shtml)
-- 2026-06-30 01:22 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/70886542.shtml)
-- 2026-06-30 01:45 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/343413.shtml)
-- 2026-06-30 01:47 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/6368665.shtml)
-- 2026-06-30 01:39 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/08926710799.shtml)
-- 2026-06-30 01:31 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/8532324801.shtml)
-- 2026-06-30 01:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/141577958015.shtml)
-- 2026-06-30 01:44 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/149625078.shtml)
-- 2026-06-30 01:27 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/4295762.shtml)
-- 2026-06-30 01:25 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/751064.shtml)
-- 2026-06-30 01:34 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/8804712812.shtml)
-- 2026-06-30 01:46 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/0595805.shtml)
+- 2026-06-30 01:31 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/0305282.shtml)
+- 2026-06-30 01:38 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/47447.shtml)
+- 2026-06-30 01:53 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/1447808748.shtml)
+- 2026-06-30 01:45 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/129470.shtml)
+- 2026-06-30 01:25 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/877432888.shtml)
+- 2026-06-30 01:31 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/7834647.shtml)
+- 2026-06-30 01:25 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/289739.shtml)
+- 2026-06-30 01:40 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/90946302229.shtml)
+- 2026-06-30 01:29 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/07901643186.shtml)
+- 2026-06-30 01:27 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/329347.shtml)
+- 2026-06-30 01:33 - [起风了](https://www.share.minike.top/Article/details/33363.shtml)
+- 2026-06-30 01:33 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/0749658.shtml)
+- 2026-06-30 01:32 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/068582687.shtml)
+- 2026-06-30 01:26 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/78790.shtml)
+- 2026-06-30 01:46 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/783446252.shtml)

@@ -1,57 +1,57 @@
-# “夫妻用AI写公众号年赚200万”？微信回应
+# 网红特产买回家发现全是虫 食品安全如何保障
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-微信公众号出手打击AI创作：不得利用自动化方式替代真人完成内容生产 “夫妻用AI写公众号年赚200万”登上热搜后，微信回应。 最近在社交媒体上，用AI开设“一人公司”的风潮爆火，据某个商业访谈账号分享，有夫妻俩用AI写公众号赚取流量费，一年收入200万。不过，根据公开信息，所谓的200万年收入中，‌绝大部分来自向“内容达人”或学员收取的299元保证金费用‌，而非公众号流量广告。
+“网红卖灌肠有虫，辩称老公打包时眼花”——这条消息最近引发了广泛关注。据媒体报道，河南安阳一位顾客在当地网红处购买了特色灌肠，收到货后发现真空包装袋内布满蝇虫尸体。涉事店家“网红小飞燕”回应称，店里人多装了个小风扇，当天自己不在店内，是老公打包时“眼花”了没检查出来。虽然店家表示已将钱全部退给顾客的闺女，但这样的解释显然难以让消费者信服。 近年来，随着短视频和直播带货的兴起，越
 
 ## 正文
 
-微信公众号出手打击AI创作：不得利用自动化方式替代真人完成内容生产 “夫妻用AI写公众号年赚200万”登上热搜后，微信回应。
+“网红卖灌肠有虫，辩称老公打包时眼花”——这条消息最近引发了广泛关注。
 
-最近在社交媒体上，用AI开设“一人公司”的风潮爆火，据某个商业访谈账号分享，有夫妻俩用AI写公众号赚取流量费，一年收入200万。
+据媒体报道，河南安阳一位顾客在当地网红处购买了特色灌肠，收到货后发现真空包装袋内布满蝇虫尸体。
 
-不过，根据公开信息，所谓的200万年收入中，‌绝大部分来自向“内容达人”或学员收取的299元保证金费用‌，而非公众号流量广告。
+涉事店家“网红小飞燕”回应称，店里人多装了个小风扇，当天自己不在店内，是老公打包时“眼花”了没检查出来。
 
-尽管如此，“AI写公众号”的消息也引发外界的广泛关注，不少声音担忧这会对现有内容模式造成巨大冲击。
+虽然店家表示已将钱全部退给顾客的闺女，但这样的解释显然难以让消费者信服。
 
-‌‌4月9日，微信团队向澎湃新闻记者回应，微信公众平台一贯鼓励真人创作。
+近年来，随着短视频和直播带货的兴起，越来越多的地方特色美食、网红零食走进了千家万户的购物车。
 
-近期，平台关注到利用自动化工具替代真人创作的行为，《微信公众平台运营规范》再次明确：公众号和服务号不得利用AI、脚本、接口或其他自动化方式，替代真人完成内容创作、发布等流程，也不得传播、推广此类自动化创作的教程或服务。
+从手工腊肠到自制辣条，从农家蜂蜜到野生菌菇，这些打着“纯天然”“古法手作”“农家自产”标签的网红食品，凭借诱人的画面和动人的故事吸引了大量消费者下单。
 
-一经发现，平台将视违规程度对相关账号采取相应的处理措施。
+然而，光鲜的包装背后，食品安全问题却屡屡曝光：有的产品无生产日期、无保质期、无生产厂家信息；有的在简陋甚至脏乱的环境中加工包装；还有的为了延长保质期违规添加防腐剂或过量使用添加剂。
 
-微信团队表示，平台鼓励创作者合理使用工具辅助创作、提升创作效率，但反对完全由自动化程序替代真人完成内容生产的行为。
+消费者在购买这类网红食品时往往处于信息弱势地位。
 
 ## 相关推荐
 
-- 2026-06-30 01:41 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 01:25 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 01:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 01:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 01:21 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-30 01:41 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 01:44 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 01:43 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-30 01:23 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 01:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 01:28 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 01:53 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 01:51 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 01:50 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 01:49 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 01:41 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 01:34 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 01:25 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 01:53 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 01:28 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 01:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 01:49 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:41 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/5545677.shtml)
-- 2026-06-30 01:33 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/451554156.shtml)
-- 2026-06-30 01:27 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/9561953982.shtml)
-- 2026-06-30 01:36 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/20491470641.shtml)
-- 2026-06-30 01:30 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/978049645228.shtml)
-- 2026-06-30 01:47 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/020232041329.shtml)
-- 2026-06-30 01:47 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/73872234765.shtml)
-- 2026-06-30 01:25 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/74144341.shtml)
-- 2026-06-30 01:44 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/97491.shtml)
-- 2026-06-30 01:44 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/3154611065.shtml)
-- 2026-06-30 01:26 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/57032425398.shtml)
-- 2026-06-30 01:47 - [内马尔替补](https://www.blog.minike.top/Article/details/491367072.shtml)
-- 2026-06-30 01:39 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/53903.shtml)
-- 2026-06-30 01:39 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/950392.shtml)
-- 2026-06-30 01:27 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/970389.shtml)
+- 2026-06-30 01:38 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/561929231385.shtml)
+- 2026-06-30 01:32 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/099592824.shtml)
+- 2026-06-30 01:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/93663792.shtml)
+- 2026-06-30 01:31 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/33127.shtml)
+- 2026-06-30 01:31 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/515535925416.shtml)
+- 2026-06-30 01:27 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/280179.shtml)
+- 2026-06-30 01:45 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/47974293.shtml)
+- 2026-06-30 01:49 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/1206258.shtml)
+- 2026-06-30 01:24 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/32152129.shtml)
+- 2026-06-30 01:39 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/66496384183.shtml)
+- 2026-06-30 01:32 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/85047100.shtml)
+- 2026-06-30 01:46 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/26074.shtml)
+- 2026-06-30 01:35 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/7432274207.shtml)
+- 2026-06-30 01:53 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/43936.shtml)
+- 2026-06-30 01:44 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/668117.shtml)

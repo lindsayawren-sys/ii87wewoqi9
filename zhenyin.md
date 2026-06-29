@@ -1,52 +1,48 @@
-# 美团海雀IoT平台全面升级为AIoTSaaS
+# 中原资产管理有限公司原总经理李建国被开除党籍
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 4月10日下午消息，美团近日将海雀IoT PaaS平台全面升级为海雀AIoT SaaS平台，并依托自研星眸端侧AI能力，推出面向“仓、店、服务”三大场景的标准化AIoT解决方案。 据介绍，目前，美团海雀AIoT平台已有效解决业务链路中“事后有据可查”的痛点。按照美团的规划，下一步将是走向“事前主动干预”。随着星眸视觉算法与边缘算力设备的持续升级，未来的平台将具备实时
+中新网5月11日电 据河南省纪委监委消息：经中共河南省委批准，河南省纪委监委对中原资产管理有限公司原党委副书记、副董事长、总经理李建国严重违纪违法问题进行了立案审查调查。 经查，李建国违反中央八项规定精神，收受可能影响公正执行公务的礼品、礼金，接受可能影响公正执行公务的宴请；违背组织原则，不按规定报告个人有关事项，利用职权违规为他人谋取人事利益；廉洁底线失守，通过民间借贷获取大
 
 ## 正文
 
-新浪科技讯 4月10日下午消息，美团近日将海雀IoT PaaS平台全面升级为海雀AIoT SaaS平台，并依托自研星眸端侧AI能力，推出面向“仓、店、服务”三大场景的标准化AIoT解决方案。
+中新网5月11日电 据河南省纪委监委消息：经中共河南省委批准，河南省纪委监委对中原资产管理有限公司原党委副书记、副董事长、总经理李建国严重违纪违法问题进行了立案审查调查。
 
-据介绍，目前，美团海雀AIoT平台已有效解决业务链路中“事后有据可查”的痛点。
+经查，李建国违反中央八项规定精神，收受可能影响公正执行公务的礼品、礼金，接受可能影响公正执行公务的宴请；违背组织原则，不按规定报告个人有关事项，利用职权违规为他人谋取人事利益；廉洁底线失守，通过民间借贷获取大额回报，违规从事营利性活动，利用职权为他人谋利并收受财物；违规干预插手市场经济活动；滥用职权，造成国有资金特别重大损失；大搞权钱交易，利用职务便利为他人在提供银行贷款担保等方面谋取利益，非法收受巨额财物。
 
-按照美团的规划，下一步将是走向“事前主动干预”。
+李建国严重违反党的组织纪律、廉洁纪律和工作纪律，构成严重职务违法并涉嫌国有公司人员滥用职权、受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-随着星眸视觉算法与边缘算力设备的持续升级，未来的平台将具备实时识别作业异常、即时触发纠错提醒的能力，并逐步引入AI智能巡检与跨设备协同调度，推动仓储作业管理从“被动记录”全面迈向智能化“主动发现”的新阶段。
-
-责任编辑：石秀珍 SF183
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经河南省纪委常委会会议研究并报中共河南省委批准，决定给予李建国开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 01:23 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 01:27 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 01:38 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 01:37 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 01:47 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 01:43 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 01:34 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 01:39 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 01:34 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 01:41 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 01:36 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 01:41 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 01:52 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 01:42 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 01:41 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 01:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 01:39 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 01:53 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 01:50 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 01:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 01:51 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:38 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/17896043.shtml)
-- 2026-06-30 01:20 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/5486272.shtml)
-- 2026-06-30 01:41 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/30739.shtml)
-- 2026-06-30 01:44 - [一见倾心](https://www.share.minike.top/Article/details/159954319970.shtml)
-- 2026-06-30 01:20 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/60995.shtml)
-- 2026-06-30 01:22 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/76125784527.shtml)
-- 2026-06-30 01:27 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/84635.shtml)
-- 2026-06-30 01:32 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/848923650858.shtml)
-- 2026-06-30 01:30 - [逃狱兄弟](http://www.blog.minike.top/Article/details/099943044.shtml)
-- 2026-06-30 01:45 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/7719632043.shtml)
-- 2026-06-30 01:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/42541580.shtml)
-- 2026-06-30 01:30 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/133855771.shtml)
-- 2026-06-30 01:23 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/207366164977.shtml)
-- 2026-06-30 01:36 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/3140605.shtml)
-- 2026-06-30 01:34 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/24875536.shtml)
+- 2026-06-30 01:39 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/7701800.shtml)
+- 2026-06-30 01:44 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/40283307.shtml)
+- 2026-06-30 01:32 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/201315.shtml)
+- 2026-06-30 01:36 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/793888755239.shtml)
+- 2026-06-30 01:48 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/31580.shtml)
+- 2026-06-30 01:28 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/223654.shtml)
+- 2026-06-30 01:48 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/06713.shtml)
+- 2026-06-30 01:46 - [月亮](https://www.blog.minike.top/Article/details/80345.shtml)
+- 2026-06-30 01:47 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/478895376712.shtml)
+- 2026-06-30 01:34 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/443587899.shtml)
+- 2026-06-30 01:33 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/5375447653.shtml)
+- 2026-06-30 01:28 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/0330793.shtml)
+- 2026-06-30 01:50 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/5862992272.shtml)
+- 2026-06-30 01:32 - [明星大侦探第一季](https://www.share.minike.top/Article/details/120485910046.shtml)
+- 2026-06-30 01:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/2749306919.shtml)

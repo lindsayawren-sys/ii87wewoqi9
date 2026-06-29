@@ -1,45 +1,54 @@
-# 宝积资本授出1.205亿份购股权
+# 鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-宝积资本（08168）发布公告，于2026年4月8日，公司根据其于2025年2月18日采纳的购股权计划授出合共1.205亿份购股权予15名合资格参与者，彼等为集团的董事、高级管理层及雇员，但须待承授人接纳后方可作实。责任编辑：卢昱君
+新华社罗马5月8日电(记者王奕涵 刁泽)据意大利媒体8日报道，美国国务卿鲁比奥当天在意大利访问期间就俄乌冲突表态称，若关于乌克兰问题的谈判无法取得进展，美方不愿再“浪费时间”。此外他还预计伊朗当天会对美国提出的协议方案作出回应。鲁比奥当天在美国驻意大利大使馆举行的新闻发布会上表示，美国仍愿意在乌克兰问题上担任调停方，但如果相关努力无法取得进展，美方不愿“浪费时间”。 关于美国同
 
 ## 正文
 
-宝积资本（08168）发布公告，于2026年4月8日，公司根据其于2025年2月18日采纳的购股权计划授出合共1.205亿份购股权予15名合资格参与者，彼等为集团的董事、高级管理层及雇员，但须待承授人接纳后方可作实。
+新华社罗马5月8日电(记者王奕涵 刁泽)据意大利媒体8日报道，美国国务卿鲁比奥当天在意大利访问期间就俄乌冲突表态称，若关于乌克兰问题的谈判无法取得进展，美方不愿再“浪费时间”。
 
-责任编辑：卢昱君
+此外他还预计伊朗当天会对美国提出的协议方案作出回应。
+
+鲁比奥当天在美国驻意大利大使馆举行的新闻发布会上表示，美国仍愿意在乌克兰问题上担任调停方，但如果相关努力无法取得进展，美方不愿“浪费时间”。
+
+关于美国同伊朗之间的谈判，鲁比奥表示，预计当天将收到伊朗方面回应，并希望收到一项“严肃的提议”。
+
+据美国媒体报道，美伊双方正就一份一页纸的谅解备忘录进行谈判，该份备忘录包括14个要点。
+
+鲁比奥8日在罗马会见意大利外长塔亚尼和总理梅洛尼，双方围绕中东局势、俄乌冲突、跨大西洋关系及美军在欧洲部署等议题交换意见。
 
 ## 相关推荐
 
-- 2026-06-30 01:40 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 01:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 01:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 01:24 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 01:19 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 01:30 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 01:37 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 01:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-30 01:23 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 01:28 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 01:42 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 01:52 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 01:49 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 01:44 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 01:53 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 01:53 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 01:48 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 01:31 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 01:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 01:41 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 01:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 01:38 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 01:33 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/8286161403.shtml)
-- 2026-06-30 01:18 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/24944208046.shtml)
-- 2026-06-30 01:36 - [绘画区你赢了](http://www.share.minike.top/Article/details/8027782727.shtml)
-- 2026-06-30 01:35 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/050345.shtml)
-- 2026-06-30 01:36 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/17351870.shtml)
-- 2026-06-30 01:22 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/534359.shtml)
-- 2026-06-30 01:46 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/23163032273.shtml)
-- 2026-06-30 01:40 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/13017930.shtml)
-- 2026-06-30 01:32 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/63248661.shtml)
-- 2026-06-30 01:46 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/73854.shtml)
-- 2026-06-30 01:41 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/1221570.shtml)
-- 2026-06-30 01:44 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/723415.shtml)
-- 2026-06-30 01:36 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/0601886299.shtml)
-- 2026-06-30 01:27 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/272151621.shtml)
-- 2026-06-30 01:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/8817068.shtml)
+- 2026-06-30 01:51 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/71198.shtml)
+- 2026-06-30 01:36 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/1951054960.shtml)
+- 2026-06-30 01:44 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/84325046.shtml)
+- 2026-06-30 01:46 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/703387289665.shtml)
+- 2026-06-30 01:24 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/23620005.shtml)
+- 2026-06-30 01:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/9101592424.shtml)
+- 2026-06-30 01:49 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/25156.shtml)
+- 2026-06-30 01:26 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/20975.shtml)
+- 2026-06-30 01:45 - [沉睡花园](https://www.share.minike.top/Article/details/55103.shtml)
+- 2026-06-30 01:46 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/36021.shtml)
+- 2026-06-30 01:31 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/121215816740.shtml)
+- 2026-06-30 01:45 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/247120036.shtml)
+- 2026-06-30 01:33 - [时光音乐会](http://www.share.minike.top/Article/details/797160633.shtml)
+- 2026-06-30 01:38 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/71837549900.shtml)
+- 2026-06-30 01:37 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/32849060781.shtml)

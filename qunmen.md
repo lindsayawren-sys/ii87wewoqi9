@@ -1,61 +1,58 @@
-# 吉林金融监管局风险提示：防范车险维修返利陷阱
+# Fugro获得苏格兰海上风电场勘测合同
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-4月9日金融一线消息，吉林金融监管局今日发布《防范车险维修返利陷阱 守护车主合法权益的风险提示》指出，近期，一些车辆维修机构以 “高额现金返现”“维修补贴返利”为噱头，诱导出险车主到店维修，背后暗藏以次充好、侵害车主权益等诸多问题。为保障财产安全及合法权益，吉林金融监管局提醒广大车主提高防范意识，远离维修陷阱。 一、识别三大风险，时刻保持警惕 警惕违法违规风险。保险最大的原则是
+Fugro已获得SSE授予的一份重要岩土工程勘测合同，用于苏格兰北部北海海域的Berwick Bank B海上风电开发项目。 Berwick Bank B是总规模4.1吉瓦的Berwick Bank海上风电项目的一部分，该项目分三个阶段开发，若全面建成，有望成为全球最大的海上风电场。 这家荷兰地理数据专业公司表示，该合同涵盖全面的岩土工程勘察活动，以支持计划在Berwick B
 
 ## 正文
 
-4月9日金融一线消息，吉林金融监管局今日发布《防范车险维修返利陷阱 守护车主合法权益的风险提示》指出，近期，一些车辆维修机构以 “高额现金返现”“维修补贴返利”为噱头，诱导出险车主到店维修，背后暗藏以次充好、侵害车主权益等诸多问题。
+Fugro已获得SSE授予的一份重要岩土工程勘测合同，用于苏格兰北部北海海域的Berwick Bank B海上风电开发项目。
 
-为保障财产安全及合法权益，吉林金融监管局提醒广大车主提高防范意识，远离维修陷阱。
+Berwick Bank B是总规模4.1吉瓦的Berwick Bank海上风电项目的一部分，该项目分三个阶段开发，若全面建成，有望成为全球最大的海上风电场。
 
-一、识别三大风险，时刻保持警惕 警惕违法违规风险。
+这家荷兰地理数据专业公司表示，该合同涵盖全面的岩土工程勘察活动，以支持计划在Berwick Bank B场址（占该项目总规划容量的1.4吉瓦）建设的固定式基础风机的基础设计。
 
-保险最大的原则是损失补偿原则，保险补偿应以实际损失为限，而非获得额外收益。
+勘测工作包括在海床以下钻探深达50米的钻孔，以获取用于风机基础设计的土壤和岩石样本。
 
-个别车辆维修机构通过虚构事故损失、虚增维修项目等方式骗取保险理赔款涉嫌欺诈。
+Fugro表示，此次勘察将使用其岩土工程船Fugro Quest号和Fugro Zenith号，采用适合该场址复杂海床条件的专业取芯和常规取样技术。
 
-参与返现的车主一旦参与此类行为，不仅要退回保险赔款，还将面临法律风险，得不偿失。
+Berwick Bank B项目已于今年早些时候在英国第四轮分配中获得了长期差价合约。
 
-警惕个人信息泄露风险。
+SSE Renewables Berwick Bank项目岩土工程包经理Gordon Rae表示：“启动岩土工程勘察活动为Berwick Bank B风机基础的最终设计提供依据，这是一个重要的里程碑，也展示了SSE对严谨、去风险化项目交付的承诺。
 
-保险公司仅在车主授权前提下，收集身份证、行驶证、驾驶证等个人信息，并严格履行信息保护义务。
+” “随着项目向最终投资决策推进，我们很高兴能继续与Fugro的长期合作关系，并期待在Berwick Bank B成功实施一个安全、高效的地质勘察计划。
 
 ## 相关推荐
 
-- 2026-06-30 01:18 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 01:43 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 01:37 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 01:27 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 01:45 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 01:28 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 01:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 01:20 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 01:38 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 01:37 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 01:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 01:44 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 01:38 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 01:33 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 01:35 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 01:26 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 01:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 01:35 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 01:46 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 01:24 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 01:47 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 01:37 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 01:43 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 01:46 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 01:48 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 01:35 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 01:24 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:19 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/1344209509.shtml)
-- 2026-06-30 01:37 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/981930.shtml)
-- 2026-06-30 01:22 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/93110.shtml)
-- 2026-06-30 01:36 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/37655251.shtml)
-- 2026-06-30 01:34 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/445798749170.shtml)
-- 2026-06-30 01:27 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/30787037173.shtml)
-- 2026-06-30 01:25 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/665374.shtml)
-- 2026-06-30 01:36 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/7546788.shtml)
-- 2026-06-30 01:39 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/8622258.shtml)
-- 2026-06-30 01:45 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/913526.shtml)
-- 2026-06-30 01:40 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/35098000.shtml)
-- 2026-06-30 01:45 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/553263655.shtml)
-- 2026-06-30 01:37 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/801265524.shtml)
-- 2026-06-30 01:26 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/26466332164.shtml)
-- 2026-06-30 01:29 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/27116599944.shtml)
+- 2026-06-30 01:32 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/53613.shtml)
+- 2026-06-30 01:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/29148391060.shtml)
+- 2026-06-30 01:33 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/78523169658.shtml)
+- 2026-06-30 01:44 - [斗破苍穹](http://www.blog.minike.top/Article/details/38633.shtml)
+- 2026-06-30 01:31 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/024918842.shtml)
+- 2026-06-30 01:45 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/516630.shtml)
+- 2026-06-30 01:30 - [一生一世](https://www.blog.minike.top/Article/details/1301958635.shtml)
+- 2026-06-30 01:24 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/19231.shtml)
+- 2026-06-30 01:24 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/7277547240.shtml)
+- 2026-06-30 01:25 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/0539732.shtml)
+- 2026-06-30 01:48 - [爱很美味](https://www.share.kurohicncr.top/Article/details/113287735.shtml)
+- 2026-06-30 01:52 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/861932090.shtml)
+- 2026-06-30 01:27 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/790951820.shtml)
+- 2026-06-30 01:52 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/3818200.shtml)
+- 2026-06-30 01:28 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/816102.shtml)

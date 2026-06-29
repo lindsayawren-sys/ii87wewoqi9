@@ -1,57 +1,61 @@
-# 在甘肃永靖，遇见“不黄”的黄河
+# 母亲节创意“非花”引领消费新潮流
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网兰州4月9日电 (马临舟)9日清晨，在甘肃临夏州永靖县城滨河步道驻足远眺，黄河水澄澈碧蓝，静卧于峡谷之间。有游客打趣称，这或许是最不像黄河的黄河。面对这样的评价，永靖人总是淡然一笑，他们深知，这片难得的蓝色背后，凝聚着无数不易的坚守与付出。 黄河干流在永靖境内蜿蜒107公里，洮河、大夏河、湟水河在此汇入，天然造就了刘家峡、八盘峡、盐锅峡三大峡谷，也蓄水形成炳灵湖、太极湖、
+中新网烟台5月9日电 题：母亲节创意“非花”引领消费新潮流 中新网记者 王娇妮 “五一”假期刚过，母亲节将至，节日消费热度不减。在节日鲜花热销的同时，花饽饽、毛线钩织、琉璃文创等“非花”类礼品成为新宠，呈现出“可食、可存、可玩、可赏”的消费新潮流。 在山东烟台、威海等地，花饽饽花束热销。“5月以来，订单激增，工人们全员赶制，日均产出花饽饽花束、花篮等产品上百个。”栖霞胶东小媳妇
 
 ## 正文
 
-中新网兰州4月9日电 (马临舟)9日清晨，在甘肃临夏州永靖县城滨河步道驻足远眺，黄河水澄澈碧蓝，静卧于峡谷之间。
+中新网烟台5月9日电 题：母亲节创意“非花”引领消费新潮流 中新网记者 王娇妮 “五一”假期刚过，母亲节将至，节日消费热度不减。
 
-有游客打趣称，这或许是最不像黄河的黄河。
+在节日鲜花热销的同时，花饽饽、毛线钩织、琉璃文创等“非花”类礼品成为新宠，呈现出“可食、可存、可玩、可赏”的消费新潮流。
 
-面对这样的评价，永靖人总是淡然一笑，他们深知，这片难得的蓝色背后，凝聚着无数不易的坚守与付出。
+在山东烟台、威海等地，花饽饽花束热销。
 
-黄河干流在永靖境内蜿蜒107公里，洮河、大夏河、湟水河在此汇入，天然造就了刘家峡、八盘峡、盐锅峡三大峡谷，也蓄水形成炳灵湖、太极湖、恐龙湖三座高峡平湖。
+“5月以来，订单激增，工人们全员赶制，日均产出花饽饽花束、花篮等产品上百个。
 
-该县水域面积达32万多亩，总库容59.7亿立方米，占甘肃省地表水储量的五分之一。
+”栖霞胶东小媳妇食品有限公司总经理于志娜介绍，他们用果蔬汁调色和面，手工捏塑玫瑰、康乃馨、百合等花型，搭配精致包装制成花束与花篮，受到消费者喜爱。
 
-近日，永靖县县长刘斌斌在接受专访时说：“黄河对永靖而言，不光是生态之河、文化之河，更是生存之河、发展之河。
+年轻手艺人的加入，为传统面点注入时尚新意。
 
-”在他看来，黄河之于永靖，是刻在县域发展骨子里的命脉。
+“00后”手艺人周天聪推出“妈妈的菜篮子”，以清新配色捏塑花菜、茄子等造型花饽饽，装入竹篮，寄寓“三餐四季皆安康”；另一款“妈妈的手提袋”内含雏菊、卡通人物等造型花饽饽。
 
-然而，坐拥如此丰沛的水资源，永靖也曾面临诸多治理难题。
+周天聪说，这些创意产品打破了花饽饽仅限年节馈赠的传统刻板印象。
 
 ## 相关推荐
 
-- 2026-06-30 01:47 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 01:30 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 01:38 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 01:23 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 01:41 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 01:38 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 01:26 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 01:30 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 01:38 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 01:25 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 01:27 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 01:36 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 01:26 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 01:33 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 01:38 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 01:25 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 01:40 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 01:34 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 01:25 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 01:27 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 01:48 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 01:33 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 01:49 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 01:49 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 01:31 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 01:28 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:28 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/13049762146.shtml)
-- 2026-06-30 01:34 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/69649.shtml)
-- 2026-06-30 01:20 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/22842221160.shtml)
-- 2026-06-30 01:25 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/10883.shtml)
-- 2026-06-30 01:22 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/8195336.shtml)
-- 2026-06-30 01:37 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/7172331.shtml)
-- 2026-06-30 01:28 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/25929303.shtml)
-- 2026-06-30 01:27 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/42762846.shtml)
-- 2026-06-30 01:45 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/37747408160.shtml)
-- 2026-06-30 01:38 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.kurohicncr.top/Article/details/3909874146.shtml)
-- 2026-06-30 01:26 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/2561423.shtml)
-- 2026-06-30 01:31 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/94001168616.shtml)
-- 2026-06-30 01:42 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/967711.shtml)
-- 2026-06-30 01:28 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/2519726.shtml)
-- 2026-06-30 01:18 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/9742397006.shtml)
+- 2026-06-30 01:44 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/8535803.shtml)
+- 2026-06-30 01:31 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/995790779.shtml)
+- 2026-06-30 01:36 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/641800.shtml)
+- 2026-06-30 01:24 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/982391.shtml)
+- 2026-06-30 01:35 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/1331522983.shtml)
+- 2026-06-30 01:51 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/2611238498.shtml)
+- 2026-06-30 01:37 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/90100033.shtml)
+- 2026-06-30 01:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/04542340969.shtml)
+- 2026-06-30 01:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/293905273.shtml)
+- 2026-06-30 01:51 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/957576025.shtml)
+- 2026-06-30 01:41 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/45258110.shtml)
+- 2026-06-30 01:30 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/4635105342.shtml)
+- 2026-06-30 01:46 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/9904427892.shtml)
+- 2026-06-30 01:27 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/890567.shtml)
+- 2026-06-30 01:45 - [毒液2](https://www.blog.kurohicncr.top/Article/details/11758868.shtml)

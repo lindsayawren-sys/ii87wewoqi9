@@ -1,58 +1,50 @@
-# 泽璟制药的“尴尬成年礼”：营收破8亿，亏损却扩大了
+# 西藏口岸：尼泊尔药材进口量增长迅速
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-作为科创板首家以“未盈利”身份上市的生物医药企业，泽璟制药（688266.SH）在2025年终于实现了四款产品全系纳入医保、年营收突破8亿元的历史性跨越。然而，华丽的数字背后，隐藏的是更为严峻的现实：亏损不仅没有收窄，反而在扩大；经营现金流六年来首次转负；销售费用首度超越研发费用。这家曾经被誉为“国产创新药希望之星”的公司，正在经历一场“增收不增利”的尴尬成年礼。 一、卖得越多
+中新社拉萨5月9日电(记者 贡桑拉姆)记者9日从拉萨海关获悉，2026年第一季度，经西藏自治区口岸从尼泊尔进口的植物源性药材达27.5吨，同比增长189.06%，这些药材主要用于藏医药产业。 据了解，石斛、黄精等来自尼泊尔的植物源性药材，已成为通过西藏自治区口岸进口的重要商品，促进了中尼经贸往来与传统医药国际合作。 在中尼双方共同努力下，尼泊尔获准输华的植物源性药材种类已从20
 
 ## 正文
 
-作为科创板首家以“未盈利”身份上市的生物医药企业，泽璟制药（688266.SH）在2025年终于实现了四款产品全系纳入医保、年营收突破8亿元的历史性跨越。
+中新社拉萨5月9日电(记者 贡桑拉姆)记者9日从拉萨海关获悉，2026年第一季度，经西藏自治区口岸从尼泊尔进口的植物源性药材达27.5吨，同比增长189.06%，这些药材主要用于藏医药产业。
 
-然而，华丽的数字背后，隐藏的是更为严峻的现实：亏损不仅没有收窄，反而在扩大；经营现金流六年来首次转负；销售费用首度超越研发费用。
+据了解，石斛、黄精等来自尼泊尔的植物源性药材，已成为通过西藏自治区口岸进口的重要商品，促进了中尼经贸往来与传统医药国际合作。
 
-这家曾经被誉为“国产创新药希望之星”的公司，正在经历一场“增收不增利”的尴尬成年礼。
+在中尼双方共同努力下，尼泊尔获准输华的植物源性药材种类已从2023年的16种增加至目前的31种。
 
-一、卖得越多亏得越深：盈利拐点遥遥无期，费用结构严重失衡 2025年，泽璟制药实现营业收入8.10亿元，同比增长52.07%，创下上市以来最高增速。
+此外，在拉萨海关完成注册登记的尼泊尔药材生产加工企业也从4家增至10家。
 
-然而，归母净利润却从-1.38亿元扩大至-1.63亿元，扣非净利润更是达到-1.98亿元。
-
-更令人担忧的是，公司去年第二至第四季度营业利润均为负值，且第四季度亏损急剧扩大至-7125万元。
-
-药品销量增长并未转化为利润，核心原因在于成本端的失控：营业成本同比增长109.87%，远超营收增速；其中重组人凝血酶的营业成本暴增超过140倍。
-
-与此同时，销售费用从2.71亿元飙升至4.65亿元，同比增长71.44%，首次超过同期研发费用（4.30亿元）。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:20 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 01:32 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 01:33 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 01:27 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 01:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 01:18 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 01:48 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 01:35 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 01:33 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 01:43 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 01:39 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 01:37 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 01:31 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-30 01:26 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 01:33 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 01:51 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 01:31 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 01:26 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 01:49 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 01:50 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 01:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 01:47 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:30 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/9410948238.shtml)
-- 2026-06-30 01:19 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/262319017343.shtml)
-- 2026-06-30 01:27 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/208719053.shtml)
-- 2026-06-30 01:40 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/5513588163.shtml)
-- 2026-06-30 01:38 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/322143.shtml)
-- 2026-06-30 01:21 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/5844900835.shtml)
-- 2026-06-30 01:45 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/54665041727.shtml)
-- 2026-06-30 01:33 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/97123.shtml)
-- 2026-06-30 01:46 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/5804988740.shtml)
-- 2026-06-30 01:18 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/64862536153.shtml)
-- 2026-06-30 01:35 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/7034373.shtml)
-- 2026-06-30 01:47 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/875134031.shtml)
-- 2026-06-30 01:26 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/6454005.shtml)
-- 2026-06-30 01:20 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/580767.shtml)
-- 2026-06-30 01:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/502762180.shtml)
+- 2026-06-30 01:46 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/960935.shtml)
+- 2026-06-30 01:38 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/99152597234.shtml)
+- 2026-06-30 01:46 - [千与千寻](https://www.share.minike.top/Article/details/83904083.shtml)
+- 2026-06-30 01:47 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/5896596131.shtml)
+- 2026-06-30 01:49 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/70365959299.shtml)
+- 2026-06-30 01:36 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/387668207439.shtml)
+- 2026-06-30 01:30 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/172607748.shtml)
+- 2026-06-30 01:48 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/09985870069.shtml)
+- 2026-06-30 01:53 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/6399932.shtml)
+- 2026-06-30 01:39 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/723230229338.shtml)
+- 2026-06-30 01:39 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/90036.shtml)
+- 2026-06-30 01:49 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/1029519025.shtml)
+- 2026-06-30 01:43 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/06185.shtml)
+- 2026-06-30 01:47 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/000210.shtml)
+- 2026-06-30 01:52 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/01544116027.shtml)

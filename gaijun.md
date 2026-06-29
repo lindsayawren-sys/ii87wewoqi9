@@ -1,61 +1,49 @@
-# AI助老“绘记忆”：沈阳上园社区温情服务百余名老人
+# 校园小胖墩越来越多 这所中学把减脂餐搬进食堂
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网沈阳4月10日电(杨茜茜)当老沈阳的胡同烟火气遇上前沿AI技术，当尘封的童年记忆化作可视画卷，4月9日，沈阳市文明办、沈阳市社科联文化艺术实践创新类课题—一场兼具温度与新意的艺术疗愈实践，在沈阳市大东区上园社区新时代文明实践站温情开展。 工作坊聚焦68至75岁老年群体的精神文化需求，创新采用“艺术疗愈+AI技术”模式，目前已顺利完成记忆访谈与AI可视化两大核心环节。活动以
+发布时间：2026年05月11日 15:48 来源：中国新闻网 近日，湖南长沙周南中学食堂上架的专业减脂餐受到师生热捧。菜品低油低盐、营养科学配比，14元一份和普通套餐同价，每日限量供应十分抢手，食堂还增设营养角，方便学生自测健康状况。 这样的学校食堂你爱了吗？(杨华峰 李盈 游蕾） 责任编辑：【卢岩】
 
 ## 正文
 
-中新网沈阳4月10日电(杨茜茜)当老沈阳的胡同烟火气遇上前沿AI技术，当尘封的童年记忆化作可视画卷，4月9日，沈阳市文明办、沈阳市社科联文化艺术实践创新类课题—一场兼具温度与新意的艺术疗愈实践，在沈阳市大东区上园社区新时代文明实践站温情开展。
+发布时间：2026年05月11日 15:48 来源：中国新闻网 近日，湖南长沙周南中学食堂上架的专业减脂餐受到师生热捧。
 
-工作坊聚焦68至75岁老年群体的精神文化需求，创新采用“艺术疗愈+AI技术”模式，目前已顺利完成记忆访谈与AI可视化两大核心环节。
+菜品低油低盐、营养科学配比，14元一份和普通套餐同价，每日限量供应十分抢手，食堂还增设营养角，方便学生自测健康状况。
 
-活动以经典沈阳老童谣暖场，引导老人们围坐畅谈童年往事。
+这样的学校食堂你爱了吗？
 
-工作人员现场梳理老建筑、特色小吃、传统游戏等地域性集体记忆，提炼创作元素。
-
-在AI绘画体验环节，为消除老年人的数字顾虑，团队安排专业志愿者一对一指导，采用通俗化讲解方式。
-
-老人们只需将脑海中的童年场景转化为文字描述，如“1960年沈阳大东附近，坐着有轨电车认真阅读的冬日场景”，通过AIGC技术即可快速生成专属视觉作品。
-
-活动现场配备艺术疗愈师与心理辅导师，帮助零基础的长辈在创作中释放情绪。
-
-“心里想了无数遍地跳皮筋‘马兰开花二十一’，居然真的在屏幕上画出来了，就像回到了小时候！
+(杨华峰 李盈 游蕾） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 01:31 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 01:18 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 01:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 01:33 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 01:36 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-30 01:45 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 01:38 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-30 01:37 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 01:32 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 01:43 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 01:27 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 01:36 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 01:27 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 01:24 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 01:45 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 01:46 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 01:43 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 01:30 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 01:42 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 01:33 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 01:35 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 01:27 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 01:24 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 01:39 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 01:40 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 01:39 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:43 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/613513136.shtml)
-- 2026-06-30 01:41 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/07720297.shtml)
-- 2026-06-30 01:33 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/16529559.shtml)
-- 2026-06-30 01:26 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/611519017306.shtml)
-- 2026-06-30 01:45 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/214145.shtml)
-- 2026-06-30 01:20 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/52386.shtml)
-- 2026-06-30 01:20 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/076973670.shtml)
-- 2026-06-30 01:37 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/2532606.shtml)
-- 2026-06-30 01:44 - [刘念回应](https://www.share.minike.top/Article/details/8651064.shtml)
-- 2026-06-30 01:23 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/065230225819.shtml)
-- 2026-06-30 01:22 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/5539563204.shtml)
-- 2026-06-30 01:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/408426433702.shtml)
-- 2026-06-30 01:42 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/7365491.shtml)
-- 2026-06-30 01:32 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/706887056819.shtml)
-- 2026-06-30 01:28 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/185415644.shtml)
+- 2026-06-30 01:27 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/647698322.shtml)
+- 2026-06-30 01:38 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/1563199.shtml)
+- 2026-06-30 01:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/41646.shtml)
+- 2026-06-30 01:41 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/34455509192.shtml)
+- 2026-06-30 01:36 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/337591.shtml)
+- 2026-06-30 01:25 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/67829.shtml)
+- 2026-06-30 01:28 - [金刚川](https://www.share.minike.top/Article/details/845900107924.shtml)
+- 2026-06-30 01:27 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/789975138490.shtml)
+- 2026-06-30 01:53 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/5293942.shtml)
+- 2026-06-30 01:36 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/28974781393.shtml)
+- 2026-06-30 01:29 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/0481120.shtml)
+- 2026-06-30 01:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/5665748.shtml)
+- 2026-06-30 01:42 - [我和我的家乡](https://www.blog.minike.top/Article/details/54356416.shtml)
+- 2026-06-30 01:48 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/11436.shtml)
+- 2026-06-30 01:30 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/393079326.shtml)

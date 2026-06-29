@@ -1,56 +1,61 @@
-# Mhmarkets迈汇:白银金产量增长驱动业绩提升趋势
+# 美国债市：非农就业数据以及油价持稳推动国债小幅上涨
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-4月9日，根据公司于 4 月 8 日发布的最新公告，其在 2026 年第一季度实现白银产量约 187万盎司，黄金产量约 11740 盎司。Mhmarkets迈汇认为，这一表现反映出公司在资源整合与产能释放方面取得了阶段性成果，同时也体现出贵金属企业在当前价格环境下加快扩张节奏的趋势。从整体结构来看，公司当季白银当量产量达到约 330万盎司，多金属协同生产进一步增强了整体规模优势
+由于非农就业报告喜忧参半，周五美国国债价格受限于窄幅区间，不过油价持稳使整个收益率曲线相较周四收盘水平小幅收低。 纽约时间下午3点刚过不久，整个收益率曲线下降1个基点至3个基点，曲线中段债券领涨，使2s5s30s蝶式利差当天收窄近2个基点。 10年期国债收益率收于4.365%左右，处于当周4.314%至4.462%区间的中部附近。 美国上午时段，4月份非农就业报告公布后，美国国
 
 ## 正文
 
-4月9日，根据公司于 4 月 8 日发布的最新公告，其在 2026 年第一季度实现白银产量约 187万盎司，黄金产量约 11740 盎司。
+由于非农就业报告喜忧参半，周五美国国债价格受限于窄幅区间，不过油价持稳使整个收益率曲线相较周四收盘水平小幅收低。
 
-Mhmarkets迈汇认为，这一表现反映出公司在资源整合与产能释放方面取得了阶段性成果，同时也体现出贵金属企业在当前价格环境下加快扩张节奏的趋势。
+纽约时间下午3点刚过不久，整个收益率曲线下降1个基点至3个基点，曲线中段债券领涨，使2s5s30s蝶式利差当天收窄近2个基点。
 
-从整体结构来看，公司当季白银当量产量达到约 330万盎司，多金属协同生产进一步增强了整体规模优势与抗风险能力。
+10年期国债收益率收于4.365%左右，处于当周4.314%至4.462%区间的中部附近。
 
-从同比表现来看，白银产量较去年同期约 120万盎司增长约 56%，黄金产量较去年同期约 8300 盎司提升约 41%。
+美国上午时段，4月份非农就业报告公布后，美国国债走高。
 
-Mhmarkets迈汇认为，这种较高的增速主要源于新项目的投产与产能释放，尤其是秘鲁 Kolpa 矿与墨西哥 Terronera 矿的贡献较为突出，分别带来约 53万盎司左右的白银产出。
+该报告显示薪资数据略低于预期，失业率维持在4.3%不变。
 
-不过，需要注意的是，2026 年 1 月中旬出售的 Bolañitos 矿对整体产量形成一定抵消，该矿在当年前 15 天贡献约 1.8万盎司白银。
+截至当天收盘，与美联储会议日期挂钩的隔夜指数掉期显示，12月合约仍计入约3个基点的加息溢价，周四收盘时为5个基点。
 
-在加工能力方面，公司本季度共处理矿石约 45.7 万吨，同比大幅增长约 118%，显示出产线效率与处理规模均有明显提升。
+尾盘时WTI期货上涨0.6%，对美国和伊朗之间的新一轮冲突以及脆弱停火可能破裂的风险反应温和。
 
-同时，公司销售白银约 164万盎司、黄金约 10900 盎司，整体产销节奏保持平衡。
+美国2年期国债收益率下跌1.6个基点，报3.895%； 美国5年期国债收益率下跌2.6个基点，报4.0147%； 美国10年期国债收益率下跌2个基点，报4.3662%； 美国30年期国债收益率下跌1.2个基点，报4.9482%； 美国5年和30年期国债收益率差上升约1.2个基点，报93.17个基点； 美国2年和10年期国债收益率差下降约0.4个基点，报46.91个基点。
 
 ## 相关推荐
 
-- 2026-06-30 01:43 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 01:41 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 01:18 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-30 01:19 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 01:45 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 01:27 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 01:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 01:26 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 01:40 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 01:39 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 01:36 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 01:49 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 01:46 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 01:28 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-30 01:37 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 01:31 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 01:52 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 01:49 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 01:41 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 01:31 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 01:30 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 01:24 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 01:43 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 01:25 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 01:35 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:39 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/922408161350.shtml)
-- 2026-06-30 01:26 - [刘念回应](https://www.share.kurohicncr.top/Article/details/0380473350.shtml)
-- 2026-06-30 01:39 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/905096530.shtml)
-- 2026-06-30 01:33 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/641243722049.shtml)
-- 2026-06-30 01:30 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/4505482564.shtml)
-- 2026-06-30 01:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/0251548141.shtml)
-- 2026-06-30 01:32 - [千香](http://www.blog.kurohicncr.top/Article/details/6704428.shtml)
-- 2026-06-30 01:27 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/2435673265.shtml)
-- 2026-06-30 01:42 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/212754941.shtml)
-- 2026-06-30 01:35 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/354279.shtml)
-- 2026-06-30 01:24 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/862133934.shtml)
-- 2026-06-30 01:32 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/59224900532.shtml)
-- 2026-06-30 01:34 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/803739.shtml)
-- 2026-06-30 01:39 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/8501172.shtml)
-- 2026-06-30 01:20 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/46434.shtml)
+- 2026-06-30 01:46 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/3002307655.shtml)
+- 2026-06-30 01:42 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/397072722117.shtml)
+- 2026-06-30 01:40 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/493643157.shtml)
+- 2026-06-30 01:32 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/463758927.shtml)
+- 2026-06-30 01:48 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/355243264874.shtml)
+- 2026-06-30 01:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/88117.shtml)
+- 2026-06-30 01:43 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/650274971624.shtml)
+- 2026-06-30 01:30 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/81678205.shtml)
+- 2026-06-30 01:39 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/03273890.shtml)
+- 2026-06-30 01:45 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/225414287.shtml)
+- 2026-06-30 01:37 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/61634795.shtml)
+- 2026-06-30 01:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/326045.shtml)
+- 2026-06-30 01:52 - [我们的少年时代2](https://www.blog.minike.top/Article/details/1319412.shtml)
+- 2026-06-30 01:52 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/28714802.shtml)
+- 2026-06-30 01:24 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/589121.shtml)

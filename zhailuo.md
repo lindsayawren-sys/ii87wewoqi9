@@ -1,61 +1,59 @@
-# 晋商银行：容常青获批担任董事及副董事长
+# 斩获两连板！通鼎互联提示风险
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-4月10日金融一线消息，晋商银行今日发布公告称，该行已于近日收到《山西监管局关于容常青晋商银行股份有限公司董事任职资格的批复》（晋金管复\[2026\]36号），容常青担任董事及董事会副董事长的任职资格已获山西监管局核准。容常青担任非执行董事、董事会副董事长及董事会审计委员会成员的任期自2026年4月8日起生效，直至第七届董事会任期（自2025年12月19日起三年）届满之日止。 公
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：资本秘闻 在二级市场斩获两连板的通鼎互联（002491），于5月10日发布了股票交易异常波动公告，其中显示，公司注意到近期市场对光纤光缆行业关注度较高，光纤产品短期价格波动的可持续性具有不确定性，对公司未来业绩的影响需结合未来市场环境及公司业务开展情况
 
 ## 正文
 
-4月10日金融一线消息，晋商银行今日发布公告称，该行已于近日收到《山西监管局关于容常青晋商银行股份有限公司董事任职资格的批复》（晋金管复\[2026\]36号），容常青担任董事及董事会副董事长的任职资格已获山西监管局核准。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-容常青担任非执行董事、董事会副董事长及董事会审计委员会成员的任期自2026年4月8日起生效，直至第七届董事会任期（自2025年12月19日起三年）届满之日止。
+来源：资本秘闻 在二级市场斩获两连板的通鼎互联（002491），于5月10日发布了股票交易异常波动公告，其中显示，公司注意到近期市场对光纤光缆行业关注度较高，光纤产品短期价格波动的可持续性具有不确定性，对公司未来业绩的影响需结合未来市场环境及公司业务开展情况进行综合判断，同样存在不确定性。
 
-公开资料显示，容常青，男，1970年1月生，管理学硕士研究生学历。
+公告显示，通鼎互联于5月6日—5月8日连续三个交易日收盘价格涨幅偏离值累计超过20%。
 
-1991年获武汉大学经济学学士学位，2002年获中南财经政法大学管理学硕士学位，2005年评定为高级审计师，2009年取得企业法律顾问资格。
+根据《深圳证券交易所交易规则》等相关规定，以上情形属于股票交易异常波动的情形。
 
-容常青于1991年起任职于审计署武汉特派办，后曾在京东方科技集团股份有限公司移动数码事业部、北京荣泰恒嘉房地产开发有限公司及北京万东医疗装备股份有限公司担任财务、审计及管理职务。
+交易行情显示，5月6日—5月8日，通鼎互联区间累计涨幅30.76%，其中，公司股价于5月7日、8日均涨停收盘，斩获两连板。
 
-2004年6月至2018年历任华能资本服务有限公司审计监察部主管及副处长、总经理工作部副处长及副经理、风险控制部经理及总法律顾问。
+截至5月8日收盘，公司股价报20.66元/股，总市值254.1亿元。
 
-他于2018年9月起任晋商银行执行董事，同年12月起出任副行长，负责法律合规部、零售银行部、个人信贷资产部、信用卡业务部、资产管理部及小企业金融部。
+通鼎互联表示，公司用于光纤生产的原材料光纤预制棒（以下简称“光棒”），主要由康宁（海南）光通信有限公司提供。
 
-2020年11月因工作调动辞任后，于2021年1月被永诚财产保险股份有限公司聘任为公司总裁，但其任职资格并未获批。
+截至目前，海南康宁仅作为公司的光棒供应商，不存在其他合作模式。
 
 ## 相关推荐
 
-- 2026-06-30 01:42 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 01:19 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 01:22 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 01:37 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 01:31 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 01:34 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 01:26 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-30 01:43 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 01:24 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 01:27 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 01:31 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 01:25 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 01:25 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 01:37 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 01:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 01:51 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 01:47 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 01:35 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 01:28 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 01:42 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 01:26 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 01:27 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 01:24 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 01:48 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 01:49 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 01:47 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 01:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 01:30 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:38 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/77242819.shtml)
-- 2026-06-30 01:39 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/03447.shtml)
-- 2026-06-30 01:34 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/545120263357.shtml)
-- 2026-06-30 01:46 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/57513935300.shtml)
-- 2026-06-30 01:29 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/24695.shtml)
-- 2026-06-30 01:36 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/05011041.shtml)
-- 2026-06-30 01:41 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/669735182.shtml)
-- 2026-06-30 01:38 - [千与千寻](http://www.blog.minike.top/Article/details/35237306134.shtml)
-- 2026-06-30 01:34 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/274012286.shtml)
-- 2026-06-30 01:34 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/54165918610.shtml)
-- 2026-06-30 01:45 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/187465.shtml)
-- 2026-06-30 01:19 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/10745.shtml)
-- 2026-06-30 01:24 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/43478.shtml)
-- 2026-06-30 01:35 - [起风了](http://www.share.kurohicncr.top/Article/details/455515542.shtml)
-- 2026-06-30 01:34 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/605298.shtml)
+- 2026-06-30 01:31 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/364314.shtml)
+- 2026-06-30 01:28 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/46079.shtml)
+- 2026-06-30 01:47 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/2635102.shtml)
+- 2026-06-30 01:38 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/890473441798.shtml)
+- 2026-06-30 01:29 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/0459915053.shtml)
+- 2026-06-30 01:25 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/409576677978.shtml)
+- 2026-06-30 01:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/56725320679.shtml)
+- 2026-06-30 01:52 - [一见倾心](http://www.share.minike.top/Article/details/27565208243.shtml)
+- 2026-06-30 01:44 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/22467559.shtml)
+- 2026-06-30 01:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/754592975.shtml)
+- 2026-06-30 01:24 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/6935665273.shtml)
+- 2026-06-30 01:41 - [恋与深空 巧合](https://www.share.minike.top/Article/details/66472726.shtml)
+- 2026-06-30 01:33 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/058035875509.shtml)
+- 2026-06-30 01:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/6568487626.shtml)
+- 2026-06-30 01:53 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/12515998774.shtml)

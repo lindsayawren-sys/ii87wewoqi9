@@ -1,60 +1,59 @@
-# 中葡文明交流互鉴合作研究中心成立
+# 光大期货：5月11日软商品日报
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网4月9日电 4月8日，中国人民大学联合科英布拉大学，在葡萄牙科英布拉成立中葡文明交流互鉴合作研究中心。 中国人民大学校长马怀德、中国驻葡萄牙大使杨义瑞、科英布拉大学副校长若奥·努诺·卡尔文·达席尔瓦出席仪式并致辞，共同为中葡文明交流互鉴合作研究中心揭牌。 马怀德表示，中葡友谊跨越山海、历久弥坚，两国树立了不同社会制度、不同国情国家相互尊重、互利共赢的典范。近年来，中国人民
+白糖：延续区间行情 （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 1、原糖：本周原糖跟随原油宽幅震荡。消息方面，2026/27榨季截至4月上半月，巴西中南部地区累计入榨 量为1995.6万吨，较去年同期的1667.6万吨增加328万吨，同比增幅达19.67%；甘蔗ATR为103.36kg/吨，较去年同期的103.46kg/吨减少0.1kg/吨；累计
 
 ## 正文
 
-中新网4月9日电 4月8日，中国人民大学联合科英布拉大学，在葡萄牙科英布拉成立中葡文明交流互鉴合作研究中心。
+白糖：延续区间行情 （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 1、原糖：本周原糖跟随原油宽幅震荡。
 
-中国人民大学校长马怀德、中国驻葡萄牙大使杨义瑞、科英布拉大学副校长若奥·努诺·卡尔文·达席尔瓦出席仪式并致辞，共同为中葡文明交流互鉴合作研究中心揭牌。
+消息方面，2026/27榨季截至4月上半月，巴西中南部地区累计入榨 量为1995.6万吨，较去年同期的1667.6万吨增加328万吨，同比增幅达19.67%；甘蔗ATR为103.36kg/吨，较去年同期的103.46kg/吨减少0.1kg/吨；累计制糖比为32.93%，较去年同期的44.71%减少11.78%；累计产乙醇12.3 亿升，较去年同期的9.23亿升增加3.07亿升，同比增幅达33.32%；累计产糖量为64.7万吨，较去年同期的73.5 万吨减少8.8万吨，同比降幅达11.94%。
 
-马怀德表示，中葡友谊跨越山海、历久弥坚，两国树立了不同社会制度、不同国情国家相互尊重、互利共赢的典范。
+2、国内现货：广西制糖集团报价区间为5340~5420元/吨，云南制糖集团报价5150~ 5220元/吨；加工糖厂主流报价区间为5620~5880元/吨。
 
-近年来，中国人民大学持续深化与葡萄牙等欧洲国家高校的交流合作，在欧洲布局多家文明交流互鉴合作研究中心，为构建人类命运共同体、丰富人类文明新形态注入强劲动力。
+配额内进口估算价4050~4080元/吨，配额外进口估算价5130~5170元/吨。
 
-科英布拉大学作为葡萄牙著名高等学府、欧洲最古老的大学之一，在人文、艺术、法学等领域实力雄厚，与中国人民大学学科优势高度契合。
+3、原糖小结：宏观方面美伊停火谈判反复、原油波动剧烈，受此影响原糖价格宽幅震荡。
 
-期待两校以共建中葡文明交流互鉴合作研究中心为契机，围绕数字人文与艺术、蓝色经济、涉外法治、文化遗产保护等重点领域，共建研究高地、共创交流品牌、共育时代英才、共筑协作网络，打造中葡青年交流、人文对话和文明互鉴的高端平台，为中葡全面战略伙伴关系与人类命运共同体建设贡献智慧力量。
+基本面方面，巴西中南部26/27榨季第一期双周压榨数据公布，数据显示，入榨甘蔗量增幅两成，产糖量降幅一成，乙醇产量增幅三成。
 
-杨义瑞表示，中葡同为文明古国，两国文化交流源远流长，素来有着相互尊重、开放包容的优良传统。
+榨季初期制糖比为近6个榨季第二低水平。
 
-中国人民大学与科英布拉大学两所顶尖学府跨越山海，携手成立中葡文明交流互鉴合作研究中心，促进学术交流和文明对话，是中葡全面战略伙伴关系在学术领域的丰硕成果，也是落实全球文明倡议的生动实践。
+需要说明的是，初期数据并不稳定，尚不具备代表性，后续巴西生产问题仍会扰动市场情绪，甘蔗供应充裕的情况下，即使制糖比回落，糖供应预计仍充裕。
 
 ## 相关推荐
 
-- 2026-06-30 01:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 01:36 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 01:19 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 01:23 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 01:23 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 01:37 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 01:19 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 01:27 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 01:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 01:41 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 01:30 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 01:19 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 01:21 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-30 01:22 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 01:36 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 01:40 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 01:40 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 01:31 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 01:35 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 01:40 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 01:45 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 01:49 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 01:24 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 01:38 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 01:44 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 01:38 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 01:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/2143547.shtml)
-- 2026-06-30 01:26 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/81699731335.shtml)
-- 2026-06-30 01:32 - [电影后室值得看吗](https://www.share.minike.top/Article/details/81729.shtml)
-- 2026-06-30 01:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/698772053.shtml)
-- 2026-06-30 01:26 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/0472799.shtml)
-- 2026-06-30 01:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/99697114071.shtml)
-- 2026-06-30 01:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/383310716.shtml)
-- 2026-06-30 01:24 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/998713888578.shtml)
-- 2026-06-30 01:33 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/47765060715.shtml)
-- 2026-06-30 01:25 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/21859338.shtml)
-- 2026-06-30 01:38 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/328238880.shtml)
-- 2026-06-30 01:45 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/8787429738.shtml)
-- 2026-06-30 01:27 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/538077994819.shtml)
-- 2026-06-30 01:46 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/83792929.shtml)
-- 2026-06-30 01:32 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/6214042.shtml)
+- 2026-06-30 01:51 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/59381206460.shtml)
+- 2026-06-30 01:31 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/242318417700.shtml)
+- 2026-06-30 01:39 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/92411.shtml)
+- 2026-06-30 01:50 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/565041496.shtml)
+- 2026-06-30 01:31 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/5194117.shtml)
+- 2026-06-30 01:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/273253449047.shtml)
+- 2026-06-30 01:40 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/58981701935.shtml)
+- 2026-06-30 01:38 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/6271749.shtml)
+- 2026-06-30 01:28 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/425472.shtml)
+- 2026-06-30 01:50 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/757495552844.shtml)
+- 2026-06-30 01:47 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/74578317.shtml)
+- 2026-06-30 01:30 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/351424453.shtml)
+- 2026-06-30 01:38 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/424183.shtml)
+- 2026-06-30 01:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/111569331073.shtml)
+- 2026-06-30 01:24 - [我和我的家乡](https://www.share.minike.top/Article/details/5095924.shtml)

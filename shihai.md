@@ -1,57 +1,56 @@
-# 美银：投资者撤离能源基金的速度创2024年年中以来最快
+# 焦点访谈丨实干笃行新征程 他们用匠心诠释着每一份坚守
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-美国银行全球研究部周五表示，在截至周三的一周内，投资者从能源基金撤资的速度达到近两年来最快水平。此前，美国和伊朗宣布停火，导致油价 LCOc1 暴跌，资金因此涌入股票、债券和现金。 该行援引EPFR数据的每周资金流向报告显示，能源基金净流出达21亿美元，创2024年7月以来最高纪录，也是自11月以来的首次净流出。 上周投资者向现金注入707亿美元，创9周来最大单周流入规模。 股
+自古以来，工匠精神就根植于中华优秀传统文化的深厚土壤，也深深融入中华民族的精神血脉。党的十八大以来，习近平总书记多次礼赞劳动创造，并强调要发扬“执着专注、精益求精、一丝不苟、追求卓越”的工匠精神。 一支150毫米大口径折射式望远镜在接受测试，即将用于航空航天领域的空间目标探测。 平行光管测试，模拟的是遥远太空中的星体发来的平行星光。设计师通过从这支望远镜里看到的光线形态和清晰度
 
 ## 正文
 
-美国银行全球研究部周五表示，在截至周三的一周内，投资者从能源基金撤资的速度达到近两年来最快水平。
+自古以来，工匠精神就根植于中华优秀传统文化的深厚土壤，也深深融入中华民族的精神血脉。
 
-此前，美国和伊朗宣布停火，导致油价 LCOc1 暴跌，资金因此涌入股票、债券和现金。
+党的十八大以来，习近平总书记多次礼赞劳动创造，并强调要发扬“执着专注、精益求精、一丝不苟、追求卓越”的工匠精神。
 
-该行援引EPFR数据的每周资金流向报告显示，能源基金净流出达21亿美元，创2024年7月以来最高纪录，也是自11月以来的首次净流出。
+一支150毫米大口径折射式望远镜在接受测试，即将用于航空航天领域的空间目标探测。
 
-上周投资者向现金注入707亿美元，创9周来最大单周流入规模。
+平行光管测试，模拟的是遥远太空中的星体发来的平行星光。
 
-股票净流入368亿美元，创三周来新高。
+设计师通过从这支望远镜里看到的光线形态和清晰度，来判断如何使它最大限度实现设计目标。
 
-债券净流入87亿美元，其中53亿美元流入美国公债，这是美国公债连续第10周出现资金流入。
+第一次的测试结果，摄像机的拍摄与肉眼观测有差距，实际看到的星点已相当清晰，但这还远没有达到设计师的目标。
 
-消费类股票基金连续第12周出现资金流出，流出额达6亿美元，创下自2003年2月以来的最长连跌纪录。
+这支镜头出自肖维军设计团队，经过两年多的磨合，从生产加工到安装调试都已相对成熟。
 
-黄金净流入35亿美元，创六周来最大单周流入额。
+即便如此，每到最终的调试阶段，肖维军也会亲自参与，作为设计师，他希望每一支镜头都能最大限度实现极致目标。
 
 ## 相关推荐
 
-- 2026-06-30 01:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 01:42 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 01:22 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 01:32 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 01:18 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 01:40 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 01:29 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-30 01:34 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 01:27 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 01:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 01:39 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 01:28 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 01:40 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 01:50 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 01:43 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 01:52 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 01:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 01:31 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 01:28 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 01:50 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 01:39 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:23 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/25071311.shtml)
-- 2026-06-30 01:37 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/59688702.shtml)
-- 2026-06-30 01:33 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/72751335.shtml)
-- 2026-06-30 01:19 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/195073233.shtml)
-- 2026-06-30 01:31 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/19312608202.shtml)
-- 2026-06-30 01:44 - [斛珠夫人](http://www.blog.minike.top/Article/details/277333879005.shtml)
-- 2026-06-30 01:22 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/4568870107.shtml)
-- 2026-06-30 01:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/060457702.shtml)
-- 2026-06-30 01:21 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/9764851.shtml)
-- 2026-06-30 01:28 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/308462797.shtml)
-- 2026-06-30 01:26 - [世界杯](https://www.share.minike.top/Article/details/7158593147.shtml)
-- 2026-06-30 01:24 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/0364809073.shtml)
-- 2026-06-30 01:20 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/9894777.shtml)
-- 2026-06-30 01:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/089518.shtml)
-- 2026-06-30 01:24 - [TOP Prada](http://www.share.minike.top/Article/details/906485967.shtml)
+- 2026-06-30 01:29 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/34958499.shtml)
+- 2026-06-30 01:25 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/8196380057.shtml)
+- 2026-06-30 01:32 - [流金岁月](https://www.share.kurohicncr.top/Article/details/8021048.shtml)
+- 2026-06-30 01:44 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/2375241.shtml)
+- 2026-06-30 01:36 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/968045130956.shtml)
+- 2026-06-30 01:37 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/902086013.shtml)
+- 2026-06-30 01:39 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/85040.shtml)
+- 2026-06-30 01:48 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/002658796551.shtml)
+- 2026-06-30 01:37 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/01733.shtml)
+- 2026-06-30 01:27 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/4393925948.shtml)
+- 2026-06-30 01:47 - [时光音乐会](https://www.share.minike.top/Article/details/198319.shtml)
+- 2026-06-30 01:38 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/7397754.shtml)
+- 2026-06-30 01:43 - [啊啊啊](https://www.blog.minike.top/Article/details/5521326102.shtml)
+- 2026-06-30 01:35 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/45105625417.shtml)
+- 2026-06-30 01:40 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/4279656.shtml)

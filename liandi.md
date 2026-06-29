@@ -1,59 +1,61 @@
-# 喜临门实控人股权近全部冻结，公司回应资金占用案
+# 疫苗板块股价集体大涨，已有基金低谷期入场“抄底”
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 4月9日晚间，“中国床垫第一股” 喜临门（维权）（603008.SH）发布关于控股股东股份被轮候冻结的公告。 公告披露，公司控股股东浙江华易智能制造有限公司（下称“华易智能制造）所持974.38万股公司股份被轮候冻结，占其持股总数的11.49%，占公司总股本的2.65%。 本次轮候冻结源于喜临门就控股股东损害上市公司利益责任纠纷
+整体而言，国内疫苗行业仍在经历低谷，且行业高度分散。截至目前，已有50家中国疫苗企业获得注册批件，其中30家仅有1-2款产品。 5月11日，疫苗板块股价普遍大涨。截至收盘，沃森生物（300142.SZ）股价涨停，万泰生物（603392.SH）股价上涨近8%，康泰生物（300601.SZ）股价上涨超7%，智飞生物（300122.SZ）股价上涨超6%。 推动疫苗板块强劲上涨的一个因
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 4月9日晚间，“中国床垫第一股” 喜临门（维权）（603008.SH）发布关于控股股东股份被轮候冻结的公告。
+整体而言，国内疫苗行业仍在经历低谷，且行业高度分散。
 
-公告披露，公司控股股东浙江华易智能制造有限公司（下称“华易智能制造）所持974.38万股公司股份被轮候冻结，占其持股总数的11.49%，占公司总股本的2.65%。
+截至目前，已有50家中国疫苗企业获得注册批件，其中30家仅有1-2款产品。
 
-本次轮候冻结源于喜临门就控股股东损害上市公司利益责任纠纷一案，向绍兴市越城区人民法院申请的财产保全措施。
+5月11日，疫苗板块股价普遍大涨。
 
-截至公告日，华易智能制造及其一致行动人华瀚投资、实控人陈阿裕等合计持有喜临门1.34亿股，占总股本36.36%。
+截至收盘，沃森生物（300142.SZ）股价涨停，万泰生物（603392.SH）股价上涨近8%，康泰生物（300601.SZ）股价上涨超7%，智飞生物（300122.SZ）股价上涨超6%。
 
-其中累计被冻结股份达1.30亿股，占其持股总数的96.87%，占公司总股本35.22%；累计轮候冻结1.01亿股，占其持股 75.65%，占总股本27.51%。
+推动疫苗板块强劲上涨的一个因素是近日不断升温的汉坦病毒疫情。
 
-华易智能制造与陈阿裕所持股份已100%被轮候冻结，仅华瀚投资尚有少量股份未被轮候冻结。
+目前，万泰生物等公司的汉坦病毒抗体检测试剂盒产品已经获批。
 
-据澎湃新闻，公司内部人士表示，针对当前的诉讼案正在多方协调调查中，公司已聘请专业的律师团队开展调查及取证相关工作。
+此外，中国生物制药（1177.HK）5月11日公告宣布旗下正大天晴与葛兰素史克（GSK）就一款新型的同类首创（FIC）乙肝疫苗Bepirovirsen达成独家战略合作。
 
-另外，证监会已完成对公司的现场调查。
+今年年初，Bepirovirsen已向国家药品监督管理局药品审评中心（CDE）递交上市申请，并被纳入优先审评品种名单，有望成为首款实现慢性乙肝功能性治愈的药物。
 
 ## 相关推荐
 
-- 2026-06-30 01:40 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 01:35 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 01:41 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 01:29 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 01:32 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 01:46 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 01:43 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 01:38 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 01:33 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 01:47 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 01:24 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 01:28 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 01:43 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 01:49 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 01:35 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 01:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 01:42 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 01:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 01:47 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 01:44 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 01:49 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 01:29 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 01:52 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 01:26 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 01:39 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 01:30 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 01:27 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 01:49 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/275072033.shtml)
-- 2026-06-30 01:45 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/67296771.shtml)
-- 2026-06-30 01:37 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/455238935.shtml)
-- 2026-06-30 01:45 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/666753.shtml)
-- 2026-06-30 01:46 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/38558342.shtml)
-- 2026-06-30 01:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/40124378.shtml)
-- 2026-06-30 01:47 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/10176254923.shtml)
-- 2026-06-30 01:36 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/778706458533.shtml)
-- 2026-06-30 01:45 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/375062151495.shtml)
-- 2026-06-30 01:38 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/785494822.shtml)
-- 2026-06-30 01:40 - [金刚川](https://www.blog.minike.top/Article/details/925027674071.shtml)
-- 2026-06-30 01:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/2393688.shtml)
-- 2026-06-30 01:43 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/630284038235.shtml)
-- 2026-06-30 01:40 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/59654915.shtml)
-- 2026-06-30 01:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/155354877.shtml)
+- 2026-06-30 01:36 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/996439.shtml)
+- 2026-06-30 01:42 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/163627111371.shtml)
+- 2026-06-30 01:51 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/06244216.shtml)
+- 2026-06-30 01:46 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/781824669183.shtml)
+- 2026-06-30 01:50 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/35786.shtml)
+- 2026-06-30 01:32 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/11704197.shtml)
+- 2026-06-30 01:38 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/71595134125.shtml)
+- 2026-06-30 01:42 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/11251481589.shtml)
+- 2026-06-30 01:35 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/270528652.shtml)
+- 2026-06-30 01:39 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/29413.shtml)
+- 2026-06-30 01:35 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/015394816.shtml)
+- 2026-06-30 01:27 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/165496518.shtml)
+- 2026-06-30 01:26 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/3204788322.shtml)
+- 2026-06-30 01:48 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/7491529.shtml)
+- 2026-06-30 01:39 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/1795741.shtml)

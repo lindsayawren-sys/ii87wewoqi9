@@ -1,57 +1,46 @@
-# 思索技术前次“带病闯关”闪退后再冲IPO：申报前大量招聘研发人员 其中专科及以下人数越来越多占比最高
+# 北京科博会上花钱买不来的“首台套” 有的成果从“0”到“1”花了30年
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 近日，前次“带病闯关”失败的东莞市思索技术股份有限公司（下称“思索技术”），更换保荐券商后再次冲刺创业板IPO。 2023年12月，思索技术在五矿证券的保荐下首次递交IPO申请，但29天后就撤回，后来被监管部门查实“带病闯关”，公司及相关负责人、五矿
+发布时间：2026年05月09日 22:32 来源：中国新闻网 5月8日至10日，第二十八届北京科博会开幕，现场多款“首台套”科技产品引发关注。全球最高最大巨型超高仿真人形机器人、突破“卡脖子”技术的靶材、2万次运动误差不超过0.2毫秒的灵巧手……这些技术创新背后有哪些故事，走进科博会现场一探究竟。(记者 卢晓娜 谢龙飞 马倩倩(实习生)北京报道) 责任编辑：【付子豪】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年05月09日 22:32 来源：中国新闻网 5月8日至10日，第二十八届北京科博会开幕，现场多款“首台套”科技产品引发关注。
 
-出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 近日，前次“带病闯关”失败的东莞市思索技术股份有限公司（下称“思索技术”），更换保荐券商后再次冲刺创业板IPO。
+全球最高最大巨型超高仿真人形机器人、突破“卡脖子”技术的靶材、2万次运动误差不超过0.2毫秒的灵巧手……这些技术创新背后有哪些故事，走进科博会现场一探究竟。
 
-2023年12月，思索技术在五矿证券的保荐下首次递交IPO申请，但29天后就撤回，后来被监管部门查实“带病闯关”，公司及相关负责人、五矿证券及保代，受到了通报批评或书面警示函等监管措施或纪律处分。
-
-此次IPO，思索技术将保荐券商更换为光大证券。
-
-思索技术此次IPO仍存在毛利率高于同行、销售费用率高于同行等问题。
-
-递表前，公司突击为副总经理周勇实施股权激励。
-
-此外，思索技术研发人员申报前大量增长，但是专科及以下学历人数越来越多，且2025年新增的研发人员更显蹊跷，加之前次IPO公司将部分属于生产、销售部门人员认定为研发部门人员，以及公司研发费用率低于同行均值等事实，思索技术是否通过突击增加研发人员以满足创业板IPO要求，有待检验。
-
-前次IPO“带病闯关” 折戟 更换保荐券商后能否祛除“旧疾”？
+(记者 卢晓娜 谢龙飞 马倩倩(实习生)北京报道) 责任编辑：【付子豪】
 
 ## 相关推荐
 
-- 2026-06-30 01:35 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 01:43 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 01:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-30 01:29 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 01:31 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 01:34 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 01:23 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 01:32 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 01:39 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 01:34 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 01:33 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 01:32 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 01:47 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 01:53 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 01:24 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 01:45 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 01:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 01:53 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 01:34 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 01:30 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 01:27 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:33 - [速度与激情9](https://www.share.minike.top/Article/details/53229427501.shtml)
-- 2026-06-30 01:25 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/19363143678.shtml)
-- 2026-06-30 01:36 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/959896.shtml)
-- 2026-06-30 01:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/628699.shtml)
-- 2026-06-30 01:18 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/34266.shtml)
-- 2026-06-30 01:38 - [美人鱼](http://www.share.kurohicncr.top/Article/details/06178.shtml)
-- 2026-06-30 01:28 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/73178580102.shtml)
-- 2026-06-30 01:39 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/73657.shtml)
-- 2026-06-30 01:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/515138314117.shtml)
-- 2026-06-30 01:24 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/8164664.shtml)
-- 2026-06-30 01:28 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/74658142511.shtml)
-- 2026-06-30 01:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/30596904.shtml)
-- 2026-06-30 01:22 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/464376435757.shtml)
-- 2026-06-30 01:32 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/810746.shtml)
-- 2026-06-30 01:45 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/5085399833.shtml)
+- 2026-06-30 01:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/972874814.shtml)
+- 2026-06-30 01:42 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/6714770028.shtml)
+- 2026-06-30 01:30 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/144104231606.shtml)
+- 2026-06-30 01:41 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/19886053.shtml)
+- 2026-06-30 01:46 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/644284231760.shtml)
+- 2026-06-30 01:53 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/948244163103.shtml)
+- 2026-06-30 01:39 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/267813.shtml)
+- 2026-06-30 01:52 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/861820.shtml)
+- 2026-06-30 01:46 - [一见倾心](https://www.share.minike.top/Article/details/60496.shtml)
+- 2026-06-30 01:28 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/98693.shtml)
+- 2026-06-30 01:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/98765812985.shtml)
+- 2026-06-30 01:47 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/267131194.shtml)
+- 2026-06-30 01:46 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/72813459158.shtml)
+- 2026-06-30 01:39 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/64322959.shtml)
+- 2026-06-30 01:30 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/39137.shtml)

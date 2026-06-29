@@ -1,60 +1,56 @@
-# *ST熊猫收到行政处罚事先告知书 投资者可参与索赔
+# 德国柏林举行老爷车日活动 2000辆经典车型亮相
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-2026年4月8日晚间，*ST熊猫（维权）发布关于收到中国证监会湖南监管局《行政处罚事先告知书》的公告。公告显示：熊猫金控股份有限公司于 2025 年12 月29 日收到中国证券监督管理委员会下发的《立案告知书》（编号：证监立案字0132025017 号），2026 年 4 月 8 日，公司收到中国证监会湖南监管局下发的《行政处罚事先告知书》〔2026〕4 号。 根据湖南证监局
+发布时间：2026年05月11日 11:53 来源：中国新闻网 当地时间5月9日至10日，德国柏林举行老爷车日活动，约2000辆老爷车集中亮相。展品涵盖多个年代和品牌，呈现了汽车工业的悠久历史与魅力，为游客提供了近距离欣赏汽车发展史上一些经典车型的机会。 在此次活动中，各大汽车公司不仅介绍其技术传承，展示历史车型，还呈现其未来投资方向。今年活动重点主要聚焦于产品的可持续发展。
 
 ## 正文
 
-2026年4月8日晚间，*ST熊猫（维权）发布关于收到中国证监会湖南监管局《行政处罚事先告知书》的公告。
+发布时间：2026年05月11日 11:53 来源：中国新闻网 当地时间5月9日至10日，德国柏林举行老爷车日活动，约2000辆老爷车集中亮相。
 
-公告显示：熊猫金控股份有限公司于 2025 年12 月29 日收到中国证券监督管理委员会下发的《立案告知书》（编号：证监立案字0132025017 号），2026 年 4 月 8 日，公司收到中国证监会湖南监管局下发的《行政处罚事先告知书》〔2026〕4 号。
+展品涵盖多个年代和品牌，呈现了汽车工业的悠久历史与魅力，为游客提供了近距离欣赏汽车发展史上一些经典车型的机会。
 
-根据湖南证监局下达的行政处罚事先告知书显示，*ST熊猫涉及的违规主要为：2023 年 4 月 4 日，*ST 熊猫披露了《关于逐步缩减小贷业务规模并加强小贷业务风险控制的公告》，称全资子公司广州市熊猫互联网小额贷款有限公司（以下简称广州小贷）和西藏熊猫小额贷款有限公司（以下简称西藏小贷）拟分别与昆朋资产管理股份有限公司（以下简称昆朋资产）签署《债权转让合同》，将广州小贷和西藏小贷的债权本金余额及交易基准日后相关权益分别以 198，075，000 元、215，840，000 元的价格转让给昆朋资产。
+在此次活动中，各大汽车公司不仅介绍其技术传承，展示历史车型，还呈现其未来投资方向。
 
-上述交易金额占*ST 熊猫最近一期经审计净资产的58.97%。
+今年活动重点主要聚焦于产品的可持续发展。
 
-经查，*ST 熊猫与昆朋资产的债权转让为虚假交易，*ST 熊猫为债权转让提供资金，后续通过资金拆借掩盖虚假交易，上述债权由国峻实业控股有限公司代持。
+柏林老爷车日活动每年举办，近年来吸引了越来越多的汽车爱好者参与，已成为当地重要的汽车文化活动之一。
 
-在收到证监会行政处罚事先告知书的同晚，*ST熊猫披露了2025年年报审计进展，利安达会计师事务所称，根据现场获取的审计证据，将对公司2025年度财务报告出具无法表示意见，将对公司2025年度内部控制审计报告出具否定意见。
-
-*ST熊猫提示，如年审会计师对公司2025年财务报告出具无法表示意见以及对公司2025年度内部控制审计报告出具否定意见，公司股票存在重大退市风险。
-
-江苏振泽律师事务所合伙人张云律师表示，*ST熊猫收到行政处罚事先告知书，投资者可参与索赔。
+(记者 马秀秀 制作 乐小敏） 责任编辑：【陈海峰】
 
 ## 相关推荐
 
-- 2026-06-30 01:23 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-30 01:37 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 01:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 01:18 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 01:40 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 01:19 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 01:25 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 01:30 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 01:21 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 01:31 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 01:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 01:24 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 01:26 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 01:24 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 01:26 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 01:41 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 01:29 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 01:30 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 01:33 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 01:24 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 01:29 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 01:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 01:30 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 01:52 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 01:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 01:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 01:31 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 01:42 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:18 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/391701398.shtml)
-- 2026-06-30 01:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/81745.shtml)
-- 2026-06-30 01:25 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/5583031.shtml)
-- 2026-06-30 01:23 - [美人鱼](https://www.blog.minike.top/Article/details/25620603.shtml)
-- 2026-06-30 01:24 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/01510.shtml)
-- 2026-06-30 01:43 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/76026803.shtml)
-- 2026-06-30 01:30 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/08070247836.shtml)
-- 2026-06-30 01:33 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/489624874.shtml)
-- 2026-06-30 01:47 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/29865.shtml)
-- 2026-06-30 01:34 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/99356182285.shtml)
-- 2026-06-30 01:40 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/319837.shtml)
-- 2026-06-30 01:38 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/85124.shtml)
-- 2026-06-30 01:20 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/95518288.shtml)
-- 2026-06-30 01:26 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/0433994293.shtml)
-- 2026-06-30 01:37 - [毒液2](https://www.blog.minike.top/Article/details/357651379488.shtml)
+- 2026-06-30 01:44 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/817942.shtml)
+- 2026-06-30 01:40 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/539035024154.shtml)
+- 2026-06-30 01:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/56565.shtml)
+- 2026-06-30 01:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/024807085.shtml)
+- 2026-06-30 01:49 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/4058990.shtml)
+- 2026-06-30 01:33 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/4388580506.shtml)
+- 2026-06-30 01:38 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/051082.shtml)
+- 2026-06-30 01:48 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/7290523.shtml)
+- 2026-06-30 01:53 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/39598866.shtml)
+- 2026-06-30 01:38 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/76489983765.shtml)
+- 2026-06-30 01:43 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/81900018710.shtml)
+- 2026-06-30 01:25 - [千与千寻](http://www.share.kurohicncr.top/Article/details/7415564.shtml)
+- 2026-06-30 01:47 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/657526881114.shtml)
+- 2026-06-30 01:24 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/147252263910.shtml)
+- 2026-06-30 01:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/78872.shtml)

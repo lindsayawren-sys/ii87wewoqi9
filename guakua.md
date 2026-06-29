@@ -1,61 +1,60 @@
-# 特斯拉正在开发更小、更便宜的紧凑型SUV
+# 长江有色：11日镍价或上涨 现货畏高抑制成交刚需为主
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-据报道，特斯拉正在开发一款全新的紧凑型SUV，比其现有任何车型都更小、更便宜，受此消息影响，特斯拉股价上涨0.46%。这家汽车制造商最近几周已联系供应商，讨论该车的制造工艺和零部件规格。这将是一款全新车型，而非现有Model 3或Model Y的变体。生产计划在特斯拉的上海工厂进行，不过该公司尚未确认该项目。 两位消息人士称，这款紧凑型SUV将比Model Y明显更短。预计该车
+ccmn沪镍走势：今日午盘后沪期镍上涨，沪期镍主力月2606合约开盘147300元/吨，盘中最高报148590元/吨，最低价报145610元/吨，收盘报147620元/吨，上涨570元/吨，涨幅为0.39%，沪镍主力月2606主力合约成交量290918手。 据长江有色属网统计：5月11日ccmn长江综合1#镍价报147600元/吨-149600元/吨，均价报148600元/吨，
 
 ## 正文
 
-据报道，特斯拉正在开发一款全新的紧凑型SUV，比其现有任何车型都更小、更便宜，受此消息影响，特斯拉股价上涨0.46%。
+ccmn沪镍走势：今日午盘后沪期镍上涨，沪期镍主力月2606合约开盘147300元/吨，盘中最高报148590元/吨，最低价报145610元/吨，收盘报147620元/吨，上涨570元/吨，涨幅为0.39%，沪镍主力月2606主力合约成交量290918手。
 
-这家汽车制造商最近几周已联系供应商，讨论该车的制造工艺和零部件规格。
+据长江有色属网统计：5月11日ccmn长江综合1#镍价报147600元/吨-149600元/吨，均价报148600元/吨，较前一日价格上涨1750元，长江现货1#镍报148100元/吨-149300元/吨，均价报148700元/吨，较前一日价格上涨1750元，广东现货镍报149500元/吨-149900元/吨，均价报149700元/吨，较前一日价格上涨1300元。
 
-这将是一款全新车型，而非现有Model 3或Model Y的变体。
+ccmn镍市分析：2026 年 5 月 11 日，全球宏观多重变量交织共振，成为大宗商品市场短期定价的核心主线。
 
-生产计划在特斯拉的上海工厂进行，不过该公司尚未确认该项目。
+国内维度，通胀数据释放温和回暖信号，基建建设部署带动需求预期升温；国际层面，美联储政策预期与地缘局势扰动下，美元维持偏弱震荡，美股风险偏好回升，共同提振金属市场情绪。
 
-两位消息人士称，这款紧凑型SUV将比Model Y明显更短。
+叠加国际航运风险引发的冶炼成本压力、主产国供给政策收紧，多重因素共振下，镍价迎来显著上涨，成为当日金属市场的焦点品种。
 
-预计该车定价将低于Model 3在中国3.4万美元和美国3.7万美元的入门级价格。
+当前镍市场供需两端呈现鲜明的结构性分化特征。
 
-实现较低定价的部分手段包括采用更小的电池组、单电机以及更小的目标车重。
+供应端，主产国印尼持续收紧镍矿开采政策，部分矿企受配额限制调整生产节奏；同时，地缘冲突推升冶炼原料成本，湿法冶炼企业减产检修导致高冰镍等中间品供给受限，矿端与中间品供给整体趋紧，但精炼镍供给仍维持高位，形成明显的结构性矛盾。
 
-这一努力标志着特斯拉在2024年取消了备受期待的低成本“Model 2”项目、转而专注于机器人出租车和人形机器人之后的一次潜在战略回调。
+需求端，不锈钢行业刚性需求稳定，钢厂排产有所提升，但终端市场对高价原料接受度有限，行业库存处于高位；新能源领域需求分化，动力电池上游刚需仍存，但三元电池路线受替代产品挤压，整体需求增速放缓。
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 01:34 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-30 01:47 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 01:44 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-30 01:20 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 01:18 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 01:21 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 01:34 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 01:39 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 01:23 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 01:23 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 01:35 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 01:25 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 01:22 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 01:46 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 01:29 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 01:49 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 01:29 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 01:37 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 01:34 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 01:31 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 01:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 01:33 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 01:43 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 01:47 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 01:50 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 01:27 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 01:45 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 01:36 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:34 - [沙丘](http://www.blog.minike.top/Article/details/45926147115.shtml)
-- 2026-06-30 01:37 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/071916791341.shtml)
-- 2026-06-30 01:41 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/86083984102.shtml)
-- 2026-06-30 01:46 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/376851271.shtml)
-- 2026-06-30 01:45 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/90456.shtml)
-- 2026-06-30 01:25 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/64146352070.shtml)
-- 2026-06-30 01:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/72947.shtml)
-- 2026-06-30 01:43 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/8171712.shtml)
-- 2026-06-30 01:45 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/49409654.shtml)
-- 2026-06-30 01:42 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/659383568.shtml)
-- 2026-06-30 01:29 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/5418932.shtml)
-- 2026-06-30 01:46 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/61550957.shtml)
-- 2026-06-30 01:43 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/0492379644.shtml)
-- 2026-06-30 01:35 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/2625526918.shtml)
-- 2026-06-30 01:34 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/581193.shtml)
+- 2026-06-30 01:47 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/62522.shtml)
+- 2026-06-30 01:34 - [爱很美味](http://www.share.kurohicncr.top/Article/details/440221214937.shtml)
+- 2026-06-30 01:36 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/03175.shtml)
+- 2026-06-30 01:50 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/44837.shtml)
+- 2026-06-30 01:26 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/073232698.shtml)
+- 2026-06-30 01:53 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/235691.shtml)
+- 2026-06-30 01:39 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/7007695108.shtml)
+- 2026-06-30 01:42 - [TOP Prada](http://www.share.minike.top/Article/details/40263479.shtml)
+- 2026-06-30 01:51 - [明星大侦探第四季](https://www.share.minike.top/Article/details/8866445019.shtml)
+- 2026-06-30 01:45 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/24455.shtml)
+- 2026-06-30 01:34 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/94077.shtml)
+- 2026-06-30 01:52 - [月亮](http://www.share.minike.top/Article/details/729812.shtml)
+- 2026-06-30 01:51 - [斗破苍穹](https://www.share.minike.top/Article/details/45763.shtml)
+- 2026-06-30 01:40 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/36709.shtml)
+- 2026-06-30 01:24 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/26817.shtml)

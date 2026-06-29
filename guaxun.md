@@ -1,57 +1,54 @@
-# AI算力+新能源双轮驱动，创业板指创4年半新高！华宝基金创业板综增强ETF（159292）大涨逾2%
+# 海内外妈祖敬仰者赴福建湄洲妈祖祖庙春祭妈祖 台胞坦言一定要来
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-今日（4月10日）A股市场迎来全面走强，沪指盘中重返4000点上方，收涨0.51%；深成指大涨2.24%。市场情绪显著回暖，全市场上涨个股近4000家，两市成交额约2.3万亿元。 值得注意的是，创业板指表现最为亮眼，收盘大涨3.78%，创下自2021年12月以来新高。领涨板块高度聚焦，电池产业链全线爆发，电力设备、电子板块亦表现强势，成为今日市场核心驱动力。 一键布局高景气赛道
+发布时间：2026年05月09日 21:20 来源：中国新闻网 5月9日，农历三月廿三，时值妈祖诞辰日，纪念妈祖诞辰1066周年大会暨春祭妈祖大典在福建莆田湄洲妈祖祖庙天后广场举行。海内外妈祖文化机构代表、妈祖敬仰者及各界人士等近万人齐聚妈祖故里，同谒妈祖，缅怀妈祖立德、行善、大爱的精神。 据统计，在台湾，来自大陆分灵的妈祖宫庙超过3000座。每年妈祖诞辰日前后，许多来自台湾的
 
 ## 正文
 
-今日（4月10日）A股市场迎来全面走强，沪指盘中重返4000点上方，收涨0.51%；深成指大涨2.24%。
+发布时间：2026年05月09日 21:20 来源：中国新闻网 5月9日，农历三月廿三，时值妈祖诞辰日，纪念妈祖诞辰1066周年大会暨春祭妈祖大典在福建莆田湄洲妈祖祖庙天后广场举行。
 
-市场情绪显著回暖，全市场上涨个股近4000家，两市成交额约2.3万亿元。
+海内外妈祖文化机构代表、妈祖敬仰者及各界人士等近万人齐聚妈祖故里，同谒妈祖，缅怀妈祖立德、行善、大爱的精神。
 
-值得注意的是，创业板指表现最为亮眼，收盘大涨3.78%，创下自2021年12月以来新高。
+据统计，在台湾，来自大陆分灵的妈祖宫庙超过3000座。
 
-领涨板块高度聚焦，电池产业链全线爆发，电力设备、电子板块亦表现强势，成为今日市场核心驱动力。
+每年妈祖诞辰日前后，许多来自台湾的信众回到湄洲祖庙谒祖，参加祭典。
 
-一键布局高景气赛道的创业板综增强ETF（159292）早盘拉升后全天维持高位，收盘大涨2.41%，场内成交674万元。
+他们将在台湾供奉的妈祖神像恭送到湄洲，与祖庙的妈祖塑像供奉在一起，意为“回娘家”和“团圆”。
 
-成份股中，欣旺达大涨超14%，据悉，欣旺达旗下专注动力电池业务的子公司——欣旺达动力，已进入特斯拉全球供应链，成为特斯拉全球第五家动力电池供应商。
+不少台湾信众在接受记者采访时表示，要弘扬妈祖精神，传承妈祖信俗，加强两岸交流合作。
 
-前十大权重股九成收涨，宁德时代、新易盛、中际旭创涨幅均超6%。
-
-资金面上，市场情绪显著回暖，资金主攻方向明确集中在成长赛道，创业板综指数第一大权重行业今日再度迎来主力资金青睐，电力设备行业获主力资金净流入70.49亿元，高居31个申万一级行业之首！
+记者 吴晟炜 福建莆田报道 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 01:23 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 01:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 01:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 01:36 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 01:22 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 01:21 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 01:28 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 01:31 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 01:19 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 01:28 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 01:22 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 01:40 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 01:34 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 01:43 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 01:38 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 01:31 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 01:26 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 01:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 01:39 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 01:51 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 01:37 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:36 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/5743032.shtml)
-- 2026-06-30 01:25 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/500735088.shtml)
-- 2026-06-30 01:32 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/3142576.shtml)
-- 2026-06-30 01:32 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/503772084191.shtml)
-- 2026-06-30 01:20 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/37973998458.shtml)
-- 2026-06-30 01:31 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/3086445781.shtml)
-- 2026-06-30 01:38 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/6351093.shtml)
-- 2026-06-30 01:29 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/91388614831.shtml)
-- 2026-06-30 01:32 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/53394662309.shtml)
-- 2026-06-30 01:30 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/1390213499.shtml)
-- 2026-06-30 01:31 - [月亮](https://www.blog.kurohicncr.top/Article/details/5819829128.shtml)
-- 2026-06-30 01:19 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/83183217704.shtml)
-- 2026-06-30 01:29 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/3217296.shtml)
-- 2026-06-30 01:31 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/19884616.shtml)
-- 2026-06-30 01:40 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/783950512.shtml)
+- 2026-06-30 01:37 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/749686818373.shtml)
+- 2026-06-30 01:33 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/7476555662.shtml)
+- 2026-06-30 01:36 - [金牌调解](http://www.share.minike.top/Article/details/6202835.shtml)
+- 2026-06-30 01:51 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/51786980.shtml)
+- 2026-06-30 01:49 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/30366174.shtml)
+- 2026-06-30 01:49 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/402288284431.shtml)
+- 2026-06-30 01:39 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/845441538977.shtml)
+- 2026-06-30 01:37 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/96046307.shtml)
+- 2026-06-30 01:45 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/522575162.shtml)
+- 2026-06-30 01:38 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/8626349.shtml)
+- 2026-06-30 01:27 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/96431565.shtml)
+- 2026-06-30 01:49 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/246342.shtml)
+- 2026-06-30 01:51 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/3168488318.shtml)
+- 2026-06-30 01:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/13072.shtml)
+- 2026-06-30 01:26 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/24919.shtml)

@@ -1,58 +1,61 @@
-# 华盛雷达闯关科创板，寸怀诚掌舵，年入3.79亿却要冲11.5亿大募资 | 长三角资本局
+# （神州写真）中国多地加速布局商业航天产业
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 从通信行业老兵到雷达公司掌舵者，寸怀诚这一次想把华盛雷达带到哪里？一家仍在扩大规模、夯实盈利基础的公司，真的准备好接受科创板的公开检验了吗？ 最近，浙江华盛雷达股份有限公司科创板IPO获上交所受理，目前审核状态为“已问询”，拟融资金额11.50亿元。 对外界而言，这家公司的名字并不算热闹，但招股书里的几组数字并不低调：8.8亿元投向相控阵雷达智能制造产
+中新社安徽蚌埠5月11日电 题：中国多地加速布局商业航天产业 作者 张强 付敏 在安徽蚌埠的商业航天科技产业园，九州云箭航天技术有限公司的工人正在进行火箭发动机的装配、焊接和测试。 “去年9月完成整体搬迁，企业迎来发展新阶段。”公司副总经理石奇说，新厂区建筑面积从3000平方米扩容至2万余平方米，为规模化生产与技术迭代提供了更大空间。 蚌埠是老工业基地城市，近年来，“嫦娥”“神
 
 ## 正文
 
-文|新浪财经上海站 十里 从通信行业老兵到雷达公司掌舵者，寸怀诚这一次想把华盛雷达带到哪里？
+中新社安徽蚌埠5月11日电 题：中国多地加速布局商业航天产业 作者 张强 付敏 在安徽蚌埠的商业航天科技产业园，九州云箭航天技术有限公司的工人正在进行火箭发动机的装配、焊接和测试。
 
-一家仍在扩大规模、夯实盈利基础的公司，真的准备好接受科创板的公开检验了吗？
+“去年9月完成整体搬迁，企业迎来发展新阶段。
 
-最近，浙江华盛雷达股份有限公司科创板IPO获上交所受理，目前审核状态为“已问询”，拟融资金额11.50亿元。
+”公司副总经理石奇说，新厂区建筑面积从3000平方米扩容至2万余平方米，为规模化生产与技术迭代提供了更大空间。
 
-对外界而言，这家公司的名字并不算热闹，但招股书里的几组数字并不低调：8.8亿元投向相控阵雷达智能制造产业化及研发中心项目，2亿元投向相控阵雷达智能应用研究中心项目，7000万元用于补充流动资金。
+蚌埠是老工业基地城市，近年来，“嫦娥”“神舟”“天宫”等重大航天工程背后都有“蚌埠智造”的身影。
 
-对一家刚刚走出亏损、营收规模还只有数亿元的企业来说，这样的募资动作，很难不引发关注。
+自2019年引进首家商业航天企业以来，蚌埠构建了“箭、星、端”全产业链生态体系。
 
-华盛雷达的故事，首先要从寸怀诚讲起。
+截至目前，该市已集聚23家商业航天企业，建立4支总规模超60亿元(人民币，下同)的商业航天产业基金。
 
-招股书显示，寸怀诚出生于1977年2月，研究生学历，早年曾在广东省邮电技术研究院担任工程师，之后在宜通世纪（维权）历任工程师、网优部经理、无线事业部总经理、子公司总经理、分公司负责人。
+2025年，该市商业航天产业实现产值翻倍。
 
-2014年6月起，他进入华盛有限，历任副总经理、总经理、董事长，2024年12月至今担任华盛雷达总经理、董事长。
+今年4月印发的《安徽省加快发展商业航天产业行动方案(2026—2028年)》提出，支持蚌埠建设面向长三角和中部地区的火箭发动机测试基地。
 
 ## 相关推荐
 
-- 2026-06-30 01:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 01:19 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 01:41 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 01:22 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 01:19 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 01:19 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 01:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 01:38 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 01:35 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 01:38 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 01:23 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 01:34 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 01:25 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 01:27 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 01:51 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 01:35 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 01:34 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 01:32 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 01:38 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 01:46 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 01:32 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 01:49 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 01:38 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 01:44 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 01:42 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 01:24 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 01:50 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/444836620.shtml)
-- 2026-06-30 01:44 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/280218678.shtml)
-- 2026-06-30 01:30 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/0899889.shtml)
-- 2026-06-30 01:36 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/7915374.shtml)
-- 2026-06-30 01:19 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/6186136027.shtml)
-- 2026-06-30 01:40 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/3632993.shtml)
-- 2026-06-30 01:38 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/170195.shtml)
-- 2026-06-30 01:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/604106762857.shtml)
-- 2026-06-30 01:23 - [电影后室值得看吗](https://www.share.minike.top/Article/details/48743.shtml)
-- 2026-06-30 01:43 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/6690993689.shtml)
-- 2026-06-30 01:39 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/62208564.shtml)
-- 2026-06-30 01:23 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/539793131808.shtml)
-- 2026-06-30 01:19 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/912496.shtml)
-- 2026-06-30 01:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/12789323663.shtml)
-- 2026-06-30 01:30 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/848747889604.shtml)
+- 2026-06-30 01:41 - [刘念回应](http://www.blog.minike.top/Article/details/585720.shtml)
+- 2026-06-30 01:37 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/705066.shtml)
+- 2026-06-30 01:40 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/721497733.shtml)
+- 2026-06-30 01:27 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/711570444.shtml)
+- 2026-06-30 01:31 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/76842881.shtml)
+- 2026-06-30 01:45 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/804778541921.shtml)
+- 2026-06-30 01:36 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/774206571807.shtml)
+- 2026-06-30 01:43 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/794537671.shtml)
+- 2026-06-30 01:33 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/7324687115.shtml)
+- 2026-06-30 01:52 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/684508.shtml)
+- 2026-06-30 01:28 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/42381996947.shtml)
+- 2026-06-30 01:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/674103387.shtml)
+- 2026-06-30 01:34 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/2674272.shtml)
+- 2026-06-30 01:37 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/29370295627.shtml)
+- 2026-06-30 01:44 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/26672037806.shtml)

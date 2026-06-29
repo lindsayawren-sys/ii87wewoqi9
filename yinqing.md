@@ -1,58 +1,61 @@
-# 杨柳飞絮来袭 专家解析飞絮规律与防治措施
+# 中信银行员工诈骗客户数百万 保险公司被判支付“雇员忠诚险”
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网郑州4月9日电 (记者 韩章云)随着气温回暖，北方多地已进入杨柳飞絮季，河南、北京、山东、山西等地已于近日相继发布2026年杨柳飞絮预报，提醒公众做好防护。 作为春季草木萌发、万物生长的“附属物”，北方地区的杨柳飞絮问题近年来备受关注。一团团、一簇簇杨柳絮随风飘飞，容易误入人眼、口鼻、呼吸道。其携带的花粉等过敏原，更是让过敏体质人群苦不堪言。此外，杨柳絮结构蓬松，扩散能力
+来源：险联社 “中信银行一客户经理诈骗客户数百万，持保单向保险公司索赔‘雇员忠诚险’，经过多年拉锯，最终，今年2月法院判保险公司支付中信银行保险赔偿金328万余元。” 2018年，中信银行兰州分行客户经理吕某泽骗取老年客户用于购买理财产品的资金，悉数转入其个人控制的账户，用于偿还高利贷、炒股及个人消费。 短短数月，14名客户受骗，金额达到393万。 其实这样的案件这些年也屡见不
 
 ## 正文
 
-中新网郑州4月9日电 (记者 韩章云)随着气温回暖，北方多地已进入杨柳飞絮季，河南、北京、山东、山西等地已于近日相继发布2026年杨柳飞絮预报，提醒公众做好防护。
+来源：险联社 “中信银行一客户经理诈骗客户数百万，持保单向保险公司索赔‘雇员忠诚险’，经过多年拉锯，最终，今年2月法院判保险公司支付中信银行保险赔偿金328万余元。
 
-作为春季草木萌发、万物生长的“附属物”，北方地区的杨柳飞絮问题近年来备受关注。
+” 2018年，中信银行兰州分行客户经理吕某泽骗取老年客户用于购买理财产品的资金，悉数转入其个人控制的账户，用于偿还高利贷、炒股及个人消费。
 
-一团团、一簇簇杨柳絮随风飘飞，容易误入人眼、口鼻、呼吸道。
+短短数月，14名客户受骗，金额达到393万。
 
-其携带的花粉等过敏原，更是让过敏体质人群苦不堪言。
+其实这样的案件这些年也屡见不鲜了。
 
-此外，杨柳絮结构蓬松，扩散能力强，其含有的大量油脂极易燃烧，密集爆发时易引发火灾。
+最终结果就是吕某泽锒铛入狱，中信银行向受害者垫付了386万余元。
 
-杨柳飞絮如何防治？
+但是，由于中信银行曾向保险公司投保了“雇员忠诚保证保险”，转头向保险公司申请理赔，结果被保险公司断然拒绝。
 
-大规模更换树种是否可行？
+经过几年拉锯，今年2月，甘肃省高级法院采纳检察机关抗诉意见，改判保险公司支付中信银行保险赔偿金328万余元。
 
-近日，记者就此采访了河南省林业科学研究院林业生态建设研究中心主任杨海青。
+截至3月13日，赔偿金全部支付到位。
 
 ## 相关推荐
 
-- 2026-06-30 01:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 01:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 01:46 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 01:40 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 01:22 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 01:41 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 01:34 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 01:44 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 01:40 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 01:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 01:44 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 01:40 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 01:45 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 01:47 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 01:39 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 01:35 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 01:25 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 01:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 01:52 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 01:29 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 01:28 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 01:50 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 01:53 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 01:32 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 01:35 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 01:27 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 01:48 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:39 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/5296172.shtml)
-- 2026-06-30 01:20 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/63450630.shtml)
-- 2026-06-30 01:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/31635.shtml)
-- 2026-06-30 01:27 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/860752550783.shtml)
-- 2026-06-30 01:36 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/48752.shtml)
-- 2026-06-30 01:31 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/35515.shtml)
-- 2026-06-30 01:34 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/15691902.shtml)
-- 2026-06-30 01:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/87094416.shtml)
-- 2026-06-30 01:29 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/5505795364.shtml)
-- 2026-06-30 01:27 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/72525.shtml)
-- 2026-06-30 01:47 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/0706892.shtml)
-- 2026-06-30 01:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/717477.shtml)
-- 2026-06-30 01:27 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/107428018.shtml)
-- 2026-06-30 01:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/6544678.shtml)
-- 2026-06-30 01:27 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/25023.shtml)
+- 2026-06-30 01:44 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/03593462187.shtml)
+- 2026-06-30 01:33 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/84433567949.shtml)
+- 2026-06-30 01:35 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/9707658087.shtml)
+- 2026-06-30 01:26 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/909963415322.shtml)
+- 2026-06-30 01:27 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/734994323314.shtml)
+- 2026-06-30 01:46 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/816295393.shtml)
+- 2026-06-30 01:37 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/429575125098.shtml)
+- 2026-06-30 01:26 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/16559.shtml)
+- 2026-06-30 01:47 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/5297285.shtml)
+- 2026-06-30 01:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/997133845663.shtml)
+- 2026-06-30 01:51 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/0980872055.shtml)
+- 2026-06-30 01:42 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/6267172193.shtml)
+- 2026-06-30 01:39 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/873840201729.shtml)
+- 2026-06-30 01:51 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/90122375.shtml)
+- 2026-06-30 01:34 - [急先锋](https://www.blog.minike.top/Article/details/17204.shtml)

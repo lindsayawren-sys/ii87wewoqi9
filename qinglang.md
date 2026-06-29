@@ -1,50 +1,57 @@
-# 中国成功发射卫星互联网低轨21组卫星
+# 招商银行青岛分行被罚38.36万元：违反金融统计相关规定等
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新社北京4月9日电 (记者 马帅莎)据中国航天科技集团消息，北京时间4月9日3时38分，中国在太原卫星发射中心使用长征六号改运载火箭，成功将卫星互联网低轨21组卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 长征六号改运载火箭由中国航天科技集团八院抓总研制，是中国首款固液捆绑运载火箭，可满足单星、双星、三星、堆叠、壁挂等多种发射方式，700公里高度太阳同步轨道运载
+5月9日金融一线消息，中国人民银行青岛市分行行政处罚决定信息公示表显示，招商银行股份有限公司青岛分行因违反金融统计相关规定，违反人民币流通管理规定，违反反假货币业务管理规定，金融机构违反信用信息采集、提供、查询及相关管理规定，未按照规定开展客户尽职调查，受到警告并被罚款38.36万元。 序号 当事人名称（姓名、职务） 行政处罚决定书文号 违法行为类型 行政处罚内容 作出行政处罚
 
 ## 正文
 
-中新社北京4月9日电 (记者 马帅莎)据中国航天科技集团消息，北京时间4月9日3时38分，中国在太原卫星发射中心使用长征六号改运载火箭，成功将卫星互联网低轨21组卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
+5月9日金融一线消息，中国人民银行青岛市分行行政处罚决定信息公示表显示，招商银行股份有限公司青岛分行因违反金融统计相关规定，违反人民币流通管理规定，违反反假货币业务管理规定，金融机构违反信用信息采集、提供、查询及相关管理规定，未按照规定开展客户尽职调查，受到警告并被罚款38.36万元。
 
-长征六号改运载火箭由中国航天科技集团八院抓总研制，是中国首款固液捆绑运载火箭，可满足单星、双星、三星、堆叠、壁挂等多种发射方式，700公里高度太阳同步轨道运载能力不小于4.5吨。
+序号 当事人名称（姓名、职务） 行政处罚决定书文号 违法行为类型 行政处罚内容 作出行政处罚决定机关名称 作出行政处罚决定日期 公示期限 备注 1 招商银行股份有限公司青岛分行 中国人民银行青岛市分行行政处罚决定书（青银罚决字〔2026〕3号） 1．违反金融统计相关规定。
 
-此次任务是长征系列运载火箭的第637次飞行。
+2．违反人民币流通管理规定。
 
-(完)
+3．违反反假货币业务管理规定。
+
+4．金融机构违反信用信息采集、提供、查询及相关管理规定。
+
+5．未按照规定开展客户尽职调查。
+
+警告、处罚款38.36万元 中国人民银行青岛市分行 2026年4月30日 3年 责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 01:42 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 01:19 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 01:33 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 01:19 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 01:26 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 01:31 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 01:43 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 01:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 01:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-30 01:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 01:22 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 01:47 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 01:38 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 01:47 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 01:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 01:46 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 01:24 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 01:52 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 01:50 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 01:51 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 01:43 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 01:43 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 01:37 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 01:33 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 01:49 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/8182983099.shtml)
-- 2026-06-30 01:43 - [点菜也要教吗](https://www.share.minike.top/Article/details/6958202177.shtml)
-- 2026-06-30 01:43 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/20320453981.shtml)
-- 2026-06-30 01:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/16710767.shtml)
-- 2026-06-30 01:42 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/53763893.shtml)
-- 2026-06-30 01:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/998709738023.shtml)
-- 2026-06-30 01:35 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/2820366.shtml)
-- 2026-06-30 01:33 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/21016.shtml)
-- 2026-06-30 01:21 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/9481542.shtml)
-- 2026-06-30 01:36 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/11831.shtml)
-- 2026-06-30 01:30 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/121143.shtml)
-- 2026-06-30 01:30 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/221485.shtml)
-- 2026-06-30 01:22 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/43191538334.shtml)
-- 2026-06-30 01:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/424952919110.shtml)
-- 2026-06-30 01:34 - [沙丘](http://www.blog.kurohicncr.top/Article/details/2701493905.shtml)
+- 2026-06-30 01:25 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/89800532738.shtml)
+- 2026-06-30 01:49 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/2540258.shtml)
+- 2026-06-30 01:38 - [金刚川](http://www.blog.minike.top/Article/details/1233413811.shtml)
+- 2026-06-30 01:43 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/958279562.shtml)
+- 2026-06-30 01:36 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/480586815.shtml)
+- 2026-06-30 01:51 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/995341621445.shtml)
+- 2026-06-30 01:26 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/659173255652.shtml)
+- 2026-06-30 01:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/238069.shtml)
+- 2026-06-30 01:52 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/109155.shtml)
+- 2026-06-30 01:28 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/23669150830.shtml)
+- 2026-06-30 01:30 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/829923076.shtml)
+- 2026-06-30 01:28 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/405248450.shtml)
+- 2026-06-30 01:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/207452187.shtml)
+- 2026-06-30 01:47 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/477840.shtml)
+- 2026-06-30 01:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/32687.shtml)

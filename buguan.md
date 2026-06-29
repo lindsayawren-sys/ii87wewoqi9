@@ -1,59 +1,59 @@
-# 广东东莞在国内首创“四流合一”融资增信模式 赋能地方特色产业高质量发展
+# 夺命“瀑布秋千”，“从设计到操作，处处都有坑”
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-来源：中国人民银行广东省分行 近日，在中国人民银行广东省分行的指导下，中国人民银行东莞市分行创新构建“资金流、会计流、税务流、交易流”——“四流合一”融资增信模式，引导招商银行东莞分行紧扣东莞制造业产业特色，推出全国首个连接器产业专项融资产品“连接器贷”，为连接器产业企业精准注入金融活水，以金融创新助力地方特色制造业向高端化、智能化转型升级。 东莞是国内重要的制造业基地，具有完
+澎湃新闻记者 王鑫 尽管事发已过多日，围绕四川省华蓥市玛琉岩探险公园瀑布秋千项目乃至户外探险项目的安全讨论仍在继续。 5月3日下午，一名年轻女游客在玛琉岩探险公园体验瀑布秋千项目时不幸坠落遇难。截至目前，华蓥当地除发布一条通报将事故定性为企业生产安全责任事故外，未再向公众披露该事件的具体情况。5月7日上午，澎湃新闻曾前往玛琉岩探险公园探访，但因景区停业整顿，未能进入。该景区官方
 
 ## 正文
 
-来源：中国人民银行广东省分行 近日，在中国人民银行广东省分行的指导下，中国人民银行东莞市分行创新构建“资金流、会计流、税务流、交易流”——“四流合一”融资增信模式，引导招商银行东莞分行紧扣东莞制造业产业特色，推出全国首个连接器产业专项融资产品“连接器贷”，为连接器产业企业精准注入金融活水，以金融创新助力地方特色制造业向高端化、智能化转型升级。
+澎湃新闻记者 王鑫 尽管事发已过多日，围绕四川省华蓥市玛琉岩探险公园瀑布秋千项目乃至户外探险项目的安全讨论仍在继续。
 
-东莞是国内重要的制造业基地，具有完备的电子、电气设备产业链。
+5月3日下午，一名年轻女游客在玛琉岩探险公园体验瀑布秋千项目时不幸坠落遇难。
 
-连接器是电子电路中用于连接两个电路单元的电子元件，允许电路单元之间进行电信号或电源的传输。
+截至目前，华蓥当地除发布一条通报将事故定性为企业生产安全责任事故外，未再向公众披露该事件的具体情况。
 
-其作为电子设备核心基础元件，广泛应用于新能源汽车、通信通讯、光伏、消费电子等多个领域，是东莞制造业高质量发展的重要细分赛道。
+5月7日上午，澎湃新闻曾前往玛琉岩探险公园探访，但因景区停业整顿，未能进入。
 
-目前，东莞连接器产业在高压、高频高速、光伏、汽车等领域形成显著竞争优势，培育了一批上市企业、专精特新企业，产业升级与创新发展的融资需求愈发迫切。
+该景区官方账号曾发布消息称，自5月4日起至5月10日临时闭园，恢复营业时间另行公告。
 
-东莞在国内首创的“资金流、会计流、税务流、交易流”——“四流合一”融资增信模式，通过多维度数据交叉校验，大幅提升授信评估的精准度与可靠性。
+不过，该条信息已被删除。
 
-其中，资金流依托全国中小微企业资金流信用信息共享平台，动态反映企业全生命周期经营状况；会计流以财政部、中国人民银行小微企业增信会计数据标准化试点为基础，实现会计数据标准化处理与合规共享；税务流整合企业纳税信用、申报缴纳等权威信息，印证企业经营质效；交易流汇聚产业链真实交易凭证，形成可核验闭环，精准验证业务真实性。
+5月9日下午，有“中国荡绳第一人”之称的段树军在接受澎湃新闻采访时指出，涉事景区在项目设计上存在严重缺陷。
 
-基于“四流合一”融资增信模式，招商银行东莞分行创设的“连接器贷”凸显专、高、惠、快四大特色，为企业提供全方位融资支持。
+此外，事故也反映出操作人员操作不规范以及缺乏培训、准备不足等问题。
 
 ## 相关推荐
 
-- 2026-06-30 01:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 01:32 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 01:19 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 01:32 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 01:40 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 01:39 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 01:47 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 01:31 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 01:35 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 01:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 01:43 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 01:46 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 01:47 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 01:46 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 01:46 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 01:40 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 01:51 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 01:34 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 01:53 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 01:43 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 01:32 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 01:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 01:41 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 01:24 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 01:27 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 01:41 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/724793.shtml)
-- 2026-06-30 01:28 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/2009214886.shtml)
-- 2026-06-30 01:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/535027205875.shtml)
-- 2026-06-30 01:42 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/9909649.shtml)
-- 2026-06-30 01:23 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/48154761.shtml)
-- 2026-06-30 01:46 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/68330.shtml)
-- 2026-06-30 01:41 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/0581204693.shtml)
-- 2026-06-30 01:21 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/304372735461.shtml)
-- 2026-06-30 01:19 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/94319.shtml)
-- 2026-06-30 01:26 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/228032.shtml)
-- 2026-06-30 01:25 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/2783055642.shtml)
-- 2026-06-30 01:37 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/101368.shtml)
-- 2026-06-30 01:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/92334.shtml)
-- 2026-06-30 01:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/70355.shtml)
-- 2026-06-30 01:42 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/59020446188.shtml)
+- 2026-06-30 01:44 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/83636206778.shtml)
+- 2026-06-30 01:25 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/11304184874.shtml)
+- 2026-06-30 01:40 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/0765547.shtml)
+- 2026-06-30 01:46 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/00988.shtml)
+- 2026-06-30 01:47 - [张凌赫 客串](https://www.blog.minike.top/Article/details/21229.shtml)
+- 2026-06-30 01:27 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/38377937.shtml)
+- 2026-06-30 01:49 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/6828363.shtml)
+- 2026-06-30 01:34 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/6813157286.shtml)
+- 2026-06-30 01:39 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/422601069.shtml)
+- 2026-06-30 01:33 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/29793.shtml)
+- 2026-06-30 01:38 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/540411.shtml)
+- 2026-06-30 01:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/492302105406.shtml)
+- 2026-06-30 01:29 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/399521.shtml)
+- 2026-06-30 01:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/065462.shtml)
+- 2026-06-30 01:48 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/9722962.shtml)

@@ -1,56 +1,57 @@
-# 斯塔默：受够能源价格因特朗普、普京反复波动
+# 美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-英国首相基尔・斯塔默表示，他“受够了”英国的能源账单因美国总统唐纳德・特朗普和俄罗斯总统弗拉基米尔・普京的所作所为而上下波动。 这番言论发表于周四播出的ITV新闻《政治谈话》播客采访中。时值美以与伊朗冲突期间油价飙升，而在为期两周、脆弱不堪的停火协议下，油价又陷入剧烈波动。 “我受够了这样的事实：全英家庭的能源账单、企业的能源账单，都因为普京或特朗普在世界各地的行动而忽高忽低。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：昊 近日，美锦转债价格出现大幅波动，一度跌破百元面值，正在被投资者抛弃。美锦转债的市场表现与美锦能源疲弱的基本面密切关联，公司近年来业绩持续下滑，股价也一路走低。 2025年，美锦能源营收连续第三年下滑，归母净利润第二年亏损，今年一季度继续亏损，毛利率从2021年的30%
 
 ## 正文
 
-英国首相基尔・斯塔默表示，他“受够了”英国的能源账单因美国总统唐纳德・特朗普和俄罗斯总统弗拉基米尔・普京的所作所为而上下波动。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这番言论发表于周四播出的ITV新闻《政治谈话》播客采访中。
+出品：新浪财经上市公司研究院 作者：昊 近日，美锦转债价格出现大幅波动，一度跌破百元面值，正在被投资者抛弃。
 
-时值美以与伊朗冲突期间油价飙升，而在为期两周、脆弱不堪的停火协议下，油价又陷入剧烈波动。
+美锦转债的市场表现与美锦能源疲弱的基本面密切关联，公司近年来业绩持续下滑，股价也一路走低。
 
-“我受够了这样的事实：全英家庭的能源账单、企业的能源账单，都因为普京或特朗普在世界各地的行动而忽高忽低。
+2025年，美锦能源营收连续第三年下滑，归母净利润第二年亏损，今年一季度继续亏损，毛利率从2021年的30%跌至仅1%，负债率和有息负债维持高位，应付款有所降低但仍在百亿以上。
 
-”斯塔默说道。
+更重要的是，账面23亿的货币资金已无法覆盖超27亿的未转股余额。
 
-白宫发言人安娜・凯利为特朗普的行为进行了辩护。
+作为转型核心方向的氢能业务，2025年美锦能源相关收入大降近50%，毛利率进一步跌至-31%。
 
-“许多世界领导人几十年来一直在谈论伊朗构成的威胁，却无所作为。
+不仅如此，2022年36亿元可转债募投项目中，几个氢能项目也都出现延期或终止。
 
-”她在电子邮件中表示，“特朗普总统采取了果敢行动，确保伊朗永远无法拥有核武器。
+自2017年以来，美锦能源向市场讲述的氢能转型故事，正在被越来越多的投资者质疑。
 
 ## 相关推荐
 
-- 2026-06-30 01:39 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 01:38 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 01:45 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 01:28 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 01:18 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 01:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-30 01:29 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 01:46 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 01:41 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 01:35 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 01:30 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 01:29 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 01:46 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 01:34 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 01:38 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 01:24 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-30 01:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 01:37 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 01:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 01:29 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 01:40 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:27 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/053678915.shtml)
-- 2026-06-30 01:32 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/908558.shtml)
-- 2026-06-30 01:25 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/20321226657.shtml)
-- 2026-06-30 01:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/37966403741.shtml)
-- 2026-06-30 01:39 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/453343460631.shtml)
-- 2026-06-30 01:28 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/6176223.shtml)
-- 2026-06-30 01:24 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/728211867566.shtml)
-- 2026-06-30 01:46 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/156969264.shtml)
-- 2026-06-30 01:45 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/81449151.shtml)
-- 2026-06-30 01:42 - [月亮](http://www.share.minike.top/Article/details/412665.shtml)
-- 2026-06-30 01:32 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/91341949.shtml)
-- 2026-06-30 01:44 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/938048622154.shtml)
-- 2026-06-30 01:30 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/094779.shtml)
-- 2026-06-30 01:18 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/54909.shtml)
-- 2026-06-30 01:35 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/6713868.shtml)
+- 2026-06-30 01:33 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/6716198.shtml)
+- 2026-06-30 01:28 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/3748513.shtml)
+- 2026-06-30 01:44 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/84376.shtml)
+- 2026-06-30 01:25 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/822060.shtml)
+- 2026-06-30 01:25 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/406795.shtml)
+- 2026-06-30 01:36 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/5448140.shtml)
+- 2026-06-30 01:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/501282663.shtml)
+- 2026-06-30 01:37 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/0311534.shtml)
+- 2026-06-30 01:51 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/0473620.shtml)
+- 2026-06-30 01:31 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/91836598.shtml)
+- 2026-06-30 01:36 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/0045498011.shtml)
+- 2026-06-30 01:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/201267980.shtml)
+- 2026-06-30 01:47 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/68026882237.shtml)
+- 2026-06-30 01:28 - [美人鱼](https://www.blog.minike.top/Article/details/7482553354.shtml)
+- 2026-06-30 01:37 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/198517451.shtml)

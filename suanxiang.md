@@ -1,56 +1,60 @@
-# 覆盖全人群！《健全社会心理服务体系和危机干预机制实施方案》发布
+# 长江有色：11日碳酸锂现货价上涨 储能爆发与供应收缩共振
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网4月9日电 据国家卫生健康委员会网站消息，为健全社会心理服务体系和危机干预机制，国家卫生健康委等部门制定了《健全社会心理服务体系和危机干预机制实施方案》(以下简称《方案》)。 《方案》要求：到2030年，覆盖全人群、全生命周期的社会心理服务体系和危机干预机制基本健全。80%以上的行政村、城市社区设置心理咨询室或社会工作室，并提供心理服务；各级各类学校具有心理服务场所(心理
+期货方面： 2026年5月11日，广州期货交易所碳酸锂期货市场迎来强势突破。主力合约最新价报205，020元/吨，较前一交易日结算价198，060元/吨大幅上涨6，960元，日涨幅高达3.51%。当日盘面高开高走，开盘于196，560元/吨，盘中最高触及205，600元/吨，最低下探至195，200元/吨，最终收于全天高位区间。市场交投情绪异常活跃，全天成交量达236，895手
 
 ## 正文
 
-中新网4月9日电 据国家卫生健康委员会网站消息，为健全社会心理服务体系和危机干预机制，国家卫生健康委等部门制定了《健全社会心理服务体系和危机干预机制实施方案》(以下简称《方案》)。
+期货方面： 2026年5月11日，广州期货交易所碳酸锂期货市场迎来强势突破。
 
-《方案》要求：到2030年，覆盖全人群、全生命周期的社会心理服务体系和危机干预机制基本健全。
+主力合约最新价报205，020元/吨，较前一交易日结算价198，060元/吨大幅上涨6，960元，日涨幅高达3.51%。
 
-80%以上的行政村、城市社区设置心理咨询室或社会工作室，并提供心理服务；各级各类学校具有心理服务场所(心理辅导室等)并加强专(兼)职心理健康教育教师队伍建设；各级党政机关和国有企事业单位、各类非公经济组织创造条件为员工开展心理服务；各级公立精神专科医院、各县(区)至少有1所医院提供心理门诊服务；各省(自治区、直辖市)建成省级12356心理援助平台，各省份及市(地、州、盟)具有心理危机干预和心理援助队伍。
+当日盘面高开高走，开盘于196，560元/吨，盘中最高触及205，600元/吨，最低下探至195，200元/吨，最终收于全天高位区间。
 
-以下为全文： 健全社会心理服务体系和危机干预机制实施方案为深入贯彻落实《中华人民共和国精神卫生法》《中共中央关于进一步全面深化改革、推进中国式现代化的决定》，健全社会心理服务体系和危机干预机制，提升社会治理效能，努力建设更高水平的平安中国、健康中国，制定本方案。
+市场交投情绪异常活跃，全天成交量达236，895手，持仓量增加27，728手至540，980手，资金流入迹象明显，结算价定格在202，140元/吨。
 
-一、总体要求 以习近平新时代中国特色社会主义思想为指导，贯彻落实党的二十大和二十届历次全会精神，强化部门协作和社会参与，将心理服务融入社会治理体系及平安中国、健康中国建设，打造共建共治共享的社会心理服务新格局，推动形成自尊自信、理性平和、积极向上的社会心态。
+现货方面： 根据长江有色金属网2026年5月11日发布的最新现货行情数据，国内碳酸锂市场延续强势上涨态势。
 
-到2030年，覆盖全人群、全生命周期的社会心理服务体系和危机干预机制基本健全。
+其中，电池级碳酸锂（99.5%）现货均价报197，500元/吨，工业级碳酸锂（99.2%）均价报194，500元/吨，两者均较前一交易日上涨3，000元，单日涨幅分别约为1.54%和1.57%。
 
-80%以上的行政村、城市社区设置心理咨询室或社会工作室，并提供心理服务；各级各类学校具有心理服务场所(心理辅导室等)并加强专(兼)职心理健康教育教师队伍建设；各级党政机关和国有企事业单位、各类非公经济组织创造条件为员工开展心理服务；各级公立精神专科医院、各县(区)至少有1所医院提供心理门诊服务；各省(自治区、直辖市)建成省级12356心理援助平台，各省份及市(地、州、盟)具有心理危机干预和心理援助队伍。
+至此，电池级碳酸锂现货价格已逼近20万元/吨关键心理关口，期货主力合约更是在近期一度突破20万元/吨，创下两年多来的新高。
 
-二、主要任务 (一)健全建强社会心理服务阵地。
+从供给端审视，国内外多重扰动因素正共同收紧锂资源的有效供应，构成了本轮价格上涨最坚实的底部支撑。
 
 ## 相关推荐
 
-- 2026-06-30 01:44 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 01:36 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 01:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 01:19 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 01:27 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 01:37 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 01:19 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 01:25 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 01:25 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 01:36 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 01:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 01:24 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 01:52 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 01:51 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 01:52 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 01:30 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 01:37 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 01:36 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-30 01:49 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 01:31 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 01:40 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 01:41 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 01:39 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 01:43 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:43 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/578206153914.shtml)
-- 2026-06-30 01:24 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/15898.shtml)
-- 2026-06-30 01:47 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/666045060.shtml)
-- 2026-06-30 01:19 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/2500953.shtml)
-- 2026-06-30 01:46 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/57885.shtml)
-- 2026-06-30 01:25 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/86568432.shtml)
-- 2026-06-30 01:33 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/558655.shtml)
-- 2026-06-30 01:43 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/787474186.shtml)
-- 2026-06-30 01:27 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/3673360.shtml)
-- 2026-06-30 01:32 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/15133672.shtml)
-- 2026-06-30 01:47 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/9593986738.shtml)
-- 2026-06-30 01:41 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/70711047104.shtml)
-- 2026-06-30 01:41 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/78270553.shtml)
-- 2026-06-30 01:35 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/22666500825.shtml)
-- 2026-06-30 01:45 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/2161328561.shtml)
+- 2026-06-30 01:39 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/6796679.shtml)
+- 2026-06-30 01:47 - [房价什么时候能涨](https://www.share.minike.top/Article/details/689066948058.shtml)
+- 2026-06-30 01:28 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/211830561.shtml)
+- 2026-06-30 01:41 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/3150753.shtml)
+- 2026-06-30 01:45 - [流金岁月](http://www.share.kurohicncr.top/Article/details/1193840576.shtml)
+- 2026-06-30 01:26 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/7304265795.shtml)
+- 2026-06-30 01:25 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/56337.shtml)
+- 2026-06-30 01:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/31973700211.shtml)
+- 2026-06-30 01:37 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/4249388.shtml)
+- 2026-06-30 01:48 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/795174.shtml)
+- 2026-06-30 01:48 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/477723.shtml)
+- 2026-06-30 01:46 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/0995177336.shtml)
+- 2026-06-30 01:53 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/2630187.shtml)
+- 2026-06-30 01:41 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/27161526669.shtml)
+- 2026-06-30 01:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/531958027390.shtml)

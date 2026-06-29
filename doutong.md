@@ -1,52 +1,57 @@
-# 美宜佳通报问题卷烟事件处置进展：已与606家加盟商解除合作关系
+# 张文宏复盘“探险邮轮”聚集感染并提出：多国追踪不意味像流感或新冠般易传播
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网4月9日电(吴家驹)今年3月，大量网友反映在美宜佳买到假烟。同时，有媒体暗访美宜佳多地门店，查出数百包问题卷烟，引发广泛关注。 3月15日，美宜佳发布致歉声明称，严肃处置涉事门店，开展全国范围专项排查。 4月9日，美宜佳发布通报称，截至3月31日，公司已完成全国41061家门店首轮烟草制品经营专项排查，实现全覆盖。对排查中发现存在重大涉烟经营异常、且不符合继续合作条件的门
+（来源：上观新闻） 荷兰籍探险邮轮 MV Hondius（“洪迪厄斯”号）在跨大西洋航行过程中发生安第斯病毒相关聚集性感染，引发国际公共卫生界关注。根据世界卫生组织（WHO）、欧洲疾病预防与控制中心（ECDC）、美国疾控中心（CDC）及多国公开信息，截至目前，本次事件共报告8例安第斯病毒感染相关病例，其中6例实验室确诊、2例可能病例，累计死亡3例。 病原体已被确认为安第斯病毒（
 
 ## 正文
 
-中新网4月9日电(吴家驹)今年3月，大量网友反映在美宜佳买到假烟。
+（来源：上观新闻） 荷兰籍探险邮轮 MV Hondius（“洪迪厄斯”号）在跨大西洋航行过程中发生安第斯病毒相关聚集性感染，引发国际公共卫生界关注。
 
-同时，有媒体暗访美宜佳多地门店，查出数百包问题卷烟，引发广泛关注。
+根据世界卫生组织（WHO）、欧洲疾病预防与控制中心（ECDC）、美国疾控中心（CDC）及多国公开信息，截至目前，本次事件共报告8例安第斯病毒感染相关病例，其中6例实验室确诊、2例可能病例，累计死亡3例。
 
-3月15日，美宜佳发布致歉声明称，严肃处置涉事门店，开展全国范围专项排查。
+病原体已被确认为安第斯病毒（Andes virus， ANDV），这是汉坦病毒中目前已知唯一能够发生人际传播的类型。
 
-4月9日，美宜佳发布通报称，截至3月31日，公司已完成全国41061家门店首轮烟草制品经营专项排查，实现全覆盖。
+国家传染病医学中心主任、复旦大学附属华山医院感染科主任张文宏教授今天撰文表示：从流行病学调查角度看，这起事件的重点不只是“邮轮上发生了感染”，而是一名可能在南美自然疫源地暴露后感染的旅行者，进入了远洋探险邮轮这一相对封闭、人员长期共同生活且跨国流动复杂的场景，随后形成了有限继发传播和多国接触者追踪。
 
-对排查中发现存在重大涉烟经营异常、且不符合继续合作条件的门店，公司已依法依约与相关加盟商解除合作关系，共计606家。
+张文宏同时提出，这并不意味着它像流感或新冠病毒一样容易传播。
 
-(完)
+安第斯病毒的人际传播通常需要密切、长时间接触，多见于家庭成员、亲密伴侣、照护者或医疗照护人员之间。
+
+世卫组织目前评估：本次事件对船上人员风险为中等，对全球普通人群风险为低。
+
+“探险邮轮”最合理的传播模式假设是什么 大多数汉坦病毒主要经啮齿动物传播。
 
 ## 相关推荐
 
-- 2026-06-30 01:39 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 01:20 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-30 01:35 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 01:39 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 01:30 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 01:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 01:29 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 01:33 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 01:40 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 01:39 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 01:28 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 01:47 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 01:40 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 01:32 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 01:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 01:47 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 01:40 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 01:51 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 01:26 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 01:33 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 01:36 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:46 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/9374375.shtml)
-- 2026-06-30 01:21 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/4914950812.shtml)
-- 2026-06-30 01:29 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/205699999148.shtml)
-- 2026-06-30 01:44 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/5516117689.shtml)
-- 2026-06-30 01:44 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/986039354957.shtml)
-- 2026-06-30 01:44 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/347011.shtml)
-- 2026-06-30 01:19 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/24334.shtml)
-- 2026-06-30 01:31 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/251919.shtml)
-- 2026-06-30 01:26 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/3412645591.shtml)
-- 2026-06-30 01:37 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/7332155.shtml)
-- 2026-06-30 01:21 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/2009998.shtml)
-- 2026-06-30 01:19 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/61088.shtml)
-- 2026-06-30 01:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/77648.shtml)
-- 2026-06-30 01:25 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/525076447.shtml)
-- 2026-06-30 01:33 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/83472232.shtml)
+- 2026-06-30 01:48 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/5920982.shtml)
+- 2026-06-30 01:31 - [女心理师](https://www.blog.minike.top/Article/details/3692759873.shtml)
+- 2026-06-30 01:49 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/5141970.shtml)
+- 2026-06-30 01:24 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/92541460950.shtml)
+- 2026-06-30 01:42 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/458064.shtml)
+- 2026-06-30 01:52 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/5244689640.shtml)
+- 2026-06-30 01:33 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/8518278.shtml)
+- 2026-06-30 01:53 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/17709598.shtml)
+- 2026-06-30 01:43 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/688743.shtml)
+- 2026-06-30 01:32 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/2995149.shtml)
+- 2026-06-30 01:32 - [日本反击率先破门](http://www.blog.minike.top/Article/details/3100660813.shtml)
+- 2026-06-30 01:50 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/02326978.shtml)
+- 2026-06-30 01:25 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/121794976679.shtml)
+- 2026-06-30 01:35 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/742789736.shtml)
+- 2026-06-30 01:50 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/16684439.shtml)

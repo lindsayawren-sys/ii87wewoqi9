@@ -1,61 +1,57 @@
-# 内蒙古巴林草原上有一支“马背护鸟队”
+# 广西首个脑机接口中心揭牌 将面向东盟开展医疗合作
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网赤峰4月10日电 题：内蒙古巴林草原上有一支“马背护鸟队” 作者 奥蓝 吴景然 4月的风，吹过内蒙古自治区赤峰市巴林右旗查干诺尔镇，空气中还带着丝丝凉意。西拉沐沦河与查干沐沦河交汇的湿地里，成群的候鸟循着迁徙轨迹陆续归来。 这也是巴林草原“马背护鸟队”最忙碌的时候。这是一支由当地牧民、派出所民警自发组织的队伍，大家分组轮班、全天值守，每天两班轮换，每班3至4人在岗。 每天
+【东盟专线】广西首个脑机接口中心揭牌 将面向东盟开展医疗合作 中新社南宁5月10日电 (张广权 肖景凤)广西首个“脑机接口临床应用与转化创新中心”10日在广西医科大学第一附属医院揭牌成立。该中心将建设成为中国—东盟脑机接口临床应用与转化合作基地，面向东盟国家开展跨境医疗服务、技术输出、人才培养及国际多中心研究。 中心整合广西医科大学第一附属医院近20个科室及职能部门，计划用3年
 
 ## 正文
 
-中新网赤峰4月10日电 题：内蒙古巴林草原上有一支“马背护鸟队” 作者 奥蓝 吴景然 4月的风，吹过内蒙古自治区赤峰市巴林右旗查干诺尔镇，空气中还带着丝丝凉意。
+【东盟专线】广西首个脑机接口中心揭牌 将面向东盟开展医疗合作 中新社南宁5月10日电 (张广权 肖景凤)广西首个“脑机接口临床应用与转化创新中心”10日在广西医科大学第一附属医院揭牌成立。
 
-西拉沐沦河与查干沐沦河交汇的湿地里，成群的候鸟循着迁徙轨迹陆续归来。
+该中心将建设成为中国—东盟脑机接口临床应用与转化合作基地，面向东盟国家开展跨境医疗服务、技术输出、人才培养及国际多中心研究。
 
-这也是巴林草原“马背护鸟队”最忙碌的时候。
+中心整合广西医科大学第一附属医院近20个科室及职能部门，计划用3年至5年建成集门诊、评估、临床诊疗、科研创新、技术转化与人才培养于一体的区域性高水平脑机接口临床转化基地。
 
-这是一支由当地牧民、派出所民警自发组织的队伍，大家分组轮班、全天值守，每天两班轮换，每班3至4人在岗。
+广西医科大学第一附属医院院长郑宝石在揭牌仪式上表示，中心将整合医院多学科力量，催生前沿技术突破，培育复合型创新团队。
 
-每天清晨6点，早班队员就出发了，大家骑马沿浅滩湿地安静缓行，眼睛时刻盯着水面和芦苇丛。
+中心将设立脑机接口专病门诊及广西首个脑机接口融合病房。
 
-水壶和自制的奶食品、肉干等食物是随身标配，马鞍上除了望远镜，还挂着急救包和帆布绳。
+中心明确提出人工智能(AI)赋能脑机接口全流程，通过AI辅助脑电信号判读、解码算法优化及个性化治疗决策，提升诊疗效率。
 
-早些年，这片湿地环境并不好，一度萎缩的河水、淤塞的河道留不住过路的候鸟。
+未来，该中心将开通东盟患者脑机接口诊疗绿色转诊通道，提供远程会诊、来华诊疗、术后随访等全流程跨境医疗服务。
 
-2020年起，当地持续加大生态环境保护力度，实施“河湖长制”、禁牧休牧、水源涵养等一系列举措，来此栖息的候鸟也越来越多。
+中心还将多语种翻译脑机接口诊疗规范、操作流程及质控标准等，向越南、马来西亚、泰国等东盟国家推广；举办中国—东盟脑机接口技术培训班，接收东盟医师进修，开展线上线下联合教学；发起东盟脑机接口多中心临床研究，共建跨境临床数据库等。
 
 ## 相关推荐
 
-- 2026-06-30 01:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 01:32 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 01:27 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 01:31 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 01:46 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 01:31 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 01:26 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 01:40 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 01:32 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 01:40 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 01:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 01:32 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 01:47 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 01:40 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 01:29 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 01:26 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 01:45 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 01:53 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 01:44 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 01:37 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-30 01:30 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 01:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 01:48 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 01:43 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 01:30 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 01:28 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:19 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/201100.shtml)
-- 2026-06-30 01:24 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/54482.shtml)
-- 2026-06-30 01:46 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/2457159446.shtml)
-- 2026-06-30 01:28 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/230365.shtml)
-- 2026-06-30 01:20 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/761216566375.shtml)
-- 2026-06-30 01:23 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/5235058384.shtml)
-- 2026-06-30 01:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/10300074.shtml)
-- 2026-06-30 01:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/848243531752.shtml)
-- 2026-06-30 01:45 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/4683983447.shtml)
-- 2026-06-30 01:20 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/1600971224.shtml)
-- 2026-06-30 01:43 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/59488430.shtml)
-- 2026-06-30 01:36 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/57350.shtml)
-- 2026-06-30 01:25 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/19121990524.shtml)
-- 2026-06-30 01:30 - [流金岁月](http://www.share.kurohicncr.top/Article/details/13628655003.shtml)
-- 2026-06-30 01:36 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/99468137.shtml)
+- 2026-06-30 01:32 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/13051774496.shtml)
+- 2026-06-30 01:33 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/9248005.shtml)
+- 2026-06-30 01:36 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/871546639737.shtml)
+- 2026-06-30 01:33 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/3908605.shtml)
+- 2026-06-30 01:32 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/66129.shtml)
+- 2026-06-30 01:33 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/925053032445.shtml)
+- 2026-06-30 01:43 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/78921259.shtml)
+- 2026-06-30 01:32 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/126870253.shtml)
+- 2026-06-30 01:51 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/9102414473.shtml)
+- 2026-06-30 01:49 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/40646672.shtml)
+- 2026-06-30 01:32 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/44670.shtml)
+- 2026-06-30 01:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/102097.shtml)
+- 2026-06-30 01:27 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/9902705.shtml)
+- 2026-06-30 01:26 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/082123740.shtml)
+- 2026-06-30 01:37 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/10673.shtml)

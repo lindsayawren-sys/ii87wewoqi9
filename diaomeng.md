@@ -1,56 +1,50 @@
-# 特朗普关税再被告上最高法院，“122关税案”有哪些焦点？
+# 山东栖霞：“00后”花饽饽手艺人“捏”出母亲节祝福
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-当地时间10日，美国国际贸易法院将就“122条款”关税举行听证会。 此前，美国最高法院在2月20日裁定，特朗普政府依据《国际紧急经济权力法》（IEEPA）实施的相关大规模关税措施缺乏明确法律授权。裁决公布后，特朗普在当日转而依据《1974年贸易法》第122条，宣布加征“全球进口关税”，税率10%，为期150天。 随后特朗普又在社交平台上发文称，将把对全球商品加征10%的进口关税
+发布时间：2026年05月09日 16:13 来源：中国新闻网 近日，山东栖霞。“00后”花饽饽手艺人周天聪，用一篮满是烟火气的“果蔬”花饽饽，送上了母亲节最动人的祝福。他把童年里妈妈厨房的三餐暖意，尽数揉进柔软面团，捏出活灵活现的家常食材。(张秀兵 陈慧娟 制作 刘昊） 责任编辑：【罗攀】
 
 ## 正文
 
-当地时间10日，美国国际贸易法院将就“122条款”关税举行听证会。
+发布时间：2026年05月09日 16:13 来源：中国新闻网 近日，山东栖霞。
 
-此前，美国最高法院在2月20日裁定，特朗普政府依据《国际紧急经济权力法》（IEEPA）实施的相关大规模关税措施缺乏明确法律授权。
+“00后”花饽饽手艺人周天聪，用一篮满是烟火气的“果蔬”花饽饽，送上了母亲节最动人的祝福。
 
-裁决公布后，特朗普在当日转而依据《1974年贸易法》第122条，宣布加征“全球进口关税”，税率10%，为期150天。
+他把童年里妈妈厨房的三餐暖意，尽数揉进柔软面团，捏出活灵活现的家常食材。
 
-随后特朗普又在社交平台上发文称，将把对全球商品加征10%的进口关税的税率水平提高至15%。
-
-不过，目前暂时生效的仍是10%的全球关税。
-
-当前，由24位州总检察长和州长组成的联盟已提起诉讼，试图阻止该关税的实施。
-
-他们的核心观点为，上述关税不仅非法且史无前例，其征收依据也并非真正的“国际收支危机”，而仅仅是贸易逆差数据。
-
-除了这起诉讼外，还有自由正义中心（Liberty Justice Center）代表Burlap & Barrel公司及其他私人原告提起的另一项诉讼。
+(张秀兵 陈慧娟 制作 刘昊） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-30 01:28 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 01:42 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-30 01:38 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 01:31 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 01:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 01:35 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 01:46 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 01:44 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 01:48 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 01:42 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 01:43 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 01:42 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 01:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 01:51 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 01:28 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 01:39 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 01:47 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 01:37 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 01:24 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 01:36 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 01:27 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:36 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/671288499583.shtml)
-- 2026-06-30 01:26 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/24600514303.shtml)
-- 2026-06-30 01:41 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/187859.shtml)
-- 2026-06-30 01:20 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/392492764.shtml)
-- 2026-06-30 01:24 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/17218060988.shtml)
-- 2026-06-30 01:27 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/8937896.shtml)
-- 2026-06-30 01:39 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/33161.shtml)
-- 2026-06-30 01:35 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/743954217.shtml)
-- 2026-06-30 01:42 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/66935993533.shtml)
-- 2026-06-30 01:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/66895417095.shtml)
-- 2026-06-30 01:21 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/66723038.shtml)
-- 2026-06-30 01:21 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/4307868234.shtml)
-- 2026-06-30 01:38 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/0635895112.shtml)
-- 2026-06-30 01:25 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/223397065.shtml)
-- 2026-06-30 01:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/335146825.shtml)
+- 2026-06-30 01:39 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/31096286846.shtml)
+- 2026-06-30 01:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/318023987.shtml)
+- 2026-06-30 01:42 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/33044.shtml)
+- 2026-06-30 01:33 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/498419988006.shtml)
+- 2026-06-30 01:44 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/9134285422.shtml)
+- 2026-06-30 01:53 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/1199706.shtml)
+- 2026-06-30 01:49 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/73936.shtml)
+- 2026-06-30 01:26 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/62379.shtml)
+- 2026-06-30 01:27 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/3039089.shtml)
+- 2026-06-30 01:27 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/79835.shtml)
+- 2026-06-30 01:26 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/216274274.shtml)
+- 2026-06-30 01:26 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/05941005959.shtml)
+- 2026-06-30 01:49 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/43397.shtml)
+- 2026-06-30 01:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/19121319.shtml)
+- 2026-06-30 01:53 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/49135.shtml)

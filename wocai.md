@@ -1,60 +1,61 @@
-# 用“TACO策略”买美股，十拿九稳？
+# 国务院常务会议解读丨国务院研究推进地方政府债务风险化解有关工作
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-在特朗普宣布对伊朗停火两周后，美股再度上演单日大涨，标普500指数4月8日收涨2.51%。 TACO（Trump Always Chickens Out）行情再次成立。TACO一词最早被华尔街用来形容特朗普每每在放出狠话后又于最后关头让步的行事风格。记者梳理了特朗普第二任期以来标普500指数的十大单日涨幅，有九次都与TACO相关。 在屡试不爽的情况下，华尔街甚至已经把TACO写
+新华社北京5月9日电(记者申铖)统筹发展和安全，才能确保经济行稳致远。5月9日召开的国务院常务会议，研究推进地方政府债务风险化解有关工作。 近年来，我国部署实施了一系列有力举措，扎实推进一揽子化债方案，持续加强地方政府债务管理。 会议指出，一揽子化债方案部署实施以来，债务风险化解工作取得明显成效。要继续聚焦重点领域和薄弱环节，压实地方主体责任，完善支持化债政策，增强地方自主偿债
 
 ## 正文
 
-在特朗普宣布对伊朗停火两周后，美股再度上演单日大涨，标普500指数4月8日收涨2.51%。
+新华社北京5月9日电(记者申铖)统筹发展和安全，才能确保经济行稳致远。
 
-TACO（Trump Always Chickens Out）行情再次成立。
+5月9日召开的国务院常务会议，研究推进地方政府债务风险化解有关工作。
 
-TACO一词最早被华尔街用来形容特朗普每每在放出狠话后又于最后关头让步的行事风格。
+近年来，我国部署实施了一系列有力举措，扎实推进一揽子化债方案，持续加强地方政府债务管理。
 
-记者梳理了特朗普第二任期以来标普500指数的十大单日涨幅，有九次都与TACO相关。
+会议指出，一揽子化债方案部署实施以来，债务风险化解工作取得明显成效。
 
-在屡试不爽的情况下，华尔街甚至已经把TACO写进了交易策略。
+要继续聚焦重点领域和薄弱环节，压实地方主体责任，完善支持化债政策，增强地方自主偿债能力，确保如期完成化债任务。
 
-主导市场涨跌节奏 传统框架下，股票风险溢价由经济周期、货币政策和企业盈利共同决定。
+“近年来，一揽子化债方案深入实施，有序置换地方政府存量隐性债务，持续压减融资平台数量，地方债务结构不断优化。
 
-但在过去一年，特朗普的表态正在越来越频繁地主导市场涨跌节奏。
+此次会议的部署，为进一步推进债务风险化解工作指明方向。
 
-特朗普第二任期以来标普500指数前十大单日涨幅 比如，新华社消息，特朗普2025年4月21日加大对美国联邦储备委员会主席鲍威尔的“炮轰”力度，称其为“一个大失败者”，并警告如果鲍威尔不马上降息，美国经济将出现放缓，美国金融市场应声大跌。
+”中国社科院财经战略研究院财政研究室主任何代欣说。
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 01:27 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-30 01:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 01:33 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 01:30 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 01:41 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 01:46 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 01:43 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 01:41 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 01:24 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 01:38 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-30 01:46 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 01:42 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 01:41 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 01:52 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 01:27 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 01:49 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 01:50 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 01:35 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 01:43 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 01:32 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 01:50 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 01:41 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 01:35 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 01:43 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 01:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 01:34 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 01:37 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 01:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:35 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/29034.shtml)
-- 2026-06-30 01:34 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/8815613938.shtml)
-- 2026-06-30 01:44 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/68547870111.shtml)
-- 2026-06-30 01:47 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/87800213.shtml)
-- 2026-06-30 01:40 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/84492700980.shtml)
-- 2026-06-30 01:46 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/81120800190.shtml)
-- 2026-06-30 01:29 - [一见倾心](https://www.blog.minike.top/Article/details/0653400331.shtml)
-- 2026-06-30 01:47 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/8537802545.shtml)
-- 2026-06-30 01:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/32288.shtml)
-- 2026-06-30 01:22 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/6900471.shtml)
-- 2026-06-30 01:19 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/9326764912.shtml)
-- 2026-06-30 01:44 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/666194097478.shtml)
-- 2026-06-30 01:19 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/03066805.shtml)
-- 2026-06-30 01:21 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/61445569138.shtml)
-- 2026-06-30 01:18 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/21342.shtml)
+- 2026-06-30 01:41 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/584130.shtml)
+- 2026-06-30 01:39 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/9404039503.shtml)
+- 2026-06-30 01:53 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/089107516.shtml)
+- 2026-06-30 01:48 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/192113204.shtml)
+- 2026-06-30 01:48 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/39020.shtml)
+- 2026-06-30 01:24 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/099039.shtml)
+- 2026-06-30 01:37 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/34048.shtml)
+- 2026-06-30 01:50 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/5976599268.shtml)
+- 2026-06-30 01:33 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/80227.shtml)
+- 2026-06-30 01:45 - [刘宇宁 好听](https://www.share.minike.top/Article/details/72709922001.shtml)
+- 2026-06-30 01:50 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/04105093.shtml)
+- 2026-06-30 01:31 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/5016514.shtml)
+- 2026-06-30 01:24 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/2812015.shtml)
+- 2026-06-30 01:48 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/508035.shtml)
+- 2026-06-30 01:24 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/49479482.shtml)

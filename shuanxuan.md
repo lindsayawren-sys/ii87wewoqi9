@@ -1,56 +1,60 @@
-# 水贝商户称白银销量暴跌90%
+# 莫迪呼吁印度民众一年内停止购买黄金
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-来源：@中国经济周刊微博 【#水贝商户称白银销量暴跌90%#】 #水贝黄金遇冷# 今天，黄金白银价格大幅波动。记者发现，深圳水贝市场人气和销量均出现明显下滑，许多消费者选择“以旧换新”。商户介绍：“成交量可能没有之前这么多，投资类的客户还是会小批量买入，5克、10克就差不多了。”金价的波动不仅影响了零售端，也逐步传导至批发环节。有批发商户告诉记者，由于今天金价大幅上涨，批发端的
+来源：华尔街见闻 莫迪罕见喊话国民停购黄金至少一年，矛头直指中东战争冲击下日益扩大的贸易逆差与卢比贬值压力，Titan、Kalyan等印度珠宝龙头股单日重挫近10%。然而黄金深植印度婚俗与宗教文化，这场“自上而下”的限制令，能否真正撼动民间金饰消费，市场仍持深度疑虑。 印度总理莫迪罕见呼吁国民至少一年内停止购买黄金，此举直接冲击本土珠宝股，折射出中东战争背景下印度外汇储备与贸易
 
 ## 正文
 
-来源：@中国经济周刊微博 【#水贝商户称白银销量暴跌90%#】 #水贝黄金遇冷# 今天，黄金白银价格大幅波动。
+来源：华尔街见闻 莫迪罕见喊话国民停购黄金至少一年，矛头直指中东战争冲击下日益扩大的贸易逆差与卢比贬值压力，Titan、Kalyan等印度珠宝龙头股单日重挫近10%。
 
-记者发现，深圳水贝市场人气和销量均出现明显下滑，许多消费者选择“以旧换新”。
+然而黄金深植印度婚俗与宗教文化，这场“自上而下”的限制令，能否真正撼动民间金饰消费，市场仍持深度疑虑。
 
-商户介绍：“成交量可能没有之前这么多，投资类的客户还是会小批量买入，5克、10克就差不多了。
+印度总理莫迪罕见呼吁国民至少一年内停止购买黄金，此举直接冲击本土珠宝股，折射出中东战争背景下印度外汇储备与贸易逆差承压的深层困境。
 
-”金价的波动不仅影响了零售端，也逐步传导至批发环节。
+莫迪于周日发表讲话，要求民众在任何场合均不应购买黄金首饰，同时呼吁削减燃油消耗、减少不必要的海外出行。
 
-有批发商户告诉记者，由于今天金价大幅上涨，批发端的拿货数量出现了明显下滑，整体销量较昨日减少了约三分之一。
+他表示，印度在黄金进口上耗费大量外汇，民众应避免非必要消费。
 
-“客户拿货量会减半，因为行情波动比较大，担心暴跌、暴涨。
+这一表态迅速传导至资本市场。
 
-原来是一两公斤进货，现在就是200克、500克这样去进。
+印度最大珠宝商Titan Co．周一盘中一度下跌6.6%，Senco Gold Ltd．和Kalyan Jewellers India Ltd．跌幅分别高达10.8%和9.5%。
 
-”白银方面，虽然今天价格有所回升，但由于前期跌幅较大，消费者购买意愿不强。
+贸易逆差承压，黄金进口成焦点 据彭博报道，莫迪此番异乎寻常的呼吁，背后是中东战争及由此引发的能源短缺正在持续扩大印度贸易逆差、拖累卢比汇率。
 
 ## 相关推荐
 
-- 2026-06-30 01:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 01:48 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 01:26 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-30 01:24 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 01:39 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 01:34 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 01:38 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 01:22 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 01:44 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 01:41 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 01:54 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 01:40 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 01:42 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 01:54 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 01:31 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 01:43 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 01:34 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 01:36 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 01:37 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 01:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 01:51 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 01:36 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 01:35 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 01:36 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:41 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/40264865.shtml)
-- 2026-06-30 01:26 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/6135908450.shtml)
-- 2026-06-30 01:20 - [急先锋](https://www.share.minike.top/Article/details/595887640250.shtml)
-- 2026-06-30 01:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/981564422.shtml)
-- 2026-06-30 01:18 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/992355745265.shtml)
-- 2026-06-30 01:44 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/098964374758.shtml)
-- 2026-06-30 01:33 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/177165279163.shtml)
-- 2026-06-30 01:21 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/22717968946.shtml)
-- 2026-06-30 01:27 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/306219241026.shtml)
-- 2026-06-30 01:32 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/41467739566.shtml)
-- 2026-06-30 01:32 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/6722087180.shtml)
-- 2026-06-30 01:25 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/52252056873.shtml)
-- 2026-06-30 01:29 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/590467.shtml)
-- 2026-06-30 01:32 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/2899767.shtml)
-- 2026-06-30 01:34 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/657565908872.shtml)
+- 2026-06-30 01:38 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/266841190878.shtml)
+- 2026-06-30 01:30 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/255424049821.shtml)
+- 2026-06-30 01:47 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/2744135860.shtml)
+- 2026-06-30 01:28 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/216587.shtml)
+- 2026-06-30 01:38 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/32646110371.shtml)
+- 2026-06-30 01:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/3958158263.shtml)
+- 2026-06-30 01:50 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/621496862400.shtml)
+- 2026-06-30 01:27 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/5592690180.shtml)
+- 2026-06-30 01:42 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/54173.shtml)
+- 2026-06-30 01:44 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/18745.shtml)
+- 2026-06-30 01:27 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/00995874477.shtml)
+- 2026-06-30 01:28 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/8319784979.shtml)
+- 2026-06-30 01:27 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/30981551966.shtml)
+- 2026-06-30 01:31 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/304777.shtml)
+- 2026-06-30 01:41 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/1972506352.shtml)

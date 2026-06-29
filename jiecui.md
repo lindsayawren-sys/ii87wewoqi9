@@ -1,59 +1,59 @@
-# 黄金要砸手里了？欧洲突破人造黄金技术，每秒生成8.9万金原子
+# 金边新机场首例中国担架旅客顺利飞赴上海接受治疗
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-文章来源：果壳 在人类古老的传说里，“点石成金”始终是遥不可及的幻梦。毕竟铅核内含82枚质子，而金核仅79枚，三道质子的鸿沟曾被视为无法跨越的壁垒。 然而如今，欧洲核子研究中心（CERN）的科学家们已将这一幻梦化作现实。 他们借助大型强子对撞机（LHC）的极速碰撞，驱使铅离子以逼近光速彼此撞击，硬生生将铅原子蜕变为金。在这一瞬间的嬗变中，每秒钟可诞生8.9万枚金原子，累计已聚成
+中新网金边5月10日电 (记者 杨强)5月10日凌晨，在相关航司、医院、机场等多方面配合下，一名在柬埔寨工作的金姓同胞搭乘中国东方航空MU760航班飞往上海，顺利返回祖国接受手术治疗。这也是金边德崇国际机场自去年9月启用后首例中国担架旅客转运业务。 这名50多岁的金姓同胞是柬埔寨一家台资企业员工。4月17日，她在与同事外出途中被高速行驶的摩托车撞倒，陷入昏迷、伤势严重。很快恢复
 
 ## 正文
 
-文章来源：果壳 在人类古老的传说里，“点石成金”始终是遥不可及的幻梦。
+中新网金边5月10日电 (记者 杨强)5月10日凌晨，在相关航司、医院、机场等多方面配合下，一名在柬埔寨工作的金姓同胞搭乘中国东方航空MU760航班飞往上海，顺利返回祖国接受手术治疗。
 
-毕竟铅核内含82枚质子，而金核仅79枚，三道质子的鸿沟曾被视为无法跨越的壁垒。
+这也是金边德崇国际机场自去年9月启用后首例中国担架旅客转运业务。
 
-然而如今，欧洲核子研究中心（CERN）的科学家们已将这一幻梦化作现实。
+这名50多岁的金姓同胞是柬埔寨一家台资企业员工。
 
-他们借助大型强子对撞机（LHC）的极速碰撞，驱使铅离子以逼近光速彼此撞击，硬生生将铅原子蜕变为金。
+4月17日，她在与同事外出途中被高速行驶的摩托车撞倒，陷入昏迷、伤势严重。
 
-在这一瞬间的嬗变中，每秒钟可诞生8.9万枚金原子，累计已聚成约860亿枚金核。
+很快恢复意识的同事在好心路人协助下，将其送往附近诊所救治。
 
-即便这860亿的数字乍听之下颇为惊人，可一旦落实到宏观物质层面，其真实的总质量不过百亿分之一克的微末级别，放在金市上连九牛一毛都算不上。
+当晚又转至柬埔寨首都金边市区一家本地医院接受诊治。
 
-更为遗憾的是，“点铅成金”的过程仅持续约一微秒，且成本高得惊人。
+由于语言沟通障碍等各方面原因，5月2日，金姓同胞所在企业与当地一家华人医院取得联系，寻求进一步的救治方案。
 
-所以那些以为“黄金要砸手里了”的担心纯属多余，业内也表示，这条“人造黄金”的路未来还有很长一段要走。
+该医院负责人朱敏学结合伤员情况综合考量，建议回国进行治疗。
 
 ## 相关推荐
 
-- 2026-06-30 01:47 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 01:19 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 01:19 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 01:29 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 01:38 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 01:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 01:43 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 01:44 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 01:38 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 01:20 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 01:29 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 01:39 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 01:23 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 01:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 01:27 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 01:53 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 01:43 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 01:30 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 01:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 01:38 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 01:36 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 01:41 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 01:40 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 01:50 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 01:28 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 01:42 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/53444.shtml)
-- 2026-06-30 01:22 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/303032.shtml)
-- 2026-06-30 01:24 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/63350.shtml)
-- 2026-06-30 01:26 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/537354605.shtml)
-- 2026-06-30 01:42 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/768694256.shtml)
-- 2026-06-30 01:30 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/3499392.shtml)
-- 2026-06-30 01:36 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/2933760676.shtml)
-- 2026-06-30 01:34 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/744479000.shtml)
-- 2026-06-30 01:38 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/04763741642.shtml)
-- 2026-06-30 01:28 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/83830.shtml)
-- 2026-06-30 01:29 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/540338194514.shtml)
-- 2026-06-30 01:28 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/5157939282.shtml)
-- 2026-06-30 01:42 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/6085696.shtml)
-- 2026-06-30 01:38 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/2749940.shtml)
-- 2026-06-30 01:24 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/61486822520.shtml)
+- 2026-06-30 01:32 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/332899.shtml)
+- 2026-06-30 01:48 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/1347430.shtml)
+- 2026-06-30 01:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/024769981088.shtml)
+- 2026-06-30 01:42 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/37779253.shtml)
+- 2026-06-30 01:35 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/432935.shtml)
+- 2026-06-30 01:39 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/60102.shtml)
+- 2026-06-30 01:50 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/9604069.shtml)
+- 2026-06-30 01:28 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/1997179872.shtml)
+- 2026-06-30 01:47 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/15267.shtml)
+- 2026-06-30 01:37 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/84161.shtml)
+- 2026-06-30 01:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/03457.shtml)
+- 2026-06-30 01:49 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/294751436.shtml)
+- 2026-06-30 01:40 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/694032.shtml)
+- 2026-06-30 01:28 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/7114455.shtml)
+- 2026-06-30 01:39 - [女心理师](https://www.blog.minike.top/Article/details/17348532750.shtml)

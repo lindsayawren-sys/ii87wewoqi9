@@ -1,57 +1,56 @@
-# 大疆汪滔：从兴趣出发做产品更容易成功，纯粹奔着赚钱往往做不好
+# 七连阳！全市场唯一地产ETF（159707）再涨超2%！机构看好地产下半场，建议关注优质房企！
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-来源：晚点LatePost 大疆之路，汪滔的 20 年。 文丨小晚 汪滔上一次公开露面是在十年前，此后彻底消失在公众视野，只留下一句被反复引用的话：世界蠢得不可思议。 十年后，《晚点》独家访谈了大疆创始人、董事长汪滔。他补上了这句话的后半句——“世界蠢得不可思议，我也是。” 问题不只在世界，也在自己。这或许是汪滔对自己漫长创业生涯最简短的概括。 2006 年，还在香港科技大学读
+5月11日，截至9时53分，龙头地产继续飙涨，代表A股龙头地产行情的中证800地产指数上涨2.34%，成份股方面，招商蛇口领涨4.56%，保利发展上涨3.89%，绿地控股上涨3.82%。 热门ETF方面，全市场唯一跟踪中证800地产指数的地产ETF华宝（159707）场内价格上涨2.32%，日线冲击七连阳，成交额达2272.38万元。 长江证券表示，行业在小阳春之后开始自然回落
 
 ## 正文
 
-来源：晚点LatePost 大疆之路，汪滔的 20 年。
+5月11日，截至9时53分，龙头地产继续飙涨，代表A股龙头地产行情的中证800地产指数上涨2.34%，成份股方面，招商蛇口领涨4.56%，保利发展上涨3.89%，绿地控股上涨3.82%。
 
-文丨小晚 汪滔上一次公开露面是在十年前，此后彻底消失在公众视野，只留下一句被反复引用的话：世界蠢得不可思议。
+热门ETF方面，全市场唯一跟踪中证800地产指数的地产ETF华宝（159707）场内价格上涨2.32%，日线冲击七连阳，成交额达2272.38万元。
 
-十年后，《晚点》独家访谈了大疆创始人、董事长汪滔。
+长江证券表示，行业在小阳春之后开始自然回落，但累计调整的时间和空间已相对较大，后续有望进入下半场，跌幅收敛和结构分化是主要特征。
 
-他补上了这句话的后半句——“世界蠢得不可思议，我也是。
+行业量价快速下行阶段可能已经过去，核心区和好房子具备阿尔法。
 
-” 问题不只在世界，也在自己。
+当前股票位置较底部的溢价并不大，且市场估值抬升也提供了补涨空间。
 
-这或许是汪滔对自己漫长创业生涯最简短的概括。
+重视具备轻库存、好区域和产品力的优质房企。
 
-2006 年，还在香港科技大学读研究生的汪滔创立了大疆。
+布局央国企及优质房企，建议重点关注地产ETF（159707）。
 
-它从深圳莲花村的一处民居中起步，20 年时间，成长为一家以原创产品引领全球市场的中国科技企业。
+资料显示，地产ETF（159707）跟踪中证800地产指数，汇集市场头部优质房企，在投资方向上具有明显的头部集中度优势，前十大成份股权重超9成，央国企含量高！
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 01:29 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 01:38 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 01:22 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 01:22 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 01:25 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 01:35 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 01:22 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 01:32 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 01:34 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 01:38 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 01:41 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 01:24 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 01:28 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 01:32 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 01:53 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 01:44 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 01:51 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 01:41 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 01:44 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 01:48 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:44 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/1692914.shtml)
-- 2026-06-30 01:43 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/59294798.shtml)
-- 2026-06-30 01:45 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/77405.shtml)
-- 2026-06-30 01:22 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/6734606955.shtml)
-- 2026-06-30 01:40 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/6989263.shtml)
-- 2026-06-30 01:28 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/166283988066.shtml)
-- 2026-06-30 01:47 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/38410213590.shtml)
-- 2026-06-30 01:43 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/11470336391.shtml)
-- 2026-06-30 01:26 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/099201084226.shtml)
-- 2026-06-30 01:33 - [天道](https://www.share.kurohicncr.top/Article/details/85253636403.shtml)
-- 2026-06-30 01:21 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/83898012404.shtml)
-- 2026-06-30 01:21 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/046536708845.shtml)
-- 2026-06-30 01:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/3936558825.shtml)
-- 2026-06-30 01:32 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/33776.shtml)
-- 2026-06-30 01:20 - [逃狱兄弟](https://www.share.minike.top/Article/details/8017660406.shtml)
+- 2026-06-30 01:50 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/6416445.shtml)
+- 2026-06-30 01:36 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/743935136196.shtml)
+- 2026-06-30 01:34 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/87831320.shtml)
+- 2026-06-30 01:25 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/8222295561.shtml)
+- 2026-06-30 01:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/63876889.shtml)
+- 2026-06-30 01:41 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/062368.shtml)
+- 2026-06-30 01:48 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/7172105.shtml)
+- 2026-06-30 01:52 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/28387.shtml)
+- 2026-06-30 01:54 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/16119870339.shtml)
+- 2026-06-30 01:37 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/585762315.shtml)
+- 2026-06-30 01:35 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/54651442.shtml)
+- 2026-06-30 01:34 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/729344.shtml)
+- 2026-06-30 01:50 - [把邻居裸体发群算维权还是侵权](http://www.share.minike.top/Article/details/503994.shtml)
+- 2026-06-30 01:50 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/912600373178.shtml)
+- 2026-06-30 01:40 - [美人鱼](https://www.share.kurohicncr.top/Article/details/76117.shtml)

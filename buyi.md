@@ -1,59 +1,52 @@
-# 消息人士称，SpaceX已开始在得克萨斯州工厂安装设备，目标年底投产
+# 中国银行福建省分行被罚315万元：违反账户管理、数据安全管理规定等
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-两名知情消息人士透露，SpaceX已开始在其位于得克萨斯州巴斯特罗普的先进芯片封装工厂安装设备，这家卫星与火箭公司目标在今年年底前启动投产。 其中一位消息人士表示，该时间节点已出现一定延误，但公司仍计划在年底前实现投产。 消息人士称，该工厂将为SpaceX星链卫星互联网系统相关产品所用的射频（RF）芯片进行封装；因相关信息尚未公开，消息人士要求匿名。 据其中一名消息人士及第三名
+5月9日金融一线消息，中国人民银行福建省分行行政处罚决定信息公示表显示，中国银行股份有限公司福建省分行存在以下违法行为类型，受到警告，并被罚款315万元。 1．违反账户管理规定； 2．违反数据安全管理规定； 3．违反反假货币管理规定； 4．违反人民币流通管理规定； 5．占压财政存款或者资金； 6．违反信用信息采集、提供、查询及相关管理规定； 7．未按照规定开展客户尽职调查 陈某
 
 ## 正文
 
-两名知情消息人士透露，SpaceX已开始在其位于得克萨斯州巴斯特罗普的先进芯片封装工厂安装设备，这家卫星与火箭公司目标在今年年底前启动投产。
+5月9日金融一线消息，中国人民银行福建省分行行政处罚决定信息公示表显示，中国银行股份有限公司福建省分行存在以下违法行为类型，受到警告，并被罚款315万元。
 
-其中一位消息人士表示，该时间节点已出现一定延误，但公司仍计划在年底前实现投产。
+1．违反账户管理规定； 2．违反数据安全管理规定； 3．违反反假货币管理规定； 4．违反人民币流通管理规定； 5．占压财政存款或者资金； 6．违反信用信息采集、提供、查询及相关管理规定； 7．未按照规定开展客户尽职调查 陈某（中国银行股份有限公司福建省分行金融科技部）对违反数据安全管理规定负有责任，被罚款2万元。
 
-消息人士称，该工厂将为SpaceX星链卫星互联网系统相关产品所用的射频（RF）芯片进行封装；因相关信息尚未公开，消息人士要求匿名。
+序号 当事人名称 （姓名） 行政处罚 决定书文号 违法行为类型 行政处罚内容 作出行政处罚决定机关名称 作出行政处罚 决定日期 公示期限 备注 1 中国银行股份有限公司福建省分行 闽银罚决字〔2026〕12号 1．违反账户管理规定； 2．违反数据安全管理规定； 3．违反反假货币管理规定； 4．违反人民币流通管理规定； 5．占压财政存款或者资金； 6．违反信用信息采集、提供、查询及相关管理规定； 7．未按照规定开展客户尽职调查。
 
-据其中一名消息人士及第三名消息人士透露，目前巴斯特罗普工厂待封装的射频芯片均由外部供应商完成封装，而SpaceX计划在该工厂投产后，将至少部分封装工序转为内部自主完成。
+警告，并处罚款315万元 中国人民银行福建省分行 2026年5月6日 五年 2 陈某（中国银行股份有限公司福建省分行金融科技部） 闽银罚决字〔2026〕11号 对中国银行股份有限公司福建省分行以下违法行为负有责任：违反数据安全管理规定。
 
-SpaceX尚未立即回应媒体的置评请求。
-
-2025年，得克萨斯州州长格雷格・阿博特曾表示，未来三年内，SpaceX位于巴斯特罗普的工厂将扩建100万平方英尺，用于生产星链终端及相关组件，其中包括先进封装半导体产品。
-
-阿博特称，此次扩建预计耗资超2.8亿美元。
-
-埃隆・马斯克一直在逐步构建这家航天企业的半导体业务能力，并于上月公布计划，在得克萨斯州奥斯汀一处大型园区建设先进芯片制造工厂。
+罚款2万元 中国人民银行福建省分行 2026年5月6日 五年 责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 01:38 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 01:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 01:21 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 01:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 01:19 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 01:46 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 01:18 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 01:36 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 01:33 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 01:28 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 01:19 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 01:26 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 01:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 01:29 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 01:45 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 01:43 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 01:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 01:35 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 01:49 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 01:32 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 01:26 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 01:50 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 01:30 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 01:34 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 01:51 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:30 - [周生如故](https://www.blog.kurohicncr.top/Article/details/821918.shtml)
-- 2026-06-30 01:40 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/991062266.shtml)
-- 2026-06-30 01:47 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/0778727.shtml)
-- 2026-06-30 01:31 - [小娘惹](https://www.share.minike.top/Article/details/643178299854.shtml)
-- 2026-06-30 01:27 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/975621966.shtml)
-- 2026-06-30 01:43 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/1593829036.shtml)
-- 2026-06-30 01:25 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/74217154427.shtml)
-- 2026-06-30 01:26 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/58378.shtml)
-- 2026-06-30 01:35 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/4380228472.shtml)
-- 2026-06-30 01:18 - [世界杯](http://www.blog.kurohicncr.top/Article/details/317997741631.shtml)
-- 2026-06-30 01:33 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/82660257.shtml)
-- 2026-06-30 01:21 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/289823817.shtml)
-- 2026-06-30 01:46 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/022130830.shtml)
-- 2026-06-30 01:27 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/3878015559.shtml)
-- 2026-06-30 01:45 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/85945468.shtml)
+- 2026-06-30 01:46 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/1668955710.shtml)
+- 2026-06-30 01:38 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/874712627.shtml)
+- 2026-06-30 01:41 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/6303711768.shtml)
+- 2026-06-30 01:51 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/084635.shtml)
+- 2026-06-30 01:33 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/5370686.shtml)
+- 2026-06-30 01:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/190326713.shtml)
+- 2026-06-30 01:38 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/7720010183.shtml)
+- 2026-06-30 01:36 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/69135340.shtml)
+- 2026-06-30 01:42 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/47260891964.shtml)
+- 2026-06-30 01:39 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/097843249.shtml)
+- 2026-06-30 01:39 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/934369047743.shtml)
+- 2026-06-30 01:33 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/56350637.shtml)
+- 2026-06-30 01:30 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/941575.shtml)
+- 2026-06-30 01:53 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/0659968233.shtml)
+- 2026-06-30 01:34 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/3946641668.shtml)

@@ -1,59 +1,60 @@
-# 侯勇与刘迦共话“陈寿亭” 舞剧《大染坊》将启幕
+# 育龄女性当心：体重失控“偷走”生育力
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月09日 21:58 来源：中国新闻网 4月9日，舞剧《大染坊》首演暨全国巡演新闻发布会在北京国家大剧院新闻发布厅举办。 舞剧《大染坊》由山东省文化和旅游厅、山东广播电视台出品，山东歌舞剧院创作演出，青钟(北京)艺术管理有限公司与华人剧院CMC Stage联合出品，改编自山东经典IP《大染坊》，由刘迦、杨思宇领衔主演。作品以清末民初山东纺织行业为背景，以
+“明明备孕很久，一直没动静”“月经总是推迟、脸上长痘、身材发胖”“好不容易怀上，却遭遇孕期高血压”……这些困扰，正成为一些女性的备孕噩梦，而背后一个常被忽视的关键诱因正是“失控的体重”。 兰州大学第一医院生殖医学中心主任医师马晓玲在接受中青报·中青网记者采访时表示，超重、肥胖已成为影响排卵，损伤子宫内膜，降低受孕率的重要原因之一。 中华预防医学会生育力保护分会、中国医师协会生殖
 
 ## 正文
 
-发布时间：2026年04月09日 21:58 来源：中国新闻网 4月9日，舞剧《大染坊》首演暨全国巡演新闻发布会在北京国家大剧院新闻发布厅举办。
+“明明备孕很久，一直没动静”“月经总是推迟、脸上长痘、身材发胖”“好不容易怀上，却遭遇孕期高血压”……这些困扰，正成为一些女性的备孕噩梦，而背后一个常被忽视的关键诱因正是“失控的体重”。
 
-舞剧《大染坊》由山东省文化和旅游厅、山东广播电视台出品，山东歌舞剧院创作演出，青钟(北京)艺术管理有限公司与华人剧院CMC Stage联合出品，改编自山东经典IP《大染坊》，由刘迦、杨思宇领衔主演。
+兰州大学第一医院生殖医学中心主任医师马晓玲在接受中青报·中青网记者采访时表示，超重、肥胖已成为影响排卵，损伤子宫内膜，降低受孕率的重要原因之一。
 
-作品以清末民初山东纺织行业为背景，以鲁商精神、家国情怀为内核，讲述了印染大亨陈寿亭从乞丐成长为民族企业家的跌宕人生。
+中华预防医学会生育力保护分会、中国医师协会生殖医学专业委员会发布的《育龄人群不孕不育防治临床实践指南(2024)》显示：截至2020年，我国不孕症患病率已上升至17.6%；肥胖不仅会增加育龄女性不孕风险、育龄男性不育风险，还会对辅助生殖结局产生负面影响，让孕产妇和胎儿并发症的风险显著升高。
 
-发布会当日，电视剧《大染坊》中陈寿亭的扮演者、演员侯勇与舞剧中该角色扮演者刘迦同台现身，共话对陈寿亭这一传奇人物的演绎。
+体重超标：生育路上的“绊脚石”促进健康生育、提高出生人口质量已经成为“健康中国2030”的重点战略目标。
 
-刘迦直言，自己作为一个南京人本身对于呈现山东硬汉陈寿亭感到颇有压力，但有同为江苏人的侯勇非常成功的荧幕形象在先，“感到有了底气”。
+国家卫生健康委更是联合多部门，启动“体重管理年”三年行动计划(2024—2026)，将育龄人群、孕产妇等重点人群纳入精准管理范畴。
 
-舞剧总导演孔德辛表示，以“无台词”的舞剧形式展现商战是该剧的巨大挑战之一。
+科普与规范干预，成为一线医生的重要职责。
 
-据介绍，舞剧《大染坊》在叙事结构与艺术表达上匠心独运，开篇以陈寿亭生命的最后时刻为起点回溯过往，通过染出的各色布匹暗喻主角不同的人生际遇与价值追求，以及在时代背景下的家国境况。
+马晓玲介绍，如何判断自己是否属于超重或肥胖人群，有清晰、可自测的科学标准：BMI(体重指数)=体重(kg)÷身高的平方。
 
-据悉，该剧将于4月16日至18日在国家大剧院迎来首演，并正式开启全国巡演。
+临床上，她将BMI超过27作为一个关键干预节点——这部分女性已进入“超重临界区间”；女性腹围超过85厘米，或属于腹型肥胖，可能危害生育健康。
 
 ## 相关推荐
 
-- 2026-06-30 01:23 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-30 01:33 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 01:18 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 01:20 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 01:37 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 01:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 01:28 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 01:38 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 01:26 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 01:41 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 01:29 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 01:18 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 01:33 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 01:43 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 01:50 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 01:39 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 01:38 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 01:32 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 01:43 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 01:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 01:32 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 01:33 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 01:41 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 01:37 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 01:52 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-30 01:48 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-30 01:35 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:45 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/02146805628.shtml)
-- 2026-06-30 01:37 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/73332016.shtml)
-- 2026-06-30 01:45 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/7555116120.shtml)
-- 2026-06-30 01:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/6356956646.shtml)
-- 2026-06-30 01:24 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/779002584956.shtml)
-- 2026-06-30 01:33 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/75279488626.shtml)
-- 2026-06-30 01:42 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/97830738243.shtml)
-- 2026-06-30 01:33 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/091001.shtml)
-- 2026-06-30 01:39 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/846070257.shtml)
-- 2026-06-30 01:41 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/02070044.shtml)
-- 2026-06-30 01:47 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/488776757.shtml)
-- 2026-06-30 01:33 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/405671786133.shtml)
-- 2026-06-30 01:42 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/51853973.shtml)
-- 2026-06-30 01:42 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/50129.shtml)
-- 2026-06-30 01:20 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/743344571.shtml)
+- 2026-06-30 01:31 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/668856993.shtml)
+- 2026-06-30 01:31 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/64946929613.shtml)
+- 2026-06-30 01:49 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/74798080972.shtml)
+- 2026-06-30 01:50 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/3387912.shtml)
+- 2026-06-30 01:51 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/3325083.shtml)
+- 2026-06-30 01:51 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/08675330.shtml)
+- 2026-06-30 01:46 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/9669298651.shtml)
+- 2026-06-30 01:34 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/54366.shtml)
+- 2026-06-30 01:48 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/165981.shtml)
+- 2026-06-30 01:45 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/081505.shtml)
+- 2026-06-30 01:29 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/835956367250.shtml)
+- 2026-06-30 01:30 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/923114.shtml)
+- 2026-06-30 01:43 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/309124.shtml)
+- 2026-06-30 01:49 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/4375323.shtml)
+- 2026-06-30 01:32 - [千香](https://www.share.kurohicncr.top/Article/details/8146320091.shtml)

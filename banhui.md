@@ -1,60 +1,55 @@
-# 两大血液瘤王牌爆卖5亿元难救主，亚盛医药又亏了12亿元
+# 哈啰员工聚会把青桔和美团单车踩在脚下？官方回应：已展开内部调查，始终尊重行业伙伴
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-来源：@华夏时报微博华夏时报记者 于娜 北京报道身披国产肿瘤原创新药领军者、细胞凋亡领域深耕者光环的创新药新贵亚盛医（06855.HK），近日披露的2025年年度报告无疑给市场扔下一枚深水炸弹，这份年报呈现了公司“产品销售猛增、整体业绩亏损”的矛盾反差。年报显示，亚盛医药的核心血液瘤产品矩阵表现亮眼，耐立克®（奥雷巴替尼）与利生妥®（利沙托克拉）合计实现销售收入5.06亿元，商
+新浪科技讯 5月9日晚间消息，近日，一张哈啰员工聚会的照片在社交平台流传，照片里多名人员骑在哈啰单车上，还有人脚下踩着倒地的青桔和美团单车。该行为引发争议。 针对此事，哈啰方面向新浪科技回应称，“近日，社交平台流传的一张我司员工聚会照片，照片中的行为与哈啰一直倡导的价值观不符，不能代表哈啰员工的整体风貌。对此，我司已展开内部调查。哈啰始终尊重行业伙伴，倡导健康、理性的行业氛围。
 
 ## 正文
 
-来源：@华夏时报微博华夏时报记者 于娜 北京报道身披国产肿瘤原创新药领军者、细胞凋亡领域深耕者光环的创新药新贵亚盛医（06855.HK），近日披露的2025年年度报告无疑给市场扔下一枚深水炸弹，这份年报呈现了公司“产品销售猛增、整体业绩亏损”的矛盾反差。
+新浪科技讯 5月9日晚间消息，近日，一张哈啰员工聚会的照片在社交平台流传，照片里多名人员骑在哈啰单车上，还有人脚下踩着倒地的青桔和美团单车。
 
-年报显示，亚盛医药的核心血液瘤产品矩阵表现亮眼，耐立克®（奥雷巴替尼）与利生妥®（利沙托克拉）合计实现销售收入5.06亿元，商业化收入同比大幅增长90%。
+该行为引发争议。
 
-其中，核心单品耐立克®以4.35亿元的销售额稳居主力，同比增幅达81%，彰显出医保全面覆盖后的强劲放量势头，这也是年报中披露的核心商业化亮点。
+针对此事，哈啰方面向新浪科技回应称，“近日，社交平台流传的一张我司员工聚会照片，照片中的行为与哈啰一直倡导的价值观不符，不能代表哈啰员工的整体风貌。
 
-然而，这份看似喜人的销售成绩单，却难掩公司整体业绩的惨淡。
+对此，我司已展开内部调查。
 
-年报显示，亚盛医药2025年全年净亏损达12.43亿元，同比扩大206.4%，创下近年来亏损新高。
+哈啰始终尊重行业伙伴，倡导健康、理性的行业氛围。
 
-这一数据反差背后核心原因既有亚盛医药2024年大额一次性知识产权收入退坡的短期冲击，更有年报中明确列出的研发与销售投入高企、产品管线依赖度集中等深层问题，也折射出中国创新药企商业化进程中的盈利困境。
-
-单品种难挡风雨作为中国最早开展肿瘤等治疗领域原创新药研发的企业之一，亚盛医药上市开局强劲，先是于2019年10月在香港联交所主板挂牌（6855.HK），后又于2025年1月登陆美国纳斯达克（AAPG）。
-
-公司核心研发方向聚焦细胞凋亡领域，目前拥有耐立克®、利生妥®两款已上市产品，其中耐立克®（奥雷巴替尼）是中国首个第三代BCR-ABL抑制剂，用于治疗慢性髓性白血病且所有适应症已纳入医保，利生妥®（利沙托克拉）是中国首个国产原创Bcl-2抑制剂，用于治疗复发/难治性慢性淋巴细胞白血病及小淋巴细胞淋巴瘤，凭借原创实力填补国内临床空白。
+”责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 01:30 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 01:45 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 01:47 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 01:22 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 01:31 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 01:18 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 01:43 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-30 01:22 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 01:28 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 01:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 01:39 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 01:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 01:40 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-30 01:26 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 01:35 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 01:28 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 01:39 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 01:50 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 01:44 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 01:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 01:24 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 01:46 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 01:36 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 01:27 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 01:47 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 01:49 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 01:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/9760501.shtml)
-- 2026-06-30 01:38 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/7666321537.shtml)
-- 2026-06-30 01:34 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/3259859147.shtml)
-- 2026-06-30 01:45 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/28711.shtml)
-- 2026-06-30 01:34 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/57003.shtml)
-- 2026-06-30 01:31 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/7847805.shtml)
-- 2026-06-30 01:20 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/4761960159.shtml)
-- 2026-06-30 01:45 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/386713.shtml)
-- 2026-06-30 01:29 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/2755842393.shtml)
-- 2026-06-30 01:19 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/4206949.shtml)
-- 2026-06-30 01:39 - [巴西vs日本](http://www.share.minike.top/Article/details/339220853.shtml)
-- 2026-06-30 01:36 - [刘念回应](https://www.share.kurohicncr.top/Article/details/1846609.shtml)
-- 2026-06-30 01:30 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/316859627.shtml)
-- 2026-06-30 01:47 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/19662.shtml)
-- 2026-06-30 01:45 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/712150016101.shtml)
+- 2026-06-30 01:35 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/5068921733.shtml)
+- 2026-06-30 01:25 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/72768978825.shtml)
+- 2026-06-30 01:53 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/211565469.shtml)
+- 2026-06-30 01:31 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/3274227232.shtml)
+- 2026-06-30 01:51 - [新官上任三把火](http://www.share.minike.top/Article/details/28633.shtml)
+- 2026-06-30 01:30 - [蔚来车主罚站](http://www.share.minike.top/Article/details/423099242.shtml)
+- 2026-06-30 01:45 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/898733.shtml)
+- 2026-06-30 01:51 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/24561.shtml)
+- 2026-06-30 01:51 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/995537238081.shtml)
+- 2026-06-30 01:43 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/4088245967.shtml)
+- 2026-06-30 01:44 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/041754967.shtml)
+- 2026-06-30 01:47 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/90153198511.shtml)
+- 2026-06-30 01:40 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/8564988.shtml)
+- 2026-06-30 01:44 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/2466888.shtml)
+- 2026-06-30 01:52 - [美人鱼](https://www.share.minike.top/Article/details/1828458046.shtml)

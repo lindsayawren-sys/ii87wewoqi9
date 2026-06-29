@@ -1,56 +1,57 @@
-# 业绩增长超300倍！股价创三年新高！这些公司今年一季度业绩暴增！
+# 美食文旅节目《三餐四季》北京篇在千年京韵中寻四季食光
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券市场周刊市场号 文 | 尚扬 近日，A股上市公司2026年一季报及业绩预告披露工作稳步推进，市场“业绩为王”的特征愈发凸显。观察发现，科技、有色等多板块景气度持续上行，多只绩优股在业绩披露后股价应声上涨，一季报行情持续升温。 绩优股引领市场 4月8日、9日，高能环境股价持续刷新阶段新高，连续上涨或
+中新网北京5月9日电 大型美食文旅节目《三餐四季》9日晚走进北京，主持人撒贝宁、王嘉宁携手寻味团来到东城与通州，深入北京中轴线与运河码头，开启一场古韵与烟火交织的寻味之旅。 东城豆汁店里，灰绿色的浆水在锅里咕嘟冒泡，一股独特的酸香直蹿鼻腔。寻味团学着老街坊的样子，手托碗底，沿着碗沿转着圈“吸溜”。第一口酸中带馊，几秒后喉间泛起一丝回甘。再咬一口炸得透亮的焦圈，酥脆与绵滑在口中交
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京5月9日电 大型美食文旅节目《三餐四季》9日晚走进北京，主持人撒贝宁、王嘉宁携手寻味团来到东城与通州，深入北京中轴线与运河码头，开启一场古韵与烟火交织的寻味之旅。
 
-来源：证券市场周刊市场号 文 | 尚扬 近日，A股上市公司2026年一季报及业绩预告披露工作稳步推进，市场“业绩为王”的特征愈发凸显。
+东城豆汁店里，灰绿色的浆水在锅里咕嘟冒泡，一股独特的酸香直蹿鼻腔。
 
-观察发现，科技、有色等多板块景气度持续上行，多只绩优股在业绩披露后股价应声上涨，一季报行情持续升温。
+寻味团学着老街坊的样子，手托碗底，沿着碗沿转着圈“吸溜”。
 
-绩优股引领市场 4月8日、9日，高能环境股价持续刷新阶段新高，连续上涨或与公司优异的一季报业绩有直接关系。
+第一口酸中带馊，几秒后喉间泛起一丝回甘。
 
-4月9日晚间，高能环境发布2026年一季报，报告期内实现营业收入49.92亿元，实现归母净利润6.03亿元，分别较2025年同期增长50.91%、168.4%。
+再咬一口炸得透亮的焦圈，酥脆与绵滑在口中交织，这就是老北京讲究的“干稀搭配”。
 
-归母净利润的翻倍增长，主要是公司抓住了2026年一季度金属价格持续上行的市场机遇，进一步增强了相关产品的盈利能力。
+这碗看似朴素的豆汁，是绿豆发酵沉淀、物尽其用的民间智慧。
 
-而此前，广发证券也在报告中表示，高能环境的稀贵金属提纯能力保证了盈利性，未来通过提高产能利用率、新增金属品类业绩有望继续提升，预计2026年度归母净利润为12.5亿元，2027年、2028年则分别将增至14.6亿元、17.3亿元。
+隆福寺的三餐四季厨房里，金生隆爆肚第四代传人冯梦涛正守着一锅沸水，等待一场“秒级”的盛宴。
 
-表现更为抢眼的东山精密4月8日、9日股价连续涨停，4月10日股价也再度刷新了历史新高（见图1），除了AI算力赛道高景气驱动，今年首季业绩超预期增长也是催化因素之一。
+老北京爆肚，吃的就是一个“脆”字。
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 01:20 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 01:31 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 01:33 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 01:34 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-30 01:31 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 01:36 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 01:35 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 01:21 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 01:41 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 01:49 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 01:35 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 01:33 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 01:42 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 01:39 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 01:49 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 01:28 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 01:40 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 01:32 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 01:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 01:45 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:32 - [美人鱼](https://www.blog.minike.top/Article/details/788883.shtml)
-- 2026-06-30 01:48 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/60745440.shtml)
-- 2026-06-30 01:34 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/37929044.shtml)
-- 2026-06-30 01:35 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/97052078780.shtml)
-- 2026-06-30 01:20 - [急先锋](https://www.blog.minike.top/Article/details/991458816.shtml)
-- 2026-06-30 01:41 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/9456412481.shtml)
-- 2026-06-30 01:43 - [乔家的儿女](http://www.share.minike.top/Article/details/444173.shtml)
-- 2026-06-30 01:23 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/882501191059.shtml)
-- 2026-06-30 01:37 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/4151410856.shtml)
-- 2026-06-30 01:28 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/6371250643.shtml)
-- 2026-06-30 01:40 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/343075.shtml)
-- 2026-06-30 01:20 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/451184456.shtml)
-- 2026-06-30 01:20 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/30542699505.shtml)
-- 2026-06-30 01:27 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/54848325967.shtml)
-- 2026-06-30 01:38 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/7910952.shtml)
+- 2026-06-30 01:46 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/0879571367.shtml)
+- 2026-06-30 01:43 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/519082.shtml)
+- 2026-06-30 01:51 - [我和我的家乡](https://www.blog.minike.top/Article/details/4824802266.shtml)
+- 2026-06-30 01:35 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/924017559.shtml)
+- 2026-06-30 01:48 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/79616632.shtml)
+- 2026-06-30 01:24 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/053902043371.shtml)
+- 2026-06-30 01:35 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/0152425568.shtml)
+- 2026-06-30 01:34 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/9879074.shtml)
+- 2026-06-30 01:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/317413031540.shtml)
+- 2026-06-30 01:51 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/8244913136.shtml)
+- 2026-06-30 01:42 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/02589701836.shtml)
+- 2026-06-30 01:25 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/367773052.shtml)
+- 2026-06-30 01:39 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/594630902541.shtml)
+- 2026-06-30 01:41 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/994568644.shtml)
+- 2026-06-30 01:52 - [扫黑风暴](https://www.share.minike.top/Article/details/2298796761.shtml)

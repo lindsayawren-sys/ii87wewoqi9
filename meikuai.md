@@ -1,60 +1,57 @@
-# 天坛生物2025年报拆解：净利骤降三成，激进信用策略埋下资金链隐患
+# 康耐特光学注销262.85万股已购回H股
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-近日，天坛生物（600161.SH）发布2025年年报，交出一份令市场失望的成绩单。尽管营业收入勉强维持正增长，但利润端遭遇“断崖式”下滑，第四季度更是加速恶化。更令人警惕的是，公司财务结构快速恶化：应收账款飙升、库存堆积、现金流吃紧，管理层也在业绩承压中剧烈震荡。 一、业绩失速：增收难增利，四季度加速恶化 2025年，天坛生物实现营业收入61.68亿元，同比微增2.26%；但
+康耐特光学（02276）发布公告，截至2026年4月30日，本公司于香港联合交易所有限公司进行一系列H股回购，合共回购262.85万股H股（股份回购），约占本公司于2025年6月12日股东大会批准回购H股的一般授权当日的已发行股本总额约0.548%。根据董事局于2026年5月5日通过的决议案，本公司回购的全部262.85万股H股已于2026年5月8日注销。股份回购所用资金总额为
 
 ## 正文
 
-近日，天坛生物（600161.SH）发布2025年年报，交出一份令市场失望的成绩单。
+康耐特光学（02276）发布公告，截至2026年4月30日，本公司于香港联合交易所有限公司进行一系列H股回购，合共回购262.85万股H股（股份回购），约占本公司于2025年6月12日股东大会批准回购H股的一般授权当日的已发行股本总额约0.548%。
 
-尽管营业收入勉强维持正增长，但利润端遭遇“断崖式”下滑，第四季度更是加速恶化。
+根据董事局于2026年5月5日通过的决议案，本公司回购的全部262.85万股H股已于2026年5月8日注销。
 
-更令人警惕的是，公司财务结构快速恶化：应收账款飙升、库存堆积、现金流吃紧，管理层也在业绩承压中剧烈震荡。
+股份回购所用资金总额为1.297亿港元（不包括交易成本）。
 
-一、业绩失速：增收难增利，四季度加速恶化 2025年，天坛生物实现营业收入61.68亿元，同比微增2.26%；但归母净利润仅为10.91亿元，同比大幅下降29.59%；扣非净利润10.76亿元，同比下降29.13%。
+于根据H股回购计划回购的H股被注销后，本公司已发行H股总数将由5.069亿股减少至5.043亿股H股。
 
-第四季度表现尤为令人担忧：单季营收17.03亿元，同比下降13.05%；归母净利润2.72亿元，同比暴跌45.29%，呈现加速恶化态势。
+本公司或会视乎市场情况，继续实施其2026年H股回购计划。
 
-从产品端看，核心支柱产品全线告急。
-
-人血白蛋白收入同比下降2.71%，毛利率大幅下滑11.73个百分点至39.47%；静注人免疫球蛋白虽收入增长11.64%，但毛利率也大跌8.94个百分点；其他血液制品收入下滑15.64%，毛利率骤降18.44个百分点。
-
-二、激进信用政策引发财务“三高”：应收账款激增、现金流失血、库存翻倍 应收账款激增近6倍。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 01:30 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 01:32 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 01:43 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 01:36 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 01:41 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 01:47 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 01:39 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 01:25 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 01:19 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 01:24 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 01:37 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 01:39 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 01:39 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 01:45 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 01:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 01:38 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 01:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 01:33 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 01:48 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 01:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-30 01:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 01:52 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 01:49 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 01:40 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 01:45 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 01:27 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 01:27 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 01:39 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/53892325661.shtml)
-- 2026-06-30 01:47 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/0992683.shtml)
-- 2026-06-30 01:42 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/47027727.shtml)
-- 2026-06-30 01:37 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/298283134.shtml)
-- 2026-06-30 01:29 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/4446069882.shtml)
-- 2026-06-30 01:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/122258830.shtml)
-- 2026-06-30 01:45 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/088020304.shtml)
-- 2026-06-30 01:38 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/7225954347.shtml)
-- 2026-06-30 01:40 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/711256182.shtml)
-- 2026-06-30 01:23 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/26471.shtml)
-- 2026-06-30 01:23 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/8866665.shtml)
-- 2026-06-30 01:36 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/317852914633.shtml)
-- 2026-06-30 01:33 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/405584.shtml)
-- 2026-06-30 01:24 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/4014960217.shtml)
-- 2026-06-30 01:40 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/01917387.shtml)
+- 2026-06-30 01:44 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/8137887373.shtml)
+- 2026-06-30 01:51 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/304977336.shtml)
+- 2026-06-30 01:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/4533905.shtml)
+- 2026-06-30 01:52 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/94238752382.shtml)
+- 2026-06-30 01:39 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/342747.shtml)
+- 2026-06-30 01:35 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/38740.shtml)
+- 2026-06-30 01:34 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/513317573.shtml)
+- 2026-06-30 01:49 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/53498.shtml)
+- 2026-06-30 01:42 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/4697495.shtml)
+- 2026-06-30 01:28 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/85892.shtml)
+- 2026-06-30 01:24 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/90889861595.shtml)
+- 2026-06-30 01:44 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/69735374.shtml)
+- 2026-06-30 01:31 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/084700.shtml)
+- 2026-06-30 01:52 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/347364856928.shtml)
+- 2026-06-30 01:39 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/82187558.shtml)

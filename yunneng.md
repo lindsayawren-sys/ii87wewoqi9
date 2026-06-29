@@ -1,57 +1,58 @@
-# 全球央行黄金储备市值首次超越经利息调整后美元储备
+# 美联储降息预期降温，美元却因风险情绪转弱而承压，日本干预难阻日元颓势
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-来源：环球网 【环球网财经综合报道】据彭博社报道，彭博宏观策略师Simon White指出，全球央行持有的黄金储备价值已首次超越经估值调整后的美元资产储备规模。这一里程碑事件发生在布雷顿森林体系II时代，自国际货币基金组织（IMF）上世纪90年代末开始发布相关数据以来尚属首次。 此前市场曾多次报道“黄金储备超越美元储备”，但彼时援引的是IMF公布的名义美元储备数字，约7.5万亿
+汇通财经APP讯——美元指数周五下跌0.43%至97.86，逼近2月27日以来的最低点，并连续第二周录得周线跌幅。尽管美伊双方在霍尔木兹海峡附近再度交火，阿联酋也遭到袭击，但投资者对美国总统特朗普所称“停火仍然有效”的表态持谨慎乐观态度，预期中东冲突有望迅速结束。 分析师指出，美国正试图避免局势升级，这一信号让市场风险偏好回暖。摩根士丹利策略师明确看空美元，认为风险偏好回升和风
 
 ## 正文
 
-来源：环球网 【环球网财经综合报道】据彭博社报道，彭博宏观策略师Simon White指出，全球央行持有的黄金储备价值已首次超越经估值调整后的美元资产储备规模。
+汇通财经APP讯——美元指数周五下跌0.43%至97.86，逼近2月27日以来的最低点，并连续第二周录得周线跌幅。
 
-这一里程碑事件发生在布雷顿森林体系II时代，自国际货币基金组织（IMF）上世纪90年代末开始发布相关数据以来尚属首次。
+尽管美伊双方在霍尔木兹海峡附近再度交火，阿联酋也遭到袭击，但投资者对美国总统特朗普所称“停火仍然有效”的表态持谨慎乐观态度，预期中东冲突有望迅速结束。
 
-此前市场曾多次报道“黄金储备超越美元储备”，但彼时援引的是IMF公布的名义美元储备数字，约7.5万亿美元，其中包含了美元资产的利息收益累积。
+分析师指出，美国正试图避免局势升级，这一信号让市场风险偏好回暖。
 
-此次分析采用的口径有所不同：将美元储备剔除利息收益后进行估值调整，所得数字约为4万亿美元，仅为名义值的一半略多。
+摩根士丹利策略师明确看空美元，认为风险偏好回升和风险溢价增加将在未来数月将美元指数推低至95。
 
-在此口径下，黄金储备价值首次超越美元储备，标志着美元主导地位的又一个实质性转折点。
+与此同时，欧元兑美元上涨0.5%至1.17808美元，反映出资金从避险资产流向高收益货币的趋势。
 
-这一调整后的数字更能反映各国央行对美元资产的“主动需求”。
+值得注意的是，此前伊朗封锁霍尔木兹海峡曾导致油价飙升，投资者蜂拥买入美元避险，但随着停火希望增强，这一逻辑正在逆转。
 
-数据显示，自2014年官方美元储备规模见顶以来，调整后的美元储备价值已累计下滑约15%；与此同时，以新兴市场央行为主的全球央行实物黄金持有量（以吨计）同期增加了约15%。
+美国就业市场韧性 美国劳工部数据显示，4月非农就业岗位增加11.5万个，远高于市场预期的6.2万，且3月数据上修至18.5万。
 
-Simon White认为，各国央行对美元资产的实际需求正在实质性减弱。
+失业率维持在4.3%不变，劳动力市场展现出意外韧性。
 
 ## 相关推荐
 
-- 2026-06-30 01:39 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 01:44 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 01:45 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 01:28 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 01:47 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 01:22 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 01:42 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-30 01:45 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 01:23 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 01:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 01:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 01:47 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 01:25 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 01:28 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 01:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 01:25 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 01:34 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 01:45 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 01:39 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 01:45 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 01:48 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 01:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 01:39 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:29 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/42854.shtml)
-- 2026-06-30 01:25 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/50581.shtml)
-- 2026-06-30 01:21 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/175678.shtml)
-- 2026-06-30 01:28 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/265970.shtml)
-- 2026-06-30 01:19 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/4623360.shtml)
-- 2026-06-30 01:24 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/2005618.shtml)
-- 2026-06-30 01:28 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/39873131565.shtml)
-- 2026-06-30 01:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/8773715851.shtml)
-- 2026-06-30 01:24 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/1298841.shtml)
-- 2026-06-30 01:23 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/39929318054.shtml)
-- 2026-06-30 01:40 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/50771431.shtml)
-- 2026-06-30 01:36 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/049269.shtml)
-- 2026-06-30 01:20 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/7349146224.shtml)
-- 2026-06-30 01:25 - [我和我的家乡](http://www.share.minike.top/Article/details/13277806.shtml)
-- 2026-06-30 01:44 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/64685766614.shtml)
+- 2026-06-30 01:47 - [第一炉香](http://www.blog.minike.top/Article/details/5455590.shtml)
+- 2026-06-30 01:28 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/1525390703.shtml)
+- 2026-06-30 01:46 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/778950595.shtml)
+- 2026-06-30 01:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/145044091.shtml)
+- 2026-06-30 01:35 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/56063.shtml)
+- 2026-06-30 01:50 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/541777.shtml)
+- 2026-06-30 01:38 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/09734386.shtml)
+- 2026-06-30 01:46 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/562929.shtml)
+- 2026-06-30 01:25 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/70305052.shtml)
+- 2026-06-30 01:40 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/101935.shtml)
+- 2026-06-30 01:25 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/339298284.shtml)
+- 2026-06-30 01:30 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/0337502.shtml)
+- 2026-06-30 01:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/456429469.shtml)
+- 2026-06-30 01:52 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/52062788.shtml)
+- 2026-06-30 01:37 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/12526.shtml)

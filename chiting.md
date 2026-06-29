@@ -1,59 +1,61 @@
-# 渣打旗下碇点金融获稳定币牌照：今年2季度起分阶段发行港元稳定币HKDAP
+# 天山时评丨“三路并进”推动产业加速跑——踔厉奋发“十五五”系列谈㊺
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-4月10日金融一线消息，渣打银行（香港）有限公司、香港电讯及安拟集团合资成立的碇点金融有限公司（下称“碇点金融”），今日获香港金融管理局发出稳定币发行人牌照，成为首两间获发牌的机构之一。 据渣打香港方面介绍，碇点金融预计今年第二季起分阶段发行受规管、与港元挂钩的稳定币HKDAP。为构建开放共融的数码资产生态圈，碇点金融将采用企业对企业对个人（B2B2C）的业务模式，借助指定认可
+代立 在“开局起步‘十五五’”新疆专场新闻发布会上，自治区明确了新疆现代化产业体系坚持“三路并进”，一是优化提升传统产业，二是大力发展特色产业，三是布局培育新兴产业和未来产业。可以看出，新疆产业思路更加科学清晰，发展路径更加系统有力，为我们合力推进经济高质量发展增添了信心决心、鼓足了创新干劲。 新疆产业“三路并进”是系统思维的充分体现。它是新发展理念在产业建设中的落地落实，是对
 
 ## 正文
 
-4月10日金融一线消息，渣打银行（香港）有限公司、香港电讯及安拟集团合资成立的碇点金融有限公司（下称“碇点金融”），今日获香港金融管理局发出稳定币发行人牌照，成为首两间获发牌的机构之一。
+代立 在“开局起步‘十五五’”新疆专场新闻发布会上，自治区明确了新疆现代化产业体系坚持“三路并进”，一是优化提升传统产业，二是大力发展特色产业，三是布局培育新兴产业和未来产业。
 
-据渣打香港方面介绍，碇点金融预计今年第二季起分阶段发行受规管、与港元挂钩的稳定币HKDAP。
+可以看出，新疆产业思路更加科学清晰，发展路径更加系统有力，为我们合力推进经济高质量发展增添了信心决心、鼓足了创新干劲。
 
-为构建开放共融的数码资产生态圈，碇点金融将采用企业对企业对个人（B2B2C）的业务模式，借助指定认可分销商广泛客户基础的优势，扩阔公众接触HKDAP的途径。
+新疆产业“三路并进”是系统思维的充分体现。
 
-同时，会通过向早期合作伙伴提供优惠措施，鼓励他们开发对区内经济带来实际裨益的真实用例，借此促进HKDAP的普及与应用程度。
+它是新发展理念在产业建设中的落地落实，是对标国家“十五五”规划进行的探索实践，也是锚定“五大战略定位”、立足新疆发展实际进行的布局安排、产业塑造。
 
-渣打集团行政总裁温拓思（Bill Winters）表示：由渣打旗下碇点金融发行的HKDAP将为市场提供一个强大的受规管交易媒介，进一步重塑金融市场，加快新一代贸易发展。
+传统产业、特色产业、新兴产业和未来产业，各就各位，各具优势，相互支撑，协同发力，构建了新疆现代化产业体系的完整图景，加速推进新疆发展朝着更加美好的明天接力长跑。
 
-结合香港完善的监管制度及公开区块链技术的效能，我们正朝着资产全面数码化、透明化及即时结算的未来迈进。
+“三路并进”不是各自为政，而是同题共答，为探索符合新疆特点的高质量发展路子持续发力，这就需要产业共性和个性互融互促，产业延续和创新时空呼应。
 
-碇点金融行政总裁马飞（Dominic Maffei）表示：碇点金融专注为数码资产生态圈提供一种安全、便捷和受规管的代币化货币，以重塑现有的金融交易方式，以至如何赋能新的基础建设，为机构和个人创造真正裨益。
+我们也要看到，新疆不同产业，面临的挑战压力不同，各自短板弱项不同，不能搞“一刀切”，开一副药，而要在具体问题具体分析中探索解决产业发展难题的有效方法。
 
-我们相信现时正是重新定义金融与货币的重要时刻，对于能够与监管机构和策略伙伴共同在此令人振奋的进程中领先前行，我们深感自豪。
+拿新疆的传统产业来说，就要用“回春术”。
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 01:43 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 01:27 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 01:18 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 01:37 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 01:29 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 01:18 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 01:36 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 01:29 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 01:37 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 01:19 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 01:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 01:35 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 01:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 01:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 01:38 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 01:27 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 01:33 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 01:25 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 01:28 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 01:28 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 01:49 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 01:49 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 01:43 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 01:42 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 01:52 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 01:45 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 01:38 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:26 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/62095057352.shtml)
-- 2026-06-30 01:45 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/174091346351.shtml)
-- 2026-06-30 01:33 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/3987949142.shtml)
-- 2026-06-30 01:32 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/195537870539.shtml)
-- 2026-06-30 01:33 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/73545.shtml)
-- 2026-06-30 01:21 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/14217740.shtml)
-- 2026-06-30 01:33 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/963189.shtml)
-- 2026-06-30 01:31 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/987282822.shtml)
-- 2026-06-30 01:36 - [啊啊啊](http://www.blog.minike.top/Article/details/768825478.shtml)
-- 2026-06-30 01:42 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/715076244.shtml)
-- 2026-06-30 01:43 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/6065361.shtml)
-- 2026-06-30 01:37 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/581481161569.shtml)
-- 2026-06-30 01:41 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/64023.shtml)
-- 2026-06-30 01:33 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/172578.shtml)
-- 2026-06-30 01:40 - [千香](http://www.share.minike.top/Article/details/529831567.shtml)
+- 2026-06-30 01:26 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/35673756.shtml)
+- 2026-06-30 01:39 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/8334450.shtml)
+- 2026-06-30 01:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/1326503.shtml)
+- 2026-06-30 01:33 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/164263826.shtml)
+- 2026-06-30 01:28 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/6395705.shtml)
+- 2026-06-30 01:26 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/36621580399.shtml)
+- 2026-06-30 01:45 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/21302875.shtml)
+- 2026-06-30 01:52 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/4022321.shtml)
+- 2026-06-30 01:24 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/78292971.shtml)
+- 2026-06-30 01:29 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/778347668633.shtml)
+- 2026-06-30 01:45 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/09441461.shtml)
+- 2026-06-30 01:41 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/01337652.shtml)
+- 2026-06-30 01:29 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/40512.shtml)
+- 2026-06-30 01:52 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/596559.shtml)
+- 2026-06-30 01:50 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/393703.shtml)

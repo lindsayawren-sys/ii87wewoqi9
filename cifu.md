@@ -1,56 +1,58 @@
-# 山西寿阳：小程序折射基层治理“大智慧”
+# 韩国都涨怕了
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网晋中4月10日电 (高雨晴 雷甫)没有排队长龙，没有翻找材料的烦躁。在山西省寿阳县南港社区服务大厅里，几位老人正围着工作人员学习使用手机小程序，另一侧的电子屏上，办结提示音此起彼伏。这里的“智慧小脑”正在悄然改变一件事——过去“群众跑断腿”的麻烦，如今正变成“指尖轻轻点”的便利。 南港社区是寿阳县城的典型大社区，面积2.45平方公里，常住人口1.33万，占城区总数约五分之
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 原标题：涨怕了 【导读】韩国都涨怕了 中国基金报记者 泰勒 兄弟姐妹们啊，今天芯片半导体集体暴涨，相信不需要我多说了。就连韩国人自己都涨到害怕了。 一起看看发生了什么事情。 韩国“涨怕了” 5月11日，韩国KOSPI再创历史新高，在油价上涨、美伊紧张局势升级之际，领涨亚太市场。 截至收盘，
 
 ## 正文
 
-中新网晋中4月10日电 (高雨晴 雷甫)没有排队长龙，没有翻找材料的烦躁。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在山西省寿阳县南港社区服务大厅里，几位老人正围着工作人员学习使用手机小程序，另一侧的电子屏上，办结提示音此起彼伏。
+来源：中国基金报 原标题：涨怕了 【导读】韩国都涨怕了 中国基金报记者 泰勒 兄弟姐妹们啊，今天芯片半导体集体暴涨，相信不需要我多说了。
 
-这里的“智慧小脑”正在悄然改变一件事——过去“群众跑断腿”的麻烦，如今正变成“指尖轻轻点”的便利。
+就连韩国人自己都涨到害怕了。
 
-南港社区是寿阳县城的典型大社区，面积2.45平方公里，常住人口1.33万，占城区总数约五分之一，而治理力量仅20人。
+一起看看发生了什么事情。
 
-面对15个小区和3个散居片区的管理压力，尤其在突发紧急情况下人手捉襟见肘。
+韩国“涨怕了” 5月11日，韩国KOSPI再创历史新高，在油价上涨、美伊紧张局势升级之际，领涨亚太市场。
 
-为此，“寿阳城区智慧+”平台便首先在此试点。
+截至收盘，韩国KOSPI上涨4.32%，报7822.24点。
 
-在外地读书的大学生张明，通过“寿阳城区智慧+”小程序上传政审证明申请材料后，社区后台即时收到提醒，工作人员10分钟内完成信息核验，加盖电子印章的证明文件便直接回传至他的手机。
+小盘股指数KOSDAQ基本持平，报1207.34点。
 
-“本来以为要耽误两天课、花几百块路费，没想到15分钟就办好了。
+权重股SK海力士大涨逾11%，跟随上周五美国芯片相关股票的强劲涨势。
 
 ## 相关推荐
 
-- 2026-06-30 01:19 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 01:26 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 01:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 01:40 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 01:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-30 01:33 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 01:20 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 01:40 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 01:32 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 01:28 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 01:37 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-30 01:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 01:45 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 01:39 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 01:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 01:28 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 01:27 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 01:27 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 01:42 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 01:26 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 01:50 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 01:53 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:37 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/477260303996.shtml)
-- 2026-06-30 01:35 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/17112.shtml)
-- 2026-06-30 01:46 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/66007743267.shtml)
-- 2026-06-30 01:48 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/1496510.shtml)
-- 2026-06-30 01:22 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/511744085266.shtml)
-- 2026-06-30 01:31 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/094732.shtml)
-- 2026-06-30 01:27 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/324339.shtml)
-- 2026-06-30 01:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/349996086.shtml)
-- 2026-06-30 01:20 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/5939593.shtml)
-- 2026-06-30 01:46 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/6195979695.shtml)
-- 2026-06-30 01:38 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/9109610798.shtml)
-- 2026-06-30 01:42 - [世界杯](https://www.blog.minike.top/Article/details/1548810.shtml)
-- 2026-06-30 01:20 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/0663314.shtml)
-- 2026-06-30 01:43 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/40170.shtml)
-- 2026-06-30 01:21 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/36538240538.shtml)
+- 2026-06-30 01:47 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/711250831.shtml)
+- 2026-06-30 01:50 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/557157476.shtml)
+- 2026-06-30 01:41 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/151713.shtml)
+- 2026-06-30 01:52 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/6608196.shtml)
+- 2026-06-30 01:48 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/60098435.shtml)
+- 2026-06-30 01:26 - [一见倾心](http://www.share.kurohicncr.top/Article/details/345126.shtml)
+- 2026-06-30 01:30 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/0563171.shtml)
+- 2026-06-30 01:42 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/2466475.shtml)
+- 2026-06-30 01:42 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/8719605.shtml)
+- 2026-06-30 01:48 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/3285418603.shtml)
+- 2026-06-30 01:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/5435446110.shtml)
+- 2026-06-30 01:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/92718346.shtml)
+- 2026-06-30 01:28 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/917963.shtml)
+- 2026-06-30 01:43 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/77373381244.shtml)
+- 2026-06-30 01:41 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/97211.shtml)

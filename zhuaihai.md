@@ -1,52 +1,56 @@
-# 中方：愿同白俄罗斯一道推动两国关系持续向前发展
+# 哮喘的症状只是喘吗？该如何预防和控制？
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新网北京4月10日电 (记者 谢雁冰)中国外交部发言人毛宁4月10日主持例行记者会。会上有外媒记者就中国和白俄罗斯关系提问。 毛宁：中国和白俄罗斯是全天候全面战略伙伴。近年来，在两国元首战略引领下，两国关系健康稳定发展，各领域合作持续深化，去年双边贸易额达到88.6亿美元，同比增长5.5%。我们愿意同白俄罗斯一道，以两国元首的重要共识为根本遵循，推动两国关系持续向前发展，造福
+朝“问”健康丨哮喘的症状只是喘吗？该如何预防和控制？ 首都医科大学附属北京朝阳医院呼吸与危重症学科主任医师 施焕中：哮喘我们也叫支气管哮喘，除了喘息之外，它还有别的症状，比如说干咳、胸闷、胸部不适等。如果长时间反复出现干咳，特别是慢性咳嗽，再出现胸闷等其他症状的时候，就要到呼吸专科就诊。 哮喘如何预防和控制？ 全面预防，远离诱因。避免与已知过敏物质接触。同时也要远离物理性和化学
 
 ## 正文
 
-中新网北京4月10日电 (记者 谢雁冰)中国外交部发言人毛宁4月10日主持例行记者会。
+朝“问”健康丨哮喘的症状只是喘吗？
 
-会上有外媒记者就中国和白俄罗斯关系提问。
+该如何预防和控制？
 
-毛宁：中国和白俄罗斯是全天候全面战略伙伴。
+首都医科大学附属北京朝阳医院呼吸与危重症学科主任医师 施焕中：哮喘我们也叫支气管哮喘，除了喘息之外，它还有别的症状，比如说干咳、胸闷、胸部不适等。
 
-近年来，在两国元首战略引领下，两国关系健康稳定发展，各领域合作持续深化，去年双边贸易额达到88.6亿美元，同比增长5.5%。
+如果长时间反复出现干咳，特别是慢性咳嗽，再出现胸闷等其他症状的时候，就要到呼吸专科就诊。
 
-我们愿意同白俄罗斯一道，以两国元首的重要共识为根本遵循，推动两国关系持续向前发展，造福两国人民。
+哮喘如何预防和控制？
 
-(完)
+全面预防，远离诱因。
+
+避免与已知过敏物质接触。
+
+同时也要远离物理性和化学性刺激，如冷空气、香水等。
 
 ## 相关推荐
 
-- 2026-06-30 01:43 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 01:32 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 01:43 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 01:21 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 01:40 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 01:20 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-30 01:25 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 01:28 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 01:41 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 01:23 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 01:29 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 01:51 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 01:45 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 01:40 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 01:35 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 01:27 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 01:33 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 01:35 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 01:28 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 01:31 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:30 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/460570.shtml)
-- 2026-06-30 01:35 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/9961558560.shtml)
-- 2026-06-30 01:35 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/380319.shtml)
-- 2026-06-30 01:33 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/9455857.shtml)
-- 2026-06-30 01:23 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/1961543280.shtml)
-- 2026-06-30 01:29 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/2987764.shtml)
-- 2026-06-30 01:20 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/122092.shtml)
-- 2026-06-30 01:34 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/96060338.shtml)
-- 2026-06-30 01:26 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/177263890.shtml)
-- 2026-06-30 01:40 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/509727692.shtml)
-- 2026-06-30 01:40 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/2109985339.shtml)
-- 2026-06-30 01:26 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/67246.shtml)
-- 2026-06-30 01:34 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/61733.shtml)
-- 2026-06-30 01:29 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/37173.shtml)
-- 2026-06-30 01:40 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/916255922996.shtml)
+- 2026-06-30 01:26 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/51835445.shtml)
+- 2026-06-30 01:47 - [内马尔替补](https://www.blog.minike.top/Article/details/941318.shtml)
+- 2026-06-30 01:29 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/890665.shtml)
+- 2026-06-30 01:37 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/723779154.shtml)
+- 2026-06-30 01:38 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/146201726676.shtml)
+- 2026-06-30 01:51 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/0191483.shtml)
+- 2026-06-30 01:50 - [毒液2](http://www.blog.minike.top/Article/details/0894825838.shtml)
+- 2026-06-30 01:43 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/069600197452.shtml)
+- 2026-06-30 01:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/861379303067.shtml)
+- 2026-06-30 01:27 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/771818618660.shtml)
+- 2026-06-30 01:33 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/3421852.shtml)
+- 2026-06-30 01:43 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/1342929710.shtml)
+- 2026-06-30 01:24 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/41560514878.shtml)
+- 2026-06-30 01:43 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/509736456.shtml)
+- 2026-06-30 01:38 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/18380707207.shtml)

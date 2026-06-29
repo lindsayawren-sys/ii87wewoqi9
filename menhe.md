@@ -1,57 +1,58 @@
-# 美国利率预期抵消美元走强 金价有望录得连续第三周上涨
+# 以秦腔艺术为镜折射众生百态 电视剧《主角》迎开播
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-金价周五小幅走低，受美元走强及美伊停火不确定性拖累，但有望实现连续第三周上涨。投资者已将美国更早、幅度更大的降息预期计入价格，为无息黄金提供了支撑。 美元指数走强，使得以美元计价的黄金对其他货币持有者而言更为昂贵。 Capital.com高级金融市场分析师凯尔·罗达表示：“中东停火局势的走向及其对能源市场的影响尚不明确……因此在本周最后一个交易时段，金价基本处于观望状态。” 自
+中新网北京5月10日电 (记者 高凯)5月10日，陕派文化大剧《主角》正式登陆CCTV-1黄金档独家电视首播。 该剧由张艺谋监制、张嘉益担任艺术总监，李少飞执导，改编自作家陈彦茅盾文学奖同名小说，郑桦、京榆编剧，马晓勇联合编剧，张嘉益、刘浩存、秦海璐、窦骁、翟子路、王晓晨领衔主演，以秦腔名伶忆秦娥近半个世纪的艺术人生为脉络，串联起几代秦腔人的坚守与沉浮。 作为国家广播电视总局重
 
 ## 正文
 
-金价周五小幅走低，受美元走强及美伊停火不确定性拖累，但有望实现连续第三周上涨。
+中新网北京5月10日电 (记者 高凯)5月10日，陕派文化大剧《主角》正式登陆CCTV-1黄金档独家电视首播。
 
-投资者已将美国更早、幅度更大的降息预期计入价格，为无息黄金提供了支撑。
+该剧由张艺谋监制、张嘉益担任艺术总监，李少飞执导，改编自作家陈彦茅盾文学奖同名小说，郑桦、京榆编剧，马晓勇联合编剧，张嘉益、刘浩存、秦海璐、窦骁、翟子路、王晓晨领衔主演，以秦腔名伶忆秦娥近半个世纪的艺术人生为脉络，串联起几代秦腔人的坚守与沉浮。
 
-美元指数走强，使得以美元计价的黄金对其他货币持有者而言更为昂贵。
+作为国家广播电视总局重点指导项目，陕西省重大文化精品扶持项目，《主角》将秦腔艺术作为一面折射时代变迁与人性百态的镜子，既有非遗的厚重底色，又有从黄土地上生长出的生命活力。
 
-Capital.com高级金融市场分析师凯尔·罗达表示：“中东停火局势的走向及其对能源市场的影响尚不明确……因此在本周最后一个交易时段，金价基本处于观望状态。
+该剧塑造了以胡三元(张嘉益 饰)、忆秦娥(刘浩存 饰)、花彩香(秦海璐 饰)、刘红兵(窦骁 饰)、封潇潇(翟子路 饰)、米兰(王晓晨 饰)等为代表的一组鲜活人物群像。
 
-” 自2月28日伊朗相关冲突爆发以来，现货黄金已下跌约10%，原因是能源价格高企引发通胀担忧，市场也押注美国利率或将走高。
+剧中人对待戏的态度，反映出他们的性格底色，更承载面对命运起落的心态。
 
-美伊之间脆弱的两周停火协议周五进一步承压，美方指责德黑兰方面违背了在霍尔木兹海峡问题上的承诺。
+观众随着县剧团日常排戏、练功、赶场、拌嘴、解围，走进鸡飞狗跳的热闹生活，感受患难与共的温暖抚慰。
 
-不过，受停火有望重新开放霍尔木兹海峡的乐观情绪影响，布伦特原油本周跌幅已超11%。
+胡三元一句“霜不打南瓜熟不透”，点透成长必经的关窍。
 
-全球约20%的石油和液化天然气需经该海峡运输。
+剧中没有刻意制造的狗血冲突，全是扎根生活的真实细节：练功的苦、成名的难、人情的暖、世事的磨。
 
 ## 相关推荐
 
-- 2026-06-30 01:23 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 01:47 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 01:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 01:45 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 01:33 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 01:33 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 01:45 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 01:33 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 01:45 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 01:41 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 01:37 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 01:53 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 01:51 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 01:44 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 01:41 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 01:45 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 01:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 01:47 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 01:43 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 01:38 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 01:29 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 01:42 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 01:39 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:33 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/7303812.shtml)
-- 2026-06-30 01:46 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/87687.shtml)
-- 2026-06-30 01:43 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/362276845.shtml)
-- 2026-06-30 01:44 - [美股](https://www.share.kurohicncr.top/Article/details/91188086.shtml)
-- 2026-06-30 01:19 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/03754315629.shtml)
-- 2026-06-30 01:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/521166.shtml)
-- 2026-06-30 01:40 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/4386230854.shtml)
-- 2026-06-30 01:46 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/22966978933.shtml)
-- 2026-06-30 01:22 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/34359061787.shtml)
-- 2026-06-30 01:28 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/23842615.shtml)
-- 2026-06-30 01:30 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/0277422.shtml)
-- 2026-06-30 01:43 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/28380395.shtml)
-- 2026-06-30 01:29 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/351590644484.shtml)
-- 2026-06-30 01:47 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/86971.shtml)
-- 2026-06-30 01:22 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/2184805.shtml)
+- 2026-06-30 01:46 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/872319545365.shtml)
+- 2026-06-30 01:51 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/53528404780.shtml)
+- 2026-06-30 01:52 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/2579700.shtml)
+- 2026-06-30 01:37 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/51617715955.shtml)
+- 2026-06-30 01:26 - [世界杯](https://www.blog.kurohicncr.top/Article/details/447690258252.shtml)
+- 2026-06-30 01:36 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/94144050.shtml)
+- 2026-06-30 01:28 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/54733315222.shtml)
+- 2026-06-30 01:45 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/898454206450.shtml)
+- 2026-06-30 01:41 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/609616.shtml)
+- 2026-06-30 01:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/67369781239.shtml)
+- 2026-06-30 01:39 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/105262.shtml)
+- 2026-06-30 01:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/79269021057.shtml)
+- 2026-06-30 01:37 - [《贺子珍》](https://www.blog.minike.top/Article/details/8530208.shtml)
+- 2026-06-30 01:31 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/19203.shtml)
+- 2026-06-30 01:45 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/386578786421.shtml)

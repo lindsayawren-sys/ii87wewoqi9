@@ -1,58 +1,57 @@
-# 【库存解读·LPG】低库存支撑价格高位 后市地缘溢价面临回吐压力
+# 检察机关依法分别对马爱平、姜志强、李景宽、洪鑫提起公诉
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-卓创资讯分析师 王娟娟 【导语】 3月国内液化气市场在低库存与地缘局势紧张的双重支撑下，价格呈现易涨难跌特征。炼厂库容率月末降至25.95%，较上月末下降4.73个百分点；月末主港库容率35.89%，环比微升1.71个百分点。进入4月，随着美以伊三方达成临时停火共识，地缘溢价逐步回吐，液化气市场面临回调压力，但低库存环境仍为价格提供一定底部支撑。 需求阶段性释放主导库存波动 3
+中新网5月1日电 据最高人民检察院微信公众号消息，日前，检察机关依法分别对马爱平、姜志强、李景宽、洪鑫提起公诉。 宁夏检察机关依法对马爱平涉嫌受贿、利用影响力受贿案提起公诉 日前，宁夏回族自治区银川市原一级巡视员马爱平涉嫌受贿罪、利用影响力受贿罪一案，由宁夏回族自治区监察委员会调查终结，移送检察机关审查起诉。经宁夏回族自治区人民检察院指定管辖，由固原市人民检察院依法向固原市中级
 
 ## 正文
 
-卓创资讯分析师 王娟娟 【导语】 3月国内液化气市场在低库存与地缘局势紧张的双重支撑下，价格呈现易涨难跌特征。
+中新网5月1日电 据最高人民检察院微信公众号消息，日前，检察机关依法分别对马爱平、姜志强、李景宽、洪鑫提起公诉。
 
-炼厂库容率月末降至25.95%，较上月末下降4.73个百分点；月末主港库容率35.89%，环比微升1.71个百分点。
+宁夏检察机关依法对马爱平涉嫌受贿、利用影响力受贿案提起公诉 日前，宁夏回族自治区银川市原一级巡视员马爱平涉嫌受贿罪、利用影响力受贿罪一案，由宁夏回族自治区监察委员会调查终结，移送检察机关审查起诉。
 
-进入4月，随着美以伊三方达成临时停火共识，地缘溢价逐步回吐，液化气市场面临回调压力，但低库存环境仍为价格提供一定底部支撑。
+经宁夏回族自治区人民检察院指定管辖，由固原市人民检察院依法向固原市中级人民法院提起公诉。
 
-需求阶段性释放主导库存波动 3月LPG炼厂库容率先升后降 2026年3月国产液化气炼厂库容率呈现触底回升、而后震荡走低的走势特征。
+案件正在进一步办理中。
 
-截至3月27日统计数据显示，LPG炼厂月末库容率为25.95%，较上月末同期相比，下降4.73个百分点。
+检察机关在审查起诉阶段，依法告知了被告人马爱平享有的诉讼权利，并依法讯问了被告人，听取了辩护人的意见。
 
-2026年3月国内液化气商品量预估值为168.48万吨，环比增加6.81%；日均商品量为54347.6吨（2月为56331）；总量提升，但日均商品量有所下滑。
+固原市人民检察院起诉指控：被告人马爱平利用担任吴忠市交通局局长、党委书记，银川市兴庆区政府区长、区委书记，银川滨河新区(经济试验区)管委会副主任，银川综合保税区管委会主任等职务上的便利以及职权、地位形成的便利条件，为他人谋取利益，非法收受他人财物，数额特别巨大；离职后利用原职权、地位形成的便利条件，通过其他国家工作人员职务上的行为，为他人谋取不正当利益，收受他人财物，数额巨大，依法应当以受贿罪、利用影响力受贿罪追究其刑事责任。
 
-从需求角度来看，3月国内液化气市场需求与库存呈现清晰的阶段性负相关关系，上旬受地缘局势紧张刺激，下游备货积极，需求集中释放，库存显著下降。
+贵州检察机关依法对姜志强涉嫌受贿案提起公诉 日前，贵州省施秉县委原书记姜志强(正县级)涉嫌受贿罪一案，由贵州省监察委员会调查终结，移送检察机关审查起诉。
 
-中旬价格高企抑制接货意愿，需求跟进不足，库存由降转升。
+经贵州省人民检察院指定管辖，由铜仁市人民检察院依法向铜仁市中级人民法院提起公诉。
 
 ## 相关推荐
 
-- 2026-06-30 01:25 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 01:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 01:24 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 01:19 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-30 01:38 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 01:35 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 01:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-30 01:26 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 01:22 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 01:47 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 01:44 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 01:41 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-30 01:39 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 01:33 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 01:29 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 01:51 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 01:37 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 01:43 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 01:51 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 01:30 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 01:41 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 01:24 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 01:40 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:28 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/70059645996.shtml)
-- 2026-06-30 01:41 - [速度与激情9](https://www.share.minike.top/Article/details/98266841988.shtml)
-- 2026-06-30 01:38 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/78889003274.shtml)
-- 2026-06-30 01:44 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/632248690481.shtml)
-- 2026-06-30 01:28 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/4492577132.shtml)
-- 2026-06-30 01:24 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/2753114.shtml)
-- 2026-06-30 01:44 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/4023067.shtml)
-- 2026-06-30 01:37 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/682700474840.shtml)
-- 2026-06-30 01:38 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/76991783629.shtml)
-- 2026-06-30 01:40 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/61692982524.shtml)
-- 2026-06-30 01:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/617710849904.shtml)
-- 2026-06-30 01:27 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/79181.shtml)
-- 2026-06-30 01:34 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/32810052352.shtml)
-- 2026-06-30 01:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/43788524.shtml)
-- 2026-06-30 01:38 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/6093802676.shtml)
+- 2026-06-30 01:43 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/129851357.shtml)
+- 2026-06-30 01:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/872731.shtml)
+- 2026-06-30 01:39 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/791438200.shtml)
+- 2026-06-30 01:39 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/890612.shtml)
+- 2026-06-30 01:45 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/12228096.shtml)
+- 2026-06-30 01:51 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/698329870093.shtml)
+- 2026-06-30 01:43 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/2572098214.shtml)
+- 2026-06-30 01:37 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/32261238924.shtml)
+- 2026-06-30 01:28 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/672191.shtml)
+- 2026-06-30 01:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/50867350.shtml)
+- 2026-06-30 01:36 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/89414.shtml)
+- 2026-06-30 01:34 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/28848477756.shtml)
+- 2026-06-30 01:44 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/91265257664.shtml)
+- 2026-06-30 01:40 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/214849135.shtml)
+- 2026-06-30 01:43 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/16273941578.shtml)

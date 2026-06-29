@@ -1,56 +1,47 @@
-# 一季度中国铁路发送旅客人次同比增5.5%
+# 赢家时尚附属透过中信证券认购5000万元基金份额
 
-> 更新时间：2026-06-30 01:48:02 UTC+8
+> 更新时间：2026-06-30 01:54:02 UTC+8
 
 ## 摘要
 
-中新社北京4月9日电 (记者 刘文文)2026年一季度，中国铁路累计发送旅客11.33亿人次、同比增长5.5%。 中国国家铁路集团有限公司(简称国铁集团)9日发布上述数据。据介绍，一季度，铁路客运产品供给持续优化。铁路部门加强春运和元旦假期等客流高峰时段运输组织，在客流高峰时段采取增开临时旅客列车、动车组重联、普速旅客列车加挂等方式扩充运力，最大限度满足旅客出行需求。一季度全国
+赢家时尚（03709）公布，于2026年5月8日，拉珂帝（公司的全资附属公司）透过中信证券认购一只投资基金的基金份额，认购金额为人民币5000万元（相当于约5750万港元）。责任编辑：卢昱君
 
 ## 正文
 
-中新社北京4月9日电 (记者 刘文文)2026年一季度，中国铁路累计发送旅客11.33亿人次、同比增长5.5%。
+赢家时尚（03709）公布，于2026年5月8日，拉珂帝（公司的全资附属公司）透过中信证券认购一只投资基金的基金份额，认购金额为人民币5000万元（相当于约5750万港元）。
 
-中国国家铁路集团有限公司(简称国铁集团)9日发布上述数据。
-
-据介绍，一季度，铁路客运产品供给持续优化。
-
-铁路部门加强春运和元旦假期等客流高峰时段运输组织，在客流高峰时段采取增开临时旅客列车、动车组重联、普速旅客列车加挂等方式扩充运力，最大限度满足旅客出行需求。
-
-一季度全国铁路日均开行旅客列车12072列，同比增长7.1%。
-
-铁路部门积极适应旅客春季出游、踏青、赏花需求，一季度全国铁路开行旅游列车627列，有力促进旅游经济、银发经济、冰雪经济发展。
-
-各地铁路部门聚焦节庆、展会、赛事、演艺等新兴客流，定制化开行“歌迷专列”“球迷专列”“研学专列”“赏花专列”等主题列车，打造消费新场景，促进了消费新业态发展。
-
-此外，铁路部门精心组织跨境旅客运输，一季度广深港高铁发送跨境旅客866.0万人次，同比增长17.7%，中老铁路发送跨境旅客11.2万人次、同比增长31.6%，开好中蒙、中俄、中越、中朝国际旅客列车，助力跨境人员往来和经贸交流。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:19 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 01:30 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 01:20 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 01:33 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 01:23 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 01:21 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 01:38 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 01:29 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 01:21 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 01:37 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-30 01:50 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 01:32 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 01:32 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 01:43 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 01:50 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 01:45 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 01:41 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 01:47 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 01:38 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 01:45 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 01:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 01:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 01:30 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:34 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/72626288823.shtml)
-- 2026-06-30 01:23 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/85730.shtml)
-- 2026-06-30 01:39 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/5420362.shtml)
-- 2026-06-30 01:46 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/41935.shtml)
-- 2026-06-30 01:32 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/794868298601.shtml)
-- 2026-06-30 01:31 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/03907576458.shtml)
-- 2026-06-30 01:30 - [TOP Prada](http://www.share.minike.top/Article/details/326699643665.shtml)
-- 2026-06-30 01:20 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/43296.shtml)
-- 2026-06-30 01:43 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/257552788206.shtml)
-- 2026-06-30 01:35 - [流金岁月](http://www.blog.minike.top/Article/details/7195320305.shtml)
-- 2026-06-30 01:31 - [扬名立万](https://www.share.minike.top/Article/details/37509164610.shtml)
-- 2026-06-30 01:44 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/234320520423.shtml)
-- 2026-06-30 01:22 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/1311148.shtml)
-- 2026-06-30 01:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/1478035845.shtml)
-- 2026-06-30 01:32 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/5212331.shtml)
+- 2026-06-30 01:40 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/37327134452.shtml)
+- 2026-06-30 01:24 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/92615441102.shtml)
+- 2026-06-30 01:25 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/70538.shtml)
+- 2026-06-30 01:36 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/028570016830.shtml)
+- 2026-06-30 01:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/07793479.shtml)
+- 2026-06-30 01:46 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/0164741483.shtml)
+- 2026-06-30 01:37 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/1515851.shtml)
+- 2026-06-30 01:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/9534864.shtml)
+- 2026-06-30 01:42 - [恋与深空 巧合](https://www.share.minike.top/Article/details/7847987171.shtml)
+- 2026-06-30 01:34 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/908103302.shtml)
+- 2026-06-30 01:25 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/83995862.shtml)
+- 2026-06-30 01:49 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/57991056.shtml)
+- 2026-06-30 01:47 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/74999461168.shtml)
+- 2026-06-30 01:42 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/72180.shtml)
+- 2026-06-30 01:50 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/41775958372.shtml)
