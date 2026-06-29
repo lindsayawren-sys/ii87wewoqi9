@@ -1,46 +1,57 @@
-# 世界微笑日，老祖宗也在逗你笑
+# 暑期票房迎来火爆开局 周末票房突破1.6亿美元
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-作者：李秋莹 设计：宋晔姗 来源：中新社微信公众号
+核心要点 暑期电影票房迎来火热开门红，而热度才刚刚开始。 刚刚过去的周末，美国本土票房突破1.61 亿美元，较 2025 年同期三天票房大涨近 88%。 迪士尼与二十世纪影业联合出品的 《穿普拉达的女王 2》 位居榜首，上映第二周再收 4160 万美元； 华纳兄弟 《真人快打 2》 首映斩获 3850 万美元； 狮门传记片 《迈克尔》 上映第三周入账 3790 万美元。 亚马逊
 
 ## 正文
 
-作者：李秋莹 设计：宋晔姗 来源：中新社微信公众号
+核心要点 暑期电影票房迎来火热开门红，而热度才刚刚开始。
+
+刚刚过去的周末，美国本土票房突破1.61 亿美元，较 2025 年同期三天票房大涨近 88%。
+
+迪士尼与二十世纪影业联合出品的 《穿普拉达的女王 2》 位居榜首，上映第二周再收 4160 万美元； 华纳兄弟 《真人快打 2》 首映斩获 3850 万美元； 狮门传记片 《迈克尔》 上映第三周入账 3790 万美元。
+
+亚马逊米高梅新片《绵羊侦探团》、派拉蒙《碧莉・艾莉什：温柔释怀巡回演唱会》等新作上映，再加上环球《超级马里奥银河大电影》上映第六周、亚马逊《挽救计划》上映第八周持续稳健吸金，共同助推本周末票房表现亮眼。
+
+整个电影行业正朝着全年100 亿美元本土票房目标冲刺。
+
+市场趋势分析机构康姆斯科（Comscore）行业趋势主管保罗・德尔加拉贝迪安表示： “每年 5 月第二个周末，新片往往能交出不错票房，衔接暑期档开局与两周后的阵亡将士纪念日大片档期。
+
+而《超级马里奥银河大电影》《挽救计划》超长续航的票房表现也提醒行业：老片长线续航能力对整体影市健康至关重要。
+
+” 本周末票房前十影片中，有七部为上映多周的老片。
 
 ## 相关推荐
 
-- 2026-06-30 02:34 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 02:16 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 02:16 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 02:32 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 02:16 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 02:41 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 02:30 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 02:19 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 02:41 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 02:41 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 02:18 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 02:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 02:37 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 02:37 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 02:45 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 02:21 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 02:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 02:32 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 02:44 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 02:27 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 02:46 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 02:32 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 02:41 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 02:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 02:37 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:29 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/034425691930.shtml)
-- 2026-06-30 02:19 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/98974544.shtml)
-- 2026-06-30 02:24 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/111175926634.shtml)
-- 2026-06-30 02:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/08110.shtml)
-- 2026-06-30 02:24 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/54094104395.shtml)
-- 2026-06-30 02:16 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/505308489.shtml)
-- 2026-06-30 02:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/310977913738.shtml)
-- 2026-06-30 02:32 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/5964039748.shtml)
-- 2026-06-30 02:39 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/98387522114.shtml)
-- 2026-06-30 02:36 - [绘画区你赢了](https://www.share.minike.top/Article/details/74319100.shtml)
-- 2026-06-30 02:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/888785398539.shtml)
-- 2026-06-30 02:17 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/054290.shtml)
-- 2026-06-30 02:20 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/8840268.shtml)
-- 2026-06-30 02:19 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/783368.shtml)
-- 2026-06-30 02:34 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/91602809.shtml)
+- 2026-06-30 02:27 - [天道](https://www.share.minike.top/Article/details/77359662.shtml)
+- 2026-06-30 02:21 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/82467188920.shtml)
+- 2026-06-30 02:26 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/35056445710.shtml)
+- 2026-06-30 02:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/01351.shtml)
+- 2026-06-30 02:31 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/533338.shtml)
+- 2026-06-30 02:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/017366346448.shtml)
+- 2026-06-30 02:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/577955313.shtml)
+- 2026-06-30 02:28 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/2888260741.shtml)
+- 2026-06-30 02:30 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/330391778085.shtml)
+- 2026-06-30 02:27 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/81018735926.shtml)
+- 2026-06-30 02:30 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/60283.shtml)
+- 2026-06-30 02:37 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/15650717437.shtml)
+- 2026-06-30 02:32 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/48446466963.shtml)
+- 2026-06-30 02:30 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/578573482.shtml)
+- 2026-06-30 02:49 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/810616153.shtml)

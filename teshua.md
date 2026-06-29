@@ -1,57 +1,57 @@
-# 中国铁路“五一”假期运输收官 多项指标创历史新高
+# 零跑汽车午前涨超4% 机构预计公司2026年销量102万辆
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-中新社北京5月7日电 (记者 刘文文)记者7日从中国国家铁路集团有限公司(下称“国铁集团”)获悉，4月29日至5月6日铁路“五一”假期运输期间，全国铁路累计发送旅客1.59亿人次、同比增长5.2%，其中5月1日发送旅客2484.4万人次，创单日旅客发送量历史新高，国家铁路累计发送货物9350万吨、同比增长4.5%，5月2日装车20.24万车，创国家铁路单日装车历史新高。 国铁集
+零跑汽车（09863）午前涨超4%，截至发稿，股价上涨4.48%，现报49.94港元，成交额3.41亿港元。 5月8日，全球汽车巨头Stellantis宣布与零跑汽车扩大战略合作，零跑的技术架构将首次应用于欧宝品牌全新纯电SUV，双方位于西班牙的工厂将进行联合生产。此次的战略合作还涉及到提升和整合产能、降低成本以及联合采购等方面。2023年10月，Stellantis通过收购零
 
 ## 正文
 
-中新社北京5月7日电 (记者 刘文文)记者7日从中国国家铁路集团有限公司(下称“国铁集团”)获悉，4月29日至5月6日铁路“五一”假期运输期间，全国铁路累计发送旅客1.59亿人次、同比增长5.2%，其中5月1日发送旅客2484.4万人次，创单日旅客发送量历史新高，国家铁路累计发送货物9350万吨、同比增长4.5%，5月2日装车20.24万车，创国家铁路单日装车历史新高。
+零跑汽车（09863）午前涨超4%，截至发稿，股价上涨4.48%，现报49.94港元，成交额3.41亿港元。
 
-国铁集团运输部负责人介绍，今年“五一”假期旅游、探亲、休闲等出行需求旺盛，铁路客流保持高位运行，铁路部门统筹用好线路和装备资源，发挥高铁成网运营优势，日均开行旅客列车13525列、同比增长5.7%，其中5月5日安排开行14576列，创单日运力投放历史新高。
+5月8日，全球汽车巨头Stellantis宣布与零跑汽车扩大战略合作，零跑的技术架构将首次应用于欧宝品牌全新纯电SUV，双方位于西班牙的工厂将进行联合生产。
 
-假日期间，铁路部门着力打造“铁路＋”消费新场景，积极服务“苏超”“赣超”“楚超”等赛事及演唱会、展览展会，定制化开行“球迷专列”“歌迷专列”，助力赛事、演艺、展会经济发展。
+此次的战略合作还涉及到提升和整合产能、降低成本以及联合采购等方面。
 
-在组织跨境旅客运输方面，广深港高铁发送跨境旅客89.9万人次、同比增长6.3%，中老铁路发送跨境旅客0.9万人次、同比增长20.9%。
+2023年10月，Stellantis通过收购零跑汽车约21%的股份，成为其单一最大股东。
 
-此外，铁路部门开好中蒙、中俄、中越、中朝国际旅客列车，为旅客跨境旅游、购物提供便利。
+Stellantis在双方合资的“零跑国际”持股51%，并拥有在大中华区以外市场独家销售和制造零跑产品的权利。
 
-(完)
+华创证券近期指出，公司今年新车周期强劲，3月上市小型SUVA10、4月上市大型SUVD19，并规划6-7月上市A05及首款MPVD99。
+
+其中新车型A10、D19产品力强、定价超预期、上市后热度高，延续零跑高性价比的产品策略。
+
+随新车型上市，公司产品矩阵将进一步完善，为后续销量增长提供强劲支撑。
 
 ## 相关推荐
 
-- 2026-06-30 02:36 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 02:22 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 02:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 02:15 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 02:12 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 02:24 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 02:17 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 02:34 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 02:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 02:37 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 02:22 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 02:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 02:39 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 02:31 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 02:21 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 02:19 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 02:42 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 02:23 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 02:30 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 02:26 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 02:43 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 02:35 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 02:30 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 02:25 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 02:34 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 02:44 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:38 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/115452.shtml)
-- 2026-06-30 02:29 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/667799.shtml)
-- 2026-06-30 02:12 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/227494439.shtml)
-- 2026-06-30 02:20 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/47950785301.shtml)
-- 2026-06-30 02:34 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/8078388313.shtml)
-- 2026-06-30 02:35 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/054237503146.shtml)
-- 2026-06-30 02:41 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/980503978744.shtml)
-- 2026-06-30 02:22 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/467498857.shtml)
-- 2026-06-30 02:28 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/6978045.shtml)
-- 2026-06-30 02:25 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/066671.shtml)
-- 2026-06-30 02:22 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/65568.shtml)
-- 2026-06-30 02:25 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/74885.shtml)
-- 2026-06-30 02:13 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/57063363809.shtml)
-- 2026-06-30 02:24 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/239351.shtml)
-- 2026-06-30 02:21 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/186852093.shtml)
+- 2026-06-30 02:44 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/5037258854.shtml)
+- 2026-06-30 02:27 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/842821237192.shtml)
+- 2026-06-30 02:24 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/914327883378.shtml)
+- 2026-06-30 02:40 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/43880434.shtml)
+- 2026-06-30 02:34 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/2114157.shtml)
+- 2026-06-30 02:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/757879785.shtml)
+- 2026-06-30 02:34 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/66260962.shtml)
+- 2026-06-30 02:34 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/74508.shtml)
+- 2026-06-30 02:31 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/17103369587.shtml)
+- 2026-06-30 02:31 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/72993695.shtml)
+- 2026-06-30 02:32 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/6955657322.shtml)
+- 2026-06-30 02:42 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/8587636318.shtml)
+- 2026-06-30 02:24 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/79560462076.shtml)
+- 2026-06-30 02:19 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/361890.shtml)
+- 2026-06-30 02:46 - [天道](http://www.blog.minike.top/Article/details/47999101.shtml)

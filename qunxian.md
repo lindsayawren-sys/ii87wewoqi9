@@ -1,47 +1,47 @@
-# 5月起存款新规生效：10万存3年自动转存 利息少拿4200元
+# 高盛亚太区FICC联席主管Houghton将退休 Imatsu将成该部门唯一负责人
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-来源：经视频客户端 今年5月起，事关每一位储户钱袋子的重磅新规，《个人存款计结息规则统一规范》，正式进入全国常态化严格执行阶段。全国所有商业银行的个人定期存款业务，迎来了大调整，两大核心变化，直接影响你的利息收益。责任编辑：李琳琳
+高盛集团驻香港的亚太区固定收益、外汇和大宗商品（FICC）联席主管James Houghton将于6月底退休，结束其在高盛长达24年的职业生涯。 该备忘录已获高盛发言人确认 发言人：目前与Houghton共同担任亚太区FICC联席主管的Hidehiro Imatsu将成为唯一负责人，并继续担任高盛日本总裁和全球利率产品交易联席主管 Houghton是亚太区管理委员会成员，并于2
 
 ## 正文
 
-来源：经视频客户端 今年5月起，事关每一位储户钱袋子的重磅新规，《个人存款计结息规则统一规范》，正式进入全国常态化严格执行阶段。
+高盛集团驻香港的亚太区固定收益、外汇和大宗商品（FICC）联席主管James Houghton将于6月底退休，结束其在高盛长达24年的职业生涯。
 
-全国所有商业银行的个人定期存款业务，迎来了大调整，两大核心变化，直接影响你的利息收益。
-
-责任编辑：李琳琳
+该备忘录已获高盛发言人确认 发言人：目前与Houghton共同担任亚太区FICC联席主管的Hidehiro Imatsu将成为唯一负责人，并继续担任高盛日本总裁和全球利率产品交易联席主管 Houghton是亚太区管理委员会成员，并于2008年被任命为合伙人责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-30 02:39 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 02:20 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 02:30 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 02:13 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 02:20 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 02:38 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 02:25 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 02:38 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 02:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 02:25 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 02:33 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 02:45 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 02:32 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 02:21 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 02:39 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 02:46 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 02:44 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 02:47 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 02:30 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 02:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 02:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 02:20 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 02:27 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 02:46 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:25 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/004025472.shtml)
-- 2026-06-30 02:25 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/15710348049.shtml)
-- 2026-06-30 02:15 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/828663852236.shtml)
-- 2026-06-30 02:18 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/201018334.shtml)
-- 2026-06-30 02:40 - [巴西扳平比分](https://www.share.minike.top/Article/details/438231325.shtml)
-- 2026-06-30 02:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/681506852487.shtml)
-- 2026-06-30 02:30 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/968305.shtml)
-- 2026-06-30 02:26 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/8799201539.shtml)
-- 2026-06-30 02:39 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/1196722.shtml)
-- 2026-06-30 02:26 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/679229555.shtml)
-- 2026-06-30 02:20 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/60542110013.shtml)
-- 2026-06-30 02:20 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/5616160135.shtml)
-- 2026-06-30 02:27 - [爱很美味](https://www.share.kurohicncr.top/Article/details/533725039.shtml)
-- 2026-06-30 02:18 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/53999171.shtml)
-- 2026-06-30 02:17 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/38049678.shtml)
+- 2026-06-30 02:38 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/6954905727.shtml)
+- 2026-06-30 02:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/87770516.shtml)
+- 2026-06-30 02:39 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/38679941.shtml)
+- 2026-06-30 02:20 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/389469339.shtml)
+- 2026-06-30 02:35 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/0958698213.shtml)
+- 2026-06-30 02:26 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/156155648.shtml)
+- 2026-06-30 02:27 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/8865941150.shtml)
+- 2026-06-30 02:37 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/40357.shtml)
+- 2026-06-30 02:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/43402711.shtml)
+- 2026-06-30 02:19 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/505444842.shtml)
+- 2026-06-30 02:22 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/3609941980.shtml)
+- 2026-06-30 02:26 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/265589351342.shtml)
+- 2026-06-30 02:25 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/15690784.shtml)
+- 2026-06-30 02:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/329601.shtml)
+- 2026-06-30 02:30 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/75745.shtml)

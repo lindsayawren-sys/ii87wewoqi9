@@ -1,59 +1,42 @@
-# 一季度金矿公司狂赚280亿，股价为啥涨不动了？
+# 央行发布今年一季度中国货币政策执行报告
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-中新经纬5月8日电 (李自曼)近期，A股金矿上市公司交出2026年一季度成绩单。数据显示，10家金矿上市公司一季度全部实现营业收入正增长，其中多家净利润同比翻倍。 Wind数据显示，在一季报密集发布期间，多家金矿公司股价相继跌破20日均线，部分公司股价较年初高点接近腰斩。为何这些公司的业绩高歌猛进，股价却涨不动了？ 多家金矿公司一季度盈利翻倍 中新经纬据财报统计，10家金矿公司
+发布时间：2026年05月12日 09:46 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新经纬5月8日电 (李自曼)近期，A股金矿上市公司交出2026年一季度成绩单。
-
-数据显示，10家金矿上市公司一季度全部实现营业收入正增长，其中多家净利润同比翻倍。
-
-Wind数据显示，在一季报密集发布期间，多家金矿公司股价相继跌破20日均线，部分公司股价较年初高点接近腰斩。
-
-为何这些公司的业绩高歌猛进，股价却涨不动了？
-
-多家金矿公司一季度盈利翻倍 中新经纬据财报统计，10家金矿公司一季度全部实现盈利，合计营业收入约2235.36亿元，同比增长39.04%；合计归母净利润约280.41亿元，同比增长99.91%。
-
-财报显示，紫金矿业一季度营收984.98亿元，归母净利润200.79亿元，同比增长97.5%，单季盈利首次突破200亿元。
-
-紫金矿业在财报中指出，与上年同期相比，该公司一季度核心财务指标大幅增长的原因之一是主营金属品种价格同比上涨，价格红利充分释放，推动经营业绩显著提升。
-
-紫金矿业财报显示，金锭销售均价从去年同期的661.83元/克跃升至1089.04元/克，金锭毛利率为69.60%，金精矿销售均价从去年同期的617.19元/克跃升至1010.55元/克，毛利率达到80.89%。
+发布时间：2026年05月12日 09:46 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 02:32 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 02:30 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 02:14 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 02:12 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 02:35 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 02:31 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 02:13 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 02:20 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 02:22 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 02:32 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 02:33 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 02:31 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 02:32 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 02:43 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 02:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 02:48 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 02:22 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 02:23 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 02:41 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 02:24 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 02:46 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 02:43 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 02:39 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:19 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/288752056575.shtml)
-- 2026-06-30 02:20 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/52737297.shtml)
-- 2026-06-30 02:23 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/165582.shtml)
-- 2026-06-30 02:31 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/8585621015.shtml)
-- 2026-06-30 02:18 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/6800413118.shtml)
-- 2026-06-30 02:28 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/50908812.shtml)
-- 2026-06-30 02:35 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/5774598.shtml)
-- 2026-06-30 02:12 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/4976756.shtml)
-- 2026-06-30 02:30 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/8147832452.shtml)
-- 2026-06-30 02:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/794372.shtml)
-- 2026-06-30 02:28 - [美股](https://www.blog.minike.top/Article/details/9917107.shtml)
-- 2026-06-30 02:18 - [小娘惹](http://www.blog.minike.top/Article/details/927454611270.shtml)
-- 2026-06-30 02:34 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/7881427252.shtml)
-- 2026-06-30 02:28 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/1500653869.shtml)
-- 2026-06-30 02:35 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/6936454.shtml)
+- 2026-06-30 02:42 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/059292.shtml)
+- 2026-06-30 02:46 - [扬名立万](https://www.share.kurohicncr.top/Article/details/593334530794.shtml)
+- 2026-06-30 02:36 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/9797932.shtml)
+- 2026-06-30 02:19 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/71469472.shtml)
+- 2026-06-30 02:45 - [扬名立万](http://www.blog.minike.top/Article/details/30576.shtml)
+- 2026-06-30 02:37 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/312046.shtml)
+- 2026-06-30 02:40 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/51837101.shtml)
+- 2026-06-30 02:20 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/95043887568.shtml)
+- 2026-06-30 02:33 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/867182.shtml)
+- 2026-06-30 02:39 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/0535745.shtml)
+- 2026-06-30 02:36 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/193072.shtml)
+- 2026-06-30 02:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/469471441.shtml)
+- 2026-06-30 02:23 - [乔家的儿女](http://www.share.minike.top/Article/details/301045698351.shtml)
+- 2026-06-30 02:44 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/1268875.shtml)
+- 2026-06-30 02:29 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/7681292377.shtml)

@@ -1,56 +1,53 @@
-# 黄金交易提醒：美军再度袭击伊朗！金价冲高回落，多空将迎非农决战！
+# 外交部：中方将继续为停火止战、劝和促谈发挥积极作用
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-来源：汇通财经 汇通财经APP讯——受美伊局势反复影响，现货黄金周四（5月7日）上演冲高回落行情。早间因停火预期一度上涨1.5%至4764美元，随后伊朗拒绝重开霍尔木兹海峡及美军实施报复性打击的消息扭转市场情绪，金价回吐全部涨幅，收于4687美元，录得带上引线的十字星。美元同步走强，也对金价形成压制。周五（5月8日）亚市早盘，现货黄金窄幅震荡，目前交投于4698美元/盎司附近，
+5月11日，外交部发言人郭嘉昆主持例行记者会。有记者针对伊朗局势提问。 郭嘉昆表示，关于伊朗局势，中方的立场是一贯的，将继续为停火止战、劝和促谈发挥积极作用。 （总台央视记者 张雪松 赵晶 ） 责任编辑：刘万里 SF014
 
 ## 正文
 
-来源：汇通财经 汇通财经APP讯——受美伊局势反复影响，现货黄金周四（5月7日）上演冲高回落行情。
+5月11日，外交部发言人郭嘉昆主持例行记者会。
 
-早间因停火预期一度上涨1.5%至4764美元，随后伊朗拒绝重开霍尔木兹海峡及美军实施报复性打击的消息扭转市场情绪，金价回吐全部涨幅，收于4687美元，录得带上引线的十字星。
+有记者针对伊朗局势提问。
 
-美元同步走强，也对金价形成压制。
+郭嘉昆表示，关于伊朗局势，中方的立场是一贯的，将继续为停火止战、劝和促谈发挥积极作用。
 
-周五（5月8日）亚市早盘，现货黄金窄幅震荡，目前交投于4698美元/盎司附近，市场正屏息等待非农就业报告指引方向。
-
-和平曙光初现，金价应声冲高 周四的亚洲交易时段，现货黄金展现出了久违的强势。
-
-市场一度沉浸在地缘政治风险有望缓和的乐观情绪之中。
-
-媒体爆料称，美国与伊朗正朝着达成一项暂停战争的临时协议迈进，德黑兰方面正在审议一份旨在停止战斗、搁置最具争议问题的提案。
-
-这一消息如同给焦灼的市场注入了一剂强心针，投资者对长期通胀以及利率维持高位的担忧情绪得到了显著缓解。
+（总台央视记者 张雪松 赵晶 ） 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 02:23 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 02:20 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 02:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 02:39 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 02:38 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 02:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 02:22 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 02:35 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 02:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 02:12 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 02:30 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-30 02:34 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 02:46 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 02:25 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 02:26 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 02:32 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 02:28 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 02:33 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 02:43 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 02:44 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 02:21 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 02:32 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 02:32 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 02:25 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 02:28 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/5363002669.shtml)
-- 2026-06-30 02:36 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/46012939.shtml)
-- 2026-06-30 02:40 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/681413.shtml)
-- 2026-06-30 02:29 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/46158255306.shtml)
-- 2026-06-30 02:24 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/15699192.shtml)
-- 2026-06-30 02:22 - [巴西vs日本](http://www.blog.minike.top/Article/details/1906495.shtml)
-- 2026-06-30 02:29 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/236380453.shtml)
-- 2026-06-30 02:30 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/2241228913.shtml)
-- 2026-06-30 02:24 - [恋与深空 巧合](http://www.share.minike.top/Article/details/91701514259.shtml)
-- 2026-06-30 02:23 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/075217919392.shtml)
-- 2026-06-30 02:14 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/88331691914.shtml)
-- 2026-06-30 02:37 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/25367247.shtml)
-- 2026-06-30 02:35 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/702355464227.shtml)
-- 2026-06-30 02:34 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/771803589887.shtml)
-- 2026-06-30 02:25 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/5505540239.shtml)
+- 2026-06-30 02:34 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/8303990668.shtml)
+- 2026-06-30 02:47 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/9089634058.shtml)
+- 2026-06-30 02:31 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/40104.shtml)
+- 2026-06-30 02:44 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/1917047.shtml)
+- 2026-06-30 02:36 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/27567.shtml)
+- 2026-06-30 02:22 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/879054151926.shtml)
+- 2026-06-30 02:25 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/9367915914.shtml)
+- 2026-06-30 02:40 - [我们的少年时代2](https://www.blog.minike.top/Article/details/1512146464.shtml)
+- 2026-06-30 02:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/21266349.shtml)
+- 2026-06-30 02:21 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/31819487749.shtml)
+- 2026-06-30 02:43 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/594892962236.shtml)
+- 2026-06-30 02:45 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/3244314422.shtml)
+- 2026-06-30 02:32 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/558251.shtml)
+- 2026-06-30 02:36 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/473654846425.shtml)
+- 2026-06-30 02:49 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/489294100.shtml)

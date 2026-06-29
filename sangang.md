@@ -1,59 +1,57 @@
-# 豪华邮轮毒株时间线及更多细节公布！汉坦病毒尚无特效药，不被老鼠咬也能传播！游轮即将抵达西班牙
+# 美国能源部长提议暂停联邦汽油税
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-文/高晓烜 据世界卫生组织通报，自4月11日以来，曾搭乘“洪迪厄斯”号邮轮的三名乘客已不幸身亡，另有五人出现汉坦病毒感染症状后患病。以下是涉及豪华邮轮“洪迪厄斯”号的汉坦病毒疫情时间线： 4月1日： 荷兰籍极地探险邮轮“洪迪厄斯号”从阿根廷乌斯怀亚启航，计划横跨大西洋前往佛得角。该邮轮共搭载149人，包括88名乘客和61名船员，来自23个不同国家。乘客中，19人来自英国、17人
+美国能源部长克里斯・赖特周日表示，特朗普政府愿意暂停征收联邦汽油税，以缓解美国民众的油价支出压力。 赖特在美国电视节目中，被问及是否临时停征联邦汽油税时回应称：“凡是能够降低加油站油价、为美国民众减负的所有举措，本届政府都予以支持。” 美国汽车协会（AAA）数据显示，截至周日，全美汽油均价为每加仑 4.52 美元。 美国民众每加仑汽油需缴纳联邦税略高于 18 美分，每加仑柴油联
 
 ## 正文
 
-文/高晓烜 据世界卫生组织通报，自4月11日以来，曾搭乘“洪迪厄斯”号邮轮的三名乘客已不幸身亡，另有五人出现汉坦病毒感染症状后患病。
+美国能源部长克里斯・赖特周日表示，特朗普政府愿意暂停征收联邦汽油税，以缓解美国民众的油价支出压力。
 
-以下是涉及豪华邮轮“洪迪厄斯”号的汉坦病毒疫情时间线： 4月1日： 荷兰籍极地探险邮轮“洪迪厄斯号”从阿根廷乌斯怀亚启航，计划横跨大西洋前往佛得角。
+赖特在美国电视节目中，被问及是否临时停征联邦汽油税时回应称：“凡是能够降低加油站油价、为美国民众减负的所有举措，本届政府都予以支持。
 
-该邮轮共搭载149人，包括88名乘客和61名船员，来自23个不同国家。
+” 美国汽车协会（AAA）数据显示，截至周日，全美汽油均价为每加仑 4.52 美元。
 
-乘客中，19人来自英国、17人来自美国、13人来自西班牙、8人来自荷兰。
+美国民众每加仑汽油需缴纳联邦税略高于 18 美分，每加仑柴油联邦税约为 24 美分。
 
-4月6日： 首例患者是一名70岁荷兰男性出现发热、头痛和轻度腹泻症状。
+如果即日起暂停这项税收，汽油均价将降至每加仑 4.34 美元，但仍远高于特朗普总统对伊朗开战前两天、每加仑 2.98 美元的均价水平。
 
-4月11日： 该患者因呼吸困难在船上死亡，从发病到死亡仅约5天。
+此次小幅降价，大概率难以缓解低收入群体的经济压力，而这部分人群受油价飙升冲击最为严重。
 
-他的遗体于4月24日在圣赫勒拿岛被撤离船只。
+这项可能实施的汽油税免征期持续时长，将对公路信托基金产生重大影响；该基金主要依靠这项税收，为全美各地的道路建设与养护提供资金。
 
-4月24日： 其69岁妻子在圣赫勒拿岛下船，当时已出现胃肠道症状；同日，一名英国籍乘客开始出现肺炎症状。
+特朗普曾承诺，高油价只会是短期现象。
 
 ## 相关推荐
 
-- 2026-06-30 02:31 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 02:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 02:32 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 02:40 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 02:34 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 02:38 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 02:34 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 02:24 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 02:39 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-30 02:18 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 02:34 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-30 02:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 02:40 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 02:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 02:43 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 02:35 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 02:26 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 02:34 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 02:35 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 02:48 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 02:28 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 02:22 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 02:32 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 02:45 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:22 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/807042416.shtml)
-- 2026-06-30 02:38 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/75297801.shtml)
-- 2026-06-30 02:23 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/5655694769.shtml)
-- 2026-06-30 02:25 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/9729621864.shtml)
-- 2026-06-30 02:26 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/12793393304.shtml)
-- 2026-06-30 02:37 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/645306934641.shtml)
-- 2026-06-30 02:19 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/272728.shtml)
-- 2026-06-30 02:31 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/930585203578.shtml)
-- 2026-06-30 02:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/48927.shtml)
-- 2026-06-30 02:19 - [金刚川](http://www.blog.kurohicncr.top/Article/details/715850996305.shtml)
-- 2026-06-30 02:29 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/179964733.shtml)
-- 2026-06-30 02:31 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/1340982197.shtml)
-- 2026-06-30 02:30 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/974391.shtml)
-- 2026-06-30 02:14 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/185433.shtml)
-- 2026-06-30 02:22 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/477434266.shtml)
+- 2026-06-30 02:43 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/203548.shtml)
+- 2026-06-30 02:43 - [啊啊啊](https://www.blog.minike.top/Article/details/54690522687.shtml)
+- 2026-06-30 02:44 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/17530895.shtml)
+- 2026-06-30 02:30 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/40236.shtml)
+- 2026-06-30 02:20 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/203505.shtml)
+- 2026-06-30 02:31 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/054632.shtml)
+- 2026-06-30 02:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/92033095239.shtml)
+- 2026-06-30 02:41 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/16164407.shtml)
+- 2026-06-30 02:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/7143048.shtml)
+- 2026-06-30 02:42 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/26623.shtml)
+- 2026-06-30 02:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/139123155.shtml)
+- 2026-06-30 02:38 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/642751511130.shtml)
+- 2026-06-30 02:42 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/83660.shtml)
+- 2026-06-30 02:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/264979.shtml)
+- 2026-06-30 02:49 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/33466714419.shtml)

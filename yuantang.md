@@ -1,58 +1,51 @@
-# 又一“最难”开门红：1/3寿险公司净资产负增长
+# 台湾学者郭冠英：两岸要和平统一，台湾应该“零军购”
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-来源：今日保 根据已披露偿付能力报告的72家公司数据看，2026Q1净利润合计684.71亿元，较2025Q1的867.04亿元减少182.33亿元，降幅约21.03%。 事实上，行业对一季度人身险公司的经营业绩，已有所准备。在上市公司披露一季度数据之前，即有券商研报表示，上市险企一季度的净利润，降幅或达20%左右。 后来披露的五大上市险企数据，证明了这一点。 五家合计归母净利
+发布时间：2026年05月12日 19:44 来源：中国新闻网 “在台湾，如果有人要搞‘台独’，照道理说，台湾军队都应该对付他们。” 12日，第七届两岸媒体人峰会在北京举行，受邀出席的台湾学者郭冠英接受中新网“燕新台”工作室专访时表示，台湾应该“零军购”，因为只要我们坚持和平统一，两岸就不会有战争。 责任编辑：【吉翔】
 
 ## 正文
 
-来源：今日保 根据已披露偿付能力报告的72家公司数据看，2026Q1净利润合计684.71亿元，较2025Q1的867.04亿元减少182.33亿元，降幅约21.03%。
+发布时间：2026年05月12日 19:44 来源：中国新闻网 “在台湾，如果有人要搞‘台独’，照道理说，台湾军队都应该对付他们。
 
-事实上，行业对一季度人身险公司的经营业绩，已有所准备。
+” 12日，第七届两岸媒体人峰会在北京举行，受邀出席的台湾学者郭冠英接受中新网“燕新台”工作室专访时表示，台湾应该“零军购”，因为只要我们坚持和平统一，两岸就不会有战争。
 
-在上市公司披露一季度数据之前，即有券商研报表示，上市险企一季度的净利润，降幅或达20%左右。
-
-后来披露的五大上市险企数据，证明了这一点。
-
-五家合计归母净利润698.83亿元，同比下滑16.99%。
-
-头部险企尚如此，更遑论一众中小公司？
-
-如此，这样的降幅，早已被市场所消化。
-
-回到人身险市场。
+责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-30 02:22 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 02:33 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 02:25 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 02:30 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 02:32 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 02:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 02:33 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 02:15 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 02:32 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-30 02:30 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 02:37 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 02:15 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 02:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 02:25 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 02:27 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 02:25 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 02:47 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 02:42 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 02:45 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 02:30 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 02:49 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 02:35 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 02:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 02:35 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 02:49 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 02:41 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 02:39 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/9272800078.shtml)
-- 2026-06-30 02:32 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/8264643671.shtml)
-- 2026-06-30 02:38 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/088143009.shtml)
-- 2026-06-30 02:41 - [沙丘](http://www.blog.kurohicncr.top/Article/details/9145278.shtml)
-- 2026-06-30 02:29 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/05295.shtml)
-- 2026-06-30 02:14 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/1806157.shtml)
-- 2026-06-30 02:14 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/678740606391.shtml)
-- 2026-06-30 02:30 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/66363.shtml)
-- 2026-06-30 02:39 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/851071841.shtml)
-- 2026-06-30 02:31 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/38533.shtml)
-- 2026-06-30 02:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/247598.shtml)
-- 2026-06-30 02:29 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/76701712003.shtml)
-- 2026-06-30 02:25 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/5826452.shtml)
-- 2026-06-30 02:14 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/542856006.shtml)
-- 2026-06-30 02:40 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/209590811709.shtml)
+- 2026-06-30 02:49 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/828036.shtml)
+- 2026-06-30 02:39 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/71445086501.shtml)
+- 2026-06-30 02:22 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/31124582272.shtml)
+- 2026-06-30 02:22 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/70995359.shtml)
+- 2026-06-30 02:47 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/723735116528.shtml)
+- 2026-06-30 02:42 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/6825361.shtml)
+- 2026-06-30 02:39 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/060887.shtml)
+- 2026-06-30 02:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/126761995.shtml)
+- 2026-06-30 02:36 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/473462459.shtml)
+- 2026-06-30 02:46 - [张凌赫 客串](http://www.blog.minike.top/Article/details/29855715.shtml)
+- 2026-06-30 02:20 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/241553355706.shtml)
+- 2026-06-30 02:21 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/078524.shtml)
+- 2026-06-30 02:28 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/62032.shtml)
+- 2026-06-30 02:43 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/5023230.shtml)
+- 2026-06-30 02:46 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/82382.shtml)

@@ -1,47 +1,57 @@
-# 台风“黑格比”将向西偏北方向移动 未来对我国海区无影响
+# 超91万手封单！千亿市值巨头，5连板
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-中国天气网讯 据中央气象台消息，今年第5号台风“黑格比”(热带风暴级)的中心今天(5月8日)下午5点钟位于菲律宾马尼拉东偏南方向约2050公里的洋面上，就是北纬8.9度、东经138.9度，中心附近最大风力有8级(20米/秒)，中心最低气压为995百帕，七级风圈半径为160-280公里。 预计，“黑格比”将以每小时15-20公里的速度向西偏北方向移动，12日在菲律宾以东洋面转向偏
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月12日，A股主要指数调整，截至午间收盘，上证指数跌0.4%，深证成指跌0.89%，创业板指跌0.37%。沪深京三市成交21895亿元。 盘面上，电力股持续走高，千亿市值大唐发电（601991）走出5连板。昨日涨停的桂冠电力今日涨超6%。光纤概念高开高走，
 
 ## 正文
 
-中国天气网讯 据中央气象台消息，今年第5号台风“黑格比”(热带风暴级)的中心今天(5月8日)下午5点钟位于菲律宾马尼拉东偏南方向约2050公里的洋面上，就是北纬8.9度、东经138.9度，中心附近最大风力有8级(20米/秒)，中心最低气压为995百帕，七级风圈半径为160-280公里。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-预计，“黑格比”将以每小时15-20公里的速度向西偏北方向移动，12日在菲律宾以东洋面转向偏北方向移动，并逐渐减弱消散。
+5月12日，A股主要指数调整，截至午间收盘，上证指数跌0.4%，深证成指跌0.89%，创业板指跌0.37%。
 
-“黑格比”未来对我国海区无影响。
+沪深京三市成交21895亿元。
+
+盘面上，电力股持续走高，千亿市值大唐发电（601991）走出5连板。
+
+昨日涨停的桂冠电力今日涨超6%。
+
+光纤概念高开高走，通光线缆、吴通控股以20%幅度涨停。
+
+（详见“大唐双龙”联袂涨停） 超91万手封单 大唐发电5连板 5月12日，A股电力板块多只个股走高，韶能股份盘初直线涨停，大连热电、晋控电力等涨停。
+
+大唐发电涨停，已实现5连板，截至午间休市有超过91万手买单封板。
 
 ## 相关推荐
 
-- 2026-06-30 02:37 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 02:16 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 02:26 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 02:27 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 02:16 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 02:25 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 02:19 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 02:19 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-30 02:25 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 02:24 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-30 02:38 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 02:38 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 02:32 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 02:20 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 02:21 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 02:44 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 02:38 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 02:42 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 02:48 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 02:49 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 02:40 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 02:33 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:37 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/757270.shtml)
-- 2026-06-30 02:20 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/682628741690.shtml)
-- 2026-06-30 02:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/89049598.shtml)
-- 2026-06-30 02:26 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/40326394599.shtml)
-- 2026-06-30 02:36 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/3610151287.shtml)
-- 2026-06-30 02:33 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/774081145444.shtml)
-- 2026-06-30 02:12 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/4111037.shtml)
-- 2026-06-30 02:26 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/137699.shtml)
-- 2026-06-30 02:25 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/89413.shtml)
-- 2026-06-30 02:40 - [日本反击率先破门](https://www.blog.minike.top/Article/details/172137.shtml)
-- 2026-06-30 02:26 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/2686254315.shtml)
-- 2026-06-30 02:21 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/67226.shtml)
-- 2026-06-30 02:14 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/8381583029.shtml)
-- 2026-06-30 02:29 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/2803361.shtml)
-- 2026-06-30 02:39 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/36657.shtml)
+- 2026-06-30 02:31 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/1894224902.shtml)
+- 2026-06-30 02:43 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/921114106280.shtml)
+- 2026-06-30 02:37 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/63028.shtml)
+- 2026-06-30 02:33 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/8707752.shtml)
+- 2026-06-30 02:37 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/3865118.shtml)
+- 2026-06-30 02:44 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/7268737.shtml)
+- 2026-06-30 02:39 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/236304.shtml)
+- 2026-06-30 02:48 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/558016811625.shtml)
+- 2026-06-30 02:21 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/18786648419.shtml)
+- 2026-06-30 02:35 - [一生一世](http://www.share.kurohicncr.top/Article/details/160967835425.shtml)
+- 2026-06-30 02:44 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/971836.shtml)
+- 2026-06-30 02:46 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/1633216124.shtml)
+- 2026-06-30 02:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/1389168.shtml)
+- 2026-06-30 02:26 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/227154060562.shtml)
+- 2026-06-30 02:34 - [第一炉香](http://www.share.kurohicncr.top/Article/details/735956.shtml)

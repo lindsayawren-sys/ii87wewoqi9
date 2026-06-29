@@ -1,53 +1,60 @@
-# 中国同江水运口岸开通至俄罗斯明水期客货运输
+# 恶意退款退货，不能仅靠“较真”解决
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-中新社黑龙江佳木斯5月8日电 (记者 姜辉)中国同江水运口岸东部作业区码头，载着6辆货车、1辆客车及80名旅客的“龙渡004”滚装船8日驶离泊位，驶向俄罗斯下列宁斯阔耶港，拉开同江口岸2026年明水期客货运输序幕。 8日9时许，同江水运口岸东部作业区联检大厅里，旅客们秩序井然地排队办理通关手续，之后乘坐“龙渡004”滚装船去往俄罗斯下列宁斯阔耶港。此次从同江出境的“龙渡004”
+近日，河南榴莲卖家程先生因190元订单驱车1600公里跨省维权，引发舆论关注。买家收货后以“发霉”为由骗取平台“仅退款”，程先生比对照片发现证据造假，遂自费千里赴山东取证，最终证实买家恶意欺诈。 当“仅退款”被滥用，当“无理由”变成“无底线”，本为保障消费者权益而设立的服务规则为何会成为一些人“薅羊毛”的捷径？《新闻1+1》本期节目，连线北京工商大学法学院的吕来明教授，带来分析
 
 ## 正文
 
-中新社黑龙江佳木斯5月8日电 (记者 姜辉)中国同江水运口岸东部作业区码头，载着6辆货车、1辆客车及80名旅客的“龙渡004”滚装船8日驶离泊位，驶向俄罗斯下列宁斯阔耶港，拉开同江口岸2026年明水期客货运输序幕。
+近日，河南榴莲卖家程先生因190元订单驱车1600公里跨省维权，引发舆论关注。
 
-8日9时许，同江水运口岸东部作业区联检大厅里，旅客们秩序井然地排队办理通关手续，之后乘坐“龙渡004”滚装船去往俄罗斯下列宁斯阔耶港。
+买家收货后以“发霉”为由骗取平台“仅退款”，程先生比对照片发现证据造假，遂自费千里赴山东取证，最终证实买家恶意欺诈。
 
-此次从同江出境的“龙渡004”滚装船最多可搭载130名旅客，载重量可达390吨。
+当“仅退款”被滥用，当“无理由”变成“无底线”，本为保障消费者权益而设立的服务规则为何会成为一些人“薅羊毛”的捷径？
 
-同江口岸是黑龙江省对俄罗斯唯一的水路、公路、铁路“三路并进”国际口岸，可以实现一年四季通关。
+《新闻1+1》本期节目，连线北京工商大学法学院的吕来明教授，带来分析解读。
 
-同江水运口岸东部作业区与俄罗斯下列宁斯阔耶口岸仅一江之隔，水上最近距离1公里，年过客能力达50万人次，年过货能力达60万吨。
+怎么看待商家“较真”维权？
 
-(完)
+从事发到现在，半个月过去了，商家程先生已经等到了希望的结果，平台退回了他的货款，恶意的买家也被刑拘。
+
+有人支持商家“较真”维权，有人认为这么做不值当，这件事情以后怎么办？
+
+营商环境如何变得更清晰、公平？
 
 ## 相关推荐
 
-- 2026-06-30 02:25 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 02:36 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 02:29 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-30 02:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 02:13 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 02:23 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 02:19 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 02:27 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 02:21 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 02:17 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 02:37 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 02:30 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 02:38 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 02:40 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 02:28 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 02:29 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 02:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-30 02:47 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 02:39 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 02:43 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 02:46 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 02:31 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 02:36 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 02:40 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 02:41 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/00025713512.shtml)
-- 2026-06-30 02:29 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/006890084058.shtml)
-- 2026-06-30 02:27 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/50454552090.shtml)
-- 2026-06-30 02:37 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/161461.shtml)
-- 2026-06-30 02:26 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/760992.shtml)
-- 2026-06-30 02:38 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/480467976210.shtml)
-- 2026-06-30 02:14 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/12129.shtml)
-- 2026-06-30 02:26 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/44203014464.shtml)
-- 2026-06-30 02:28 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/235013040.shtml)
-- 2026-06-30 02:31 - [时光音乐会](http://www.share.minike.top/Article/details/966365829.shtml)
-- 2026-06-30 02:31 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/7984745.shtml)
-- 2026-06-30 02:15 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/75016.shtml)
-- 2026-06-30 02:35 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/75647.shtml)
-- 2026-06-30 02:24 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/6858124.shtml)
-- 2026-06-30 02:23 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/13174.shtml)
+- 2026-06-30 02:27 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/0899399897.shtml)
+- 2026-06-30 02:37 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/51485095739.shtml)
+- 2026-06-30 02:26 - [我们的少年时代2](http://www.blog.minike.top/Article/details/6232283.shtml)
+- 2026-06-30 02:22 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/534942.shtml)
+- 2026-06-30 02:29 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/51743.shtml)
+- 2026-06-30 02:32 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/14604693288.shtml)
+- 2026-06-30 02:35 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/012222545496.shtml)
+- 2026-06-30 02:24 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/25674768.shtml)
+- 2026-06-30 02:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/27227271391.shtml)
+- 2026-06-30 02:24 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/624548124997.shtml)
+- 2026-06-30 02:30 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/53605.shtml)
+- 2026-06-30 02:36 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/816874210505.shtml)
+- 2026-06-30 02:21 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/732166.shtml)
+- 2026-06-30 02:34 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/627452885936.shtml)
+- 2026-06-30 02:38 - [天道](http://www.share.kurohicncr.top/Article/details/90714231.shtml)

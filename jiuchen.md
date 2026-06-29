@@ -1,56 +1,45 @@
-# 新华社权威快报|中办、国办印发《美丽中国建设成效考核办法》
+# 北京：新增数据出境负面清单 适用范围扩至全市
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-中共中央办公厅、国务院办公厅近日印发《美丽中国建设成效考核办法》。 考核办法适用于对各省(自治区、直辖市)党委和政府美丽中国建设成效的考核。 考核办法精准设置五个方面考核内容。一是美丽中国建设责任落实情况。二是美丽中国建设年度主要目标完成情况。三是美丽中国建设年度重点任务完成情况。四是资金使用绩效情况。五是群众满意程度。 在强化考核结果运用上，文件明确提出，考核结果作为省(自治
+发布时间：2026年05月12日 09:11 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中共中央办公厅、国务院办公厅近日印发《美丽中国建设成效考核办法》。
-
-考核办法适用于对各省(自治区、直辖市)党委和政府美丽中国建设成效的考核。
-
-考核办法精准设置五个方面考核内容。
-
-一是美丽中国建设责任落实情况。
-
-二是美丽中国建设年度主要目标完成情况。
-
-三是美丽中国建设年度重点任务完成情况。
-
-四是资金使用绩效情况。
-
-五是群众满意程度。
+发布时间：2026年05月12日 09:11 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 02:28 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 02:41 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 02:24 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 02:12 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 02:37 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 02:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 02:37 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 02:21 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 02:21 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 02:33 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 02:23 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 02:26 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 02:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 02:45 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 02:26 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 02:39 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 02:20 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 02:40 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 02:45 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 02:25 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 02:26 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 02:29 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 02:28 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:33 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/091816.shtml)
-- 2026-06-30 02:35 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/88381461240.shtml)
-- 2026-06-30 02:17 - [时光音乐会](https://www.blog.minike.top/Article/details/9029149736.shtml)
-- 2026-06-30 02:21 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/68268939.shtml)
-- 2026-06-30 02:39 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/3711771.shtml)
-- 2026-06-30 02:13 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/2980707.shtml)
-- 2026-06-30 02:31 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/24658.shtml)
-- 2026-06-30 02:13 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/96325.shtml)
-- 2026-06-30 02:26 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/839156995.shtml)
-- 2026-06-30 02:28 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/22410977055.shtml)
-- 2026-06-30 02:31 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/10644723.shtml)
-- 2026-06-30 02:30 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/45308342641.shtml)
-- 2026-06-30 02:41 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/92747183.shtml)
-- 2026-06-30 02:24 - [扬名立万](https://www.share.kurohicncr.top/Article/details/317493873970.shtml)
-- 2026-06-30 02:16 - [我和我的家乡](http://www.blog.minike.top/Article/details/109468011311.shtml)
+- 2026-06-30 02:39 - [速度与激情9](https://www.share.minike.top/Article/details/2043375.shtml)
+- 2026-06-30 02:48 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/326086376.shtml)
+- 2026-06-30 02:24 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/771399.shtml)
+- 2026-06-30 02:48 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/54874677.shtml)
+- 2026-06-30 02:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/58266.shtml)
+- 2026-06-30 02:43 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/67703261.shtml)
+- 2026-06-30 02:45 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/86041608689.shtml)
+- 2026-06-30 02:26 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/05430556.shtml)
+- 2026-06-30 02:24 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/2783870.shtml)
+- 2026-06-30 02:26 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/6226903.shtml)
+- 2026-06-30 02:36 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/79015.shtml)
+- 2026-06-30 02:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/4589140.shtml)
+- 2026-06-30 02:21 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/37266.shtml)
+- 2026-06-30 02:21 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/4727592.shtml)
+- 2026-06-30 02:37 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/176666.shtml)

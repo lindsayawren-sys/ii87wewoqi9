@@ -1,60 +1,57 @@
-# 港股互联网右侧连阳，拐点出现？阿里、腾讯一季报将至，AI步入业绩验证节点
+# （经济观察）中国央行最新报告释信号：提升债券市场功能
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-5月8日，港股早盘低开，AI应用方向逆市走强，美图公司盘中涨超14%，迈富时涨超9%，金蝶国际、医脉通、快手-W等跟涨。互联网龙头方面，小米集团-W涨超1%，美团-W跌0.89%，阿里巴巴-W、腾讯控股下跌1%。 港股AI核心工具——港股互联网ETF华宝（513770）早盘低开后企稳向上，场内价格现涨0.23%，冲击日线3连阳。 港股互联网板块一季报密集披露，AI叙事进入业绩验
+中新社北京5月12日电 (陶思阅)中国央行11日发布2026年第一季度中国货币政策执行报告，同时以专栏的形式详解了中央银行与债券市场的关系。中国央行表示，将继续加强债券市场管理，提升债券市场功能。 “银行债券投资与信贷投放一样，是向实体经济融资的重要方式，也是货币创造的重要途径。”中国央行在专栏文章中说。 中国首席经济学家论坛理事长连平观察到，直接融资提速、政府融资快速扩张等，
 
 ## 正文
 
-5月8日，港股早盘低开，AI应用方向逆市走强，美图公司盘中涨超14%，迈富时涨超9%，金蝶国际、医脉通、快手-W等跟涨。
+中新社北京5月12日电 (陶思阅)中国央行11日发布2026年第一季度中国货币政策执行报告，同时以专栏的形式详解了中央银行与债券市场的关系。
 
-互联网龙头方面，小米集团-W涨超1%，美团-W跌0.89%，阿里巴巴-W、腾讯控股下跌1%。
+中国央行表示，将继续加强债券市场管理，提升债券市场功能。
 
-港股AI核心工具——港股互联网ETF华宝（513770）早盘低开后企稳向上，场内价格现涨0.23%，冲击日线3连阳。
+“银行债券投资与信贷投放一样，是向实体经济融资的重要方式，也是货币创造的重要途径。
 
-港股互联网板块一季报密集披露，AI叙事进入业绩验证节点。
+”中国央行在专栏文章中说。
 
-阿里巴巴、腾讯控股将于本月13日同步发布2026年第一季度业绩，市场普遍看好。
+中国首席经济学家论坛理事长连平观察到，直接融资提速、政府融资快速扩张等，是当前中国金融结构变化的重要特征。
 
-其中云业务预期表现强劲，主要得益于三大驱动因素：AI产业化带来的需求释放、新一代AI云产品推出以及部分服务价格调整。
+其中，直接融资以债券融资为核心支撑。
 
-国盛证券认为，阿里巴巴在AI全栈布局上最对标谷歌，一季度云增速有望继续加速，持续验证投入回报；腾讯控股底模能力正在逐步赶上，微信Agent的落地也会让AI投入的变现路径更清晰，看好后续弱AI叙事。
+货币创造方面，银行债券投融资行为已经成为影响货币供应和信用创造的重要渠道。
 
-展望后续，伴随着AI商业化持续兑现，在板块高估值性价比、南向资金流入、海外流动性改善等共同作用下，港股互联网有望迎来估值与盈利的双重修复。
+数据显示，2025年末，银行持有的债券超过100万亿元人民币，占其总资产的25%，较2015年上升7个百分点；债券与贷款比例为35%，较2015年上升6个百分点。
 
 ## 相关推荐
 
-- 2026-06-30 02:32 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 02:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 02:39 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 02:12 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 02:25 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 02:37 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 02:15 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 02:27 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 02:23 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 02:29 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 02:17 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 02:27 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 02:28 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 02:27 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-30 02:28 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 02:27 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 02:26 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 02:49 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 02:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 02:39 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 02:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 02:38 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 02:21 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 02:32 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 02:35 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:37 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/6627323055.shtml)
-- 2026-06-30 02:21 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/45249993.shtml)
-- 2026-06-30 02:13 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/89924798317.shtml)
-- 2026-06-30 02:38 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/285500002.shtml)
-- 2026-06-30 02:29 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/2678146417.shtml)
-- 2026-06-30 02:25 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/844936.shtml)
-- 2026-06-30 02:16 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/055788303.shtml)
-- 2026-06-30 02:25 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/180620.shtml)
-- 2026-06-30 02:34 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/88742981.shtml)
-- 2026-06-30 02:21 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/06761149221.shtml)
-- 2026-06-30 02:17 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/723604872099.shtml)
-- 2026-06-30 02:26 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/679860216.shtml)
-- 2026-06-30 02:26 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/888373007.shtml)
-- 2026-06-30 02:13 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/79026030979.shtml)
-- 2026-06-30 02:27 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/8854226668.shtml)
+- 2026-06-30 02:42 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/364179.shtml)
+- 2026-06-30 02:32 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/762060884207.shtml)
+- 2026-06-30 02:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/789437157.shtml)
+- 2026-06-30 02:22 - [千与千寻](https://www.blog.minike.top/Article/details/27068.shtml)
+- 2026-06-30 02:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/982251050920.shtml)
+- 2026-06-30 02:24 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/0404490058.shtml)
+- 2026-06-30 02:43 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/770637.shtml)
+- 2026-06-30 02:32 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/07418218011.shtml)
+- 2026-06-30 02:21 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/123069163.shtml)
+- 2026-06-30 02:37 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/1810378995.shtml)
+- 2026-06-30 02:49 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/41454.shtml)
+- 2026-06-30 02:24 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/07120761327.shtml)
+- 2026-06-30 02:29 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/3517920.shtml)
+- 2026-06-30 02:29 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/26683.shtml)
+- 2026-06-30 02:37 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/797945639233.shtml)

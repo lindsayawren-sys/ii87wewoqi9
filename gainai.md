@@ -1,51 +1,55 @@
-# 光大期货0507热点追踪：美伊缓和了，谁的风险？谁的机会？
+# “我本来就是中国人” 周锡玮：台湾人都是中国人 多次表态引发全场掌声
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-专题：光大期货热点追踪视频合集 光大期货0507热点追踪：美伊缓和了，谁的风险？谁的机会？责任编辑：朱赫楠
+发布时间：2026年05月12日 16:07 来源：中国新闻网 5月12日，第七届两岸媒体人峰会在北京举行。旺旺集团副董事长周锡玮在会上发言时表示，“三年前我来的时候，我讲了我是中国人，回到台湾有些人就警告我，我跟他讲，我本来就是中国人，台湾人都是中国人！到了今天，我是中国人(这句话)在台湾讲起来，大家都觉得应该欣然接受。郑丽文主席在选中国国民党主席的时候，讲我是中国人，讲台湾
 
 ## 正文
 
-专题：光大期货热点追踪视频合集 光大期货0507热点追踪：美伊缓和了，谁的风险？
+发布时间：2026年05月12日 16:07 来源：中国新闻网 5月12日，第七届两岸媒体人峰会在北京举行。
 
-谁的机会？
+旺旺集团副董事长周锡玮在会上发言时表示，“三年前我来的时候，我讲了我是中国人，回到台湾有些人就警告我，我跟他讲，我本来就是中国人，台湾人都是中国人！
 
-责任编辑：朱赫楠
+到了今天，我是中国人(这句话)在台湾讲起来，大家都觉得应该欣然接受。
+
+郑丽文主席在选中国国民党主席的时候，讲我是中国人，讲台湾跟大陆同属一个中国，讲得最清楚，所以她高票当选。
+
+台湾的民众，大家都勇敢地讲出自己的真心话，支持一个中国，我是中国人”。
+
+(记者 刘子衿 范思忆 制作 王雪茵） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 02:15 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 02:18 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 02:23 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 02:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 02:29 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 02:24 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 02:41 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 02:34 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 02:35 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 02:38 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 02:34 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 02:29 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 02:13 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 02:31 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 02:26 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 02:38 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 02:39 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 02:36 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 02:44 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 02:28 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 02:22 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 02:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 02:39 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 02:47 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 02:48 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 02:46 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 02:39 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 02:27 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:22 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/887502.shtml)
-- 2026-06-30 02:36 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/033705609139.shtml)
-- 2026-06-30 02:12 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/57774372.shtml)
-- 2026-06-30 02:35 - [女心理师](https://www.blog.minike.top/Article/details/585276658.shtml)
-- 2026-06-30 02:21 - [内马尔替补](https://www.share.minike.top/Article/details/6967784615.shtml)
-- 2026-06-30 02:29 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/24596.shtml)
-- 2026-06-30 02:13 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/23629260.shtml)
-- 2026-06-30 02:25 - [沉睡花园](http://www.share.minike.top/Article/details/34846892.shtml)
-- 2026-06-30 02:24 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/24306.shtml)
-- 2026-06-30 02:33 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/8844323.shtml)
-- 2026-06-30 02:41 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/4423823569.shtml)
-- 2026-06-30 02:18 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/40801.shtml)
-- 2026-06-30 02:14 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/6805484.shtml)
-- 2026-06-30 02:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/653742867.shtml)
-- 2026-06-30 02:26 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/240404537884.shtml)
+- 2026-06-30 02:36 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/2863429501.shtml)
+- 2026-06-30 02:24 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/6147633421.shtml)
+- 2026-06-30 02:27 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/65311386568.shtml)
+- 2026-06-30 02:23 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/60933.shtml)
+- 2026-06-30 02:41 - [我和我的家乡](https://www.share.minike.top/Article/details/543014.shtml)
+- 2026-06-30 02:36 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/3234999.shtml)
+- 2026-06-30 02:42 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/77536699.shtml)
+- 2026-06-30 02:26 - [逃狱兄弟](https://www.share.minike.top/Article/details/77768495510.shtml)
+- 2026-06-30 02:47 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/9386682209.shtml)
+- 2026-06-30 02:46 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/0505921630.shtml)
+- 2026-06-30 02:37 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/1096265011.shtml)
+- 2026-06-30 02:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/444475494.shtml)
+- 2026-06-30 02:24 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/6905815941.shtml)
+- 2026-06-30 02:25 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/49836.shtml)
+- 2026-06-30 02:28 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/996292937038.shtml)

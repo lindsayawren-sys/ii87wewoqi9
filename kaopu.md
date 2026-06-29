@@ -1,50 +1,60 @@
-# 伊朗外交部发言人：“假如你看到狮子露出牙齿，别以为狮子在微笑”
+# 生成式人工智能挑战传统商业模式，印度IT板块指数跌至三年来新低
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-中新网5月8日电 综合外媒报道，伊朗外交部发言人巴加埃8日在社交媒体上发文称，“假如你看到狮子露出牙齿，别以为狮子在微笑。” 对此，有伊朗媒体解读说，这条“意味深长的”贴文，是在对地区国家发出警告，不要采取军事冒险行动。 7日晚，美伊双方在霍尔木兹海峡及附近海域再次发生冲突。伊朗武装部队哈塔姆安比亚中央总部发言人说，由于美国违反美伊停火协议，袭击了一艘伊朗油轮以及另一艘正在进入
+5月12日，受人工智能（AI）技术快速演进及行业龙头业绩低迷等多重因素影响，印度IT板块遭遇重挫。蓝筹股指数Nifty IT收盘下跌3.6%，触及2023年5月以来最低水平，领跌印度大盘。 此次行业震荡的核心诱因在于全球AI领军企业对传统IT外包模式的直接冲击。OpenAI近日宣布成立一家注资超过40亿美元的新公司，计划通过派遣工程师直接进驻企业客户的方式，深度挖掘AI应用潜力
 
 ## 正文
 
-中新网5月8日电 综合外媒报道，伊朗外交部发言人巴加埃8日在社交媒体上发文称，“假如你看到狮子露出牙齿，别以为狮子在微笑。
+5月12日，受人工智能（AI）技术快速演进及行业龙头业绩低迷等多重因素影响，印度IT板块遭遇重挫。
 
-” 对此，有伊朗媒体解读说，这条“意味深长的”贴文，是在对地区国家发出警告，不要采取军事冒险行动。
+蓝筹股指数Nifty IT收盘下跌3.6%，触及2023年5月以来最低水平，领跌印度大盘。
 
-7日晚，美伊双方在霍尔木兹海峡及附近海域再次发生冲突。
+此次行业震荡的核心诱因在于全球AI领军企业对传统IT外包模式的直接冲击。
 
-伊朗武装部队哈塔姆安比亚中央总部发言人说，由于美国违反美伊停火协议，袭击了一艘伊朗油轮以及另一艘正在进入霍尔木兹海峡的船只，伊朗武装力量随即对位于霍尔木兹海峡东部和恰巴哈尔港南部的美国军舰发动袭击。
+OpenAI近日宣布成立一家注资超过40亿美元的新公司，计划通过派遣工程师直接进驻企业客户的方式，深度挖掘AI应用潜力。
+
+此举被视为对印度IT企业“离岸外包”模式的颠覆性挑战。
+
+此前，Anthropic公司推出的Claude Code已在今年年初引发市场恐慌，加剧了投资者对生成式AI取代传统软件开发及专业服务需求的担忧。
+
+行业标杆企业的疲软业绩进一步打击了市场信心。
+
+汇丰银行（HSBC）在周二发布的报告中指出，印度一线IT企业今年一季度的经营数据及全年业绩展望均不及预期。
 
 ## 相关推荐
 
-- 2026-06-30 02:17 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 02:20 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 02:16 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 02:20 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-30 02:34 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 02:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 02:14 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 02:29 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 02:21 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 02:25 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 02:39 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 02:34 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 02:31 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 02:46 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 02:46 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 02:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 02:38 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 02:40 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 02:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 02:33 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 02:23 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 02:47 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 02:30 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 02:43 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 02:39 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 02:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:24 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/86072856.shtml)
-- 2026-06-30 02:32 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/297620058975.shtml)
-- 2026-06-30 02:35 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/88773533.shtml)
-- 2026-06-30 02:37 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/92643618279.shtml)
-- 2026-06-30 02:34 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/14259.shtml)
-- 2026-06-30 02:24 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/760455984576.shtml)
-- 2026-06-30 02:25 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/7702601608.shtml)
-- 2026-06-30 02:32 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/8075883395.shtml)
-- 2026-06-30 02:39 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/69234237.shtml)
-- 2026-06-30 02:39 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/5221874997.shtml)
-- 2026-06-30 02:26 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/23124820.shtml)
-- 2026-06-30 02:21 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/39794199.shtml)
-- 2026-06-30 02:25 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/27562361228.shtml)
-- 2026-06-30 02:20 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/39850385719.shtml)
-- 2026-06-30 02:41 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/43172.shtml)
+- 2026-06-30 02:26 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/6016668548.shtml)
+- 2026-06-30 02:36 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/575064.shtml)
+- 2026-06-30 02:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/345706456355.shtml)
+- 2026-06-30 02:26 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/2600057238.shtml)
+- 2026-06-30 02:46 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/5833071.shtml)
+- 2026-06-30 02:48 - [爱很美味](http://www.blog.minike.top/Article/details/2411506.shtml)
+- 2026-06-30 02:46 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/42666.shtml)
+- 2026-06-30 02:24 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/20347.shtml)
+- 2026-06-30 02:43 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/84722865647.shtml)
+- 2026-06-30 02:47 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/864869609.shtml)
+- 2026-06-30 02:42 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/20765984463.shtml)
+- 2026-06-30 02:40 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/29979243.shtml)
+- 2026-06-30 02:27 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/8382832.shtml)
+- 2026-06-30 02:43 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/683559747.shtml)
+- 2026-06-30 02:45 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/38380368.shtml)

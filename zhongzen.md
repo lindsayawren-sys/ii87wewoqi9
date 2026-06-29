@@ -1,56 +1,58 @@
-# 业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费
+# 观海潮｜地缘变局下，中国—东盟如何开拓合作“新蓝海”？
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-来源：面包财经 编者按：5月15日是证监会设立的第八个 “全国投资者保护宣传日”。监管部门要求行业主动尽责，积极开展形式多样的投资者保护活动，切实维护广大投资者合法权益。 一些长期业绩差、大幅跑输业绩比较基准的公募基金产品仍然向投资者收取较高的管理费，不仅损害投资者权益，也违背了相关监管文件的要求。本系列研究，将分批透视相关产品。 研究显示，成立超过3年的主动权益基金（初始基金
+中新网海口5月11日电 题：观海潮｜地缘变局下，中国—东盟如何开拓合作“新蓝海”？ 中新网记者 张茜翼 中国、东盟互为第一大贸易伙伴。当前，面对全球贸易保护主义抬头、地缘政治复杂多变的影响，未来如何开拓合作“新蓝海”？5月10日在海口举行的“中国-东盟蓝色经济合作对话”上，两地专家学者形成共识：在全球化遭遇逆流的当下，构建中国-东盟蓝色经济共同大市场，已不仅是经济选项，更是战略
 
 ## 正文
 
-来源：面包财经 编者按：5月15日是证监会设立的第八个 “全国投资者保护宣传日”。
+中新网海口5月11日电 题：观海潮｜地缘变局下，中国—东盟如何开拓合作“新蓝海”？
 
-监管部门要求行业主动尽责，积极开展形式多样的投资者保护活动，切实维护广大投资者合法权益。
+中新网记者 张茜翼 中国、东盟互为第一大贸易伙伴。
 
-一些长期业绩差、大幅跑输业绩比较基准的公募基金产品仍然向投资者收取较高的管理费，不仅损害投资者权益，也违背了相关监管文件的要求。
+当前，面对全球贸易保护主义抬头、地缘政治复杂多变的影响，未来如何开拓合作“新蓝海”？
 
-本系列研究，将分批透视相关产品。
+5月10日在海口举行的“中国-东盟蓝色经济合作对话”上，两地专家学者形成共识：在全球化遭遇逆流的当下，构建中国-东盟蓝色经济共同大市场，已不仅是经济选项，更是战略刚需。
 
-研究显示，成立超过3年的主动权益基金（初始基金口径，包括普通股票型、偏股混合型、灵活配置型、平衡混合型基金，下同）中，东方基金、同泰基金、前海开源基金等机构旗下产品成立以来净值累计下跌超过50%，仍收取超过1%的管理费率。
+从愿景到路径：共筑蓝色经济大市场 “加快构建中国-东盟蓝色经济共同大市场，是应对域外冲击、维护区域稳定发展的重要抓手。
 
-此外，以广发基金、长城基金为代表的一批产品，在过去三年中大幅跑输其业绩比较基准，差距甚至高达数十个百分点。
+”中国(海南)改革发展研究院院长、海南自由贸易港研究院院长迟福林认为，这一大市场将深度挖掘双方合作潜力，推动产业链供应链深度融合。
 
-这种“业绩塌方”与“费用照收”的现状，使得投资者承受了净值亏损与管理费支出的“双重损伤”。
+马来西亚驻华大使馆经济事务公使悟倪·桑卡尔则从制度层面提出路线图：建立强有力框架，加快谈判涵盖海洋货物贸易、投资规则、联合开发区及争端解决机制的蓝色经济协定；优先推动渔业、海洋可再生能源、生物技术、生态旅游等领域的联合开发，启动海上能源电网和蓝碳倡议。
 
-对于长期绩差的产品，其管理费率是否应该调降？
+“一个整合东盟和中国这些领域的共同大市场，将改变整个地区。
 
 ## 相关推荐
 
-- 2026-06-30 02:12 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 02:14 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 02:37 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 02:12 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 02:23 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 02:38 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 02:33 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 02:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 02:16 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 02:32 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 02:24 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 02:29 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 02:35 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 02:32 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 02:42 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 02:49 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 02:23 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 02:21 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 02:45 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 02:25 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 02:19 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 02:35 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:21 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/542683378281.shtml)
-- 2026-06-30 02:20 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/106870.shtml)
-- 2026-06-30 02:14 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/130363195.shtml)
-- 2026-06-30 02:31 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/46891.shtml)
-- 2026-06-30 02:29 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/410047625017.shtml)
-- 2026-06-30 02:33 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/95838161.shtml)
-- 2026-06-30 02:25 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/397208459897.shtml)
-- 2026-06-30 02:35 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/30082012270.shtml)
-- 2026-06-30 02:21 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/29405.shtml)
-- 2026-06-30 02:18 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/8333122129.shtml)
-- 2026-06-30 02:34 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/0306376.shtml)
-- 2026-06-30 02:35 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/98684.shtml)
-- 2026-06-30 02:29 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/115803271133.shtml)
-- 2026-06-30 02:35 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/07125870674.shtml)
-- 2026-06-30 02:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/46329348747.shtml)
+- 2026-06-30 02:32 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/30209348235.shtml)
+- 2026-06-30 02:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/528154.shtml)
+- 2026-06-30 02:23 - [女心理师](http://www.share.kurohicncr.top/Article/details/294299676.shtml)
+- 2026-06-30 02:26 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/461380.shtml)
+- 2026-06-30 02:28 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/815764.shtml)
+- 2026-06-30 02:28 - [千香](https://www.blog.minike.top/Article/details/0424119.shtml)
+- 2026-06-30 02:35 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/350320134.shtml)
+- 2026-06-30 02:46 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/549600623840.shtml)
+- 2026-06-30 02:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/3298337.shtml)
+- 2026-06-30 02:43 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/007576.shtml)
+- 2026-06-30 02:43 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/77330.shtml)
+- 2026-06-30 02:47 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/31661381028.shtml)
+- 2026-06-30 02:41 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/05666395573.shtml)
+- 2026-06-30 02:21 - [流金岁月](https://www.blog.minike.top/Article/details/23551.shtml)
+- 2026-06-30 02:23 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/97365314166.shtml)

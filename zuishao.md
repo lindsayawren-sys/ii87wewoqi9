@@ -1,56 +1,58 @@
-# 建设两岸融合发展示范区部省际工作会议在北京举行
+# 进一步提高货币政策传导效率！央行一季度货政报告有了新提法
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-中新社北京5月8日电 中共中央台办、国家发展改革委、福建省会同48个中央和国家机关有关部门，8日在北京召开建设两岸融合发展示范区部省际工作会议。 会议总结了《中共中央 国务院关于支持福建探索海峡两岸融合发展新路建设两岸融合发展示范区的意见》(以下简称意见)贯彻落实情况，研究下步重点工作，支持福建在探索海峡两岸融合发展新路上迈出更大步伐，高质量建设两岸融合发展示范区。 中共中央台
+21世纪经济报道记者 唐婧 5月11日晚间，央行发布2026年第一季度中国货币政策执行报告，并在下一阶段货币政策思路中提出，要更好发挥市场利率定价自律机制作用，有效落实各项利率自律倡议，对一些不合理的、容易削减货币政策传导的市场行为加强规范，维护市场竞争秩序。 对比上一季度的货币政策执行报告来看，“对一些不合理的、容易削减货币政策传导的市场行为加强规范”是本次报告的新提法。央行
 
 ## 正文
 
-中新社北京5月8日电 中共中央台办、国家发展改革委、福建省会同48个中央和国家机关有关部门，8日在北京召开建设两岸融合发展示范区部省际工作会议。
+21世纪经济报道记者 唐婧 5月11日晚间，央行发布2026年第一季度中国货币政策执行报告，并在下一阶段货币政策思路中提出，要更好发挥市场利率定价自律机制作用，有效落实各项利率自律倡议，对一些不合理的、容易削减货币政策传导的市场行为加强规范，维护市场竞争秩序。
 
-会议总结了《中共中央 国务院关于支持福建探索海峡两岸融合发展新路建设两岸融合发展示范区的意见》(以下简称意见)贯彻落实情况，研究下步重点工作，支持福建在探索海峡两岸融合发展新路上迈出更大步伐，高质量建设两岸融合发展示范区。
+对比上一季度的货币政策执行报告来看，“对一些不合理的、容易削减货币政策传导的市场行为加强规范”是本次报告的新提法。
 
-中共中央台办、国务院台办主任宋涛表示，习近平总书记关于对台工作的重要论述和党中央决策部署，为支持福建探索海峡两岸融合发展新路、建设两岸融合发展示范区指明了前进方向，提供了根本遵循和行动指南。
+央行在2025年第四季度中国货币政策执行报告的相关表述是，更好发挥利率自律机制作用，有效落实各项利率自律倡议，维护银行业市场竞争秩序。
 
-我们要全面贯彻落实，强化责任担当，加强统筹协调，以更加坚定的决心、更加务实的举措、更加有力的行动，不断开创两岸融合发展示范区建设新局面，为推动两岸关系和平发展、推进祖国统一大业作出新的更大贡献。
+这与今年3月央行行长潘功胜在十四届全国人大四次会议经济主题记者会上的表态一脉相承。
 
-国家发展改革委副主任周海兵表示，要深入学习领会习近平总书记关于两岸融合发展的重要指示精神，自觉增强抓好两岸融合发展示范区建设的使命感和紧迫感。
+潘功胜当时表示，将根据经济金融形势的变化和宏观经济的运行情况，引导和调控好利率水平，促进社会综合融资成本低位运行，强化利率政策执行和监督，对于一些不合理的、容易削减货币政策传导效果的市场行为加强规范。
 
-要进一步推动意见各项任务持续落实落细，因地制宜支持重点区域平台先行先试，推动重点领域融合发展取得务实进展，推进两岸融合发展示范区建设取得更大成效。
+要求银行向企业明确展示贷款的年化综合融资成本，规范融资中间费。
 
-福建省委常委、秘书长吴偕林，福建省委常委、常务副省长王永礼分别介绍了两岸融合发展示范区建设有关工作推进情况及下步工作考虑。
+近期的一系列监管动作与市场动态，已为“不合理、容易削减货币政策传导的市场行为”提供了清晰的注脚。
 
-(完)
+在负债端，同业定期存款利率自律管理已开始试行，预计2026年三季度正式实施，利率上限拟锚定同期限Shibor加10个基点，以约束高定价同业定期存款规模； 在资产端，央行已明确督促银行不发放税后利率低于同期限国债收益率的贷款，旨在遏制部分机构为争夺优质客户而进行的非理性价格战； 在中间环节，金融监管总局与央行已于2026年3月联合出台规定，要求所有个人贷款明示年化综合融资成本，逐项列明利息、担保费、服务费等全部费用。
 
 ## 相关推荐
 
-- 2026-06-30 02:32 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 02:23 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 02:18 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 02:13 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 02:40 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 02:40 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 02:21 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 02:14 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 02:33 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 02:26 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 02:47 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 02:26 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 02:41 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-30 02:20 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 02:49 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 02:30 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 02:19 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 02:23 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 02:40 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 02:27 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 02:46 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 02:41 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:38 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/5996809.shtml)
-- 2026-06-30 02:41 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/93311708689.shtml)
-- 2026-06-30 02:29 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/789000341833.shtml)
-- 2026-06-30 02:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/755240354.shtml)
-- 2026-06-30 02:25 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/22944851.shtml)
-- 2026-06-30 02:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/8341908325.shtml)
-- 2026-06-30 02:13 - [周生如故](https://www.blog.kurohicncr.top/Article/details/8558287.shtml)
-- 2026-06-30 02:15 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/048176.shtml)
-- 2026-06-30 02:16 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/757103945246.shtml)
-- 2026-06-30 02:34 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/73404.shtml)
-- 2026-06-30 02:37 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/21308213777.shtml)
-- 2026-06-30 02:12 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/422731.shtml)
-- 2026-06-30 02:26 - [房价什么时候能涨](http://www.share.minike.top/Article/details/27844286.shtml)
-- 2026-06-30 02:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/749574936673.shtml)
-- 2026-06-30 02:29 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/811775616466.shtml)
+- 2026-06-30 02:45 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/026896445.shtml)
+- 2026-06-30 02:47 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/39553770070.shtml)
+- 2026-06-30 02:28 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/62609613172.shtml)
+- 2026-06-30 02:40 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/358822.shtml)
+- 2026-06-30 02:29 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/787206319634.shtml)
+- 2026-06-30 02:32 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/1499201.shtml)
+- 2026-06-30 02:27 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/786584111064.shtml)
+- 2026-06-30 02:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/518624.shtml)
+- 2026-06-30 02:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/60999834399.shtml)
+- 2026-06-30 02:28 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/132787.shtml)
+- 2026-06-30 02:29 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/186893021316.shtml)
+- 2026-06-30 02:36 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/45767912056.shtml)
+- 2026-06-30 02:41 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/68489380.shtml)
+- 2026-06-30 02:26 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/870489.shtml)
+- 2026-06-30 02:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/9991791808.shtml)

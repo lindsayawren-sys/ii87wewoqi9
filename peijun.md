@@ -1,61 +1,58 @@
-# 荣尊国际控股复牌上涨65% 获单一最大股东折让约48%提全购要约
+# 东方证券增设两融“即时平仓线”，到底是什么？有何影响？
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-荣尊国际控股（01780）今日复牌，早盘一度涨超84%。截至发稿，股价上涨65%，报1.65港元，成交额2377.59万港元。 荣尊国际控股宣布，要约人杨敬尧已完成收购8400万股公司股份，占已发行股本约13.55%，总代价4368万港元，相当于每股股份代价0.52港元，较停牌前收市价每股1港元折让约48%。 紧接收购完成后，要约人持有该公司已发行股本由约19.84%增至约33
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！东方证券在两融业务中增加的“即时平仓线”引发市场关注。 近日，东方证券发布公告称：为进一步完善融资融券业务风险监控体系，切实保护投资者合法权益，本公司在融资融券业务中增加“即时平仓线”监控指标，自2026年5月18日起施行。 东方证券公告显示：“即时平仓线”是指该公司对客户信用账户风险状况进行监控的特定维持
 
 ## 正文
 
-荣尊国际控股（01780）今日复牌，早盘一度涨超84%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-截至发稿，股价上涨65%，报1.65港元，成交额2377.59万港元。
+东方证券在两融业务中增加的“即时平仓线”引发市场关注。
 
-荣尊国际控股宣布，要约人杨敬尧已完成收购8400万股公司股份，占已发行股本约13.55%，总代价4368万港元，相当于每股股份代价0.52港元，较停牌前收市价每股1港元折让约48%。
+近日，东方证券发布公告称：为进一步完善融资融券业务风险监控体系，切实保护投资者合法权益，本公司在融资融券业务中增加“即时平仓线”监控指标，自2026年5月18日起施行。
 
-紧接收购完成后，要约人持有该公司已发行股本由约19.84%增至约33.39%。
+东方证券公告显示：“即时平仓线”是指该公司对客户信用账户风险状况进行监控的特定维持担保比例值。
 
-要约人须按例提出强制性有条件现金要约。
+融资融券业务即时平仓线参数为115%。
 
-按每股要约股份0.52港元的要约价计算，倘要约获悉数接纳，要约代价将为约2.15亿港元。
+“本公司有权根据市场情况、自身风险管理需求、您的风险承受能力等因素，对您的即时平仓线参数进行动态调整。
 
-要约人拟维持该公司于联交所的上市地位。
+” 相关消息经过发酵后，不少投资者对东方证券新设的115%“即时平仓线”非常好奇。
 
-责任编辑：卢昱君
+同时，由于“即时平仓线”的名称，有投资者以为当维持担保比例降至115%后，会马上遭到强平。
 
 ## 相关推荐
 
-- 2026-06-30 02:12 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 02:19 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 02:25 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 02:16 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 02:39 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 02:12 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 02:27 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 02:37 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 02:27 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 02:29 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 02:22 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 02:21 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 02:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 02:38 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 02:12 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 02:36 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 02:28 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 02:31 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 02:34 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 02:41 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 02:21 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 02:25 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 02:39 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 02:34 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 02:44 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 02:40 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 02:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:19 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/5918904.shtml)
-- 2026-06-30 02:37 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/6737735.shtml)
-- 2026-06-30 02:29 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/747037809241.shtml)
-- 2026-06-30 02:40 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/3650723042.shtml)
-- 2026-06-30 02:40 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/344602.shtml)
-- 2026-06-30 02:40 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/89302454.shtml)
-- 2026-06-30 02:14 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/43511033416.shtml)
-- 2026-06-30 02:16 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/7682245336.shtml)
-- 2026-06-30 02:22 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/227596269.shtml)
-- 2026-06-30 02:39 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/569579550.shtml)
-- 2026-06-30 02:41 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/57310327.shtml)
-- 2026-06-30 02:19 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/8441522431.shtml)
-- 2026-06-30 02:21 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/70801900216.shtml)
-- 2026-06-30 02:17 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/9129344424.shtml)
-- 2026-06-30 02:41 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/27763812.shtml)
+- 2026-06-30 02:26 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/047391532561.shtml)
+- 2026-06-30 02:48 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/253834601842.shtml)
+- 2026-06-30 02:39 - [张凌赫 客串](http://www.blog.minike.top/Article/details/4061365203.shtml)
+- 2026-06-30 02:29 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/530506.shtml)
+- 2026-06-30 02:46 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/40064955.shtml)
+- 2026-06-30 02:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/66511.shtml)
+- 2026-06-30 02:47 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/32188.shtml)
+- 2026-06-30 02:24 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/8044748.shtml)
+- 2026-06-30 02:29 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/394050.shtml)
+- 2026-06-30 02:36 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/472182153.shtml)
+- 2026-06-30 02:45 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/8299543.shtml)
+- 2026-06-30 02:42 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/200412122.shtml)
+- 2026-06-30 02:41 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/39735.shtml)
+- 2026-06-30 02:23 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/96721166913.shtml)
+- 2026-06-30 02:20 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/80925.shtml)

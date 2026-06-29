@@ -1,51 +1,59 @@
-# 日韩股市低开 韩国股市下跌1.8%
+# 万亿市值俱乐部新成员领跑人工智能热潮
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-日经225指数上午开盘报62654.01点，跌幅0.29%。韩国综合股价指数（KOSPI）开盘报7353.94点，下跌1.8%。责任编辑：王永生
+作者：贾里德・布利克雷 美股顶级巨头格局正迎来硬件属性重塑。 三星电子 （005930.KS） 市值刚刚突破1 万亿美元，成为又一家受益于人工智能产业建设、跻身全球最顶级市值的企业。 自此，三星与英伟达、台积电、博通并肩，跻身新一代科技巨头行列，这类企业为人工智能热潮提供芯片、存储及底层基础设施支撑。 万亿市值俱乐部，曾经几乎是美国互联网平台巨头的专属阵营。 2018 年 8
 
 ## 正文
 
-日经225指数上午开盘报62654.01点，跌幅0.29%。
+作者：贾里德・布利克雷 美股顶级巨头格局正迎来硬件属性重塑。
 
-韩国综合股价指数（KOSPI）开盘报7353.94点，下跌1.8%。
+三星电子 （005930.KS） 市值刚刚突破1 万亿美元，成为又一家受益于人工智能产业建设、跻身全球最顶级市值的企业。
 
-责任编辑：王永生
+自此，三星与英伟达、台积电、博通并肩，跻身新一代科技巨头行列，这类企业为人工智能热潮提供芯片、存储及底层基础设施支撑。
+
+万亿市值俱乐部，曾经几乎是美国互联网平台巨头的专属阵营。
+
+2018 年 8 月，苹果成为首家市值突破万亿的美国上市公司，随后亚马逊、微软、谷歌、Meta、特斯拉相继入局。
+
+初代万亿市值企业浪潮，依托智能手机、云计算、搜索引擎、社交媒体、电商及电动汽车发展红利崛起。
+
+而新一轮万亿市值浪潮，则更偏向实体硬件产业链。
+
+2023 年 5 月，伴随 AI 算力行情爆发，英伟达市值突破万亿；2024 年，全球核心先进芯片代工龙头台积电市值迈入万亿行列；同年晚些时候，受益于定制 AI 芯片与网络设备需求，博通也成功入局。
 
 ## 相关推荐
 
-- 2026-06-30 02:16 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 02:39 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 02:13 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 02:25 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 02:41 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 02:33 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 02:30 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 02:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 02:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 02:29 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 02:38 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 02:34 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 02:33 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 02:37 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 02:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 02:26 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 02:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 02:20 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 02:37 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 02:29 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 02:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 02:41 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 02:49 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 02:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 02:44 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 02:27 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 02:48 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 02:21 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:28 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/57355918872.shtml)
-- 2026-06-30 02:18 - [乔家的儿女](http://www.blog.minike.top/Article/details/9433566.shtml)
-- 2026-06-30 02:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/10281260066.shtml)
-- 2026-06-30 02:13 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/912718.shtml)
-- 2026-06-30 02:21 - [金牌调解](https://www.share.kurohicncr.top/Article/details/7655094.shtml)
-- 2026-06-30 02:30 - [千香](https://www.blog.kurohicncr.top/Article/details/186399427.shtml)
-- 2026-06-30 02:23 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/7388972.shtml)
-- 2026-06-30 02:32 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/95920.shtml)
-- 2026-06-30 02:31 - [沙丘](http://www.share.minike.top/Article/details/6273825831.shtml)
-- 2026-06-30 02:30 - [急先锋](https://www.share.minike.top/Article/details/37172.shtml)
-- 2026-06-30 02:19 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/63120868.shtml)
-- 2026-06-30 02:27 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/99404211.shtml)
-- 2026-06-30 02:34 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/5107773210.shtml)
-- 2026-06-30 02:35 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/2993599786.shtml)
-- 2026-06-30 02:19 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/37822013.shtml)
+- 2026-06-30 02:20 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/93974.shtml)
+- 2026-06-30 02:27 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/848374.shtml)
+- 2026-06-30 02:48 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/975608640017.shtml)
+- 2026-06-30 02:47 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/122829.shtml)
+- 2026-06-30 02:29 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/4828460.shtml)
+- 2026-06-30 02:32 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/55328.shtml)
+- 2026-06-30 02:25 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/85520379.shtml)
+- 2026-06-30 02:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/48234.shtml)
+- 2026-06-30 02:45 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/4688649.shtml)
+- 2026-06-30 02:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/48630.shtml)
+- 2026-06-30 02:26 - [流金岁月](http://www.share.kurohicncr.top/Article/details/27620223.shtml)
+- 2026-06-30 02:39 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/24429.shtml)
+- 2026-06-30 02:43 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/8758768342.shtml)
+- 2026-06-30 02:31 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/5084612391.shtml)
+- 2026-06-30 02:39 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/08263410691.shtml)

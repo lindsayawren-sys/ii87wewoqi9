@@ -1,49 +1,57 @@
-# 天舟九号货运飞船已受控再入大气层
+# 臻镭科技（688270）被处罚，股民索赔可期
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-中新网北京5月7日电 (记者 马帅莎)据中国载人航天工程办公室消息，天舟九号货运飞船已于北京时间5月7日7时49分受控再入大气层，飞船少量残骸落入预定安全海域。 天舟九号货运飞船于2025年7月15日在文昌航天发射场发射入轨，为空间站送去航天员在轨驻留消耗品、推进剂、应用实(试)验装置等物资。(完)
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年5月9日，浙江臻镭科技股份有限公司（简称：臻镭科技，代码：688270）发布《关于收到行政处罚决定书的公告》。 经中国证监会浙江监管局查明，当事人涉嫌违法的事实如下：2022年，臻镭科技全资子公司杭州城芯科技有限公司（以下简称城芯科技）在与深圳睿开
 
 ## 正文
 
-中新网北京5月7日电 (记者 马帅莎)据中国载人航天工程办公室消息，天舟九号货运飞船已于北京时间5月7日7时49分受控再入大气层，飞船少量残骸落入预定安全海域。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-天舟九号货运飞船于2025年7月15日在文昌航天发射场发射入轨，为空间站送去航天员在轨驻留消耗品、推进剂、应用实(试)验装置等物资。
+2026年5月9日，浙江臻镭科技股份有限公司（简称：臻镭科技，代码：688270）发布《关于收到行政处罚决定书的公告》。
 
-(完)
+经中国证监会浙江监管局查明，当事人涉嫌违法的事实如下：2022年，臻镭科技全资子公司杭州城芯科技有限公司（以下简称城芯科技）在与深圳睿开电子有限公司的相关交易中，通过提前确认收入等方式虚增营业收入842.65万元，占公司当期披露营业收入的3.47%；虚增利润总额672.08万元，占公司当期披露利润总额的6.24%，导致公司2022年年度报告存在虚假记载。
+
+2025年12月25日，臻镭科技发布《关于前期会计差错更正的公告》，对前述事项进行了追溯调整。
+
+故中国证监会浙江监管局局决定：对臻镭科技及其相关责任人员给予警告，并各处罚款。
+
+之前，2025年12月25日，臻镭科技发布《关于前期会计差错更正的公告》。
+
+2025年12月27日，臻镭科技发布《关于收到中国证券监督管理委员会立案告知书的公告》。
+
+2026年4月18日，臻镭科技发布《关于收到行政处罚事先告知书的公告》。
 
 ## 相关推荐
 
-- 2026-06-30 02:19 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 02:31 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 02:36 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 02:22 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 02:25 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 02:36 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 02:15 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 02:27 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 02:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 02:33 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 02:27 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 02:34 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 02:41 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 02:26 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 02:31 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 02:33 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 02:39 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 02:34 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 02:29 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 02:25 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 02:37 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 02:48 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 02:35 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 02:25 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:21 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/783515878.shtml)
-- 2026-06-30 02:22 - [新官上任三把火](https://www.share.minike.top/Article/details/47725846304.shtml)
-- 2026-06-30 02:39 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/790976.shtml)
-- 2026-06-30 02:18 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/1759683.shtml)
-- 2026-06-30 02:35 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/61327.shtml)
-- 2026-06-30 02:33 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/2953216.shtml)
-- 2026-06-30 02:24 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/48277597.shtml)
-- 2026-06-30 02:14 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/295986.shtml)
-- 2026-06-30 02:35 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/1074238502.shtml)
-- 2026-06-30 02:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/722493119374.shtml)
-- 2026-06-30 02:15 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/02344040683.shtml)
-- 2026-06-30 02:40 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/34493.shtml)
-- 2026-06-30 02:19 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/11090.shtml)
-- 2026-06-30 02:35 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/93119.shtml)
-- 2026-06-30 02:20 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/3988124.shtml)
+- 2026-06-30 02:38 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/94168378125.shtml)
+- 2026-06-30 02:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/81933.shtml)
+- 2026-06-30 02:36 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/051529.shtml)
+- 2026-06-30 02:33 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/0276027.shtml)
+- 2026-06-30 02:44 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/565638019.shtml)
+- 2026-06-30 02:45 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/005497471.shtml)
+- 2026-06-30 02:21 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/662054.shtml)
+- 2026-06-30 02:29 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/482152.shtml)
+- 2026-06-30 02:22 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/3207554979.shtml)
+- 2026-06-30 02:33 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/7541942.shtml)
+- 2026-06-30 02:47 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/317564163.shtml)
+- 2026-06-30 02:19 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/415682849.shtml)
+- 2026-06-30 02:34 - [金刚川](http://www.blog.minike.top/Article/details/307076489.shtml)
+- 2026-06-30 02:46 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/82812.shtml)
+- 2026-06-30 02:36 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/25835126.shtml)

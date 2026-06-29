@@ -1,61 +1,59 @@
-# 美国一季度生产率增速进一步放缓
+# 天降钢管砸中男子头部缝8针 事发数日肇事者尚未找到
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-美国工人生产率增速在一季度进一步放缓，但随着企业在人工智能领域大力投资，这一趋势可能出现逆转。 美国劳工部劳工统计局周四表示，衡量每小时工人产出的非农生产率在一季度环比年化增长0.8%。 四季度数据被下修，显示生产率年化增长率为1.6%，而此前报告为1.8%。这一增速自三季度5.2%的激增后已有所降温。此前预计一季度生产率年化增长率为1.0%。 生产率同比增长2.9%。经济学家
+原标题：天降钢管 砸中男子头部缝8针 事发数日伤者仍在住院治疗，肇事者一直未找到 “如果钢管的位置稍微偏一点，自己命都没有了，想想都后怕。”5月7日晚，成都某小区，一根钢管从天而降，出门接娃的杜先生被砸倒在地，送医后头部缝合了8针。 事发数日，伤者仍在医院接受治疗，肇事者也一直未找到。5月11日，华西都市报、封面新闻记者前往事发小区走访，目前该小区单元门上方已装上防护棚，墙上贴
 
 ## 正文
 
-美国工人生产率增速在一季度进一步放缓，但随着企业在人工智能领域大力投资，这一趋势可能出现逆转。
+原标题：天降钢管 砸中男子头部缝8针 事发数日伤者仍在住院治疗，肇事者一直未找到 “如果钢管的位置稍微偏一点，自己命都没有了，想想都后怕。
 
-美国劳工部劳工统计局周四表示，衡量每小时工人产出的非农生产率在一季度环比年化增长0.8%。
+”5月7日晚，成都某小区，一根钢管从天而降，出门接娃的杜先生被砸倒在地，送医后头部缝合了8针。
 
-四季度数据被下修，显示生产率年化增长率为1.6%，而此前报告为1.8%。
+事发数日，伤者仍在医院接受治疗，肇事者也一直未找到。
 
-这一增速自三季度5.2%的激增后已有所降温。
+5月11日，华西都市报、封面新闻记者前往事发小区走访，目前该小区单元门上方已装上防护棚，墙上贴着“禁止高空抛物”的提示。
 
-此前预计一季度生产率年化增长率为1.0%。
+男子出门接娃 天降钢管将其砸倒在地 杜先生住在该小区21楼。
 
-生产率同比增长2.9%。
+5月7日晚7点40分左右，他下楼出门接孩子回家，刚走出单元门没几步，一根从天而降的钢管砸在杜先生头上。
 
-经济学家认为，人工智能的采用将提升生产率并抑制劳动力成本。
+“我当场被砸倒在地，头上的血不停往外冒，脑袋感觉嗡嗡响。
 
-单位劳动力成本（即每单位产出的劳动力价格）在一季度环比年化增长2.3%。
+”杜先生说，当时自己躺在地上，一手捂着伤口，一手给家人打电话求救，事发时周围还有不少业主经过。
 
 ## 相关推荐
 
-- 2026-06-30 02:25 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 02:22 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 02:16 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 02:40 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 02:16 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 02:38 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 02:12 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 02:26 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 02:32 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 02:24 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 02:31 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 02:25 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 02:20 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 02:20 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 02:13 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 02:43 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 02:24 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 02:32 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 02:26 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 02:26 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 02:28 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 02:27 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 02:21 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 02:28 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 02:41 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 02:44 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 02:42 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 02:27 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:26 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/8911851395.shtml)
-- 2026-06-30 02:30 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/97863889342.shtml)
-- 2026-06-30 02:26 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/19669.shtml)
-- 2026-06-30 02:30 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/54297922.shtml)
-- 2026-06-30 02:14 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/9147444.shtml)
-- 2026-06-30 02:35 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/015676249868.shtml)
-- 2026-06-30 02:25 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/763274.shtml)
-- 2026-06-30 02:23 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/83986327.shtml)
-- 2026-06-30 02:15 - [美股](http://www.blog.kurohicncr.top/Article/details/031393.shtml)
-- 2026-06-30 02:22 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/12474582584.shtml)
-- 2026-06-30 02:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/29819.shtml)
-- 2026-06-30 02:27 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/15312007579.shtml)
-- 2026-06-30 02:38 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/8063295578.shtml)
-- 2026-06-30 02:27 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/626501561.shtml)
-- 2026-06-30 02:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/58284561.shtml)
+- 2026-06-30 02:36 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/954895009.shtml)
+- 2026-06-30 02:38 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/947648930.shtml)
+- 2026-06-30 02:29 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/131074.shtml)
+- 2026-06-30 02:36 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/274702554.shtml)
+- 2026-06-30 02:35 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/08442472.shtml)
+- 2026-06-30 02:30 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/542649.shtml)
+- 2026-06-30 02:45 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/865069.shtml)
+- 2026-06-30 02:24 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/9430424.shtml)
+- 2026-06-30 02:32 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/588914.shtml)
+- 2026-06-30 02:46 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/92896683.shtml)
+- 2026-06-30 02:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/5292260820.shtml)
+- 2026-06-30 02:47 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/93595308879.shtml)
+- 2026-06-30 02:32 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/8403607.shtml)
+- 2026-06-30 02:39 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/45295638619.shtml)
+- 2026-06-30 02:26 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/62350.shtml)

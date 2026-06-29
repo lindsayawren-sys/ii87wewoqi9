@@ -1,60 +1,57 @@
-# 华西证券：优然牧业经营成果稳健 维持“买入”评级
+# 宁夏：民政部门不能自行主动担任遗产管理人
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-华西证券发布研报称，参考优然牧业（09858）最新财务报告，公司26-27年营业收入分别244.9/257.9亿元下调至227/245亿元，新增28年收入为262亿元；26-27年归母净利分别10.7/14.7亿元下调至9.7/12.4亿元，新增28年归母净利为17.8亿元；26-27年EPS分别为0.28/0.38元下调至0.23/0.30元，新增28年EPS 0.43元。2
+中新网银川5月11日电 (记者 杨迪)记者11日从宁夏民政厅获悉，该部门近日出台《民政部门担任遗产管理人工作参考》(下称《工作参考》)，进一步厘清履职边界、规范工作全流程，为基层民政依法、稳妥、规范开展遗产管理人工作提供清晰实操指引。《工作参考》明确民政部门作为兜底性遗产管理主体，履职全程要严格遵照《民法典》《民事诉讼法》相关规定，建立“立案应诉、遗产清点、公示公告、债权债务处
 
 ## 正文
 
-华西证券发布研报称，参考优然牧业（09858）最新财务报告，公司26-27年营业收入分别244.9/257.9亿元下调至227/245亿元，新增28年收入为262亿元；26-27年归母净利分别10.7/14.7亿元下调至9.7/12.4亿元，新增28年归母净利为17.8亿元；26-27年EPS分别为0.28/0.38元下调至0.23/0.30元，新增28年EPS 0.43元。
+中新网银川5月11日电 (记者 杨迪)记者11日从宁夏民政厅获悉，该部门近日出台《民政部门担任遗产管理人工作参考》(下称《工作参考》)，进一步厘清履职边界、规范工作全流程，为基层民政依法、稳妥、规范开展遗产管理人工作提供清晰实操指引。
 
-2026年04月28日收盘价3.85 HKD对应P/E分别为17/13/9倍，维持“买入”评级。
+《工作参考》明确民政部门作为兜底性遗产管理主体，履职全程要严格遵照《民法典》《民事诉讼法》相关规定，建立“立案应诉、遗产清点、公示公告、债权债务处理、无主财产认定、收归国有”全闭环工作体系。
 
-周期反转在即，看好龙头投资机遇 从历史数据看，原奶价格波动受供需影响较大，并具备一定的周期性。
+同时，强调民政部门仅依法履行遗产法定管理职责，不垫付债务、不承担额外赔偿责任，以法治刚性维护行政机关合法权益与法律权威。
 
-自2021年奶价达到上轮高点后，由于供给端持续增加，需求端疲软，原奶价格已经历四年下行周期。
+《工作参考》明确民政部门不能自行主动担任遗产管理人，必须经由人民法院依法指定的两种途径担任：一是通过利害关系人向法院提起指定遗产管理人特别诉讼，由法院指定被继承人生前住所地县级民政部门担任遗产管理人；二是人民法院依职权直接指定民政部门担任遗产管理人或在普通诉讼程序中追加民政部门作为被告或第三人。
 
-展望今年奶价，该行认为供给端出清将持续，需求端有望逐步恢复，奶价周期即将步入反转。
+通过法定程序，明确了任职启动渠道。
 
-中期来看，该行认为由于供给端产能去化后短期难以回补，未来2-3年或将维持紧平衡状态。
+《工作参考》细化遗产管理人七个工作步骤，规范应诉答辩，全面摸清遗产底数，全域公开公示公告，分类妥善管护遗产，严谨债权核查登记，严格按照法定顺序完成遗产分配，依规处置无主剩余遗产，打造标准化履职流程。
 
-公司作为行业龙头企业，有望在本轮行业调整中受益，未来周期反转将释放较大弹性。
+同时，明确合法管理、诉讼、公告、律师等各方必要履职费用，可从遗产中优先列支。
 
-责任编辑：卢昱君
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:33 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 02:36 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 02:12 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 02:32 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 02:16 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 02:14 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-30 02:27 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 02:28 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 02:31 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 02:31 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 02:29 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 02:15 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-30 02:18 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 02:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 02:44 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 02:26 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 02:42 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 02:29 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 02:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 02:26 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 02:29 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 02:37 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 02:24 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 02:38 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 02:38 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:18 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/916869071.shtml)
-- 2026-06-30 02:41 - [周生如故](https://www.share.minike.top/Article/details/234540118.shtml)
-- 2026-06-30 02:16 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/65121626.shtml)
-- 2026-06-30 02:25 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/7707645482.shtml)
-- 2026-06-30 02:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/72115.shtml)
-- 2026-06-30 02:36 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/383254203.shtml)
-- 2026-06-30 02:36 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/0484288.shtml)
-- 2026-06-30 02:26 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/00086.shtml)
-- 2026-06-30 02:12 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/18564.shtml)
-- 2026-06-30 02:41 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/98886.shtml)
-- 2026-06-30 02:26 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/031777845.shtml)
-- 2026-06-30 02:13 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/67977.shtml)
-- 2026-06-30 02:35 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/32053014251.shtml)
-- 2026-06-30 02:31 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/955780.shtml)
-- 2026-06-30 02:23 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/880137770.shtml)
+- 2026-06-30 02:31 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/561712668520.shtml)
+- 2026-06-30 02:49 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/66040.shtml)
+- 2026-06-30 02:26 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/1456197981.shtml)
+- 2026-06-30 02:25 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/329973.shtml)
+- 2026-06-30 02:26 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/91774.shtml)
+- 2026-06-30 02:42 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/791193.shtml)
+- 2026-06-30 02:19 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/77480871905.shtml)
+- 2026-06-30 02:42 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/216811871.shtml)
+- 2026-06-30 02:30 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/84108603006.shtml)
+- 2026-06-30 02:46 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/067796.shtml)
+- 2026-06-30 02:27 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/205324813171.shtml)
+- 2026-06-30 02:42 - [恋与深空回应争议](https://www.share.minike.top/Article/details/33894954.shtml)
+- 2026-06-30 02:48 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/73507446252.shtml)
+- 2026-06-30 02:26 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/643844210.shtml)
+- 2026-06-30 02:24 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/71621.shtml)

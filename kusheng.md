@@ -1,57 +1,52 @@
-# 霍尔木兹，突发！今夜，大跳水！油价，直线下挫
+# 金价上涨 受可能的头寸调整影响
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-伊朗局势，又有新动态！ 北京时间7日晚间，有中东媒体报道称，霍尔木兹海峡航运局势预计数小时内迎来突破性进展，各方正在商讨达成相关协议，以缓解封锁现状、允许滞留船舶恢复经由这条关键石油航运通道通行。不过，上述媒体并未说明消息来源或具体报道出处。 另据新华社消息，一名巴基斯坦官员7日表示，巴方正为可能进行的美伊谈判做准备。此外，伊朗媒体7日报道，伊朗伊斯兰革命卫队海军已指定两条航道
+金价在亚洲早盘交易中上涨，受可能的头寸调整影响。 现货黄金上涨0.5%，报每盎司4，756.30美元。 InTouch Capital Markets的分析师团队在评论中表示：“投资者在等待有关美国和伊朗下一步行动的更多细节。“该团队指出：“总统特朗普对伊朗最新的沟通表达了不满，并正与他的顾问坐下来确定未来的战略。“该团队补充说，特朗普似乎想放弃进一步的军事打击，但伊朗不断的拒
 
 ## 正文
 
-伊朗局势，又有新动态！
+金价在亚洲早盘交易中上涨，受可能的头寸调整影响。
 
-北京时间7日晚间，有中东媒体报道称，霍尔木兹海峡航运局势预计数小时内迎来突破性进展，各方正在商讨达成相关协议，以缓解封锁现状、允许滞留船舶恢复经由这条关键石油航运通道通行。
+现货黄金上涨0.5%，报每盎司4，756.30美元。
 
-不过，上述媒体并未说明消息来源或具体报道出处。
+InTouch Capital Markets的分析师团队在评论中表示：“投资者在等待有关美国和伊朗下一步行动的更多细节。
 
-另据新华社消息，一名巴基斯坦官员7日表示，巴方正为可能进行的美伊谈判做准备。
+“该团队指出：“总统特朗普对伊朗最新的沟通表达了不满，并正与他的顾问坐下来确定未来的战略。
 
-此外，伊朗媒体7日报道，伊朗伊斯兰革命卫队海军已指定两条航道供船只通行。
+“该团队补充说，特朗普似乎想放弃进一步的军事打击，但伊朗不断的拒绝可能会促使他采取其他行动。
 
-在上述消息传开后，国际油价大幅跳水。
-
-截至记者发稿，WTI原油跌破90美元/桶，报89.9美元/桶，日内跌5.4%；布伦特原油日内跌幅达5.0%，报96.18美元/桶。
-
-金银价格大幅拉升，截至发稿，现货白银涨超5%，现货黄金涨超1%。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 02:36 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 02:18 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 02:21 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 02:12 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 02:16 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 02:17 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 02:34 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 02:28 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 02:14 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 02:15 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 02:33 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 02:19 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 02:35 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 02:36 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 02:45 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 02:22 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 02:30 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 02:21 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 02:29 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 02:24 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 02:24 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:20 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/519768.shtml)
-- 2026-06-30 02:19 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/6587032.shtml)
-- 2026-06-30 02:37 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/58503978.shtml)
-- 2026-06-30 02:16 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/26007344501.shtml)
-- 2026-06-30 02:29 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/908896.shtml)
-- 2026-06-30 02:16 - [扫黑风暴](https://www.blog.minike.top/Article/details/9395213699.shtml)
-- 2026-06-30 02:41 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/670973618208.shtml)
-- 2026-06-30 02:31 - [千香](http://www.blog.kurohicncr.top/Article/details/8128713.shtml)
-- 2026-06-30 02:34 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/7893085347.shtml)
-- 2026-06-30 02:15 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/740976.shtml)
-- 2026-06-30 02:39 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/7034698784.shtml)
-- 2026-06-30 02:26 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/817540.shtml)
-- 2026-06-30 02:14 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/419743.shtml)
-- 2026-06-30 02:16 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/584797733042.shtml)
-- 2026-06-30 02:18 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/32130309659.shtml)
+- 2026-06-30 02:36 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/98255375448.shtml)
+- 2026-06-30 02:32 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/631465885.shtml)
+- 2026-06-30 02:46 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/078576224149.shtml)
+- 2026-06-30 02:19 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/12253998.shtml)
+- 2026-06-30 02:49 - [急先锋](http://www.blog.minike.top/Article/details/456272972712.shtml)
+- 2026-06-30 02:30 - [日本16强魔咒](http://www.share.minike.top/Article/details/45562.shtml)
+- 2026-06-30 02:41 - [极限挑战第一季](https://www.share.minike.top/Article/details/609011.shtml)
+- 2026-06-30 02:45 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/48571913419.shtml)
+- 2026-06-30 02:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/7963777.shtml)
+- 2026-06-30 02:32 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/958355306.shtml)
+- 2026-06-30 02:38 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/6884440082.shtml)
+- 2026-06-30 02:22 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/6545623526.shtml)
+- 2026-06-30 02:26 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/18073394.shtml)
+- 2026-06-30 02:25 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/7915103.shtml)
+- 2026-06-30 02:40 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/6199092891.shtml)

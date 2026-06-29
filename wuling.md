@@ -1,57 +1,58 @@
-# 沪指6连阳，创指涨1.45%！逾3500只个股飘红
+# 百傲化学（603360）被立案，股民索赔可期
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-中新经纬5月7日电 周四，A股涨势延续，上证指数录得6连阳。 上证指数日K线图 Wind截图 截至收盘，上证指数涨0.48%，报4180.09点；深证成指涨1.18%，报15641.89点；创业板指涨1.45%，报3833.06点；科创综指涨1.99%，报2064.03点。沪深两市成交额合计3.14万亿元，较上一交易日缩量约828.79亿元。 盘面上，行业板块涨多跌少，风电设备
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年4月28日，大连百傲化学（维权）股份有限公司（简称：百傲化学，代码：603360）发布《关于收到中国证券监督管理委员会立案告知书的公告》，称因公司涉嫌信息披露违法违规等行为，根据《中华人民共和国证券法》的有关规定，中国证券监督管理委员会决定对公司立
 
 ## 正文
 
-中新经纬5月7日电 周四，A股涨势延续，上证指数录得6连阳。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-上证指数日K线图 Wind截图 截至收盘，上证指数涨0.48%，报4180.09点；深证成指涨1.18%，报15641.89点；创业板指涨1.45%，报3833.06点；科创综指涨1.99%，报2064.03点。
+2026年4月28日，大连百傲化学（维权）股份有限公司（简称：百傲化学，代码：603360）发布《关于收到中国证券监督管理委员会立案告知书的公告》，称因公司涉嫌信息披露违法违规等行为，根据《中华人民共和国证券法》的有关规定，中国证券监督管理委员会决定对公司立案调查。
 
-沪深两市成交额合计3.14万亿元，较上一交易日缩量约828.79亿元。
+同日，百傲化学发布《关于前期会计差错更正及追溯调整后的财务报表及相关附注》。
 
-盘面上，行业板块涨多跌少，风电设备、元器件、玻璃纤维、通信设备、体育、广告营销、消费电子等板块涨幅靠前，油气开采、煤炭开采、焦炭加工、能源金属、油服工程等板块跌幅靠前。
+公司董事会审议通过了《关于前期会计差错更正及追溯调整的议案》，同意根据《企业会计准则第28号——会计政策、会计估计变更和差错更正》《公开发行证券的公司信息披露编报规则第19号——财务信息的更正及相关披露》等相关规定和要求，对前期会计差错事项进行更正，并追溯调整2024年年度报告、2025年第一季度报告、2025年半年度报告及2025年第三季度报告财务报表项目及相关附注内容。
 
-概念板块普涨，光通信、CPO概念、电子纸、AI营销、PCB概念、玻璃基板等板块涨幅居前，工业气体、化肥概念、草甘膦、磷概念、锂矿等板块跌幅居前。
+根据《民法典》、《证券法》及最高人民法院的关于虚假陈述民事赔偿司法解释的规定，上市公司、控股股东、实际控制人、董监高人员及其中介机构等因虚假陈述等的证券欺诈行为导致证券投资者权益受损的，应承担民事赔偿责任，赔偿范围包括：投资差额、佣金、印花税等。
 
-截至收盘，全市场3520只股票上涨、1832只股票下跌，其中127只涨停、54只跌停。
+权益受损的证券投资者可以向有管辖权的法院提起民事赔偿诉讼。
 
-个股方面，今日涨停股部分如下：巨力索具(10.00%)、中天科技(10.00%)、中国长城(10.00%)、易点天下(20.01%)、金螳螂(10.02%)。
+由于百傲化学涉嫌信息披露违法违规，被中国证监会立案调查，为维护证券投资者合法权益，上海汉联律师事务所宋一欣律师向曾经购买过百傲化学的证券投资者展开诉讼代理征集，代理投资者索赔诉讼，权益受损的证券投资者可以向前述律师进行索赔登记。
 
-跌停股部分如下：汇嘉时代(-10.01%)、美诺华(-10.00%)、恒逸石化(-9.98%)、水发燃气(-10.00%)。
+宋一欣律师认为，百傲化学案的索赔条件为：2025年4月25日到2026年4月27日间买入百傲化学股票或债券等证券市场公开发行产品，并在2026年4月28日及之后卖出或继续持有的受损投资者，可以办理索赔登记。
 
 ## 相关推荐
 
-- 2026-06-30 02:33 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 02:16 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 02:39 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 02:27 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 02:40 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 02:21 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 02:29 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 02:16 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 02:35 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 02:18 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 02:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 02:20 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 02:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 02:20 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 02:43 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 02:48 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 02:31 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 02:34 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 02:20 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 02:30 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 02:37 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 02:29 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 02:36 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/74622980059.shtml)
-- 2026-06-30 02:25 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/1645820069.shtml)
-- 2026-06-30 02:18 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/76837543.shtml)
-- 2026-06-30 02:37 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/0764657580.shtml)
-- 2026-06-30 02:14 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/8719534646.shtml)
-- 2026-06-30 02:13 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/80080.shtml)
-- 2026-06-30 02:23 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/569412.shtml)
-- 2026-06-30 02:41 - [点菜也要教吗](https://www.share.minike.top/Article/details/208265123737.shtml)
-- 2026-06-30 02:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/8414356439.shtml)
-- 2026-06-30 02:22 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/5762613170.shtml)
-- 2026-06-30 02:29 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/96857263069.shtml)
-- 2026-06-30 02:26 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/3842326551.shtml)
-- 2026-06-30 02:25 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/32344.shtml)
-- 2026-06-30 02:21 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/602425134.shtml)
-- 2026-06-30 02:40 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/19353200.shtml)
+- 2026-06-30 02:41 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/34516.shtml)
+- 2026-06-30 02:26 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/18961889900.shtml)
+- 2026-06-30 02:37 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/561040028.shtml)
+- 2026-06-30 02:39 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/756956.shtml)
+- 2026-06-30 02:49 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/939911.shtml)
+- 2026-06-30 02:23 - [极限挑战第一季](http://www.share.minike.top/Article/details/8425304447.shtml)
+- 2026-06-30 02:41 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/241600333169.shtml)
+- 2026-06-30 02:39 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/293814778476.shtml)
+- 2026-06-30 02:40 - [绘画区你赢了](https://www.share.minike.top/Article/details/41522546.shtml)
+- 2026-06-30 02:25 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/023186194095.shtml)
+- 2026-06-30 02:38 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/533337398.shtml)
+- 2026-06-30 02:21 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/859178956.shtml)
+- 2026-06-30 02:45 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/97232.shtml)
+- 2026-06-30 02:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/45401768.shtml)
+- 2026-06-30 02:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/845771925575.shtml)

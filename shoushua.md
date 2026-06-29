@@ -1,61 +1,49 @@
-# 共话中国经济新机遇｜专访：期待与中国伙伴共拓发展新机遇——访喀麦隆经济、计划和领土整治部长梅伊
+# 湖北黄石：男子腹痛拦警车求助 民警载人闯灯紧急送医
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-新华社雅温得5月7日电专访：期待与中国伙伴共拓发展新机遇——访喀麦隆经济、计划和领土整治部长梅伊 新华社记者王泽欧阳子英 喀麦隆经济、计划和领土整治部长阿拉明·奥斯曼·梅伊日前在喀麦隆首都雅温得接受新华社记者专访时说，近年来，喀麦隆和中国在基础设施建设，特别是港口、公路和能源等领域取得重要合作成果，希望进一步加强对华经贸合作，欢迎中国投资者参与喀麦隆建设，共拓发展新机遇。 20
+发布时间：2026年05月12日 15:01 来源：中国新闻网 5月9日傍晚，在湖北省黄石市月亮山路与四棵大道交叉口，一名男子捂着腹部来到警车边，向车内民警求助。据了解，该男子肾结石突发疼痛，就医途中路遇晚高峰，情况十分危急。民警得知情况后，紧急载人闯灯，仅用9分钟便将男子送至医院进行救治。(作者：刘冲） 责任编辑：【魏聪聪】
 
 ## 正文
 
-新华社雅温得5月7日电专访：期待与中国伙伴共拓发展新机遇——访喀麦隆经济、计划和领土整治部长梅伊 新华社记者王泽欧阳子英 喀麦隆经济、计划和领土整治部长阿拉明·奥斯曼·梅伊日前在喀麦隆首都雅温得接受新华社记者专访时说，近年来，喀麦隆和中国在基础设施建设，特别是港口、公路和能源等领域取得重要合作成果，希望进一步加强对华经贸合作，欢迎中国投资者参与喀麦隆建设，共拓发展新机遇。
+发布时间：2026年05月12日 15:01 来源：中国新闻网 5月9日傍晚，在湖北省黄石市月亮山路与四棵大道交叉口，一名男子捂着腹部来到警车边，向车内民警求助。
 
-2026年是喀麦隆与中国建交55周年。
+据了解，该男子肾结石突发疼痛，就医途中路遇晚高峰，情况十分危急。
 
-梅伊表示，喀麦隆政府和企业通过中非经贸博览会、广交会等平台，与中方伙伴加强交流，建立更紧密的投资和贸易关系，推动双边经贸往来持续深入。
+民警得知情况后，紧急载人闯灯，仅用9分钟便将男子送至医院进行救治。
 
-他说，希望喀中企业进一步加强合作，鼓励更多中小企业参与基础设施建设，促进技能和技术经验转移，更好支持喀麦隆经济社会发展。
-
-谈及中国对53个非洲建交国全面实施零关税举措时，梅伊说，“这是一项具有历史意义的决定”，为喀麦隆提供了进入中国广阔市场的机会。
-
-当前，喀麦隆对华出口的农产品以初级大宗商品为主，主要包括原棉、木材和可可等。
-
-梅伊表示，喀方希望进一步加强生产性投资，特别是在原材料本地加工领域的投入，以提升产品质量和附加值。
-
-梅伊表示，喀麦隆正采取多种措施，积极推动由资源依赖型经济向生产型经济转型。
+(作者：刘冲） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 02:14 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 02:41 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 02:25 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 02:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 02:30 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 02:38 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 02:15 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 02:30 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 02:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 02:38 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 02:30 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 02:33 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-30 02:37 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 02:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 02:37 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 02:21 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 02:37 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 02:48 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 02:22 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 02:23 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 02:35 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 02:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 02:33 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 02:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 02:43 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 02:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:31 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/2739996.shtml)
-- 2026-06-30 02:14 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/49924609.shtml)
-- 2026-06-30 02:16 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/73116.shtml)
-- 2026-06-30 02:39 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/1428851403.shtml)
-- 2026-06-30 02:35 - [刘念回应](http://www.blog.minike.top/Article/details/483115502.shtml)
-- 2026-06-30 02:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/57397.shtml)
-- 2026-06-30 02:28 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/58331121811.shtml)
-- 2026-06-30 02:25 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/01974115.shtml)
-- 2026-06-30 02:39 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/43947688094.shtml)
-- 2026-06-30 02:25 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/794181.shtml)
-- 2026-06-30 02:19 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/31455255500.shtml)
-- 2026-06-30 02:33 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/39675557.shtml)
-- 2026-06-30 02:28 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/628566.shtml)
-- 2026-06-30 02:28 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/41947625939.shtml)
-- 2026-06-30 02:24 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/7490824620.shtml)
+- 2026-06-30 02:27 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/66849500.shtml)
+- 2026-06-30 02:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/278142220152.shtml)
+- 2026-06-30 02:40 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/493068116548.shtml)
+- 2026-06-30 02:24 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/99815997589.shtml)
+- 2026-06-30 02:21 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/84092959.shtml)
+- 2026-06-30 02:42 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/979409272195.shtml)
+- 2026-06-30 02:25 - [TOP Prada](https://www.share.minike.top/Article/details/6983274242.shtml)
+- 2026-06-30 02:40 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/6455956.shtml)
+- 2026-06-30 02:28 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/562513.shtml)
+- 2026-06-30 02:29 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/0588370616.shtml)
+- 2026-06-30 02:19 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/502805228592.shtml)
+- 2026-06-30 02:32 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/60324653.shtml)
+- 2026-06-30 02:45 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/28794247.shtml)
+- 2026-06-30 02:31 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/265219.shtml)
+- 2026-06-30 02:42 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/5966141746.shtml)

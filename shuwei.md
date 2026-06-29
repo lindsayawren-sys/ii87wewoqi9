@@ -1,57 +1,56 @@
-# “敦煌文化环球连线——走进德国杜塞尔多夫”活动举办
+# 华安基金：绩优成长股爆发，创业板50指数上周涨3.67%
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-中新网柏林5月7日电 当地时间7日，“敦煌文化环球连线——走进德国杜塞尔多夫”活动举办。中国驻杜塞尔多夫总领事余勇，甘肃省外办主任徐妍丽，敦煌研究院副院长俞天秀，领区中德友好协会、孔子学院、青年侨胞代表等50余人出席。余勇致辞表示，习近平主席提出全球文明倡议，为构建人类命运共同体指明方向、注入活力。新时代共建“一带一路”，传承丝路和平合作、开放包容的初心，与敦煌贯通中西、联结四
+行情回顾及主要观点： 本周A股市场整体呈现上涨趋势，主要指数普遍上涨：沪深300涨1.34%，中证500涨4.13%，中证1000涨4.29%，创业板50涨3.67%，科创50涨4.42%。A股年报一季报业绩亮眼，创业板50指数2025/2026Q1归母净利润增速高达21.58%/42.38%。通信、电子、计算机等业绩面优异的成长资产表现强劲。在政策持续强调科技创新与新质生产力
 
 ## 正文
 
-中新网柏林5月7日电 当地时间7日，“敦煌文化环球连线——走进德国杜塞尔多夫”活动举办。
+行情回顾及主要观点： 本周A股市场整体呈现上涨趋势，主要指数普遍上涨：沪深300涨1.34%，中证500涨4.13%，中证1000涨4.29%，创业板50涨3.67%，科创50涨4.42%。
 
-中国驻杜塞尔多夫总领事余勇，甘肃省外办主任徐妍丽，敦煌研究院副院长俞天秀，领区中德友好协会、孔子学院、青年侨胞代表等50余人出席。
+A股年报一季报业绩亮眼，创业板50指数2025/2026Q1归母净利润增速高达21.58%/42.38%。
 
-余勇致辞表示，习近平主席提出全球文明倡议，为构建人类命运共同体指明方向、注入活力。
+通信、电子、计算机等业绩面优异的成长资产表现强劲。
 
-新时代共建“一带一路”，传承丝路和平合作、开放包容的初心，与敦煌贯通中西、联结四海的气度一脉相承。
+在政策持续强调科技创新与新质生产力的背景下，后市焦点仍将集中于具备优质业绩的成长型创新企业，大盘成长风格突出的创业板50指数值得重点关注。
 
-总领馆愿勇担桥梁使命，立足属地优势，凝聚友好力量，深耕人文交流，让敦煌故事、中国故事在莱茵大地广为传扬。
+创业板为主要“三创（创新、创造、创意）四新（新技术、新产业、新业态、新模式）”的成长型创新创业企业提供直接融资平台。
 
-敦煌研究院文化弘扬部副部长宋淑霞作“灿烂的敦煌石窟艺术”专题分享，现场来宾踊跃互动，反响热烈。
+权重行业方面，创业板50指数聚焦信息技术+新能源+金融科技+医药四大新质生产力赛道，科技成长属性纯粹。
 
-(完)
+图：创业板50指数四大赛道 数据来源：Wind，华安基金，截至2026-5-8 创业板50指数：追“光”识“新”更掘“金”。
+
+横向对比来看，创业板50指数的光模块含量、新能源光伏含量以及金融科技含量优于创业板指以及主流宽基指数。
 
 ## 相关推荐
 
-- 2026-06-30 02:30 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 02:25 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 02:33 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 02:32 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 02:19 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 02:20 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 02:36 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 02:38 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-30 02:36 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 02:24 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 02:39 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 02:34 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 02:34 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 02:43 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 02:44 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 02:27 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 02:35 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 02:25 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 02:34 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 02:27 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 02:40 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 02:46 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 02:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/3726298069.shtml)
-- 2026-06-30 02:39 - [女心理师](https://www.share.minike.top/Article/details/700204054.shtml)
-- 2026-06-30 02:20 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/309519504520.shtml)
-- 2026-06-30 02:17 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/22111278.shtml)
-- 2026-06-30 02:29 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/0417864.shtml)
-- 2026-06-30 02:17 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/72719139584.shtml)
-- 2026-06-30 02:17 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/121969561512.shtml)
-- 2026-06-30 02:33 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/270294643.shtml)
-- 2026-06-30 02:19 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/780873.shtml)
-- 2026-06-30 02:36 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/74437420.shtml)
-- 2026-06-30 02:41 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/1241613.shtml)
-- 2026-06-30 02:33 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/556582012875.shtml)
-- 2026-06-30 02:33 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/9243619.shtml)
-- 2026-06-30 02:27 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/9600178.shtml)
-- 2026-06-30 02:30 - [千香](http://www.share.minike.top/Article/details/188098948817.shtml)
+- 2026-06-30 02:45 - [85花告别古偶](http://www.share.minike.top/Article/details/69438060701.shtml)
+- 2026-06-30 02:38 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/21555.shtml)
+- 2026-06-30 02:43 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/936020299986.shtml)
+- 2026-06-30 02:28 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/6134811.shtml)
+- 2026-06-30 02:26 - [扬名立万](https://www.blog.minike.top/Article/details/404968.shtml)
+- 2026-06-30 02:20 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/586462766837.shtml)
+- 2026-06-30 02:45 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/56432.shtml)
+- 2026-06-30 02:39 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/542843.shtml)
+- 2026-06-30 02:42 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/35782162.shtml)
+- 2026-06-30 02:27 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/286029.shtml)
+- 2026-06-30 02:47 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/4965325434.shtml)
+- 2026-06-30 02:46 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/43704337592.shtml)
+- 2026-06-30 02:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/56119.shtml)
+- 2026-06-30 02:29 - [刘念回应](https://www.share.minike.top/Article/details/0345830.shtml)
+- 2026-06-30 02:33 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/004711.shtml)

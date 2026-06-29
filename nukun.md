@@ -1,57 +1,57 @@
-# NOAA拨款2160万美元采购无人船艇，助力新一代海图测绘
+# 稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-美国国家海洋和大气管理局宣布拨款2160万美元，用于采购无人船艇系统，配备至该局正在建造的新型海图测绘船上。此举旨在支持NOAA的核心使命：提供工具与数据，助力航运业安全运输每年进出美国港口、价值约2.3万亿美元的货物。合同授予路易斯安那州拉斐特的Chance Maritime Technologies公司，为期五年，最多可采购八套系统。 新系统提供多种指挥与控制模式，包括操作
+在政策利好释放、供需格局改善的双重驱动下，稀土行业景气度有望持续上行，多家龙头企业一季度业绩普遍高增，板块中长期投资价值或进一步夯实。不少市场资金也积极布局赛道机会，Wind数据显示，市场首只稀土产业主题ETF——稀土ETF华泰柏瑞（516780）5月以来连续获资金增持（5/6-5/11），成为助力资金布局稀土板块的重要工具。 政策方面，2026年5月9日国务院常务会议审议通过
 
 ## 正文
 
-美国国家海洋和大气管理局宣布拨款2160万美元，用于采购无人船艇系统，配备至该局正在建造的新型海图测绘船上。
+在政策利好释放、供需格局改善的双重驱动下，稀土行业景气度有望持续上行，多家龙头企业一季度业绩普遍高增，板块中长期投资价值或进一步夯实。
 
-此举旨在支持NOAA的核心使命：提供工具与数据，助力航运业安全运输每年进出美国港口、价值约2.3万亿美元的货物。
+不少市场资金也积极布局赛道机会，Wind数据显示，市场首只稀土产业主题ETF——稀土ETF华泰柏瑞（516780）5月以来连续获资金增持（5/6-5/11），成为助力资金布局稀土板块的重要工具。
 
-合同授予路易斯安那州拉斐特的Chance Maritime Technologies公司，为期五年，最多可采购八套系统。
+政策方面，2026年5月9日国务院常务会议审议通过《中华人民共和国矿产资源法实施条例 （草案）》，正式将稀土等矿产列入国家级战略性矿产目录。
 
-新系统提供多种指挥与控制模式，包括操作员直接控制、具备避障和动态航迹跟踪等半自主能力的监督控制，以及在特定情况下的全自主运行。
+该《条例》通过审批上收、总量严控、全链条监管、出口收紧、生态硬约束等多重举措，从顶层法规层面强化稀土国家战略管控，推动稀土行业进一步集中化、规范化、价值重估，重塑行业供给与竞争格局。
 
-船艇与无人系统的协同设计，确保NOAA符合监管要求并保障作业安全。
+消息方面，5月11日某稀土龙头召开业绩说明会，对稀土行业的长期发展持积极态度。
 
-2025年，NOAA已为两艘新型海图测绘船“测量员号”和“领航员号”举行龙骨铺设仪式，以扩大船队规模。
+该稀土龙头表示，今年来伴随下游终端需求的稳步增加，部分稀土产品价格呈现出上涨趋势。
 
-无人系统将部署于这两艘船上，用于补充传统海床测绘方法。
+中长期来看，随着稀土在新兴领域的应用范围不断扩大，叠加行业技术进步，稀土应用场景逐步拓展，稀土供需格局有望持续改善。
 
-这些系统还将配备以支持渔业声学调查等其他数据采集工作。
+政策端与消息面的利好，显著提升了稀土ETF华泰柏瑞（516780）等产品的市场关注度。
 
 ## 相关推荐
 
-- 2026-06-30 02:27 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 02:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 02:39 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 02:25 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 02:20 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 02:30 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 02:12 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 02:39 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 02:23 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 02:40 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 02:17 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 02:24 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 02:39 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 02:28 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 02:29 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 02:48 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 02:33 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 02:24 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 02:32 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 02:47 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 02:40 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 02:25 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:41 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/391279105.shtml)
-- 2026-06-30 02:39 - [急先锋](http://www.share.kurohicncr.top/Article/details/58646492.shtml)
-- 2026-06-30 02:17 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/64871702581.shtml)
-- 2026-06-30 02:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/792721015.shtml)
-- 2026-06-30 02:27 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/35901.shtml)
-- 2026-06-30 02:12 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/259898087843.shtml)
-- 2026-06-30 02:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/5746347.shtml)
-- 2026-06-30 02:26 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/76820.shtml)
-- 2026-06-30 02:26 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/04253959.shtml)
-- 2026-06-30 02:36 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/6871494.shtml)
-- 2026-06-30 02:21 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/759006163.shtml)
-- 2026-06-30 02:18 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/5209023406.shtml)
-- 2026-06-30 02:12 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/44882361711.shtml)
-- 2026-06-30 02:15 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/159526482.shtml)
-- 2026-06-30 02:20 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/901451858.shtml)
+- 2026-06-30 02:29 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/031302201.shtml)
+- 2026-06-30 02:31 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/0555753999.shtml)
+- 2026-06-30 02:45 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/98559297391.shtml)
+- 2026-06-30 02:26 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/478431.shtml)
+- 2026-06-30 02:33 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/2836114.shtml)
+- 2026-06-30 02:20 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/970829825.shtml)
+- 2026-06-30 02:46 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/225196.shtml)
+- 2026-06-30 02:38 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/6728027.shtml)
+- 2026-06-30 02:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/274902339.shtml)
+- 2026-06-30 02:26 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/606395852757.shtml)
+- 2026-06-30 02:26 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/086133507.shtml)
+- 2026-06-30 02:39 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/13167015.shtml)
+- 2026-06-30 02:30 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/34561.shtml)
+- 2026-06-30 02:25 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/63063.shtml)
+- 2026-06-30 02:38 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/62707.shtml)

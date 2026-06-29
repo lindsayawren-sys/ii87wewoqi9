@@ -1,56 +1,59 @@
-# 甘肃庆阳宁县：持续巩固提升全省民族团结进步示范县创建成果
+# 激进投资者佩尔茨洽谈融资，拟将温迪汉堡私有化
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-原标题：宁县持续巩固提升全省民族团结进步示范县创建成果 近年来，宁县以铸牢中华民族共同体意识为主线，聚焦全省民族团结进步示范县创建成果巩固提升，以“五措发力、六大工程”为抓手，推动创建工作提质增效、常态长效，让民族团结之花在宁州大地常开长盛。 一、坚持党建领航，筑牢创建工作坚强保障。始终坚持党对民族工作的全面领导，健全完善“县委统筹、部门协同、乡镇落实、社会参与”的工作机制，成
+激进投资者纳尔逊·佩尔茨旗下的Trian基金管理公司正在与外部投资者洽谈融资，拟对美国快餐连锁店温迪汉堡发起私有化收购要约。 交易进展 《金融时报》报道称，Trian已与包括中东地区投资者在内的多方就潜在收购案的融资事宜进行磋商。佩尔茨目前持有温迪汉堡约16.24%的股份，是该公司的最大股东。Trian执行董事彼得·梅以及佩尔茨之子布拉德利·佩尔茨也同时在温迪董事会任职。 这并
 
 ## 正文
 
-原标题：宁县持续巩固提升全省民族团结进步示范县创建成果 近年来，宁县以铸牢中华民族共同体意识为主线，聚焦全省民族团结进步示范县创建成果巩固提升，以“五措发力、六大工程”为抓手，推动创建工作提质增效、常态长效，让民族团结之花在宁州大地常开长盛。
+激进投资者纳尔逊·佩尔茨旗下的Trian基金管理公司正在与外部投资者洽谈融资，拟对美国快餐连锁店温迪汉堡发起私有化收购要约。
 
-一、坚持党建领航，筑牢创建工作坚强保障。
+交易进展 《金融时报》报道称，Trian已与包括中东地区投资者在内的多方就潜在收购案的融资事宜进行磋商。
 
-始终坚持党对民族工作的全面领导，健全完善“县委统筹、部门协同、乡镇落实、社会参与”的工作机制，成立创建工作领导小组与专项工作专班，将民族团结进步创建工作纳入县委、县政府重点工作部署。
+佩尔茨目前持有温迪汉堡约16.24%的股份，是该公司的最大股东。
 
-严格落实“第一议题”制度，常态化开展党的民族理论政策学习教育，精心组织各类主题党日活动，充分发挥各级党组织在创建工作中的战斗堡垒作用。
+Trian执行董事彼得·梅以及佩尔茨之子布拉德利·佩尔茨也同时在温迪董事会任职。
 
-量身制定创建成果巩固提升实施方案，细化明确责任清单、任务清单，足额保障工作经费投入，构建起上下联动、齐抓共管的工作格局，为创建成果持续巩固提供坚强组织保证。
+这并非佩尔茨首次考虑这一交易。
 
-二、深化宣传教育，厚植民族团结思想根基。
+他曾在2022年探索过私有化可能性，今年2月又公开表示温迪股价被低估，并透露已与潜在融资方就收购等重大交易进行沟通。
 
-构建“线上+线下”全方位、立体化宣传矩阵，持续夯实中华民族共同体思想基础。
+公司基本面 温迪汉堡近期基本面承压。
 
-高标准建成宁县铸牢中华民族共同体意识主题教育馆，改造提升各类宣传阵地，其中包括宣传长廊6处、主题广场8处、小游园12处、特色小景观105处，打造形成特色鲜明的“红石榴”宣传阵地集群。
+公司上周公布的一季报显示，虽然每股收益0.12美元略高于预期的0.10美元，但较去年同期的0.20美元大幅下滑。
 
 ## 相关推荐
 
-- 2026-06-30 02:15 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 02:12 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 02:24 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 02:21 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 02:39 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 02:28 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 02:26 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 02:32 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 02:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 02:28 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 02:47 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 02:22 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 02:28 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 02:29 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 02:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 02:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 02:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 02:35 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 02:47 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 02:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 02:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 02:41 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 02:32 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:28 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/07639.shtml)
-- 2026-06-30 02:36 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/666614.shtml)
-- 2026-06-30 02:22 - [千香](https://www.blog.kurohicncr.top/Article/details/87741119.shtml)
-- 2026-06-30 02:17 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/390967.shtml)
-- 2026-06-30 02:32 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/373363610.shtml)
-- 2026-06-30 02:25 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/746892810721.shtml)
-- 2026-06-30 02:24 - [我们的少年时代2](https://www.share.minike.top/Article/details/2586225579.shtml)
-- 2026-06-30 02:30 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/701170476886.shtml)
-- 2026-06-30 02:36 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/945372878.shtml)
-- 2026-06-30 02:37 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/91962.shtml)
-- 2026-06-30 02:21 - [点菜也要教吗](http://www.share.minike.top/Article/details/3099393.shtml)
-- 2026-06-30 02:20 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/296869752033.shtml)
-- 2026-06-30 02:26 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/692334349.shtml)
-- 2026-06-30 02:38 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/68250743613.shtml)
-- 2026-06-30 02:23 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/2120295.shtml)
+- 2026-06-30 02:42 - [85花告别古偶](https://www.blog.minike.top/Article/details/1019854242.shtml)
+- 2026-06-30 02:29 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/8838788.shtml)
+- 2026-06-30 02:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/9494743.shtml)
+- 2026-06-30 02:24 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/12937.shtml)
+- 2026-06-30 02:49 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/81930712995.shtml)
+- 2026-06-30 02:44 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/65832.shtml)
+- 2026-06-30 02:29 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/7417113.shtml)
+- 2026-06-30 02:31 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/58466880081.shtml)
+- 2026-06-30 02:43 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/505258813425.shtml)
+- 2026-06-30 02:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/71084.shtml)
+- 2026-06-30 02:28 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/103556126.shtml)
+- 2026-06-30 02:44 - [女心理师](https://www.blog.minike.top/Article/details/4090067435.shtml)
+- 2026-06-30 02:47 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/456174800284.shtml)
+- 2026-06-30 02:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/535877312.shtml)
+- 2026-06-30 02:36 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/8144849.shtml)

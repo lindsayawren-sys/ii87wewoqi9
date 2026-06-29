@@ -1,57 +1,53 @@
-# 事关文物归还 法国立法简化程序有何意义？专家解读
+# 外交部：中方愿同俄方推动构建更加公正合理的全球治理体系
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-北京时间昨晚，法国参议院以343票赞成、0票反对的投票结果，通过一项旨在简化非法所获他国文物归还程序的法律草案。该草案此前已获国民议会通过，新法将简化行政流程，为流失文物返还提供制度便利。 按程序，法律草案经法国议会两院通过完全一致的文本后，总统应在15天内颁布该法律。那么，我们应该如何看待这部法律草案？它对我国文物回归有何意义？一起来看专家解读。 这部法律实施 能解决哪些问题
+新华社北京5月11日电(记者万倩仪、董雪)就俄罗斯总统普京表示俄中战略协作已成为遏制冲突、维护全球战略稳定的关键支柱，外交部发言人郭嘉昆11日在例行记者会上答问时表示，中俄是新时代全面战略协作伙伴。近年来，在习近平主席和普京总统的战略引领下，中俄关系保持高水平发展，为变乱交织的世界注入强大稳定性。今年，中俄关系发展迎来新的历史机遇。中方愿同俄方继续秉持永久睦邻友好、全面战略协作
 
 ## 正文
 
-北京时间昨晚，法国参议院以343票赞成、0票反对的投票结果，通过一项旨在简化非法所获他国文物归还程序的法律草案。
+新华社北京5月11日电(记者万倩仪、董雪)就俄罗斯总统普京表示俄中战略协作已成为遏制冲突、维护全球战略稳定的关键支柱，外交部发言人郭嘉昆11日在例行记者会上答问时表示，中俄是新时代全面战略协作伙伴。
 
-该草案此前已获国民议会通过，新法将简化行政流程，为流失文物返还提供制度便利。
+近年来，在习近平主席和普京总统的战略引领下，中俄关系保持高水平发展，为变乱交织的世界注入强大稳定性。
 
-按程序，法律草案经法国议会两院通过完全一致的文本后，总统应在15天内颁布该法律。
+今年，中俄关系发展迎来新的历史机遇。
 
-那么，我们应该如何看待这部法律草案？
-
-它对我国文物回归有何意义？
-
-一起来看专家解读。
-
-这部法律实施 能解决哪些问题？
-
-中国政法大学教授 霍政欣：这个法案是文物追索返还领域一个非常重要的法国国内立法，开启了新篇章。
+中方愿同俄方继续秉持永久睦邻友好、全面战略协作、互利合作共赢精神，不断加强各领域合作，推动构建更加公正合理的全球治理体系。
 
 ## 相关推荐
 
-- 2026-06-30 02:19 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 02:28 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 02:30 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 02:20 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 02:12 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 02:34 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 02:35 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 02:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 02:14 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 02:37 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 02:18 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-30 02:29 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 02:42 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 02:22 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 02:20 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 02:34 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 02:21 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 02:31 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 02:24 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 02:45 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 02:49 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 02:44 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 02:34 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 02:24 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 02:44 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 02:44 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:35 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/448861.shtml)
-- 2026-06-30 02:28 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/903364864049.shtml)
-- 2026-06-30 02:34 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/817423.shtml)
-- 2026-06-30 02:29 - [沙丘](http://www.share.minike.top/Article/details/047529739.shtml)
-- 2026-06-30 02:21 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/528381488.shtml)
-- 2026-06-30 02:14 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/66597284.shtml)
-- 2026-06-30 02:16 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/543190.shtml)
-- 2026-06-30 02:28 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/327630355.shtml)
-- 2026-06-30 02:13 - [点菜也要教吗](https://www.blog.minike.top/Article/details/504415276712.shtml)
-- 2026-06-30 02:40 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/41503163.shtml)
-- 2026-06-30 02:14 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/090353754.shtml)
-- 2026-06-30 02:15 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/95238543003.shtml)
-- 2026-06-30 02:27 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/381288504544.shtml)
-- 2026-06-30 02:23 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/628290935.shtml)
-- 2026-06-30 02:18 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/6606129861.shtml)
+- 2026-06-30 02:26 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/3178602077.shtml)
+- 2026-06-30 02:19 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/233465.shtml)
+- 2026-06-30 02:27 - [金牌调解](http://www.share.kurohicncr.top/Article/details/720816677256.shtml)
+- 2026-06-30 02:40 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/554659.shtml)
+- 2026-06-30 02:45 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/447378353.shtml)
+- 2026-06-30 02:35 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/049380236532.shtml)
+- 2026-06-30 02:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/18118324.shtml)
+- 2026-06-30 02:45 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/412267015.shtml)
+- 2026-06-30 02:27 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/3045043.shtml)
+- 2026-06-30 02:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/380473886453.shtml)
+- 2026-06-30 02:39 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/748402.shtml)
+- 2026-06-30 02:33 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/26503054.shtml)
+- 2026-06-30 02:45 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/69388770.shtml)
+- 2026-06-30 02:20 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/834265021.shtml)
+- 2026-06-30 02:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/688954155.shtml)

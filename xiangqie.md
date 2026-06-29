@@ -1,44 +1,57 @@
-# 上海电气拟派发末期股息每10股0.1425元
+# 软银向这家英国AI芯片公司注资4.5亿美元
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-上海电气（02727）发布公告，拟派发截至2025年12月31日止年度的末期股息每10股0.1425元。责任编辑：卢昱君
+核心要点 格芯科尔（Graphcore）向美国消费者新闻与商业频道（CNBC）证实，软银已向其注资4.57 亿美元，这家 AI 芯片企业于 2024 年被软银收购。 此次收购是这家日本巨头布局人工智能基础设施与硬件领域的重要举措。 软银表示，格芯科尔将与其合作研发通用人工智能（AGI），即人工智能达到甚至超越人类智能水平。 CNBC 获悉，日本投资巨头软银已向一家芯片公司注资超
 
 ## 正文
 
-上海电气（02727）发布公告，拟派发截至2025年12月31日止年度的末期股息每10股0.1425元。
+核心要点 格芯科尔（Graphcore）向美国消费者新闻与商业频道（CNBC）证实，软银已向其注资4.57 亿美元，这家 AI 芯片企业于 2024 年被软银收购。
 
-责任编辑：卢昱君
+此次收购是这家日本巨头布局人工智能基础设施与硬件领域的重要举措。
+
+软银表示，格芯科尔将与其合作研发通用人工智能（AGI），即人工智能达到甚至超越人类智能水平。
+
+CNBC 获悉，日本投资巨头软银已向一家芯片公司注资超 4.5 亿美元，持续加码布局人工智能基础设施及硬件赛道。
+
+英国 AI 芯片及系统研发企业格芯科尔于 2024 年被软银收购。
+
+根据英国公司注册处备案文件，该公司于 4 月 10 日发行一股价值4.57 亿美元的股份。
+
+格芯科尔发言人向 CNBC 确认，这笔资金来自软银；目前媒体已联系软银寻求置评。
+
+收购之初，软银曾表示，总部位于英国的格芯科尔将与其联手研发通用人工智能（AGI），目标是让人工智能能力比肩甚至超越人类智能。
 
 ## 相关推荐
 
-- 2026-06-30 02:31 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 02:18 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 02:39 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 02:34 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 02:20 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 02:12 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-30 02:37 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 02:36 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 02:42 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 02:35 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 02:32 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 02:19 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 02:48 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 02:47 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 02:23 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 02:40 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 02:33 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 02:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 02:33 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 02:24 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 02:33 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:25 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/40699650.shtml)
-- 2026-06-30 02:21 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/018743.shtml)
-- 2026-06-30 02:30 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/043439982.shtml)
-- 2026-06-30 02:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/07340.shtml)
-- 2026-06-30 02:33 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/654976.shtml)
-- 2026-06-30 02:14 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/012958655899.shtml)
-- 2026-06-30 02:13 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/005972.shtml)
-- 2026-06-30 02:29 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/678593321538.shtml)
-- 2026-06-30 02:36 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/9230036215.shtml)
-- 2026-06-30 02:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/47379974.shtml)
-- 2026-06-30 02:26 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/1092047.shtml)
-- 2026-06-30 02:18 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/34078.shtml)
-- 2026-06-30 02:32 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/351679.shtml)
-- 2026-06-30 02:34 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/7508966.shtml)
-- 2026-06-30 02:35 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/75971612039.shtml)
+- 2026-06-30 02:45 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/60363.shtml)
+- 2026-06-30 02:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/854275.shtml)
+- 2026-06-30 02:20 - [刘念回应](http://www.blog.minike.top/Article/details/93282.shtml)
+- 2026-06-30 02:48 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/722232032.shtml)
+- 2026-06-30 02:40 - [毒液2](https://www.share.kurohicncr.top/Article/details/327863930658.shtml)
+- 2026-06-30 02:29 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/30818252.shtml)
+- 2026-06-30 02:42 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/271751730872.shtml)
+- 2026-06-30 02:44 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/892894632.shtml)
+- 2026-06-30 02:26 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/442063692.shtml)
+- 2026-06-30 02:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/81867660.shtml)
+- 2026-06-30 02:49 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/263592.shtml)
+- 2026-06-30 02:33 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/7441384642.shtml)
+- 2026-06-30 02:35 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/57093843096.shtml)
+- 2026-06-30 02:38 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/430006656.shtml)
+- 2026-06-30 02:19 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/2979727.shtml)

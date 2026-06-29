@@ -1,60 +1,59 @@
-# 初创公司Propy拟动用1亿美元，将房产交易搬上区块链
+# OpenAI同意向欧盟开放全新AI模型，而Anthropic仍拒绝向欧盟开放Mythos
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 核心要点 凡是买卖过房产的人都知道，房产交割流程冗长又繁琐。流程充斥老旧纸质文件，需要多方反复签字、信息披露，还有大量合规表单。尽管部分环节已实现数字化，但整体仍未摆脱传统模式。 如今一个解决方案应运而生：把所有房产交易流程搬上区块链。 2017 年成立、总部位于迈阿密的区块链科技企业 Propy，一直致力于推动房产交割流程现代
+核心要点 OpenAI 周一表示，将向欧盟开放其全新网络安全 AI 模型，但 Anthropic 仍迟迟不愿向欧盟开放旗下 Mythos 大模型。 OpenAI 称，欧盟境内的企业、政府机构、网络安全主管部门，以及欧盟人工智能办公室等欧盟机构，都将获准接入GPT-5.5-Cyber—— 该公司最新旗舰 AI 模型的衍生专用版本。 OpenAI 此前已宣布，向通过严格审核的网络安
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 核心要点 凡是买卖过房产的人都知道，房产交割流程冗长又繁琐。
+核心要点 OpenAI 周一表示，将向欧盟开放其全新网络安全 AI 模型，但 Anthropic 仍迟迟不愿向欧盟开放旗下 Mythos 大模型。
 
-流程充斥老旧纸质文件，需要多方反复签字、信息披露，还有大量合规表单。
+OpenAI 称，欧盟境内的企业、政府机构、网络安全主管部门，以及欧盟人工智能办公室等欧盟机构，都将获准接入GPT-5.5-Cyber—— 该公司最新旗舰 AI 模型的衍生专用版本。
 
-尽管部分环节已实现数字化，但整体仍未摆脱传统模式。
+OpenAI 此前已宣布，向通过严格审核的网络安全团队推出该模型的限量预览版。
 
-如今一个解决方案应运而生：把所有房产交易流程搬上区块链。
+而就在一个月前，Anthropic 发布了自家 Mythos 大模型，引发外界对关键软件遭遇网络攻击的普遍担忧。
 
-2017 年成立、总部位于迈阿密的区块链科技企业 Propy，一直致力于推动房产交割流程现代化，并近期获得大额资金助力。
+欧盟委员会发言人托马斯・勒尼耶在周一新闻发布会上表示： “我们欢迎 OpenAI 展现出的透明度，以及主动向欧盟委员会开放新模型的态度。
 
-今年 1 月末，Propy 宣布从私募投资机构大都会合伙集团敲定1 亿美元信贷额度。
+” 他证实，OpenAI 已与欧盟完成首轮沟通，本周还将围绕模型接入事宜展开进一步磋商。
 
-公司表示，这笔资金将用于整合产权公司与托管机构，打造一套由人工智能驱动、全流程一体化的房产交割平台。
+他补充称：“这将让我们能够密切跟踪该模型的落地应用，并及时应对各类安全隐患。
 
-Propy 创始人兼首席执行官娜塔莉亚・卡拉亚内娃表示：“我们坚信，区块链是继互联网之后的下一个时代变革浪潮。
+” 尽管 Mythos 模型已发布一个月，Anthropic 至今仍未向欧盟开放预览、评测权限。
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 02:16 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 02:22 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 02:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 02:24 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 02:41 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 02:21 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 02:24 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 02:24 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 02:31 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 02:18 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 02:19 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 02:14 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 02:38 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 02:23 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 02:39 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 02:36 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-30 02:48 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 02:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 02:22 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 02:44 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 02:47 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 02:22 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 02:29 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 02:28 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 02:31 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 02:33 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:18 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/570643113.shtml)
-- 2026-06-30 02:28 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/962640.shtml)
-- 2026-06-30 02:20 - [天道](https://www.share.kurohicncr.top/Article/details/60921996.shtml)
-- 2026-06-30 02:17 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/36609260966.shtml)
-- 2026-06-30 02:30 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/423134902.shtml)
-- 2026-06-30 02:32 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/01806622.shtml)
-- 2026-06-30 02:36 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/699554372553.shtml)
-- 2026-06-30 02:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/19924.shtml)
-- 2026-06-30 02:41 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/5267337706.shtml)
-- 2026-06-30 02:27 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/838924858.shtml)
-- 2026-06-30 02:15 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/303300806.shtml)
-- 2026-06-30 02:12 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/63892.shtml)
-- 2026-06-30 02:22 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/2507654.shtml)
-- 2026-06-30 02:36 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/2661944.shtml)
-- 2026-06-30 02:37 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/81790390.shtml)
+- 2026-06-30 02:28 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/3461690740.shtml)
+- 2026-06-30 02:23 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/9737060.shtml)
+- 2026-06-30 02:48 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/4042310.shtml)
+- 2026-06-30 02:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/315156674.shtml)
+- 2026-06-30 02:30 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/92168843.shtml)
+- 2026-06-30 02:20 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/817955871.shtml)
+- 2026-06-30 02:43 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/57941138.shtml)
+- 2026-06-30 02:37 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/1799340618.shtml)
+- 2026-06-30 02:43 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/2234938252.shtml)
+- 2026-06-30 02:38 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/1053962937.shtml)
+- 2026-06-30 02:42 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/085335186559.shtml)
+- 2026-06-30 02:31 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/0556410.shtml)
+- 2026-06-30 02:26 - [沉睡花园](https://www.share.minike.top/Article/details/1118073.shtml)
+- 2026-06-30 02:31 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/982620211087.shtml)
+- 2026-06-30 02:41 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/342248403379.shtml)

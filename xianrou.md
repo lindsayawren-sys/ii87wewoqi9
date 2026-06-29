@@ -1,51 +1,59 @@
-# 新疆维吾尔自治区政协原党组成员、副主席金之镇被“双开”
+# 李亚芯/叶秋语组合斩获2026江西网球公开赛女双冠军
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-中新网5月7日电 据中央纪委国家监委网站消息，经中共中央批准，中央纪委国家监委对新疆维吾尔自治区政协原党组成员、副主席金之镇严重违纪违法问题进行了立案审查调查。 经查，金之镇丧失理想信念，背弃初心使命，对抗组织审查；违反中央八项规定精神，接受私营企业主提供的“管家式”服务，接受可能影响公正执行公务的宴请；违反组织原则，在组织谈话时不如实说明问题；廉洁底线失守，违规收受礼金，搞权
+中新网九江5月11日电 (记者 吴鹏泉)2026江西(九江)网球公开赛女双决赛10日在江西九江举行，李亚芯/叶秋语组合战胜党一鸣/尤晓迪组合，斩获女双冠军。 当日女双决赛中，党一鸣/尤晓迪组合迅速打出状态，凭借犀利的网前进攻和关键分的稳定发挥，拿下首盘。次盘，李亚芯/叶秋语组合调整战术节奏，加强底线相持的韧性，提升接发的攻击性，扳回一城。决胜盘，双方你来我往，比分始终紧咬，在赛
 
 ## 正文
 
-中新网5月7日电 据中央纪委国家监委网站消息，经中共中央批准，中央纪委国家监委对新疆维吾尔自治区政协原党组成员、副主席金之镇严重违纪违法问题进行了立案审查调查。
+中新网九江5月11日电 (记者 吴鹏泉)2026江西(九江)网球公开赛女双决赛10日在江西九江举行，李亚芯/叶秋语组合战胜党一鸣/尤晓迪组合，斩获女双冠军。
 
-经查，金之镇丧失理想信念，背弃初心使命，对抗组织审查；违反中央八项规定精神，接受私营企业主提供的“管家式”服务，接受可能影响公正执行公务的宴请；违反组织原则，在组织谈话时不如实说明问题；廉洁底线失守，违规收受礼金，搞权色交易；干预和插手市场经济活动；将党和人民赋予的公权力异化为谋取私利的工具，大肆收钱敛财，利用职务便利为他人在项目承揽、企业经营等方面谋利，并非法收受巨额财物。
+当日女双决赛中，党一鸣/尤晓迪组合迅速打出状态，凭借犀利的网前进攻和关键分的稳定发挥，拿下首盘。
 
-金之镇严重违反党的政治纪律、组织纪律、廉洁纪律、工作纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+次盘，李亚芯/叶秋语组合调整战术节奏，加强底线相持的韧性，提升接发的攻击性，扳回一城。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中央纪委常委会会议研究并报中共中央批准，决定给予金之镇开除党籍处分；由国家监委给予其开除公职处分；终止其新疆维吾尔自治区第十次党代会代表资格；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+决胜盘，双方你来我往，比分始终紧咬，在赛点时刻党一鸣/尤晓迪组合失误，李亚芯/叶秋语组合把握住机会，拿下比赛。
+
+经过三盘鏖战，李亚芯/叶秋语组合以2比1的大比分逆转击败对手，夺得女双冠军。
+
+赛后二人表示，赛前特意调整状态、放松身心，以平和心态面对比赛。
+
+面对胶着与落后，她们始终专注当下，稳扎稳打，最终拿下胜利。
+
+2026江西(九江)网球公开赛首次实现ATP男子职业网球挑战赛与WTA女子职业网球系列赛同步举办，吸引20多个国家和地区的近130名职业球员参赛。
 
 ## 相关推荐
 
-- 2026-06-30 02:23 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 02:19 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-30 02:36 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 02:32 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 02:17 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 02:41 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-30 02:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 02:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 02:21 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 02:31 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 02:22 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 02:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 02:27 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 02:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 02:28 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 02:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 02:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 02:40 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 02:28 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 02:42 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 02:23 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 02:46 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 02:34 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 02:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 02:47 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 02:48 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:32 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/0583011.shtml)
-- 2026-06-30 02:25 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/901398814.shtml)
-- 2026-06-30 02:23 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/006930322326.shtml)
-- 2026-06-30 02:33 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/29593194.shtml)
-- 2026-06-30 02:32 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/086763032779.shtml)
-- 2026-06-30 02:20 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/00397648.shtml)
-- 2026-06-30 02:30 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/526839057.shtml)
-- 2026-06-30 02:35 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/31617.shtml)
-- 2026-06-30 02:18 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/43254.shtml)
-- 2026-06-30 02:30 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/73417212.shtml)
-- 2026-06-30 02:39 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/663668302.shtml)
-- 2026-06-30 02:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/1188650.shtml)
-- 2026-06-30 02:13 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/93836.shtml)
-- 2026-06-30 02:21 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/801032.shtml)
-- 2026-06-30 02:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/1777958339.shtml)
+- 2026-06-30 02:30 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/048360352559.shtml)
+- 2026-06-30 02:38 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/37576551437.shtml)
+- 2026-06-30 02:29 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/6705997.shtml)
+- 2026-06-30 02:28 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/4669538498.shtml)
+- 2026-06-30 02:34 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/731034547410.shtml)
+- 2026-06-30 02:39 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/56588.shtml)
+- 2026-06-30 02:36 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/556359.shtml)
+- 2026-06-30 02:38 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/6646262834.shtml)
+- 2026-06-30 02:43 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/910222995.shtml)
+- 2026-06-30 02:25 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/2937827.shtml)
+- 2026-06-30 02:41 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/531233875843.shtml)
+- 2026-06-30 02:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/9267680162.shtml)
+- 2026-06-30 02:19 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/63158184.shtml)
+- 2026-06-30 02:34 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/836004.shtml)
+- 2026-06-30 02:30 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/109558.shtml)

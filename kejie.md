@@ -1,51 +1,56 @@
-# 先导智能获摩根大通增持22.34万股 每股作价约59.23港元
+# 墨西哥取消为世界杯提前40天放暑假计划
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，4月30日，摩根大通增持先导智能（00470）22.34万股，每股作价59.2344港元，总金额约为1323.3万港元。增持后最新持股数目约为989.86万股，最新持股比例为9.16%。责任编辑：卢昱君
+中新社北京5月12日电 墨西哥城消息：墨西哥政府当地时间11日说，因遭到家长、智库和地方政府的反对，为迎接世界杯提前40天放暑假的计划被取消。 据英国广播公司、法新社等媒体12日报道，墨西哥教育部门及其他部门的政府官员11日召开会议，听取家长意见并探讨解决方案。墨西哥教育部门表示，会议一致同意维持原定的学年安排，本学年仍将按原计划于7月15日结束，随后放暑假至8月底。 此前，墨
 
 ## 正文
 
-香港联交所最新资料显示，4月30日，摩根大通增持先导智能（00470）22.34万股，每股作价59.2344港元，总金额约为1323.3万港元。
+中新社北京5月12日电 墨西哥城消息：墨西哥政府当地时间11日说，因遭到家长、智库和地方政府的反对，为迎接世界杯提前40天放暑假的计划被取消。
 
-增持后最新持股数目约为989.86万股，最新持股比例为9.16%。
+据英国广播公司、法新社等媒体12日报道，墨西哥教育部门及其他部门的政府官员11日召开会议，听取家长意见并探讨解决方案。
 
-责任编辑：卢昱君
+墨西哥教育部门表示，会议一致同意维持原定的学年安排，本学年仍将按原计划于7月15日结束，随后放暑假至8月底。
+
+此前，墨西哥已有两州明确拒绝缩短学年。
+
+哈利斯科州仅在承办世界杯赛事的4天期间停课；新莱昂州州长称，该州中小学校会沿用原有校历安排。
+
+墨西哥教育部长马里奥·德尔加多7日说，考虑到筹备世界杯赛事及“异常热浪”来袭等因素，政府定于6月5日结束本学年，即提前40天放暑假。
+
+不少家长表示，政府提前放暑假的决定令他们措手不及，这意味着他们不得不寻找托管机构，并承担更多育儿费用。
+
+墨西哥全国家长联盟表示，以世界杯为由取消课程是“不可原谅的”。
 
 ## 相关推荐
 
-- 2026-06-30 02:21 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 02:14 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 02:37 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 02:15 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 02:26 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 02:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 02:24 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 02:12 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 02:17 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 02:24 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 02:15 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 02:26 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 02:31 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 02:19 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 02:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 02:45 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 02:44 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 02:20 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 02:21 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 02:43 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 02:37 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 02:41 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 02:44 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 02:49 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 02:32 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/6307313468.shtml)
-- 2026-06-30 02:22 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/40429835.shtml)
-- 2026-06-30 02:20 - [扬名立万](https://www.share.kurohicncr.top/Article/details/8942101.shtml)
-- 2026-06-30 02:23 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/0099816.shtml)
-- 2026-06-30 02:35 - [金刚川](http://www.share.kurohicncr.top/Article/details/7641182912.shtml)
-- 2026-06-30 02:20 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/091023353058.shtml)
-- 2026-06-30 02:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/2984876229.shtml)
-- 2026-06-30 02:29 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/57709.shtml)
-- 2026-06-30 02:13 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/836180145465.shtml)
-- 2026-06-30 02:27 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/276689290533.shtml)
-- 2026-06-30 02:38 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/39090401491.shtml)
-- 2026-06-30 02:30 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/6679113735.shtml)
-- 2026-06-30 02:15 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/5313816.shtml)
-- 2026-06-30 02:37 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/4151089.shtml)
-- 2026-06-30 02:24 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/018373271343.shtml)
+- 2026-06-30 02:24 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/069182680996.shtml)
+- 2026-06-30 02:44 - [金牌调解](http://www.share.minike.top/Article/details/459956756061.shtml)
+- 2026-06-30 02:33 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/53943.shtml)
+- 2026-06-30 02:21 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/448910.shtml)
+- 2026-06-30 02:32 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/4507619134.shtml)
+- 2026-06-30 02:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/9307031058.shtml)
+- 2026-06-30 02:41 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/3142153.shtml)
+- 2026-06-30 02:36 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/79246.shtml)
+- 2026-06-30 02:36 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/064048.shtml)
+- 2026-06-30 02:33 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/17992.shtml)
+- 2026-06-30 02:31 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/71902179375.shtml)
+- 2026-06-30 02:32 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/83813776122.shtml)
+- 2026-06-30 02:31 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/3751838.shtml)
+- 2026-06-30 02:27 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/95036.shtml)
+- 2026-06-30 02:45 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/83133631053.shtml)

@@ -1,47 +1,59 @@
-# 被这对新人的婚礼感动到了 他们只是走得慢了一点 但他们的爱从未颠簸
+# 不出海，则出局？4月汽车出口涨51%，国内零售跌超20%
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 14:18 来源：中国新闻网 被这对新人的婚礼感动到了，他们只是走得慢了一点，但他们的爱从未颠簸。网友：有些事有些人，迟一点慢一点都没关系！ 责任编辑：【李光伟】
+新能源零售渗透率首次突破60%，出口新能源渗透率首次突破50%。 伴随北京车展落幕，头部车企4月销量出现明显分化。尽管整体市场零售端同比下滑超20%，但出口持续高增长、新能源渗透率攀升至61.4%，首次超过60%，成为当前车市的两大结构性亮点。与此同时，以大众、本田为代表的合资品牌销量大幅下跌，国内市场销量压力增大。 出口拉动效应更加明显：四家头部车企出口占比超四成 海关总署4
 
 ## 正文
 
-发布时间：2026年05月08日 14:18 来源：中国新闻网 被这对新人的婚礼感动到了，他们只是走得慢了一点，但他们的爱从未颠簸。
+新能源零售渗透率首次突破60%，出口新能源渗透率首次突破50%。
 
-网友：有些事有些人，迟一点慢一点都没关系！
+伴随北京车展落幕，头部车企4月销量出现明显分化。
 
-责任编辑：【李光伟】
+尽管整体市场零售端同比下滑超20%，但出口持续高增长、新能源渗透率攀升至61.4%，首次超过60%，成为当前车市的两大结构性亮点。
+
+与此同时，以大众、本田为代表的合资品牌销量大幅下跌，国内市场销量压力增大。
+
+出口拉动效应更加明显：四家头部车企出口占比超四成 海关总署4月30日公布的数据显示，2026年4月中国汽车出口93.9万辆，同比增长51%；1至4月累计出口325.1万辆，同比增长50.6%。
+
+出口总量维持高增速，且头部集中效应显著。
+
+奇瑞、比亚迪、吉利、上汽四家车企4月合计出口近53万辆，占当月总出口量（93.9万辆）的一半以上。
+
+奇瑞集团：4月总销量25.14万辆，同比增长25.2%。
 
 ## 相关推荐
 
-- 2026-06-30 02:28 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 02:23 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 02:14 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 02:30 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 02:39 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 02:29 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 02:36 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-30 02:36 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 02:29 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 02:26 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 02:19 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 02:33 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 02:42 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-30 02:38 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 02:29 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 02:48 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 02:41 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 02:26 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 02:49 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 02:30 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 02:27 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 02:47 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 02:39 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 02:40 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:35 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/268836.shtml)
-- 2026-06-30 02:20 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/310473.shtml)
-- 2026-06-30 02:24 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/80589.shtml)
-- 2026-06-30 02:38 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/69011.shtml)
-- 2026-06-30 02:20 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/67461462467.shtml)
-- 2026-06-30 02:41 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/224068724826.shtml)
-- 2026-06-30 02:19 - [一生一世](https://www.share.kurohicncr.top/Article/details/394871667.shtml)
-- 2026-06-30 02:39 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/6953209.shtml)
-- 2026-06-30 02:31 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/89575.shtml)
-- 2026-06-30 02:25 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/834720672015.shtml)
-- 2026-06-30 02:17 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/2947858.shtml)
-- 2026-06-30 02:40 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/5199966025.shtml)
-- 2026-06-30 02:20 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/249465959.shtml)
-- 2026-06-30 02:17 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/68296194522.shtml)
-- 2026-06-30 02:25 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/762418918.shtml)
+- 2026-06-30 02:24 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/9635547160.shtml)
+- 2026-06-30 02:20 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/861258052037.shtml)
+- 2026-06-30 02:36 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/2949219.shtml)
+- 2026-06-30 02:33 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/531469934253.shtml)
+- 2026-06-30 02:39 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/9901722.shtml)
+- 2026-06-30 02:20 - [刘念回应](https://www.share.minike.top/Article/details/4968094094.shtml)
+- 2026-06-30 02:39 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/362552790707.shtml)
+- 2026-06-30 02:26 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/54622436.shtml)
+- 2026-06-30 02:36 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/570345714.shtml)
+- 2026-06-30 02:35 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/0437945856.shtml)
+- 2026-06-30 02:38 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/812044.shtml)
+- 2026-06-30 02:37 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/70355095183.shtml)
+- 2026-06-30 02:27 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/8605041.shtml)
+- 2026-06-30 02:29 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/58143.shtml)
+- 2026-06-30 02:48 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/65267845.shtml)

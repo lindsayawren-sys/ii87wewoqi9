@@ -1,60 +1,56 @@
-# 李强会见美国国会参议员代表团
+# 希音诉特姆版权侵权案在伦敦开审，跨境电商巨头法律博弈升级
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-新华社北京5月7日电 5月7日下午，国务院总理李强在北京人民大会堂会见来华访问的美国国会参议员戴安斯一行。 李强表示，今年2月，习近平主席同特朗普总统通电话，就推动中美关系发展作出新的战略指引。中方愿同美方一道落实两国元首重要共识，加强对话沟通，为两国各层级交往和各领域合作营造良好氛围，争取更多务实成果，不断增进两国人民福祉，也为世界注入确定性和正能量。 李强指出，实践反复证明
+中国跨境电商平台希音（Shein）起诉特姆（Temu）侵犯版权案在伦敦高等法院正式开审。作为全球快时尚领域的两大有力竞争者，双方此次就版权保护、市场竞争秩序及平台治理规则展开了激烈的法律交锋。 在当日的庭审中，希音方面指控称，特姆存在“工业规模”的版权侵权行为，指其在网站上非法使用数千张希音拥有版权的服装照片，用于推广和销售仿制品，意图借此获取不公平的竞争优势。希音代理律师贝内
 
 ## 正文
 
-新华社北京5月7日电 5月7日下午，国务院总理李强在北京人民大会堂会见来华访问的美国国会参议员戴安斯一行。
+中国跨境电商平台希音（Shein）起诉特姆（Temu）侵犯版权案在伦敦高等法院正式开审。
 
-李强表示，今年2月，习近平主席同特朗普总统通电话，就推动中美关系发展作出新的战略指引。
+作为全球快时尚领域的两大有力竞争者，双方此次就版权保护、市场竞争秩序及平台治理规则展开了激烈的法律交锋。
 
-中方愿同美方一道落实两国元首重要共识，加强对话沟通，为两国各层级交往和各领域合作营造良好氛围，争取更多务实成果，不断增进两国人民福祉，也为世界注入确定性和正能量。
+在当日的庭审中，希音方面指控称，特姆存在“工业规模”的版权侵权行为，指其在网站上非法使用数千张希音拥有版权的服装照片，用于推广和销售仿制品，意图借此获取不公平的竞争优势。
 
-李强指出，实践反复证明，坚持相互尊重、和平共处、合作共赢，是中美两个大国的正确相处之道。
+希音代理律师贝内特·布兰德雷斯（Benet Brandreth）指出，此举旨在对现有市场参与者实现“不正当超越”。
 
-希望美方与中方相向而行，更多对话而不是对抗，更多互利合作而不是零和博弈，维护稳定、可预期的中美经贸关系，这符合两国的根本利益。
+针对上述指控，特姆方面予以坚决否认，并向法院提起反诉。
 
-台湾问题事关中国核心利益，是中美关系第一条不可逾越的红线。
+特姆指责希音利用法律诉讼手段恶意打压竞争对手，并涉嫌违反竞争法，通过与快时尚供应商签署排他性协议（即“二选一”）来限制市场竞争。
 
-希望美国国会从中美友好合作大局出发，谨慎看待和处理涉华问题，为中美关系稳定、健康、可持续发展发挥积极作用。
+据悉，涉及竞争法的部分案件预计将于2027年另行开审。
 
-吴政隆参加会见。
+庭审最新进展显示，特姆已撤回针对约2300张由希音员工拍摄照片的版权辩护。
 
 ## 相关推荐
 
-- 2026-06-30 02:38 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 02:39 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 02:40 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 02:35 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 02:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-30 02:40 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 02:32 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 02:32 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 02:19 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 02:34 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 02:37 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 02:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 02:12 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 02:33 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 02:28 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 02:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 02:30 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 02:32 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 02:42 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 02:34 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 02:39 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 02:31 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 02:36 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 02:36 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:17 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/551853608.shtml)
-- 2026-06-30 02:32 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/857524437814.shtml)
-- 2026-06-30 02:33 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/6626999544.shtml)
-- 2026-06-30 02:39 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/97572896865.shtml)
-- 2026-06-30 02:20 - [时光音乐会](http://www.share.minike.top/Article/details/343530581103.shtml)
-- 2026-06-30 02:39 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/055808318.shtml)
-- 2026-06-30 02:27 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/051759.shtml)
-- 2026-06-30 02:13 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/369117939.shtml)
-- 2026-06-30 02:34 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/0604184642.shtml)
-- 2026-06-30 02:35 - [时光音乐会](http://www.blog.minike.top/Article/details/56807.shtml)
-- 2026-06-30 02:32 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/755869920.shtml)
-- 2026-06-30 02:22 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/5297565.shtml)
-- 2026-06-30 02:37 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/689089276147.shtml)
-- 2026-06-30 02:25 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/4866598715.shtml)
-- 2026-06-30 02:12 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/4258279.shtml)
+- 2026-06-30 02:23 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/61318217.shtml)
+- 2026-06-30 02:41 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/137980308.shtml)
+- 2026-06-30 02:24 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/617066027.shtml)
+- 2026-06-30 02:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/0395775.shtml)
+- 2026-06-30 02:41 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/8553260.shtml)
+- 2026-06-30 02:34 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/4762381.shtml)
+- 2026-06-30 02:28 - [勇敢的心第二部](https://www.share.minike.top/Article/details/137378.shtml)
+- 2026-06-30 02:32 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/45030.shtml)
+- 2026-06-30 02:23 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/79913.shtml)
+- 2026-06-30 02:21 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/2775886.shtml)
+- 2026-06-30 02:20 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/21424310965.shtml)
+- 2026-06-30 02:27 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/134819.shtml)
+- 2026-06-30 02:46 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/07778536.shtml)
+- 2026-06-30 02:30 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/29369.shtml)
+- 2026-06-30 02:27 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/163573036390.shtml)

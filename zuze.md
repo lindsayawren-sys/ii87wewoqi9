@@ -1,58 +1,59 @@
-# 债务危机叠加年报延期 萃华珠宝半年内第二次被证监会立案
+# 摩洛哥驻华大使：中国经济实力雄厚 希望进一步深化双边关系
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|文多 每经编辑|杨军 5月6日晚间，ST萃华（维权）（即萃华珠宝，SZ002731，股价4.35元，市值11.14亿元）披露，公司近日收到中国证监会下发的《立案告知书》，因公司未按规定披露定期报告，中国证监会决定对公司立案。 较为罕见的是，这已是萃华珠宝2026年以来第二次收到中国证监会下发的《立案告知书》。上一次是2
+发布时间：2026年05月11日 15:28 来源：中国新闻网 为纪念摩洛哥国王穆罕默德六世访华十周年，摩洛哥驻华大使馆于5月10日晚举办了“摩洛哥-中国体育与文化节”活动，活动邀请了来自经济、文化、学术和艺术界的300多名嘉宾参与。活动间隙，摩洛哥驻华大使阿卜杜勒卡德尔·安萨里在接受中新社记者采访时表示，我们对摩中双边关系抱有很高的期许，在经贸层面、合作投资方面皆是如此。中国
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|文多 每经编辑|杨军 5月6日晚间，ST萃华（维权）（即萃华珠宝，SZ002731，股价4.35元，市值11.14亿元）披露，公司近日收到中国证监会下发的《立案告知书》，因公司未按规定披露定期报告，中国证监会决定对公司立案。
+发布时间：2026年05月11日 15:28 来源：中国新闻网 为纪念摩洛哥国王穆罕默德六世访华十周年，摩洛哥驻华大使馆于5月10日晚举办了“摩洛哥-中国体育与文化节”活动，活动邀请了来自经济、文化、学术和艺术界的300多名嘉宾参与。
 
-较为罕见的是，这已是萃华珠宝2026年以来第二次收到中国证监会下发的《立案告知书》。
+活动间隙，摩洛哥驻华大使阿卜杜勒卡德尔·安萨里在接受中新社记者采访时表示，我们对摩中双边关系抱有很高的期许，在经贸层面、合作投资方面皆是如此。
 
-上一次是2026年2月9日，ST萃华因涉嫌信息披露违法违规而被立案调查。
+中国是摩洛哥全球第三大贸易伙伴，也是摩洛哥在亚洲的第一大经济合作伙伴。
 
-据《每日经济新闻》记者观察，除了未能按时披露年报引发退市风险，目前萃华珠宝还面临债务危机。
+希望继续把摩中关系提升到更高水平，中国经济实力雄厚，是全球第二大经济体，我们也期待进一步深化两国关系。
 
-萃华珠宝的年报披露过程可谓一波三折。
+阿卜杜勒卡德尔·安萨里介绍，摩洛哥自身具备诸多优势和引资优惠政策，完全有条件成为中国企业的投资目的地，比如摩洛哥地理位置优越、互联互通体系完善、劳动力人才储备充足，且紧邻终端消费市场。
 
-2026年1月31日，上市公司发布业绩预告，预计2025年度归母净利润虽然同比下降85.69%~90.31%，但金额也有2100万元~3100万元，扣非后净利润则同比大增154.81%~280.64%。
+凭借这些得天独厚的条件，摩洛哥的目标是让中国成为摩方的重要合作伙伴，在当前基础上更上一层楼。
 
-然而，这份业绩预告背后也有着不确定性，比如商誉减少具体金额需以评估机构确认的数据为准。
-
-危机在2月初集中爆发。
+(记者 谢龙飞 实习生 林倬安 制作 乐小敏） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 02:36 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 02:28 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 02:27 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 02:26 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 02:33 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 02:13 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 02:40 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 02:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 02:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 02:12 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 02:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 02:24 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 02:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 02:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 02:36 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 02:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 02:29 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 02:31 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 02:43 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 02:25 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 02:47 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 02:33 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 02:21 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 02:29 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-30 02:39 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 02:39 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/7245053.shtml)
-- 2026-06-30 02:23 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/134364188240.shtml)
-- 2026-06-30 02:25 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/3511026294.shtml)
-- 2026-06-30 02:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/13923185.shtml)
-- 2026-06-30 02:16 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/756599.shtml)
-- 2026-06-30 02:29 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/72965067.shtml)
-- 2026-06-30 02:37 - [天道](http://www.share.kurohicncr.top/Article/details/2868109842.shtml)
-- 2026-06-30 02:28 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/388737148482.shtml)
-- 2026-06-30 02:39 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/721949.shtml)
-- 2026-06-30 02:41 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/44886757.shtml)
-- 2026-06-30 02:33 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/336780754077.shtml)
-- 2026-06-30 02:38 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/026267528983.shtml)
-- 2026-06-30 02:31 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/72994.shtml)
-- 2026-06-30 02:36 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/80198772167.shtml)
-- 2026-06-30 02:33 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/9641518400.shtml)
+- 2026-06-30 02:49 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/658807329720.shtml)
+- 2026-06-30 02:28 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/21968.shtml)
+- 2026-06-30 02:47 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/555323978.shtml)
+- 2026-06-30 02:39 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/442856.shtml)
+- 2026-06-30 02:47 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/296244860.shtml)
+- 2026-06-30 02:20 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/66613022740.shtml)
+- 2026-06-30 02:29 - [绘画区你赢了](http://www.blog.minike.top/Article/details/1705663.shtml)
+- 2026-06-30 02:45 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/18450982.shtml)
+- 2026-06-30 02:41 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/61573.shtml)
+- 2026-06-30 02:31 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/7090332563.shtml)
+- 2026-06-30 02:34 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/45428773.shtml)
+- 2026-06-30 02:46 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/962944650964.shtml)
+- 2026-06-30 02:27 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/5906513.shtml)
+- 2026-06-30 02:34 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/28509.shtml)
+- 2026-06-30 02:47 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/259753683.shtml)

@@ -1,56 +1,50 @@
-# 光大永明人寿增资谋变，两股东退场成突破口？谁接盘扭转局势？
+# 身份证“换新季”，隐形风险要规避！
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-来源：中保新知 一边谋求增资，一边规划着股权转让，光大永明人寿这家银行系险企，或许正在谋划一次更大的“增资扩股”。 4月30日，光大永明人寿两份股权转让接连出现在北京产权交易所官网，转让方分别为光大永明人寿并列第三大股东中兵投资管理有限责任公司（以下简称“中兵投资”）与鞍山钢铁集团有限公司（以下简称“鞍山钢铁集团”），两家股东均拟将所持的光大永明人寿12.505%的股权全部转让
+发布时间：2026年05月11日 15:45 来源：中国新闻网 首批有效期20年的第二代居民身份证陆续到期，公安提示：别找第三方代办、别乱发证件照防AI换脸，领新证务必交回旧证。全程走公安窗口、官方政务APP，信息被冒用立刻报警维权。守护个人信息，远离证件风险。(作者：刘露露） 责任编辑：【魏聪聪】
 
 ## 正文
 
-来源：中保新知 一边谋求增资，一边规划着股权转让，光大永明人寿这家银行系险企，或许正在谋划一次更大的“增资扩股”。
+发布时间：2026年05月11日 15:45 来源：中国新闻网 首批有效期20年的第二代居民身份证陆续到期，公安提示：别找第三方代办、别乱发证件照防AI换脸，领新证务必交回旧证。
 
-4月30日，光大永明人寿两份股权转让接连出现在北京产权交易所官网，转让方分别为光大永明人寿并列第三大股东中兵投资管理有限责任公司（以下简称“中兵投资”）与鞍山钢铁集团有限公司（以下简称“鞍山钢铁集团”），两家股东均拟将所持的光大永明人寿12.505%的股权全部转让。
+全程走公安窗口、官方政务APP，信息被冒用立刻报警维权。
 
-如顺利转让完成，两家股东将退出光大永明人寿股东行列。
+守护个人信息，远离证件风险。
 
-事实上，正在进行股权转让的光大永明人寿还在计划增资事宜，拟计划二季度增资18.75亿元及以上。
-
-根据光大永明人寿2026年第一季度偿付能力报告，该公司在积极推进外源性资本补充及股权转让进程。
-
-或许，这场股权转让只是增资的“前奏”，面对偿付能力压力及发展诉求，光大永明人寿的这场求变势在必行。
-
-01 两国资股东齐退场 捆绑转让设下高门槛 根据披露的公告，中兵投资拟转让其持有的光大永明人寿12.505%的股权；鞍山钢铁集团也转让其持有的光大永明人寿12.505%的股权，转让底价均为10.05亿元。
-
-而且，这两大股东所持股权为捆绑转让，不能拆分。
+(作者：刘露露） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 02:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 02:35 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 02:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 02:16 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 02:20 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 02:37 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 02:36 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 02:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-30 02:40 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 02:16 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 02:28 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 02:31 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 02:35 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 02:38 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 02:32 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 02:42 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 02:35 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 02:41 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 02:38 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 02:24 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 02:27 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 02:34 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:34 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/5742165840.shtml)
-- 2026-06-30 02:19 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/7333134.shtml)
-- 2026-06-30 02:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/146535.shtml)
-- 2026-06-30 02:41 - [电影后室值得看吗](https://www.share.minike.top/Article/details/025932.shtml)
-- 2026-06-30 02:31 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/62537143159.shtml)
-- 2026-06-30 02:28 - [世界杯](https://www.blog.kurohicncr.top/Article/details/21231287632.shtml)
-- 2026-06-30 02:13 - [刘念回应](http://www.share.minike.top/Article/details/087110713137.shtml)
-- 2026-06-30 02:30 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/694902431.shtml)
-- 2026-06-30 02:26 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/873543773234.shtml)
-- 2026-06-30 02:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/328914749.shtml)
-- 2026-06-30 02:19 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/84496194456.shtml)
-- 2026-06-30 02:13 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/186076904.shtml)
-- 2026-06-30 02:41 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/7320426583.shtml)
-- 2026-06-30 02:26 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/1996444.shtml)
-- 2026-06-30 02:41 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/35462965.shtml)
+- 2026-06-30 02:23 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/399079577315.shtml)
+- 2026-06-30 02:22 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/0732868333.shtml)
+- 2026-06-30 02:22 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/53091.shtml)
+- 2026-06-30 02:20 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/48698.shtml)
+- 2026-06-30 02:34 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/25017701374.shtml)
+- 2026-06-30 02:43 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/955185881353.shtml)
+- 2026-06-30 02:40 - [毒液2](http://www.blog.kurohicncr.top/Article/details/4572137.shtml)
+- 2026-06-30 02:48 - [千香](http://www.share.kurohicncr.top/Article/details/9218277.shtml)
+- 2026-06-30 02:32 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/3631097280.shtml)
+- 2026-06-30 02:45 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/5662830955.shtml)
+- 2026-06-30 02:32 - [毒液2](https://www.blog.minike.top/Article/details/1040600008.shtml)
+- 2026-06-30 02:42 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/53686395.shtml)
+- 2026-06-30 02:47 - [我们的少年时代2](http://www.blog.minike.top/Article/details/953979949.shtml)
+- 2026-06-30 02:35 - [扫黑风暴](http://www.blog.minike.top/Article/details/716600.shtml)
+- 2026-06-30 02:39 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/066544.shtml)

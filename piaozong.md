@@ -1,57 +1,58 @@
-# 许宁宁：深耕RCEP 共促区域经贸增长
+# 提升公众避险能力 第三届全国防震减灾科普主场活动在吉林举办
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-中新网北京5月7日电 (记者 刘文文)今年以来，我国外贸稳中有进，RCEP政策红利持续释放。RCEP产业合作委员会主席许宁宁近日接受记者采访时谈到，2026年一季度中国对RCEP其他成员国进出口总值3.73万亿元人民币，同比增长20.2%，出口、进口分别同比增长16%、25%，区域贸易增长动能充沛。许宁宁表示，当前RCEP各项规则持续深化落地，区域内关税减免范围稳步扩大，原产地
+中新网吉林5月12日电 (记者 孙自法)2026年5月12日是第18个全国防灾减灾日。当天，聚焦“提升公众避险能力，夯实防震减灾基础”主题，中国地震局、吉林省人民政府在吉林市共同举办第三届全国防震减灾科普主场活动。 中国地震局副局长倪岳伟出席主场活动并致辞指出，地震安全已成为公众对于美好生活向往的重要内容。加强防震减灾科普工作，是提高全民科学素质的迫切需要，也是筑牢地震安全防线
 
 ## 正文
 
-中新网北京5月7日电 (记者 刘文文)今年以来，我国外贸稳中有进，RCEP政策红利持续释放。
+中新网吉林5月12日电 (记者 孙自法)2026年5月12日是第18个全国防灾减灾日。
 
-RCEP产业合作委员会主席许宁宁近日接受记者采访时谈到，2026年一季度中国对RCEP其他成员国进出口总值3.73万亿元人民币，同比增长20.2%，出口、进口分别同比增长16%、25%，区域贸易增长动能充沛。
+当天，聚焦“提升公众避险能力，夯实防震减灾基础”主题，中国地震局、吉林省人民政府在吉林市共同举办第三届全国防震减灾科普主场活动。
 
-许宁宁表示，当前RCEP各项规则持续深化落地，区域内关税减免范围稳步扩大，原产地累积规则全面落地见效，跨境贸易通关效率不断提升，贸易综合成本持续下降。
+中国地震局副局长倪岳伟出席主场活动并致辞指出，地震安全已成为公众对于美好生活向往的重要内容。
 
-在政策利好推动下，区域内机电产品、新能源装备、化工制品、特色农产品等重点品类贸易规模稳步扩大，成员国产业配套协作更加紧密，产业链供应链循环顺畅有序，为区域贸易持续提质增长筑牢了坚实基础。
+加强防震减灾科普工作，是提高全民科学素质的迫切需要，也是筑牢地震安全防线、减轻地震灾害风险的有效途径。
 
-他认为，一季度亮眼的贸易数据，充分印证了RCEP区域经济一体化的务实价值，也凸显出各成员国之间较强的产业互补性与市场契合度。
+举办这次主场活动，是探索“防震减灾+文旅”的一次重要实践，旨在借助文旅传播防震避险知识和技能，进一步唤起社会各界对防震减灾工作的关注，为减轻地震灾害风险筑牢坚实的社会基础。
 
-稳定向好的贸易往来，为各国外贸稳规模、优结构提供了坚实支撑，也为各国中小微企业拓展海外市场、优化生产布局创造了便利条件，区域经贸合作的长期韧性与发展潜力持续释放。
+本次活动在辽宁和黑龙江设分会场，通过线下主场和线上直播联动的形式，集中举办重要发布、科普展演、防震减灾倡议宣讲、应急演练、广场展览、科普讲座和经验交流等一系列丰富多彩活动，向公众讲解防震减灾科学知识和自救互救技能。
 
-RCEP作为当前全球规模最大的自由贸易区，在全球经济复苏与贸易增长进程中具备关键支撑作用。
+中国地震局发布了公众避险能力评估结果、防震减灾科普资源库。
 
-他建议，各成员国进一步推动协定规则全面落地见效，简化跨境贸易监管流程，提升贸易便利化水平，聚焦优势产业深化产能合作，拓展数字经济、绿色低碳等新兴领域合作空间，切实把协定政策优势转化为实实在在的发展实效。
+公众避险能力评估结果显示，4.7%的公众具备较好防震避险能力，14.5%的公众具备防震避险能力，42.1%的公众具有一定的防震避险能力，38.7%的公众能力不足。
 
 ## 相关推荐
 
-- 2026-06-30 02:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 02:38 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 02:40 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 02:23 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 02:14 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 02:23 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 02:31 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 02:29 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 02:26 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 02:24 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 02:29 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 02:44 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 02:34 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 02:33 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 02:39 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 02:30 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 02:37 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 02:28 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 02:47 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 02:26 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 02:35 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 02:43 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 02:24 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/19245996.shtml)
-- 2026-06-30 02:30 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/08095251.shtml)
-- 2026-06-30 02:21 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/573611394.shtml)
-- 2026-06-30 02:29 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/805843547760.shtml)
-- 2026-06-30 02:28 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/1416989.shtml)
-- 2026-06-30 02:18 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/9053773.shtml)
-- 2026-06-30 02:22 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/29409.shtml)
-- 2026-06-30 02:26 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/6119472.shtml)
-- 2026-06-30 02:16 - [TOP Prada](https://www.blog.minike.top/Article/details/36935750.shtml)
-- 2026-06-30 02:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/16244069.shtml)
-- 2026-06-30 02:36 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/08375443.shtml)
-- 2026-06-30 02:30 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/9781069681.shtml)
-- 2026-06-30 02:37 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/9182096157.shtml)
-- 2026-06-30 02:38 - [日本领先巴西](https://www.share.minike.top/Article/details/085263.shtml)
-- 2026-06-30 02:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/36742.shtml)
+- 2026-06-30 02:36 - [电影后室值得看吗](http://www.share.minike.top/Article/details/39476270.shtml)
+- 2026-06-30 02:20 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/649020131.shtml)
+- 2026-06-30 02:31 - [送你一朵小红花](https://www.share.minike.top/Article/details/55119.shtml)
+- 2026-06-30 02:45 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/14614625601.shtml)
+- 2026-06-30 02:45 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/5532743.shtml)
+- 2026-06-30 02:38 - [电影后室值得看吗](http://www.share.minike.top/Article/details/8654287250.shtml)
+- 2026-06-30 02:25 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/004133978237.shtml)
+- 2026-06-30 02:35 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/1738079593.shtml)
+- 2026-06-30 02:32 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/42637098.shtml)
+- 2026-06-30 02:46 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/32223966367.shtml)
+- 2026-06-30 02:33 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/316359990944.shtml)
+- 2026-06-30 02:48 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/04869311409.shtml)
+- 2026-06-30 02:42 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/82202223.shtml)
+- 2026-06-30 02:49 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/06459664640.shtml)
+- 2026-06-30 02:39 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/3004243490.shtml)

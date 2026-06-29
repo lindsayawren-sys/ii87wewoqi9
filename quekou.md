@@ -1,55 +1,59 @@
-# 特朗普称伊朗想达成协议
+# 能否开设股东买酒专用通道？贵州茅台回应
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-美国总统特朗普周三在白宫表示，与伊朗的冲突进展“顺利”，并称之为一场“小冲突”。他说，他认为军人母亲们会想知道这一点。特朗普说，德黑兰的谈判代表“希望达成一项协议”。 他说：“我们将看看他们能否达成一项令我们满意的协议，局势完全在我们的掌控之中。” 特朗普将其比作美国抓获委内瑞拉总统马杜罗的行动，并指出那是一次速战速决的行动。责任编辑：李桐
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 每经记者|熊嘉楠 每经编辑|彭水萍 5月11日，贵州茅台召开2025年度及2026年第一季度业绩说明会。 在前期征集的问题中，有投资者提出：“公司能否开设股东买酒专用渠道，或者在i茅台设立股东购酒账户？” 对此，贵州茅台代总经理王莉表示，本轮“以消费者为中心”的贵州茅台酒市场化改革，关键是要解决消费者关于“公平、保真、便
 
 ## 正文
 
-美国总统特朗普周三在白宫表示，与伊朗的冲突进展“顺利”，并称之为一场“小冲突”。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 每经记者|熊嘉楠 每经编辑|彭水萍 5月11日，贵州茅台召开2025年度及2026年第一季度业绩说明会。
 
-他说，他认为军人母亲们会想知道这一点。
+在前期征集的问题中，有投资者提出：“公司能否开设股东买酒专用渠道，或者在i茅台设立股东购酒账户？
 
-特朗普说，德黑兰的谈判代表“希望达成一项协议”。
+” 对此，贵州茅台代总经理王莉表示，本轮“以消费者为中心”的贵州茅台酒市场化改革，关键是要解决消费者关于“公平、保真、便捷”的痛点问题。
 
-他说：“我们将看看他们能否达成一项令我们满意的协议，局势完全在我们的掌控之中。
+飞天53% vol 500ml贵州茅台酒上线i茅台，以及后续“向C而行”的系列改革措施，也均是基于此目的。
 
-” 特朗普将其比作美国抓获委内瑞拉总统马杜罗的行动，并指出那是一次速战速决的行动。
+“公平”不仅是消费者也是社会对茅台提出的要求，消费者“平权”是其中的关键，就像每一股茅台股票平权一样，不会因为身份、职业的不同而有区别。
 
-责任编辑：李桐
+希望各位能够作为消费者在官方公布的渠道体系里体验，并给公司提出意见和建议，鞭策公司持续改进。
+
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 02:26 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 02:27 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 02:24 - [刘念回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 02:31 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 02:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 02:23 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 02:12 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 02:27 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 02:30 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 02:36 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 02:13 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 02:40 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 02:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-30 02:43 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 02:45 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 02:22 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 02:22 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 02:31 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 02:45 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 02:37 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 02:26 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 02:28 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 02:26 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 02:29 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 02:37 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 02:44 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 02:37 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 02:26 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/589181586.shtml)
-- 2026-06-30 02:26 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/4747495.shtml)
-- 2026-06-30 02:30 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/3571917.shtml)
-- 2026-06-30 02:37 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/7541271082.shtml)
-- 2026-06-30 02:32 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/15088283554.shtml)
-- 2026-06-30 02:25 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/52349174.shtml)
-- 2026-06-30 02:32 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/956682773580.shtml)
-- 2026-06-30 02:36 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/344795371.shtml)
-- 2026-06-30 02:40 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/28364101.shtml)
-- 2026-06-30 02:13 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/6353489.shtml)
-- 2026-06-30 02:30 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/0465117539.shtml)
-- 2026-06-30 02:18 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/01115.shtml)
-- 2026-06-30 02:14 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/191108767.shtml)
-- 2026-06-30 02:25 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/002300176409.shtml)
-- 2026-06-30 02:40 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/9752847.shtml)
+- 2026-06-30 02:24 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/7567176.shtml)
+- 2026-06-30 02:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/0442822492.shtml)
+- 2026-06-30 02:42 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/9163250.shtml)
+- 2026-06-30 02:39 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/0138285.shtml)
+- 2026-06-30 02:40 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/7901073.shtml)
+- 2026-06-30 02:40 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/03110379413.shtml)
+- 2026-06-30 02:43 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/767390.shtml)
+- 2026-06-30 02:48 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/26999177799.shtml)
+- 2026-06-30 02:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/616041513377.shtml)
+- 2026-06-30 02:44 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/3646641550.shtml)
+- 2026-06-30 02:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/8926217484.shtml)
+- 2026-06-30 02:20 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/47450.shtml)
+- 2026-06-30 02:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/0958028750.shtml)
+- 2026-06-30 02:23 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/38326395716.shtml)
+- 2026-06-30 02:47 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/75925739832.shtml)

@@ -1,60 +1,58 @@
-# 长城基金汪立：财报季后，行情可能走向扩散
+# 华商基金张永志管理华商可转债债券A成立以来涨超90%
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-上周处于五一假期，期间（5月1日至5月4日）A股休市，海外资产价格涨跌互现，大宗商品多数下跌。综合来看，除亚洲股市、美股纳斯达克指数外，全球其余股市均小幅下跌。大宗商品方面，受地缘冲突影响，金银价格双双下跌，COMEX黄金跌2.23%，COMEX白银跌1.44%。 宏观分析：国内4月制造业PMI延续扩张 海外方面，五一假期前后公布的美国耐用品订单、新屋开工、2026年一季度美国
+可转债这类品种可能还有很多投资者不是很了解。可转债是在一定条件下可以被转换成公司股票的债券。股市疲软时，可持有债券到期获得收益，有一定防御性；股市走强时，可获得“转股增益”机遇。 梳理数据可以看到，中证转债指数在2023年A股市场处于回调周期时微跌-0.48%，在2025年A股市场处于上行周期时上涨18.66%，相比上证指数与中债综合指数的表现，这一组数据清晰诠释了可转债这类投
 
 ## 正文
 
-上周处于五一假期，期间（5月1日至5月4日）A股休市，海外资产价格涨跌互现，大宗商品多数下跌。
+可转债这类品种可能还有很多投资者不是很了解。
 
-综合来看，除亚洲股市、美股纳斯达克指数外，全球其余股市均小幅下跌。
+可转债是在一定条件下可以被转换成公司股票的债券。
 
-大宗商品方面，受地缘冲突影响，金银价格双双下跌，COMEX黄金跌2.23%，COMEX白银跌1.44%。
+股市疲软时，可持有债券到期获得收益，有一定防御性；股市走强时，可获得“转股增益”机遇。
 
-宏观分析：国内4月制造业PMI延续扩张 海外方面，五一假期前后公布的美国耐用品订单、新屋开工、2026年一季度美国GDP等数据好于预期，美国经济韧性叙事延续。
+梳理数据可以看到，中证转债指数在2023年A股市场处于回调周期时微跌-0.48%，在2025年A股市场处于上行周期时上涨18.66%，相比上证指数与中债综合指数的表现，这一组数据清晰诠释了可转债这类投资品种“下有债底保护、上有股性弹性”的攻守兼备特性。
 
-具体来看，美国2026年一季度实际GDP环比折年增速为2%，低于市场2.3%的预期，强于0.5%的前值。
+中证转债指数在不同市场中的表现 可转债在投资上可灵活转换的同时，也十分考验投资者的专业实力。
 
-总体而言，美国一季度GDP虽略低于分析师预期，但仍保持了韧性，且在数据结构上表现为鲜明的AI产业投资驱动增长的特征，市场解读较为积极。
+“固收大咖”华商基金张永志管理的华商可转债债券基金，重点配置可转换债券，截至2026年一季度末，华商可转债债券的A类份额成立以来（20171222-20260331）已上涨90.38%，其C类份额更是摘得近8年同类业绩第一。
 
-分项看，消费环比增速连续第二个季度回落，固定资产投资是最大拉动项，其中与AI产业相关的信息设备与知识产权为主要贡献；除AI产业相关的建筑投资和住宅固定资产投资环比仍在负区间。
+华商可转债债券基金业绩表现 华商可转债债券基金同类排名 张永志是华商基金的“元老”级人物，2007年加入华商基金，现任华商基金多资产投资部总经理，已具有超20年证券从业经历（其中3.0年证券交易经历、1.6年证券研究经历、15.6年证券投资经历）。
 
-受资本品进口（尤其是计算机&周边产品进口）飙升的影响，2026年一季度美国净出口环比年率-1.3%，这是美国总体GDP弱于预期的主要拖累项，也反映了美国强劲的AI产业需求。
+追求稳健均衡的投资风格，具备较为全面的能力圈，使得他管理的华商可转债债券基金的长期业绩在同类基金中脱颖而出。
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 02:15 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 02:39 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 02:32 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 02:41 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 02:29 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 02:16 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 02:16 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-30 02:38 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 02:15 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 02:37 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 02:19 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 02:14 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 02:27 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 02:35 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 02:30 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-30 02:44 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 02:31 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 02:29 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 02:30 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 02:45 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 02:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 02:24 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 02:44 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 02:32 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 02:32 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:16 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/716030923.shtml)
-- 2026-06-30 02:35 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/09133682.shtml)
-- 2026-06-30 02:24 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/0656137.shtml)
-- 2026-06-30 02:22 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/05691.shtml)
-- 2026-06-30 02:33 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/24705022.shtml)
-- 2026-06-30 02:16 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/8847766727.shtml)
-- 2026-06-30 02:16 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/66738912333.shtml)
-- 2026-06-30 02:41 - [巴西扳平比分](http://www.blog.minike.top/Article/details/33530.shtml)
-- 2026-06-30 02:17 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/3964522.shtml)
-- 2026-06-30 02:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/63026232.shtml)
-- 2026-06-30 02:23 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/861894128.shtml)
-- 2026-06-30 02:24 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/177743.shtml)
-- 2026-06-30 02:14 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/153215.shtml)
-- 2026-06-30 02:26 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/46235981156.shtml)
-- 2026-06-30 02:35 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/4603865932.shtml)
+- 2026-06-30 02:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/35526.shtml)
+- 2026-06-30 02:31 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/53287.shtml)
+- 2026-06-30 02:23 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/43465.shtml)
+- 2026-06-30 02:34 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/642373990.shtml)
+- 2026-06-30 02:37 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/322608.shtml)
+- 2026-06-30 02:29 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/29753.shtml)
+- 2026-06-30 02:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/31168269.shtml)
+- 2026-06-30 02:35 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/675387.shtml)
+- 2026-06-30 02:23 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/9677221.shtml)
+- 2026-06-30 02:29 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/050791282.shtml)
+- 2026-06-30 02:45 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/88686.shtml)
+- 2026-06-30 02:37 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/285232184.shtml)
+- 2026-06-30 02:44 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/67098.shtml)
+- 2026-06-30 02:40 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/449968988957.shtml)
+- 2026-06-30 02:21 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/318535118988.shtml)

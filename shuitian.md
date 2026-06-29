@@ -1,59 +1,60 @@
-# 北信源内控存在重大缺陷，股价下跌索赔已开启
+# 海外华文媒体“打卡”AI科技 感知广西人工智能产业“出海”路
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-2026年5月6日，网络安全领域曾经的知名企业北信源（300352）正式更名为“ST信源（维权）”，步入了风险警示板块。 这一标志性事件的直接导火索，并非突如其来的业绩变脸，而是一场早已埋下伏笔的内部控制失效危机。随着年报的披露，这家公司在存货管理、税务核算上的巨大漏洞被公之于众，股价波动背后，是投资者对于公司治理混乱的深切忧虑，以及一场针对上市公司及责任人的索赔维权行动的大幕
+中新网南宁5月12日电(俞靖)5月12日，来自老挝、泰国、印尼、菲律宾、柬埔寨等东盟国家和中国港澳地区的15位华文媒体代表走进广西南宁市，相继参观中国—东盟国家人工智能应用合作中心(简称“南A中心”)和科技企业，感知中国与东盟人工智能领域合作新变化。 “侨见南宁新机遇 华媒同心向未来”2026年海外华文媒体南宁行活动当日启动。走进南A中心，华文媒体代表们通过与AI咖啡师互动、体
 
 ## 正文
 
-2026年5月6日，网络安全领域曾经的知名企业北信源（300352）正式更名为“ST信源（维权）”，步入了风险警示板块。
+中新网南宁5月12日电(俞靖)5月12日，来自老挝、泰国、印尼、菲律宾、柬埔寨等东盟国家和中国港澳地区的15位华文媒体代表走进广西南宁市，相继参观中国—东盟国家人工智能应用合作中心(简称“南A中心”)和科技企业，感知中国与东盟人工智能领域合作新变化。
 
-这一标志性事件的直接导火索，并非突如其来的业绩变脸，而是一场早已埋下伏笔的内部控制失效危机。
+“侨见南宁新机遇 华媒同心向未来”2026年海外华文媒体南宁行活动当日启动。
 
-随着年报的披露，这家公司在存货管理、税务核算上的巨大漏洞被公之于众，股价波动背后，是投资者对于公司治理混乱的深切忧虑，以及一场针对上市公司及责任人的索赔维权行动的大幕拉开。
+走进南A中心，华文媒体代表们通过与AI咖啡师互动、体验AI问诊等形式，感受AI在医疗、文旅、教育、消费等领域的应用成果。
 
-上海沪紫律师事务所刘鹏律师表示依据相关法律法规，暂定于2026年4月30日（含当日）之前买入，并在2026年5月1日之后卖出或仍持有而亏损的即可报名索赔。
+老挝华文自媒体“老挝通”负责人景云龙表示，中国与老挝的人工智能合作潜力巨大，目前老挝中医资源短缺，中国AI产品在医疗领域的应用落地方案，将解决当地民众看病难题，在问诊等方面惠及民生，期待此类技术在老挝加速推广。
 
-（ST信源维权入口） 根据北信源发布的公告，公司2025年度财务报告审计机构中兴华会计师事务所，不仅对公司财报出具了“保留意见”，更对其内部控制有效性出具了“否定意见”。
+在迈越科技股份有限公司的AI展厅内，华文媒体代表们纷纷试戴AI翻译眼镜，体验东盟国家语种实时翻译等功能。
 
-在资本市场监管中，“否定意见”是最严厉的审计结论之一，这意味着审计机构认为公司的内部控制在设计或执行层面存在“重大缺陷”，导致其无法合理保证财务报告的可靠性。
+泰国《星暹日报》副社长李珂珂表示，中国前沿智能穿戴设备，正在打破中泰两国间的语言壁垒，实时翻译功能为中泰企业的交流合作赋能。
 
-根据深交所《创业板股票上市规则》，最近一年被出具否定意见的内控审计报告，公司股票将被实施其他风险警示。
+从泰国旅游市场来看，此类产品还可充当入境游客的“随身导游”。
 
-2026年4月30日，北信源停牌一天；5月6日复牌后，简称正式变为“ST信源”，日涨跌幅限制仍为20%。
+她认为，人工智能将成为未来中国与东盟合作的核心方向与重要窗口。
 
 ## 相关推荐
 
-- 2026-06-30 02:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 02:13 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 02:41 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 02:20 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 02:26 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 02:19 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 02:15 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 02:31 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-30 02:35 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 02:37 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 02:32 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 02:38 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 02:38 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-30 02:40 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 02:40 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 02:33 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 02:23 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 02:28 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 02:40 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 02:41 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 02:48 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 02:31 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 02:48 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 02:28 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 02:22 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 02:23 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 02:48 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:31 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/03086.shtml)
-- 2026-06-30 02:35 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/551284.shtml)
-- 2026-06-30 02:12 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/13989327.shtml)
-- 2026-06-30 02:31 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/49391156.shtml)
-- 2026-06-30 02:33 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/023762622926.shtml)
-- 2026-06-30 02:37 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/9158705336.shtml)
-- 2026-06-30 02:29 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/596280419854.shtml)
-- 2026-06-30 02:38 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/42575.shtml)
-- 2026-06-30 02:32 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/904768.shtml)
-- 2026-06-30 02:21 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/64219469.shtml)
-- 2026-06-30 02:21 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/97359103.shtml)
-- 2026-06-30 02:17 - [沙丘](http://www.blog.kurohicncr.top/Article/details/3384714408.shtml)
-- 2026-06-30 02:32 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/416307164.shtml)
-- 2026-06-30 02:15 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/757250.shtml)
-- 2026-06-30 02:26 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/191018515.shtml)
+- 2026-06-30 02:40 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/15137200312.shtml)
+- 2026-06-30 02:22 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/373181267.shtml)
+- 2026-06-30 02:42 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/71543016883.shtml)
+- 2026-06-30 02:41 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/7815633.shtml)
+- 2026-06-30 02:27 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/62801570614.shtml)
+- 2026-06-30 02:33 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/74627.shtml)
+- 2026-06-30 02:45 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/74043144.shtml)
+- 2026-06-30 02:43 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/83118144.shtml)
+- 2026-06-30 02:34 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/745137.shtml)
+- 2026-06-30 02:31 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/04929230707.shtml)
+- 2026-06-30 02:47 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/6534890326.shtml)
+- 2026-06-30 02:35 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/72488586.shtml)
+- 2026-06-30 02:37 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/301042046256.shtml)
+- 2026-06-30 02:25 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/94940.shtml)
+- 2026-06-30 02:27 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/942155.shtml)

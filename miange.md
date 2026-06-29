@@ -1,60 +1,57 @@
-# 关键节点伊朗外长访华 中伊外长会谈释放多重信号
+# 聚焦“平安中国” 2026年现代科技馆体系联合行动举办专题科普活动
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-中新社北京5月6日电 (记者 郭超凯)中共中央政治局委员、外交部长王毅6日在北京同伊朗外长阿拉格齐举行会谈。这是今年2月底美以伊战事发生以来伊朗外长首次访华，备受国际社会关注。 自战事发生以来，中方一直积极劝和促谈，当前地区局势正处于战和转换的关键节点。受访专家指出，中方提出维护和促进中东和平稳定的四点主张，得到国际社会积极响应。在中东局势复杂多变背景下，中伊外长此次会谈释放出
+中新网北京5月11日电 (记者 孙自法)中国科技馆5月11日向媒体通报说，2026年现代科技馆体系联合行动暨自然科学类博物馆系列科普活动“平安中国”专题科普活动，近日在福州拉开序幕。来自全国近20个省市的科技馆以及行业机构、中小学生等代表参加活动。 活动现场，中国科学院院士、植物遗传育种学家谢华安以“种业创新与粮食安全”为题作报告，从粮食安全维度深入阐释“平安中国”的战略基础。
 
 ## 正文
 
-中新社北京5月6日电 (记者 郭超凯)中共中央政治局委员、外交部长王毅6日在北京同伊朗外长阿拉格齐举行会谈。
+中新网北京5月11日电 (记者 孙自法)中国科技馆5月11日向媒体通报说，2026年现代科技馆体系联合行动暨自然科学类博物馆系列科普活动“平安中国”专题科普活动，近日在福州拉开序幕。
 
-这是今年2月底美以伊战事发生以来伊朗外长首次访华，备受国际社会关注。
+来自全国近20个省市的科技馆以及行业机构、中小学生等代表参加活动。
 
-自战事发生以来，中方一直积极劝和促谈，当前地区局势正处于战和转换的关键节点。
+活动现场，中国科学院院士、植物遗传育种学家谢华安以“种业创新与粮食安全”为题作报告，从粮食安全维度深入阐释“平安中国”的战略基础。
 
-受访专家指出，中方提出维护和促进中东和平稳定的四点主张，得到国际社会积极响应。
+福州格致中学学生带来《归乡》舞台剧，以青春视角演绎福州籍隐蔽战线英雄吴石烈士的家国情怀和生死抉择。
 
-在中东局势复杂多变背景下，中伊外长此次会谈释放出明确的和平信号，有助于稳定各方预期，为后续外交谈判创造空间。
+“英雄荣耀”报告会上，中共隐蔽战线杰出代表朱枫烈士孙女朱容瑢，《沉默的荣耀》史实顾问、《冷月无声——吴石传》作者郑立分别作报告，并与全国青少年连线交流，让青少年在聆听中感悟英雄气节，在对话中增强维护国家安全的责任感与使命感，将国家安全教育深度融入思政引领。
 
-阿拉格齐在会谈中通报了伊美谈判最新情况及伊方下步考虑。
+本次活动集中展示全国优质科普资源，将文化传承、国防教育与科技科普有机结合，涵盖科普报告会、国防教育研学、全国科学直播课、主题微展、“平安中国”科学荟等多个板块，实现科普育人与思政育人融合同行。
 
-王毅则重申中方对伊朗局势的原则立场，强调“全面止战刻不容缓，重启战端更不可取，坚持谈判尤为重要”。
+活动期间还集中发布全国各地遴选的10条“安全同行·研途探知”主题研学路线，并联动全国多地科技馆将科学表演、精品课程送进福州中小学校，实现“平安科普”的精准直达。
 
-探寻长效和平解决方案成为双方会谈的重要议题。
+“平安中国”专题科普活动由中国科协科普部、教育部校外教育培训监管司指导，中国科技馆、中国自然科学博物馆学会、福建省科协主办，福建省科技馆、福州高级中学承办。
 
 ## 相关推荐
 
-- 2026-06-30 02:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 02:26 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 02:41 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 02:32 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 02:38 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-30 02:26 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 02:29 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 02:17 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 02:29 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 02:23 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 02:15 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 02:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 02:18 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 02:17 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 02:26 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-30 02:21 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 02:44 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 02:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 02:21 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 02:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 02:43 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 02:27 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 02:29 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 02:48 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 02:27 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:20 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/94175.shtml)
-- 2026-06-30 02:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/0694837.shtml)
-- 2026-06-30 02:24 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/88037804.shtml)
-- 2026-06-30 02:38 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/4089952.shtml)
-- 2026-06-30 02:27 - [我们的少年时代2](http://www.blog.minike.top/Article/details/75567.shtml)
-- 2026-06-30 02:27 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/6950709.shtml)
-- 2026-06-30 02:31 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/099618624985.shtml)
-- 2026-06-30 02:13 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/7718622600.shtml)
-- 2026-06-30 02:27 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/74163796823.shtml)
-- 2026-06-30 02:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/39670650493.shtml)
-- 2026-06-30 02:41 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/575275.shtml)
-- 2026-06-30 02:19 - [我和我的家乡](http://www.share.minike.top/Article/details/1176839705.shtml)
-- 2026-06-30 02:20 - [巴西扳平比分](http://www.blog.minike.top/Article/details/5970132510.shtml)
-- 2026-06-30 02:15 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/22165784122.shtml)
-- 2026-06-30 02:13 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/271218.shtml)
+- 2026-06-30 02:26 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/7225020065.shtml)
+- 2026-06-30 02:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/900820078.shtml)
+- 2026-06-30 02:30 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/659826380287.shtml)
+- 2026-06-30 02:20 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/327187692.shtml)
+- 2026-06-30 02:23 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/4000380813.shtml)
+- 2026-06-30 02:26 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/305657830094.shtml)
+- 2026-06-30 02:34 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/54648.shtml)
+- 2026-06-30 02:27 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/309176973471.shtml)
+- 2026-06-30 02:45 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/36857755.shtml)
+- 2026-06-30 02:38 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/974076405860.shtml)
+- 2026-06-30 02:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/59461.shtml)
+- 2026-06-30 02:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/7237102118.shtml)
+- 2026-06-30 02:42 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/270717.shtml)
+- 2026-06-30 02:36 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/32855013.shtml)
+- 2026-06-30 02:28 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/27637.shtml)

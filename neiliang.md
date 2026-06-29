@@ -1,59 +1,60 @@
-# 超八成美国年轻人称国家经济状况“糟糕/可怕”，全美各地正见证其后果
+# 英国首相斯塔默誓言回击质疑者、稳固执政地位
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-美国年轻人的财务状况正在动摇他们对未来、政治体制乃至美国梦本身的信心。多项最新调查显示，超过80%的美国年轻人将当前国家经济状况评为糟糕或可怕。 由Generation Lab在4月底进行的一项全国性民调显示，在18至34岁的受访者中，高达81%的人对经济持负面看法。具体来看，18至24岁群体中有55%认为经济糟糕，29%认为可怕；而25至29岁群体中，52%认为糟糕，约30%
+英国首相基尔・斯塔默周一试图平息党内日益高涨的倒戈情绪，他誓言要证明质疑者的看法是错误的，并坚守执政地位，避免让英国陷入新一轮政治危机。 上周工党创下三十多年来执政党地方选举最差战绩后，越来越多工党议员开始反对斯塔默。一名前初级大臣甚至放话，若斯塔默不能推行大刀阔斧的改革，就将发起党首竞选挑战。 斯塔默表态称自己已接收到党内信号，他在一场情绪激昂的演讲中表示，英国历经二十年经济
 
 ## 正文
 
-美国年轻人的财务状况正在动摇他们对未来、政治体制乃至美国梦本身的信心。
+英国首相基尔・斯塔默周一试图平息党内日益高涨的倒戈情绪，他誓言要证明质疑者的看法是错误的，并坚守执政地位，避免让英国陷入新一轮政治危机。
 
-多项最新调查显示，超过80%的美国年轻人将当前国家经济状况评为糟糕或可怕。
+上周工党创下三十多年来执政党地方选举最差战绩后，越来越多工党议员开始反对斯塔默。
 
-由Generation Lab在4月底进行的一项全国性民调显示，在18至34岁的受访者中，高达81%的人对经济持负面看法。
+一名前初级大臣甚至放话，若斯塔默不能推行大刀阔斧的改革，就将发起党首竞选挑战。
 
-具体来看，18至24岁群体中有55%认为经济糟糕，29%认为可怕；而25至29岁群体中，52%认为糟糕，约30%认为可怕。
+斯塔默表态称自己已接收到党内信号，他在一场情绪激昂的演讲中表示，英国历经二十年经济停滞、社会矛盾不断加剧，渐进式改革已经行不通。
 
-对于造成这一局面的原因，超过四成年轻人将矛头指向总统特朗普，另有约三分之一归咎于企业贪婪或大公司。
+他在伦敦发表演讲称：“我深知民众对英国现状感到失望，对政治现状感到不满，也有部分民众对我本人感到失望。
 
-经济压力正在从根本上重塑一代人的生活轨迹。
+我清楚有人质疑我，也明白我必须证明他们是错的，而且我一定会做到。
 
-哈里斯民调4月发布的数据显示，半数美国人表示住房成本对其生活的影响已超过职业选择，在Z世代和千禧一代中这一比例高达60%以上。
+” 2024 年，斯塔默以提振经济、减少非法移民、缩短公立医疗候诊时间为竞选承诺，赢得英国现代史上议会席位优势最大的大选胜利之一。
 
-首次购房者的中位年龄已攀升至40岁的历史新高，而首次购房者在整体购房者中的占比降至21%，较2007年腰斩。
+然而，政策反复转向、党内部分人士认为他不愿做出艰难决策，再加上一连串政治丑闻，拖累施政进程，也让他的支持率跌至英国历任首相低位水平。
 
 ## 相关推荐
 
-- 2026-06-30 02:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 02:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 02:13 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 02:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 02:16 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 02:37 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 02:25 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 02:22 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 02:38 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 02:28 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 02:18 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 02:14 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 02:21 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 02:28 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 02:45 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 02:19 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 02:30 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-30 02:32 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 02:23 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 02:43 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 02:27 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 02:30 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 02:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 02:26 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 02:45 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 02:33 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 02:34 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:18 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/21914267259.shtml)
-- 2026-06-30 02:21 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/487785744.shtml)
-- 2026-06-30 02:31 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/84334.shtml)
-- 2026-06-30 02:23 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/661071.shtml)
-- 2026-06-30 02:16 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/2675228.shtml)
-- 2026-06-30 02:27 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/00590223126.shtml)
-- 2026-06-30 02:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/11821560.shtml)
-- 2026-06-30 02:38 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/4416285.shtml)
-- 2026-06-30 02:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/626169953.shtml)
-- 2026-06-30 02:40 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/96234.shtml)
-- 2026-06-30 02:36 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/09470.shtml)
-- 2026-06-30 02:12 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/12528344467.shtml)
-- 2026-06-30 02:27 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/8568990906.shtml)
-- 2026-06-30 02:34 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/810314189680.shtml)
-- 2026-06-30 02:13 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/1062476.shtml)
+- 2026-06-30 02:39 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/918418158.shtml)
+- 2026-06-30 02:23 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/22645624093.shtml)
+- 2026-06-30 02:45 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/622195100848.shtml)
+- 2026-06-30 02:32 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/328488.shtml)
+- 2026-06-30 02:30 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/9000667711.shtml)
+- 2026-06-30 02:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/756093.shtml)
+- 2026-06-30 02:41 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/54069049.shtml)
+- 2026-06-30 02:33 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/5296657165.shtml)
+- 2026-06-30 02:20 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/532079.shtml)
+- 2026-06-30 02:41 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/36132.shtml)
+- 2026-06-30 02:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/341055932.shtml)
+- 2026-06-30 02:22 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/1715206.shtml)
+- 2026-06-30 02:33 - [房价什么时候能涨](https://www.share.minike.top/Article/details/359383.shtml)
+- 2026-06-30 02:40 - [巴西vs日本](http://www.share.minike.top/Article/details/800377414731.shtml)
+- 2026-06-30 02:41 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/247390344914.shtml)

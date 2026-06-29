@@ -1,56 +1,61 @@
-# 伊朗议长：“敌人”施加经济压力 企图破坏国家团结
+# 中方决定不同意台湾地区参加今年世卫大会
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-中新网5月7日电 据伊朗媒体7日报道，伊朗伊斯兰议会议长卡利巴夫在面向全国的音频讲话中表示，“敌人”正试图通过海上封锁施加经济压力并进行舆论操纵，企图破坏伊朗国家团结，迫使伊朗投降。 据报道，卡利巴夫说，伊朗不会低估军事袭击、尤其是恐怖袭击的可能性，但“敌人”计划从内部削弱伊朗。 他指出，“敌人”正密切监视伊朗，因此“我们不应泄露任何可能被敌人利用或滥用的信息”。议会一直都在通
+中新网北京5月11日电 (记者 张素 谢雁冰)中国外交部发言人郭嘉昆11日主持例行记者会。 有记者提问：据了解，第79届世界卫生大会将于5月18日开幕，台湾方面迄今没有收到与会邀请。请问中国政府对此有何评论？ 郭嘉昆：世界上只有一个中国，台湾是中国领土不可分割的一部分，中华人民共和国政府是代表全中国的唯一合法政府。在中国台湾地区参与国际组织，包括世界卫生组织活动问题上，中方立场
 
 ## 正文
 
-中新网5月7日电 据伊朗媒体7日报道，伊朗伊斯兰议会议长卡利巴夫在面向全国的音频讲话中表示，“敌人”正试图通过海上封锁施加经济压力并进行舆论操纵，企图破坏伊朗国家团结，迫使伊朗投降。
+中新网北京5月11日电 (记者 张素 谢雁冰)中国外交部发言人郭嘉昆11日主持例行记者会。
 
-据报道，卡利巴夫说，伊朗不会低估军事袭击、尤其是恐怖袭击的可能性，但“敌人”计划从内部削弱伊朗。
+有记者提问：据了解，第79届世界卫生大会将于5月18日开幕，台湾方面迄今没有收到与会邀请。
 
-他指出，“敌人”正密切监视伊朗，因此“我们不应泄露任何可能被敌人利用或滥用的信息”。
+请问中国政府对此有何评论？
 
-议会一直都在通过没有媒体参与的非公开会议讨论如何协助政府，持续跟进包括通货膨胀在内的经济问题。
+郭嘉昆：世界上只有一个中国，台湾是中国领土不可分割的一部分，中华人民共和国政府是代表全中国的唯一合法政府。
 
-卡利巴夫说，伊朗各级官员都要共同努力减轻经济压力给民众带来的影响，民众同时也需采取行动。
+在中国台湾地区参与国际组织，包括世界卫生组织活动问题上，中方立场是一贯的、明确的，即必须按照一个中国原则来处理，这也是联合国大会第2758号决议和世界卫生大会25.1号决议确认的根本原则。
 
-他表示，每个人能为国家提供的最有效帮助，便是“节俭”。
+中国台湾地区在未经中央政府同意的前提下，没有任何根据、理由或权利参加世卫大会。
 
-他表示，民兵武装“动员穷人组织”能够发挥独特作用，有效解决社区层面的难题，应在民众、政府官员和捐助者之间发挥桥梁作用。
+台民进党当局顽固坚持“台独”分裂立场，导致台湾地区参加世卫大会的政治基础不复存在。
 
-政府和国家机构也应充分利用“动员穷人组织”的能力。
+为了维护一个中国原则，捍卫联合国大会及世卫大会相关决议的严肃性和权威性，中方决定不同意台湾地区参加今年世卫大会。
 
 ## 相关推荐
 
-- 2026-06-30 02:34 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 02:23 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 02:19 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 02:38 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 02:17 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 02:40 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 02:22 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 02:27 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 02:19 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 02:37 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 02:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 02:21 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 02:21 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 02:19 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 02:38 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 02:31 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 02:48 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 02:33 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 02:29 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 02:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 02:42 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 02:47 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 02:44 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 02:41 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 02:32 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:21 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/522728061659.shtml)
-- 2026-06-30 02:21 - [送你一朵小红花](http://www.blog.minike.top/Article/details/86837843821.shtml)
-- 2026-06-30 02:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/6213300.shtml)
-- 2026-06-30 02:36 - [这一刀 会很帅](https://www.share.minike.top/Article/details/70604205.shtml)
-- 2026-06-30 02:27 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/766995106801.shtml)
-- 2026-06-30 02:30 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/23760.shtml)
-- 2026-06-30 02:41 - [一生一世](https://www.share.minike.top/Article/details/693260.shtml)
-- 2026-06-30 02:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/849564.shtml)
-- 2026-06-30 02:19 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/28760352.shtml)
-- 2026-06-30 02:26 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/7684098.shtml)
-- 2026-06-30 02:33 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/34941775.shtml)
-- 2026-06-30 02:23 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/642426667.shtml)
-- 2026-06-30 02:17 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/367020088694.shtml)
-- 2026-06-30 02:25 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/53200.shtml)
-- 2026-06-30 02:15 - [第一炉香](http://www.blog.minike.top/Article/details/23774.shtml)
+- 2026-06-30 02:45 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/74446100499.shtml)
+- 2026-06-30 02:32 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/4516974061.shtml)
+- 2026-06-30 02:31 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/8971688205.shtml)
+- 2026-06-30 02:38 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/060468.shtml)
+- 2026-06-30 02:27 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/08031821040.shtml)
+- 2026-06-30 02:44 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/6671411314.shtml)
+- 2026-06-30 02:25 - [我们的少年时代2](https://www.share.minike.top/Article/details/226676315488.shtml)
+- 2026-06-30 02:39 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/42698261.shtml)
+- 2026-06-30 02:43 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/49450591593.shtml)
+- 2026-06-30 02:36 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/790271.shtml)
+- 2026-06-30 02:31 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/917955374417.shtml)
+- 2026-06-30 02:46 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/664060547.shtml)
+- 2026-06-30 02:36 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/566586568.shtml)
+- 2026-06-30 02:28 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/3711151589.shtml)
+- 2026-06-30 02:28 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/49091.shtml)

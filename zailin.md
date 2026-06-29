@@ -1,46 +1,54 @@
-# 日本日经225指数历史首次突破63,000点
+# 英国首相斯塔默离任压力激增，政局动荡引发英镑汇率剧震
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-日经225指数历史首次突破63，000点，日内涨超6%。责任编辑：王永生
+随着大批工党议员公开要求首相基尔·斯塔默（Keir Starmer）辞职，英国政坛不确定性显著加剧。受此动荡局势及英国国债收益率攀升影响，英镑兑主要货币汇率周二全线下挫。 政局前景不明拖累汇市表现 市场数据显示，英镑兑美元汇率周二跌至1.3503，创下今年5月以来新低；英镑兑欧元汇率亦跌至1.1499，触及三周低点。分析人士指出，当前市场焦点已从斯塔默是否离任转向“何时离任”以
 
 ## 正文
 
-日经225指数历史首次突破63，000点，日内涨超6%。
+随着大批工党议员公开要求首相基尔·斯塔默（Keir Starmer）辞职，英国政坛不确定性显著加剧。
 
-责任编辑：王永生
+受此动荡局势及英国国债收益率攀升影响，英镑兑主要货币汇率周二全线下挫。
+
+政局前景不明拖累汇市表现 市场数据显示，英镑兑美元汇率周二跌至1.3503，创下今年5月以来新低；英镑兑欧元汇率亦跌至1.1499，触及三周低点。
+
+分析人士指出，当前市场焦点已从斯塔默是否离任转向“何时离任”以及“由谁接任”。
+
+在权力交接前景不明的背景下，投资者避险情绪不断升温。
+
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-30 02:22 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 02:20 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 02:17 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 02:20 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 02:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 02:36 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 02:13 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 02:25 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 02:40 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 02:18 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 02:19 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 02:33 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 02:32 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 02:20 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 02:26 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 02:32 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 02:47 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 02:38 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 02:38 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 02:26 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 02:23 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 02:34 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 02:40 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 02:37 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/2884641423.shtml)
-- 2026-06-30 02:29 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/283595333.shtml)
-- 2026-06-30 02:35 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/36600363700.shtml)
-- 2026-06-30 02:39 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/77626.shtml)
-- 2026-06-30 02:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/379941123.shtml)
-- 2026-06-30 02:36 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/282840595153.shtml)
-- 2026-06-30 02:29 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/5071680.shtml)
-- 2026-06-30 02:14 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/8010832.shtml)
-- 2026-06-30 02:26 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/2285357721.shtml)
-- 2026-06-30 02:15 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/41378.shtml)
-- 2026-06-30 02:38 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/248576216610.shtml)
-- 2026-06-30 02:19 - [世界杯](https://www.blog.kurohicncr.top/Article/details/622811075.shtml)
-- 2026-06-30 02:39 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/50286.shtml)
-- 2026-06-30 02:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/8376224679.shtml)
-- 2026-06-30 02:35 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/8238189638.shtml)
+- 2026-06-30 02:21 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/015389152.shtml)
+- 2026-06-30 02:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/078851363.shtml)
+- 2026-06-30 02:22 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/3579037909.shtml)
+- 2026-06-30 02:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/15947583746.shtml)
+- 2026-06-30 02:49 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/174938660.shtml)
+- 2026-06-30 02:27 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/70187.shtml)
+- 2026-06-30 02:43 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/646035926.shtml)
+- 2026-06-30 02:26 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/21646538101.shtml)
+- 2026-06-30 02:41 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/95349833234.shtml)
+- 2026-06-30 02:25 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/079168.shtml)
+- 2026-06-30 02:22 - [巴西vs日本](https://www.blog.minike.top/Article/details/961892891.shtml)
+- 2026-06-30 02:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/2050787.shtml)
+- 2026-06-30 02:34 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/4228834317.shtml)
+- 2026-06-30 02:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/765878565955.shtml)
+- 2026-06-30 02:41 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/42323780367.shtml)

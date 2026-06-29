@@ -1,53 +1,49 @@
-# 希迪智驾盘中涨超12% 近日与舍弗勒正式签署战略合作协议
+# 姚来英已任中国烟草总公司总经理
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-希迪智驾（03881）早盘一度涨超12%，截至发稿，股价上涨8.04%，现报27.42港元，成交额4964.34万港元。 近日，舍弗勒与希迪智驾正式签署战略合作协议，双方将聚焦纯电智能矿卡、物流车等商用车辆，围绕整车电子电气架构、整车分布式控制等分布式电驱动系统与解决方案展开合作，携手推动商用车电动化、智能化转型，打造商用场景智能化标杆合作模式。 在政策、技术与场景三重驱动下，
+国家烟草专卖局网站领导信息一栏显示，姚来英已任中国烟草总公司总经理。 姚来英，男，汉族，1966年12月生，大学学历，经济学硕士，中共党员。现任工业和信息化部党组成员，国家烟草专卖局党组书记、局长，中国烟草总公司总经理。 责任编辑：杨赐
 
 ## 正文
 
-希迪智驾（03881）早盘一度涨超12%，截至发稿，股价上涨8.04%，现报27.42港元，成交额4964.34万港元。
+国家烟草专卖局网站领导信息一栏显示，姚来英已任中国烟草总公司总经理。
 
-近日，舍弗勒与希迪智驾正式签署战略合作协议，双方将聚焦纯电智能矿卡、物流车等商用车辆，围绕整车电子电气架构、整车分布式控制等分布式电驱动系统与解决方案展开合作，携手推动商用车电动化、智能化转型，打造商用场景智能化标杆合作模式。
+姚来英，男，汉族，1966年12月生，大学学历，经济学硕士，中共党员。
 
-在政策、技术与场景三重驱动下，中国商用车产业正迎来“电动化+智能化”深度变革，矿用卡车、封闭园区物流等场景智能化需求持续攀升。
+现任工业和信息化部党组成员，国家烟草专卖局党组书记、局长，中国烟草总公司总经理。
 
-希迪智驾联合创始人马潍博士表示，商用车电动化、智能化已是产业发展必然趋势与刚性需求。
-
-依托成熟的自动驾驶全栈技术，以及矿区、口岸、园区等刚需场景的规模化商业化落地能力，希迪智驾将深度整合双方资源优势，持续为客户创造可感知、高实效的核心价值，全面助力商用车出行更安全、运营更高效、作业更可靠。
-
-责任编辑：卢昱君
+责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-30 02:21 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-30 02:20 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 02:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 02:14 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-30 02:16 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 02:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 02:32 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 02:21 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 02:39 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 02:36 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 02:36 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 02:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 02:42 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 02:37 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-30 02:33 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 02:23 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 02:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 02:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 02:43 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 02:25 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 02:40 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 02:34 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:24 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/44269468.shtml)
-- 2026-06-30 02:21 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/4581466765.shtml)
-- 2026-06-30 02:25 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/714487.shtml)
-- 2026-06-30 02:22 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/649595414.shtml)
-- 2026-06-30 02:20 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/6527758941.shtml)
-- 2026-06-30 02:17 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/87361.shtml)
-- 2026-06-30 02:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/02885581.shtml)
-- 2026-06-30 02:16 - [毒液2](https://www.blog.kurohicncr.top/Article/details/00157.shtml)
-- 2026-06-30 02:38 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/8050484856.shtml)
-- 2026-06-30 02:20 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/7530379939.shtml)
-- 2026-06-30 02:14 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/6588634.shtml)
-- 2026-06-30 02:18 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/5684961.shtml)
-- 2026-06-30 02:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/40661079383.shtml)
-- 2026-06-30 02:27 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/40924995119.shtml)
-- 2026-06-30 02:24 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/04090857.shtml)
+- 2026-06-30 02:32 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/2480675850.shtml)
+- 2026-06-30 02:43 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/63802886857.shtml)
+- 2026-06-30 02:46 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/874800774.shtml)
+- 2026-06-30 02:41 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/29005225899.shtml)
+- 2026-06-30 02:25 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/65416619151.shtml)
+- 2026-06-30 02:33 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/33294.shtml)
+- 2026-06-30 02:43 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/9552214.shtml)
+- 2026-06-30 02:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/240079.shtml)
+- 2026-06-30 02:36 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/089433.shtml)
+- 2026-06-30 02:39 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/364670916.shtml)
+- 2026-06-30 02:27 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/46200.shtml)
+- 2026-06-30 02:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/14588316.shtml)
+- 2026-06-30 02:42 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/64929231.shtml)
+- 2026-06-30 02:21 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/2022945817.shtml)
+- 2026-06-30 02:19 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/652574572.shtml)

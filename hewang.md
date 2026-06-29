@@ -1,57 +1,55 @@
-# 受塔斯默拒绝辞职影响，英镑和英国国债双双上涨
+# 国家市场监管总局附条件批准腾讯收购喜马拉雅股权案
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-英国首相基尔·斯塔默表示，尽管执政党工党在地方选举中遭遇重挫，他仍拒绝辞职。受此消息影响，英镑和英国国债周五双双上涨。 截至周五，英国地方选举结果仍在陆续公布，初步计票显示斯塔默领导的工党支持率出现大幅流失。由脱欧派人士奈杰尔·法拉奇领导的英国改革党（Reform UK）目前成为最大赢家，已在英格兰地区赢得350多个地方议会席位。 投资者担忧，若斯塔默被迫下台，新任左翼工党领导
+5月12日，市场监管总局发布公告，附加限制性条件批准腾讯控股有限公司（以下简称腾讯）收购喜马拉雅公司（以下简称喜马拉雅）股权案。该案对维护中国境内在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，防范平台领域“内卷式”竞争，推动平台经济创新和健康发展具有重要意义。 经审查，市场监管总局认为该案对中国境内在线音频播放平台市场、网络音乐播放平台市场竞争可能具有排除、限制竞争效
 
 ## 正文
 
-英国首相基尔·斯塔默表示，尽管执政党工党在地方选举中遭遇重挫，他仍拒绝辞职。
+5月12日，市场监管总局发布公告，附加限制性条件批准腾讯控股有限公司（以下简称腾讯）收购喜马拉雅公司（以下简称喜马拉雅）股权案。
 
-受此消息影响，英镑和英国国债周五双双上涨。
+该案对维护中国境内在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，防范平台领域“内卷式”竞争，推动平台经济创新和健康发展具有重要意义。
 
-截至周五，英国地方选举结果仍在陆续公布，初步计票显示斯塔默领导的工党支持率出现大幅流失。
+经审查，市场监管总局认为该案对中国境内在线音频播放平台市场、网络音乐播放平台市场竞争可能具有排除、限制竞争效果。
 
-由脱欧派人士奈杰尔·法拉奇领导的英国改革党（Reform UK）目前成为最大赢家，已在英格兰地区赢得350多个地方议会席位。
+为有效减少此项经营者集中可能产生的不利影响，市场监管总局经过全面审查、科学论证，依法对该案作出附条件批准决定，要求腾讯、喜马拉雅和集中后实体作出五项限制性承诺：不得提高在线音频播放平台服务价格、降低服务水平或者附加不合理交易条件；不得降低在线音频播放平台免费内容及免费热门内容比例；不得与在线音频播放平台版权方达成独家授权，并在规定期限内解除现有独家授权约定；不得向汽车厂商搭售在线音频播放平台、网络音乐播放平台，或者阻碍、限制其采购竞争对手产品；不得限制主播在多个在线音频播放平台入驻或分发其享有著作权的作品。
 
-投资者担忧，若斯塔默被迫下台，新任左翼工党领导人可能会进一步扩大公共借款规模。
+经评估，市场监管总局认为该承诺方案可有效减少本集中导致的竞争问题，能够保障消费者、版权方、主播及汽车厂商等多方主体合法权益，维护相关市场公平竞争秩序，依法于5月11日附加限制性条件批准本案。
 
-当日，英镑兑美元汇率上涨0.5%，报1.362美元；英镑兑欧元汇率上涨0.1%。
+市场监管总局将严格督促交易双方有效履行限制性承诺，充分发挥经营者集中审查事前预防作用，切实维护我国在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，保障经营主体、消费者合法权益，防范平台“内卷式”竞争，推动平台企业和平台内经营者、劳动者共赢发展‌。
 
-同时，作为英国政府借贷成本核心指标的基准10年期国债收益率下跌5个基点，表现优于全球市场。
-
-分析人士与投资者表示，斯塔默承诺留任在一定程度上提振了市场信心，目前评估此次选举结果的全面影响尚早。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 02:23 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 02:28 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 02:36 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 02:12 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 02:15 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 02:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 02:17 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 02:32 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 02:24 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 02:29 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 02:30 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 02:23 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 02:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 02:34 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 02:25 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 02:25 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 02:49 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 02:24 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 02:26 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 02:44 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 02:39 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 02:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:17 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/127877.shtml)
-- 2026-06-30 02:34 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/8943248.shtml)
-- 2026-06-30 02:31 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/89046.shtml)
-- 2026-06-30 02:31 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/16407539.shtml)
-- 2026-06-30 02:24 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/651707470.shtml)
-- 2026-06-30 02:37 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/69760578854.shtml)
-- 2026-06-30 02:33 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/170571335643.shtml)
-- 2026-06-30 02:31 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/56891.shtml)
-- 2026-06-30 02:16 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/728862297.shtml)
-- 2026-06-30 02:36 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/3826091.shtml)
-- 2026-06-30 02:17 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/9664374.shtml)
-- 2026-06-30 02:26 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/6655286126.shtml)
-- 2026-06-30 02:29 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/548417562699.shtml)
-- 2026-06-30 02:22 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/028256.shtml)
-- 2026-06-30 02:31 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/829125.shtml)
+- 2026-06-30 02:21 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/32030721486.shtml)
+- 2026-06-30 02:35 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/69241.shtml)
+- 2026-06-30 02:31 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/5017879.shtml)
+- 2026-06-30 02:27 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/2989863.shtml)
+- 2026-06-30 02:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/72498579.shtml)
+- 2026-06-30 02:46 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/275844.shtml)
+- 2026-06-30 02:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/1841903.shtml)
+- 2026-06-30 02:45 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/983200873.shtml)
+- 2026-06-30 02:25 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/2261385849.shtml)
+- 2026-06-30 02:41 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/819054.shtml)
+- 2026-06-30 02:23 - [扬名立万](https://www.share.kurohicncr.top/Article/details/849237808.shtml)
+- 2026-06-30 02:33 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/22228.shtml)
+- 2026-06-30 02:22 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/148878.shtml)
+- 2026-06-30 02:33 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/632302733859.shtml)
+- 2026-06-30 02:44 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/376119274697.shtml)

@@ -1,56 +1,61 @@
-# 未名医药会计差错引发索赔，触及退市红线
+# 松下控股发布最新增长战略，拟发力人工智能业务提振盈利
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-2026年4月底，一纸会计差错更正公告将未名医药再次推上风口浪尖。原本预告超3.5亿元的营收，在“自查”后竟跌破3亿元退市红线。 这种“业绩大变脸”直接触发了股民索赔的维权大幕。 上海沪紫律师事务所刘鹏律师表示目前索赔窗口已开启，符合于2025年10月29日-2026年4月28日期间买入，并在2026年4月29日之后卖出或仍持有而亏损的即可登记索赔。（未名医药维权入口） 具体来
+5月12日，松下控股（Panasonic Holdings）在东京发布最新增长战略及上一财年财报。公司明确提出，将通过加大人工智能（AI）相关产品的开发与应用，力争在2029财年（截至2029年3月）实现7500亿日元（约合47.6亿美元）以上的调整后营业利润。 根据战略规划，人工智能基础设施相关业务预计将为公司贡献约1300亿日元的利润增量。松下指出，这一增长预期主要由能源事
 
 ## 正文
 
-2026年4月底，一纸会计差错更正公告将未名医药再次推上风口浪尖。
+5月12日，松下控股（Panasonic Holdings）在东京发布最新增长战略及上一财年财报。
 
-原本预告超3.5亿元的营收，在“自查”后竟跌破3亿元退市红线。
+公司明确提出，将通过加大人工智能（AI）相关产品的开发与应用，力争在2029财年（截至2029年3月）实现7500亿日元（约合47.6亿美元）以上的调整后营业利润。
 
-这种“业绩大变脸”直接触发了股民索赔的维权大幕。
+根据战略规划，人工智能基础设施相关业务预计将为公司贡献约1300亿日元的利润增量。
 
-上海沪紫律师事务所刘鹏律师表示目前索赔窗口已开启，符合于2025年10月29日-2026年4月28日期间买入，并在2026年4月29日之后卖出或仍持有而亏损的即可登记索赔。
+松下指出，这一增长预期主要由能源事业部及工业事业部驱动。
 
-（未名医药维权入口） 具体来看，2026年1月，未名医药发布2025年度业绩预告，预计全年营收超3.5亿元。
+目前，松下能源事业部已开始向日本境内数据中心交付电池电芯，并决定在其美国堪萨斯州工厂引入相关生产线，以满足全球AI数据中心对高效能源存储设备激增的需求。
 
-但在2026年4月27日，未名医药召开董事会，审议通过了《关于前期会计差错更正及追溯调整的议案》。
+在披露增长前景的同时，松下也坦承其车载电池业务近期面临严峻挑战。
 
-公司突然宣布，2025年第三季度对部分中药饮片业务的收入确认依据不充分，决定由“总额法”改为“净额法”核算。
+受美国关税政策调整、在美新工厂启动成本高企以及日本本土市场销量下滑等多重因素影响，能源事业部上一财年利润同比缩水42%，未达成既定年度目标。
 
-由于营收修正后低于3亿元，未名医药直接触及了创业板退市风险警示的红线。
+其中，今年1月至3月季度该业务录得38亿日元亏损。
 
 ## 相关推荐
 
-- 2026-06-30 02:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 02:26 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 02:38 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 02:16 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 02:36 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 02:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 02:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 02:40 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 02:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 02:22 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-30 02:43 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 02:33 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 02:20 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 02:27 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 02:43 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 02:44 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 02:19 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 02:46 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 02:28 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 02:23 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 02:22 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 02:44 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 02:24 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 02:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 02:31 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:36 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/922715.shtml)
-- 2026-06-30 02:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/83589.shtml)
-- 2026-06-30 02:35 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/46051428025.shtml)
-- 2026-06-30 02:23 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/86358.shtml)
-- 2026-06-30 02:28 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/5467231.shtml)
-- 2026-06-30 02:33 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/65940.shtml)
-- 2026-06-30 02:24 - [小娘惹](http://www.share.minike.top/Article/details/503870086.shtml)
-- 2026-06-30 02:14 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/188802.shtml)
-- 2026-06-30 02:41 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/269285250868.shtml)
-- 2026-06-30 02:35 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/802957814214.shtml)
-- 2026-06-30 02:13 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/58380808.shtml)
-- 2026-06-30 02:32 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/115450.shtml)
-- 2026-06-30 02:19 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/359110.shtml)
-- 2026-06-30 02:29 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/62037.shtml)
-- 2026-06-30 02:36 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/281586694.shtml)
+- 2026-06-30 02:44 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/12193.shtml)
+- 2026-06-30 02:48 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/471981.shtml)
+- 2026-06-30 02:34 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/56132220.shtml)
+- 2026-06-30 02:49 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/6335705420.shtml)
+- 2026-06-30 02:42 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/340470.shtml)
+- 2026-06-30 02:30 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/891427.shtml)
+- 2026-06-30 02:40 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/7857369.shtml)
+- 2026-06-30 02:36 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/483863081.shtml)
+- 2026-06-30 02:48 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/8956204531.shtml)
+- 2026-06-30 02:40 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/067488259444.shtml)
+- 2026-06-30 02:37 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/7457596460.shtml)
+- 2026-06-30 02:21 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/138366462.shtml)
+- 2026-06-30 02:46 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/057727613608.shtml)
+- 2026-06-30 02:34 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/1310641463.shtml)
+- 2026-06-30 02:43 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/55492961982.shtml)

@@ -1,59 +1,48 @@
-# 晚上睡前刷牙、刷牙后漱口竟都是错的 很多人都在“无效刷牙”
+# 李鸿忠会见汤加议会政府联合考察团
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-“每天刷牙，为什么牙齿还是坏了？”很多人总觉得只要每天刷牙就万事大吉。但你有没有想过，那些坚持了几十年的刷牙“老习惯”，可能从一开始就错了。 误区一：刷完牙马上漱口 相信大部分人刷完牙的第一件事，就是拿起杯子含口清水漱几下口吐掉。但真相是：这个再正常不过的动作恰恰让牙膏中最宝贵的护牙成分——氟，还没来得及发挥作用就被无情地冲掉了。 真正科学的做法是什么？2023年，中华口腔医学
+新华社北京5月12日电 中共中央政治局委员、全国人大常委会副委员长李鸿忠12日在京会见由汤加议长瓦伊阿率领的议会政府联合考察团。 李鸿忠表示，去年11月，习近平主席会见访华的图普六世国王，就深化中汤关系达成重要共识。中方愿同汤加一道，持续增强政治互信，深化共建“一带一路”等合作，增进人民相知相亲，推动中汤关系持续健康稳定发展，共建中国－太平洋岛国命运共同体。 瓦伊阿表示，汤加恪
 
 ## 正文
 
-“每天刷牙，为什么牙齿还是坏了？
+新华社北京5月12日电 中共中央政治局委员、全国人大常委会副委员长李鸿忠12日在京会见由汤加议长瓦伊阿率领的议会政府联合考察团。
 
-”很多人总觉得只要每天刷牙就万事大吉。
+李鸿忠表示，去年11月，习近平主席会见访华的图普六世国王，就深化中汤关系达成重要共识。
 
-但你有没有想过，那些坚持了几十年的刷牙“老习惯”，可能从一开始就错了。
+中方愿同汤加一道，持续增强政治互信，深化共建“一带一路”等合作，增进人民相知相亲，推动中汤关系持续健康稳定发展，共建中国－太平洋岛国命运共同体。
 
-误区一：刷完牙马上漱口 相信大部分人刷完牙的第一件事，就是拿起杯子含口清水漱几下口吐掉。
-
-但真相是：这个再正常不过的动作恰恰让牙膏中最宝贵的护牙成分——氟，还没来得及发挥作用就被无情地冲掉了。
-
-真正科学的做法是什么？
-
-2023年，中华口腔医学会明确指出：刷牙后，吐掉泡沫不要漱口。
-
-这是因为牙膏里的氟化物能帮助我们坚固牙釉质，有效抵御细菌和酸的侵蚀，甚至能修复早期微小的蛀牙。
+瓦伊阿表示，汤加恪守一个中国原则，愿同中方深化立法机构等各领域交流合作。
 
 ## 相关推荐
 
-- 2026-06-30 02:23 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 02:17 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 02:31 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 02:18 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-30 02:25 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 02:21 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 02:16 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 02:39 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 02:24 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 02:26 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 02:31 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 02:14 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 02:23 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 02:29 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 02:44 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 02:45 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 02:40 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 02:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 02:21 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 02:47 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 02:47 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 02:43 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 02:22 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:31 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/86926115.shtml)
-- 2026-06-30 02:34 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/47298.shtml)
-- 2026-06-30 02:12 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/19637151.shtml)
-- 2026-06-30 02:36 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/688729.shtml)
-- 2026-06-30 02:25 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/312897039.shtml)
-- 2026-06-30 02:36 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/2288943040.shtml)
-- 2026-06-30 02:35 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/2269539989.shtml)
-- 2026-06-30 02:25 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/27317117388.shtml)
-- 2026-06-30 02:19 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/75300510012.shtml)
-- 2026-06-30 02:36 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/55121.shtml)
-- 2026-06-30 02:33 - [一见倾心](https://www.share.minike.top/Article/details/43997891896.shtml)
-- 2026-06-30 02:24 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/474236580.shtml)
-- 2026-06-30 02:37 - [勇敢的心第二部](http://www.share.minike.top/Article/details/69586798.shtml)
-- 2026-06-30 02:27 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/662953695.shtml)
-- 2026-06-30 02:18 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/02381019707.shtml)
+- 2026-06-30 02:38 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/0120251.shtml)
+- 2026-06-30 02:26 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/5648381389.shtml)
+- 2026-06-30 02:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/2822358.shtml)
+- 2026-06-30 02:30 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/8803605196.shtml)
+- 2026-06-30 02:26 - [勇敢的心第二部](https://www.share.minike.top/Article/details/338612.shtml)
+- 2026-06-30 02:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/344888.shtml)
+- 2026-06-30 02:35 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/26583102068.shtml)
+- 2026-06-30 02:34 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/218512193514.shtml)
+- 2026-06-30 02:29 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/946943262.shtml)
+- 2026-06-30 02:21 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/52215751841.shtml)
+- 2026-06-30 02:22 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/7292274681.shtml)
+- 2026-06-30 02:37 - [小娘惹](http://www.share.minike.top/Article/details/20954375.shtml)
+- 2026-06-30 02:36 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/17210.shtml)
+- 2026-06-30 02:38 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/0401846.shtml)
+- 2026-06-30 02:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/85668.shtml)

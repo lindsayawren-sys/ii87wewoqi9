@@ -1,46 +1,56 @@
-# 天舟十号船箭组合体转运至发射区 将于近日择机发射
+# 美国制裁三家中国公司 外交部回应
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-中新网北京5月8日电 (记者 马帅莎)据中国载人航天工程办公室消息，5月8日，天舟十号货运飞船与长征七号遥十一运载火箭组合体垂直转运至发射区。 目前，文昌航天发射场设施设备状态良好，后续将按计划开展发射前的各项功能检查、联合测试等工作，计划于近日择机实施发射。(完）
+（原标题：美国制裁三家中国公司，外交部回应） 人民财讯5月11日电，5月11日，外交部发言人郭嘉昆主持例行记者会。法新社记者提问，美国制裁了三家中国公司，指控其协助伊朗。考虑到美国总统特朗普将于本周访华，请问中方对此有何评论？郭嘉昆表示，中方坚决反对没有国际法依据、未经联合国安理会授权的非法单边制裁。我们一贯要求中国企业依法依规开展业务，将坚定维护本国企业的正当权益。关于伊朗局
 
 ## 正文
 
-中新网北京5月8日电 (记者 马帅莎)据中国载人航天工程办公室消息，5月8日，天舟十号货运飞船与长征七号遥十一运载火箭组合体垂直转运至发射区。
+（原标题：美国制裁三家中国公司，外交部回应） 人民财讯5月11日电，5月11日，外交部发言人郭嘉昆主持例行记者会。
 
-目前，文昌航天发射场设施设备状态良好，后续将按计划开展发射前的各项功能检查、联合测试等工作，计划于近日择机实施发射。
+法新社记者提问，美国制裁了三家中国公司，指控其协助伊朗。
 
-(完）
+考虑到美国总统特朗普将于本周访华，请问中方对此有何评论？
+
+郭嘉昆表示，中方坚决反对没有国际法依据、未经联合国安理会授权的非法单边制裁。
+
+我们一贯要求中国企业依法依规开展业务，将坚定维护本国企业的正当权益。
+
+关于伊朗局势，郭嘉昆指出，中方已经多次表明了严正立场，当务之急是全力避免战端重启，而不是借战事恶意关联抹黑他国。
+
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 02:34 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 02:40 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 02:28 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 02:19 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 02:40 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 02:19 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 02:13 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 02:20 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 02:33 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 02:22 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 02:29 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 02:20 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 02:31 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 02:42 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 02:27 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 02:36 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 02:25 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 02:45 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 02:42 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 02:32 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 02:20 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 02:43 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:40 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/7208815.shtml)
-- 2026-06-30 02:15 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/1970541.shtml)
-- 2026-06-30 02:39 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/58633.shtml)
-- 2026-06-30 02:34 - [金牌调解](http://www.share.kurohicncr.top/Article/details/607364.shtml)
-- 2026-06-30 02:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/635172546749.shtml)
-- 2026-06-30 02:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/110158.shtml)
-- 2026-06-30 02:19 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/94059686.shtml)
-- 2026-06-30 02:21 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/013996569329.shtml)
-- 2026-06-30 02:40 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/313373916371.shtml)
-- 2026-06-30 02:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/216222650.shtml)
-- 2026-06-30 02:22 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/41480178305.shtml)
-- 2026-06-30 02:28 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/614091688.shtml)
-- 2026-06-30 02:36 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/08281.shtml)
-- 2026-06-30 02:40 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/225724950.shtml)
-- 2026-06-30 02:33 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/002486141052.shtml)
+- 2026-06-30 02:44 - [送你一朵小红花](https://www.blog.minike.top/Article/details/4619739703.shtml)
+- 2026-06-30 02:40 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/406212.shtml)
+- 2026-06-30 02:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/44099.shtml)
+- 2026-06-30 02:41 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/8012399234.shtml)
+- 2026-06-30 02:30 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/1292898.shtml)
+- 2026-06-30 02:47 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/4990226904.shtml)
+- 2026-06-30 02:23 - [这一刀 会很帅](http://www.share.minike.top/Article/details/126358620739.shtml)
+- 2026-06-30 02:46 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/9066672.shtml)
+- 2026-06-30 02:49 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/161990.shtml)
+- 2026-06-30 02:36 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/007786770990.shtml)
+- 2026-06-30 02:44 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/50438.shtml)
+- 2026-06-30 02:39 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/50398386.shtml)
+- 2026-06-30 02:23 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/613079549389.shtml)
+- 2026-06-30 02:35 - [金牌调解](http://www.share.minike.top/Article/details/5924025076.shtml)
+- 2026-06-30 02:23 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/44022.shtml)

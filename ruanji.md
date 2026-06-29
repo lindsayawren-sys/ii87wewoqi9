@@ -1,53 +1,54 @@
-# OPPO就母亲节文案致歉：已第一时间下架全部相关物料，全面审查内容审核机制
+# 停火协议过期后俄罗斯与乌克兰恢复无人机袭击
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-新浪科技讯 5月8日下午消息，OPPO官微今日发布声明称，关于本次母亲节宣传文案引起的争议，诚恳表示歉意。 声明称，“我们的创作初衷，是希望打破刻板印象，呈现更多元、更立体的当代母亲形象：母亲可以热爱马拉松，可以沉浸文字创作，也可以拥有自己的追星爱好。我们已第一时间下架全部相关物料。我们将认真倾听各方批评，全面审查内容审核机制，确保此类问题不再发生。” 责任编辑：刘万里 SF0
+乌克兰报告称，在俄罗斯夜间发射的216架无人机中拦截了192架。俄罗斯国防部报告称，在莫斯科时间午夜至上午9时期间拦截了31架无人机。此前，由美国斡旋、乌克兰和俄罗斯达成的停火协议已经到期。 防空部队和地方当局表示，乌克兰首都基辅以及至少其他六个地区昨晚遭到无人机袭击。 总统沃洛迪米尔·泽连斯基称，向乌克兰发射超过200架攻击型无人机，空投炸弹袭击了前线地区。责任编辑：李安桐
 
 ## 正文
 
-新浪科技讯 5月8日下午消息，OPPO官微今日发布声明称，关于本次母亲节宣传文案引起的争议，诚恳表示歉意。
+乌克兰报告称，在俄罗斯夜间发射的216架无人机中拦截了192架。
 
-声明称，“我们的创作初衷，是希望打破刻板印象，呈现更多元、更立体的当代母亲形象：母亲可以热爱马拉松，可以沉浸文字创作，也可以拥有自己的追星爱好。
+俄罗斯国防部报告称，在莫斯科时间午夜至上午9时期间拦截了31架无人机。
 
-我们已第一时间下架全部相关物料。
+此前，由美国斡旋、乌克兰和俄罗斯达成的停火协议已经到期。
 
-我们将认真倾听各方批评，全面审查内容审核机制，确保此类问题不再发生。
+防空部队和地方当局表示，乌克兰首都基辅以及至少其他六个地区昨晚遭到无人机袭击。
 
-” 责任编辑：刘万里 SF014
+总统沃洛迪米尔·泽连斯基称，向乌克兰发射超过200架攻击型无人机，空投炸弹袭击了前线地区。
+
+责任编辑：李安桐
 
 ## 相关推荐
 
-- 2026-06-30 02:39 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-30 02:40 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 02:18 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 02:29 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 02:17 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 02:20 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 02:34 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 02:14 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 02:21 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 02:25 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 02:24 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 02:41 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 02:31 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 02:22 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 02:30 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 02:20 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 02:41 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 02:28 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 02:31 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 02:19 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 02:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 02:34 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 02:43 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 02:32 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 02:39 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:35 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/09763466.shtml)
-- 2026-06-30 02:20 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/63308536375.shtml)
-- 2026-06-30 02:13 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/58059.shtml)
-- 2026-06-30 02:21 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/7519794692.shtml)
-- 2026-06-30 02:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/5181987493.shtml)
-- 2026-06-30 02:28 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/322609105.shtml)
-- 2026-06-30 02:37 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/04435.shtml)
-- 2026-06-30 02:23 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/8178781773.shtml)
-- 2026-06-30 02:18 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/25699036.shtml)
-- 2026-06-30 02:19 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/27166464420.shtml)
-- 2026-06-30 02:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/06135020.shtml)
-- 2026-06-30 02:33 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/6659588.shtml)
-- 2026-06-30 02:18 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/885817487067.shtml)
-- 2026-06-30 02:24 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/331450.shtml)
-- 2026-06-30 02:24 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/955795.shtml)
+- 2026-06-30 02:37 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/805018733.shtml)
+- 2026-06-30 02:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/066505305.shtml)
+- 2026-06-30 02:34 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/49489225318.shtml)
+- 2026-06-30 02:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/987062819.shtml)
+- 2026-06-30 02:46 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/46020955220.shtml)
+- 2026-06-30 02:21 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/31343112.shtml)
+- 2026-06-30 02:30 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/518019361.shtml)
+- 2026-06-30 02:25 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/51348722.shtml)
+- 2026-06-30 02:35 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/04764946849.shtml)
+- 2026-06-30 02:19 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/93181250380.shtml)
+- 2026-06-30 02:27 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/05865.shtml)
+- 2026-06-30 02:40 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/9457594610.shtml)
+- 2026-06-30 02:29 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/64996.shtml)
+- 2026-06-30 02:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/011719905753.shtml)
+- 2026-06-30 02:32 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/08220754794.shtml)

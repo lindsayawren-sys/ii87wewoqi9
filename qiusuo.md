@@ -1,61 +1,59 @@
-# 形势比想象的好～～！
+# 全球狂飙！三重逻辑叠加共振 存储产业链掀涨停潮！多只绩优股获资金关注(名单)
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-来源：奶员外 5月6日。今天市场用大涨喜迎5月开门，给投资者送上一个大红包。同时，成交金额进一步放量到3.2万亿元，重新站上3万亿元量级台阶。 我们监控的9个主要指数，其中科创50、创业板指、深证成指、中证1000、沪深300和中证A50这6个，再创阶段新高，另外3个，中证2000、中证500和上证指数，也涨回前期高点附近。 市场表现强势，量价齐升，有个重要原因是，上市公司今年
+来源：东方财富研究中心 AI硬件行情再起，存储今天成为领涨赛道。 5月11日早盘，存储芯片板块飙涨6%，掀起涨停潮。其中，普冉股份、长川科技（维权）、澜起科技等5股20cm涨停，红板科技、博杰股份、长电科技等亦强势封板，江波龙、恒烁股份、精智达等均涨超10%。 消息面上，AI浪潮下，全球科技巨头们携手上修资本开支，存储市场甚至出现排队“锁单”行业巨头的情形。与此同时，在亮眼业绩
 
 ## 正文
 
-来源：奶员外 5月6日。
+来源：东方财富研究中心 AI硬件行情再起，存储今天成为领涨赛道。
 
-今天市场用大涨喜迎5月开门，给投资者送上一个大红包。
+5月11日早盘，存储芯片板块飙涨6%，掀起涨停潮。
 
-同时，成交金额进一步放量到3.2万亿元，重新站上3万亿元量级台阶。
+其中，普冉股份、长川科技（维权）、澜起科技等5股20cm涨停，红板科技、博杰股份、长电科技等亦强势封板，江波龙、恒烁股份、精智达等均涨超10%。
 
-我们监控的9个主要指数，其中科创50、创业板指、深证成指、中证1000、沪深300和中证A50这6个，再创阶段新高，另外3个，中证2000、中证500和上证指数，也涨回前期高点附近。
+消息面上，AI浪潮下，全球科技巨头们携手上修资本开支，存储市场甚至出现排队“锁单”行业巨头的情形。
 
-市场表现强势，量价齐升，有个重要原因是，上市公司今年一季报披露完毕，整体不错略超预期。
+与此同时，在亮眼业绩的助推下，三星电子、SK海力士、美光科技等存储龙头迭创新高，今日早盘，暴涨的韩股甚至触发了熔断机制。
 
-根据东财统计数据，一季度，正常发布业绩报告的A股上市公司，营收同比增长4.25%，利润同比增长5.54%，说明宏观经济确实在企稳复苏。
+分析人士指出，存储板块的持续走强并非单一因素驱动，而是供需错配、价格上涨、业绩支撑三重逻辑叠加共振的结果，板块交易逻辑正逐渐转向盈利增长持续性的兑现验证。
 
-从结构来看，一季度实现盈利的公司占比超过70%，利润同比增长的公司占比52%（利润下降的是哪些行业和公司，大家大概知道）。
+AI巨头加码投资+抢占产能 据报道，字节跳动正在加大起对AI基础设施的投入，公司今年计划资本支出将超过2000亿元人民币，较此前的初步计划增加大增25%。
 
-科创板利润增长最猛，增幅高达157%；创业板和主板利润增长分别为22.5%和3.5%。
+上调资本开支主要源于两方面原因：字节对人工智能的投入不断增加，以及内存芯片的成本上涨。
 
 ## 相关推荐
 
-- 2026-06-30 02:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 02:35 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 02:24 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 02:21 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 02:14 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 02:42 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 02:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 02:29 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 02:33 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 02:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 02:20 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 02:17 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 02:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 02:20 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 02:24 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 02:37 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 02:47 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 02:24 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 02:23 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 02:22 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 02:47 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 02:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 02:41 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 02:47 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 02:22 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 02:28 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 02:45 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 02:32 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/13611898587.shtml)
-- 2026-06-30 02:12 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/487902505339.shtml)
-- 2026-06-30 02:37 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/586831849.shtml)
-- 2026-06-30 02:27 - [日本16强魔咒](http://www.share.minike.top/Article/details/889170366.shtml)
-- 2026-06-30 02:16 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/6474986761.shtml)
-- 2026-06-30 02:19 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/8668739.shtml)
-- 2026-06-30 02:23 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/053936.shtml)
-- 2026-06-30 02:35 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/45365103.shtml)
-- 2026-06-30 02:23 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/215347075.shtml)
-- 2026-06-30 02:13 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/37156983300.shtml)
-- 2026-06-30 02:36 - [斛珠夫人](https://www.blog.minike.top/Article/details/21792715.shtml)
-- 2026-06-30 02:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/51681231608.shtml)
-- 2026-06-30 02:12 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/32847463531.shtml)
-- 2026-06-30 02:37 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/864840056772.shtml)
-- 2026-06-30 02:29 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/0679896362.shtml)
+- 2026-06-30 02:43 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/8380734.shtml)
+- 2026-06-30 02:36 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/4934333.shtml)
+- 2026-06-30 02:20 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/43752708955.shtml)
+- 2026-06-30 02:44 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/50535.shtml)
+- 2026-06-30 02:27 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/07770169.shtml)
+- 2026-06-30 02:32 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/23931455603.shtml)
+- 2026-06-30 02:44 - [金刚川](http://www.blog.kurohicncr.top/Article/details/3626320.shtml)
+- 2026-06-30 02:21 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/492235.shtml)
+- 2026-06-30 02:39 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/6608783807.shtml)
+- 2026-06-30 02:26 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/75779893.shtml)
+- 2026-06-30 02:38 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/4002035.shtml)
+- 2026-06-30 02:29 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/8282558897.shtml)
+- 2026-06-30 02:31 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/89640.shtml)
+- 2026-06-30 02:34 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/73470.shtml)
+- 2026-06-30 02:20 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/575241.shtml)

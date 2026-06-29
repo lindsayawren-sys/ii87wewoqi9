@@ -1,52 +1,50 @@
-# 太空数据分析企业HawkEye 360上市首日股价大涨30%
+# 快讯：恒指高开0.34% 科指涨0.45% 黄金股回暖 芯片股活跃 快手涨超9%
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-太空数据分析公司HawkEye 360周四于纽约证券交易所上市，首日股价大涨 30%，公司估值达到31.5 亿美元。 该股开盘价报 33.8 美元，高于 26 美元的发行价。 这家总部位于弗吉尼亚州赫恩登的企业，于周三完成美国 IPO，以24 至 26 美元发行区间的上限价格 26 美元，发售 1600 万股，共计募资4.16 亿美元。 HawkEye 360 登陆美股正值太空
+美股周一反复上升，地缘政局再度紧张，拖累大市早段向下，其后重拾升势，标普500指数及纳指再创新高，三大指数均录得升幅收市。美元表现向好，美国十年期债息上升至4.41厘水平，金价走势靠稳，油价则先升后回。 今日港股三大指数集体高开，恒指开盘涨0.34%，报26497.03点，恒科指涨0.45%，国企指数涨0.2%。盘面上，科网股跌多涨少，快手涨超9%，联想跌0.67%；黄金股回暖
 
 ## 正文
 
-太空数据分析公司HawkEye 360周四于纽约证券交易所上市，首日股价大涨 30%，公司估值达到31.5 亿美元。
+美股周一反复上升，地缘政局再度紧张，拖累大市早段向下，其后重拾升势，标普500指数及纳指再创新高，三大指数均录得升幅收市。
 
-该股开盘价报 33.8 美元，高于 26 美元的发行价。
+美元表现向好，美国十年期债息上升至4.41厘水平，金价走势靠稳，油价则先升后回。
 
-这家总部位于弗吉尼亚州赫恩登的企业，于周三完成美国 IPO，以24 至 26 美元发行区间的上限价格 26 美元，发售 1600 万股，共计募资4.16 亿美元。
+今日港股三大指数集体高开，恒指开盘涨0.34%，报26497.03点，恒科指涨0.45%，国企指数涨0.2%。
 
-HawkEye 360 登陆美股正值太空科技企业上市的关键窗口期，而太空探索公司 SpaceX 潜在的上市申报，被视作衡量资本市场对整个赛道信心的风向标。
+盘面上，科网股跌多涨少，快手涨超9%，联想跌0.67%；黄金股回暖，赤峰黄金涨超2%；芯片股活跃，天数智芯涨超2%；创新药概念多数上涨，再鼎医药涨超4%。
 
-公司成立于 2015 年，通过卫星探测、定位并分析全球射频信号，为国防、情报及国家安全机构提供信号情报数据服务。
-
-责任编辑：郭明煜
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 02:29 - [蔚来车主罚站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 02:19 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 02:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 02:13 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-30 02:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 02:25 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 02:31 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 02:14 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 02:14 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 02:34 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 02:21 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 02:32 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 02:24 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 02:32 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-30 02:33 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 02:49 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 02:43 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 02:48 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 02:47 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 02:27 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/70315038010.shtml)
-- 2026-06-30 02:18 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/925037.shtml)
-- 2026-06-30 02:31 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/879671.shtml)
-- 2026-06-30 02:22 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/975560674.shtml)
-- 2026-06-30 02:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/25697701.shtml)
-- 2026-06-30 02:16 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/89142.shtml)
-- 2026-06-30 02:24 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/01796.shtml)
-- 2026-06-30 02:30 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/3722225054.shtml)
-- 2026-06-30 02:28 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/0396976.shtml)
-- 2026-06-30 02:12 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/349958465.shtml)
-- 2026-06-30 02:26 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/9791618828.shtml)
-- 2026-06-30 02:38 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/729748.shtml)
-- 2026-06-30 02:13 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/778544154027.shtml)
-- 2026-06-30 02:35 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/793613847101.shtml)
-- 2026-06-30 02:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/337841096.shtml)
+- 2026-06-30 02:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/73081.shtml)
+- 2026-06-30 02:33 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/344440946525.shtml)
+- 2026-06-30 02:26 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/917864.shtml)
+- 2026-06-30 02:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/38382.shtml)
+- 2026-06-30 02:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/285743931.shtml)
+- 2026-06-30 02:33 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/997896145458.shtml)
+- 2026-06-30 02:37 - [世界杯](http://www.blog.kurohicncr.top/Article/details/91900263207.shtml)
+- 2026-06-30 02:22 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/92517441.shtml)
+- 2026-06-30 02:25 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/359949.shtml)
+- 2026-06-30 02:36 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/61684636.shtml)
+- 2026-06-30 02:48 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/519646547.shtml)
+- 2026-06-30 02:29 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/7527124.shtml)
+- 2026-06-30 02:37 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/9771119727.shtml)
+- 2026-06-30 02:31 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/301355511.shtml)
+- 2026-06-30 02:29 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/540210792760.shtml)

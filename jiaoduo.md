@@ -1,61 +1,56 @@
-# 美国拟制裁伊拉克官员 指控其协助伊朗售油
+# 2026年中国—东盟国际毽球邀请赛在广西南宁举办
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-美国财政部计划于周四对伊拉克石油部副部长实施制裁，指控其参与一项违规计划：将伊朗原油与伊拉克原油掺混，借此规避国际禁运、帮助伊朗出售石油。 美国财政部即将公布，伊拉克石油部副部长阿里・马阿里吉・巴哈德利批准每日将价值数百万美元的伊拉克原油通过卡车运往一名走私者手中，该走私者再将其与伊朗原油混合。财政部称，马阿里吉还协助伪造文件，让混合原油伪装成纯伊拉克原油走私流入市场。 此举标
+中新网南宁5月12日电(黄令妍)5月8日—11日，2026年毽球国际推广交流活动暨中国—东盟国际毽球邀请赛、第二届全国全民健身大赛毽球比赛(华南区)在广西南宁举行。来自中国以及越南、老挝、泰国、缅甸等东盟国家的20余支代表队、300余名运动员参赛。 本次赛事由国家体育总局社会体育指导中心、中国毽球跳绳协会、广西壮族自治区体育局主办，广西体育高等专科学校与广西社会体育运动发展中心
 
 ## 正文
 
-美国财政部计划于周四对伊拉克石油部副部长实施制裁，指控其参与一项违规计划：将伊朗原油与伊拉克原油掺混，借此规避国际禁运、帮助伊朗出售石油。
+中新网南宁5月12日电(黄令妍)5月8日—11日，2026年毽球国际推广交流活动暨中国—东盟国际毽球邀请赛、第二届全国全民健身大赛毽球比赛(华南区)在广西南宁举行。
 
-美国财政部即将公布，伊拉克石油部副部长阿里・马阿里吉・巴哈德利批准每日将价值数百万美元的伊拉克原油通过卡车运往一名走私者手中，该走私者再将其与伊朗原油混合。
+来自中国以及越南、老挝、泰国、缅甸等东盟国家的20余支代表队、300余名运动员参赛。
 
-财政部称，马阿里吉还协助伪造文件，让混合原油伪装成纯伊拉克原油走私流入市场。
+本次赛事由国家体育总局社会体育指导中心、中国毽球跳绳协会、广西壮族自治区体育局主办，广西体育高等专科学校与广西社会体育运动发展中心承办。
 
-此举标志着美国政府正加大对巴格达施压，要求其切断与德黑兰的经济联系。
+比赛中，广西体育高等专科学校健儿代表中国队创佳绩。
 
-长期以来，伊朗一直借助伊拉克邻国身份规避国际制裁、获取硬通货。
+同时，该校精心组织近200名师生志愿者全力保障赛事。
 
-美国财政部在职制裁他国高级官员本就罕见，尤其对象还是与美国有着长期关系的伊拉克，更属非同寻常。
+据悉，该校以毽球为纽带服务中国—东盟命运共同体建设，将依托中国—东盟体育人才培训基地，持续深化体教融合与国际合作，为体育强国建设积极贡献力量。
 
-伊拉克目前正处于政府换届过渡期，候任总理阿里・扎伊迪正在组建新内阁，并争取伊拉克议会支持；议会必须对其提名进行投票通过后，他才能正式就职。
-
-近几周，美国已在波斯湾附近实施海上封锁，拦截运载伊朗石油的油轮，并严厉打击该地区被指为伊朗规避制裁所用的航运公司及壳公司。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:22 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 02:37 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 02:21 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 02:17 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 02:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 02:21 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 02:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 02:29 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 02:41 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 02:19 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 02:27 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 02:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 02:35 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 02:32 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 02:28 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 02:45 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 02:24 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 02:46 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 02:29 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 02:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 02:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 02:27 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 02:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 02:48 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 02:45 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 02:47 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 02:47 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:37 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/801419804161.shtml)
-- 2026-06-30 02:31 - [绘画区你赢了](https://www.share.minike.top/Article/details/119377208825.shtml)
-- 2026-06-30 02:12 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/6901184685.shtml)
-- 2026-06-30 02:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/66904.shtml)
-- 2026-06-30 02:39 - [女心理师](https://www.share.minike.top/Article/details/27496154133.shtml)
-- 2026-06-30 02:31 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/08819.shtml)
-- 2026-06-30 02:22 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/230177.shtml)
-- 2026-06-30 02:24 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/00106532739.shtml)
-- 2026-06-30 02:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/280629134900.shtml)
-- 2026-06-30 02:13 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/1244191.shtml)
-- 2026-06-30 02:38 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/350375.shtml)
-- 2026-06-30 02:15 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/0639909.shtml)
-- 2026-06-30 02:12 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/0543986.shtml)
-- 2026-06-30 02:18 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/756661.shtml)
-- 2026-06-30 02:41 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/652419627820.shtml)
+- 2026-06-30 02:33 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/0963665.shtml)
+- 2026-06-30 02:27 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/6507743.shtml)
+- 2026-06-30 02:34 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/22845097490.shtml)
+- 2026-06-30 02:41 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/077736714.shtml)
+- 2026-06-30 02:32 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/3269867.shtml)
+- 2026-06-30 02:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/68904820304.shtml)
+- 2026-06-30 02:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/140706.shtml)
+- 2026-06-30 02:35 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/167702457.shtml)
+- 2026-06-30 02:48 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/6716573638.shtml)
+- 2026-06-30 02:48 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/84434462.shtml)
+- 2026-06-30 02:40 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/31147745923.shtml)
+- 2026-06-30 02:26 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/024831826775.shtml)
+- 2026-06-30 02:25 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/24942697.shtml)
+- 2026-06-30 02:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/049338922490.shtml)
+- 2026-06-30 02:20 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/92447.shtml)

@@ -1,56 +1,60 @@
-# 前4月49家企业A股上市募470.5亿元 江苏浙江继续领跑
+# 美国机票价格飙升至多年来最高水平 较上年同期大涨近21%
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-来源：中国经济网 中国经济网北京5月7日讯 （记者 关婧 田云绯） 2026年前4月，上交所、深交所及北交所共计新增49家上市企业，合计募集资金470.50亿元。其中沪深主板有9家企业上市，创业板有7家企业上市，科创板有9家企业上市，北交所有24家企业上市。 从归属地来看，2026年前4月上市企业分布于16个省份及直辖市，其中江苏省、浙江省各有11家企业上市，广东省有5家企业上
+美国劳工部周二公布的通胀数据显示，机票价格较上年同期大涨近21%。机票是推动整体消费者物价涨幅达到3.8%的众多支出类别之一。 官方的机票价格指标触及2022年7月以来的最高水平。2022年，随著新冠疫情相关限制措施的放松提振了旅行需求，加之俄乌冲突后油价飙升，机票价格曾出现大涨。 这份报告最新表明，航空公司正将高企的航空燃油成本转嫁给旅客。为应对额外开支，航空公司还上调了托运
 
 ## 正文
 
-来源：中国经济网 中国经济网北京5月7日讯 （记者 关婧 田云绯） 2026年前4月，上交所、深交所及北交所共计新增49家上市企业，合计募集资金470.50亿元。
+美国劳工部周二公布的通胀数据显示，机票价格较上年同期大涨近21%。
 
-其中沪深主板有9家企业上市，创业板有7家企业上市，科创板有9家企业上市，北交所有24家企业上市。
+机票是推动整体消费者物价涨幅达到3.8%的众多支出类别之一。
 
-从归属地来看，2026年前4月上市企业分布于16个省份及直辖市，其中江苏省、浙江省各有11家企业上市，广东省有5家企业上市，安徽省有4家企业上市，北京市、河南省、江西省、辽宁省、山东省、陕西省各有2家企业上市，河北省、湖南省、上海市、四川省、天津市、重庆市各有1家企业上市。
+官方的机票价格指标触及2022年7月以来的最高水平。
 
-从单只个股募资金额来看，排名前五位的企业分别是盛合晶微、振石股份、视涯科技、宏明电子、联讯仪器，募资金额分别为50.28亿元、29.19亿元、22.68亿元、21.17亿元、21.02亿元，分别归属于江苏省、浙江省、安徽省、四川省、江苏省。
+2022年，随著新冠疫情相关限制措施的放松提振了旅行需求，加之俄乌冲突后油价飙升，机票价格曾出现大涨。
 
-具体从归属地来看，江苏省有11家企业登陆A股，联讯仪器、盛合晶微在科创板上市，理奇智能、固德电材在创业板上市，鸿仕达、创达新材、赛英电子、海菲曼、通宝光电、爱得科技、爱舍伦在北交所上市，上述11家企业募资110.06亿元。
+这份报告最新表明，航空公司正将高企的航空燃油成本转嫁给旅客。
 
-浙江省有11家企业登陆A股，其中福恩股份、振石股份在主板上市，易思维在科创板上市，恒道科技、晨光电机、隆源股份、普昂医疗、新恒泰、觅睿科技、海圣医疗、科马材料在北交所上市。
+为应对额外开支，航空公司还上调了托运行李费，并削减了航班班次。
 
-上述11家企业合计募集资金总额76.75亿元。
+行业分析师表示，本月早些时候Spirit Airlines的倒闭预计将为机票价格进一步上涨铺平道路。
 
-广东省有5家企业登陆A股，北芯生命、恒运昌在科创板上市，尚水智能、大普微、慧谷新材在创业板上市，上述5家企业募资64.73亿元。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 02:15 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 02:21 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 02:39 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 02:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 02:20 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 02:40 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 02:26 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 02:40 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 02:39 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 02:28 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 02:26 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 02:44 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-30 02:25 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 02:22 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 02:29 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 02:40 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 02:35 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 02:25 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 02:49 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 02:21 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 02:43 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 02:41 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 02:30 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 02:44 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:33 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/6634038429.shtml)
-- 2026-06-30 02:15 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/86723233.shtml)
-- 2026-06-30 02:16 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/6931192.shtml)
-- 2026-06-30 02:22 - [锐评T1零封KC](https://www.share.minike.top/Article/details/551577526.shtml)
-- 2026-06-30 02:17 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/425477402495.shtml)
-- 2026-06-30 02:34 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/21320.shtml)
-- 2026-06-30 02:42 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/58458785.shtml)
-- 2026-06-30 02:23 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/906100589817.shtml)
-- 2026-06-30 02:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/8967343621.shtml)
-- 2026-06-30 02:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/287364444.shtml)
-- 2026-06-30 02:13 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/0580904.shtml)
-- 2026-06-30 02:30 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/91707.shtml)
-- 2026-06-30 02:21 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/99153145106.shtml)
-- 2026-06-30 02:26 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/685271.shtml)
-- 2026-06-30 02:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/67015.shtml)
+- 2026-06-30 02:46 - [千香](http://www.blog.minike.top/Article/details/803175683166.shtml)
+- 2026-06-30 02:26 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/6998318.shtml)
+- 2026-06-30 02:27 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/210507.shtml)
+- 2026-06-30 02:47 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/243392197.shtml)
+- 2026-06-30 02:21 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/472186058411.shtml)
+- 2026-06-30 02:32 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/78311754928.shtml)
+- 2026-06-30 02:20 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/199940.shtml)
+- 2026-06-30 02:23 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/62906031.shtml)
+- 2026-06-30 02:20 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/516467135.shtml)
+- 2026-06-30 02:35 - [千与千寻](http://www.share.minike.top/Article/details/598879668.shtml)
+- 2026-06-30 02:49 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/8519720.shtml)
+- 2026-06-30 02:26 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/3746812428.shtml)
+- 2026-06-30 02:36 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/2808697780.shtml)
+- 2026-06-30 02:41 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/72054753.shtml)
+- 2026-06-30 02:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/8417336.shtml)

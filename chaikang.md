@@ -1,56 +1,59 @@
-# 东兴海关缉私分局关于2026年公务船艇吊装服务项目的比选采购公告
+# 民盟浙江华夏书画学会赴舟山开展“文化助力乡村振兴 合力共绘海岛共富”主题活动
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-东兴海关缉私分局拟采购2026年公务船艇吊装服务，采用比选采购的方式选择供应单位，现将采购情况公告如下： 一、项目名称及编号 东兴海关缉私分局2026年公务船艇吊装服务项目(DXJS-NGP-2026-004)。 二、采购内容保障东兴海关缉私分局公务船艇因维修保养、防台、检验等事项需要的吊装服务。供应商向采购人提供详细服务承诺及保障措施，供应商需提供专业吊装人员的吊装服务，在服
+近日，根据民盟省委会工作要求和民盟浙江华夏书画学会年度计划，民盟浙江华夏书画学会赴舟山开展“文化助力乡村振兴 合力共绘海岛共富”主题活动。学会班子成员和各分会负责人近30位盟员书画家齐聚东海之滨，共同以艺术家的视角感受时代巨变和改革成果。民盟省委会组织部部长、岱山县副县长(挂职)徐国强、民盟舟山市委会副主委任珊红等参加活动。民盟浙江华夏书画学会会员深入岱山与舟山本岛，开展了一系
 
 ## 正文
 
-东兴海关缉私分局拟采购2026年公务船艇吊装服务，采用比选采购的方式选择供应单位，现将采购情况公告如下： 一、项目名称及编号 东兴海关缉私分局2026年公务船艇吊装服务项目(DXJS-NGP-2026-004)。
+近日，根据民盟省委会工作要求和民盟浙江华夏书画学会年度计划，民盟浙江华夏书画学会赴舟山开展“文化助力乡村振兴 合力共绘海岛共富”主题活动。
 
-二、采购内容保障东兴海关缉私分局公务船艇因维修保养、防台、检验等事项需要的吊装服务。
+学会班子成员和各分会负责人近30位盟员书画家齐聚东海之滨，共同以艺术家的视角感受时代巨变和改革成果。
 
-供应商向采购人提供详细服务承诺及保障措施，供应商需提供专业吊装人员的吊装服务，在服务期内提供24小时上门吊艇服务。
+民盟省委会组织部部长、岱山县副县长(挂职)徐国强、民盟舟山市委会副主委任珊红等参加活动。
 
-三、项目预算金额(人民币) 本次项目预算控制价为8万元(最终结算金额根据服务合同确定)。
+民盟浙江华夏书画学会会员深入岱山与舟山本岛，开展了一系列丰富的艺术交流和调研活动。
 
-四、报价人资格 (一)国内注册(按国家有关规定要求注册的)，符合《中华人民共和国政府采购法》第二十二条资质条件，具备法人资格的供应商。
+在岱山，会员们先后走访了底蕴深厚的东沙古镇、风情独特的蓝白小镇，参观了兰秀艺术馆与岱山美术馆，在浓厚艺术氛围中切磋技艺，探讨笔墨内涵。
 
-(二)参加政府采购活动前三年内，在“信用中国”(www.criditchina.gov.cn)、中国政府采购网(www.ccgp.gov.cn)等渠道未被列入失信被执行人、重大税收违法案件当事人名单、政府采购严重违法失信行为记录名单及无其他不符合《中华人民共和国政府采购法》第二十二条规定条件。
+在舟山本岛，大家先后探访了南洞艺谷与南洞艺术馆，并在朱仁民艺术馆、舟山普陀美术馆驻足观摩。
 
-五、报价文件要求 (一)报价文件格式，详见附件1。
+同时还前往甬舟西侯门公铁两用跨海大桥建设项目现场，近距离感受国家重大工程的宏伟气势与时代脉搏。
 
-(二)报价文件需提供一式三份(正本1份，副本2份)，均需加盖单位公章。
+通过实地参观与现场交流，大家不仅领略了舟山独特的海岛人文风光，更从现代生态艺术与地方传统文化中汲取了丰富的创作养分。
 
 ## 相关推荐
 
-- 2026-06-30 02:26 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 02:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-30 02:22 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 02:20 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 02:21 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 02:16 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 02:36 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 02:14 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 02:25 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 02:35 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 02:38 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 02:30 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 02:27 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 02:32 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 02:28 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 02:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 02:24 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 02:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 02:29 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 02:28 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 02:42 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 02:37 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 02:45 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:40 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/139188995962.shtml)
-- 2026-06-30 02:19 - [一见倾心](https://www.share.minike.top/Article/details/59236707724.shtml)
-- 2026-06-30 02:34 - [千与千寻](https://www.share.kurohicncr.top/Article/details/7446627.shtml)
-- 2026-06-30 02:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/097573431425.shtml)
-- 2026-06-30 02:17 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/552679689.shtml)
-- 2026-06-30 02:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/3107828247.shtml)
-- 2026-06-30 02:28 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/4919008762.shtml)
-- 2026-06-30 02:38 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/392643534267.shtml)
-- 2026-06-30 02:35 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/271858506.shtml)
-- 2026-06-30 02:22 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/85286575.shtml)
-- 2026-06-30 02:16 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/49367672.shtml)
-- 2026-06-30 02:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/245907310592.shtml)
-- 2026-06-30 02:16 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/9196484.shtml)
-- 2026-06-30 02:27 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/2577654.shtml)
-- 2026-06-30 02:14 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/84768015.shtml)
+- 2026-06-30 02:31 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/60982444175.shtml)
+- 2026-06-30 02:39 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/411268473463.shtml)
+- 2026-06-30 02:40 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/668972211.shtml)
+- 2026-06-30 02:29 - [斛珠夫人](https://www.blog.minike.top/Article/details/845151117814.shtml)
+- 2026-06-30 02:46 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/674736.shtml)
+- 2026-06-30 02:24 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/40577591858.shtml)
+- 2026-06-30 02:31 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/38050822729.shtml)
+- 2026-06-30 02:28 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/598807554510.shtml)
+- 2026-06-30 02:27 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/60398.shtml)
+- 2026-06-30 02:48 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/7553460699.shtml)
+- 2026-06-30 02:29 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/547473694.shtml)
+- 2026-06-30 02:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/01997527.shtml)
+- 2026-06-30 02:36 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/800484.shtml)
+- 2026-06-30 02:23 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/94091944686.shtml)
+- 2026-06-30 02:33 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/966094295375.shtml)

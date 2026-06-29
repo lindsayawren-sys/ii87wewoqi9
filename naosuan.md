@@ -1,56 +1,58 @@
-# 法国航母战斗群启程前往红海
+# 银诺医药-B午前涨超43% Suba的III期减重数据预计2026年年底前公布
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-法国国防部表示，法国戴高乐号航母战斗群于周三驶过苏伊士运河，正向红海南部海域行进。该舰队将在局势允许的情况下，参与由英法主导的联合行动，为途经霍尔木兹海峡的商船提供护航。 法国总统埃马纽埃尔・马克龙明确拒绝参与以武力强行打通海峡的行动，同时不会加入美国短期护航计划 “自由行动”—— 这项行动旨在引导船舶安全通行霍尔木兹海峡。不过，马克龙提议组建一支国际防御护航部队，待地区战事结
+银诺医药-B（02591）午前涨超43%，截至发稿，股价上涨43.08%，现报18.10港元，成交额1.97亿港元。 银诺医药年度业绩显示，2025 年实现收入1.32亿元，亏损3.41亿元。值得注意的是，银诺医药基石投资者的禁售期将于2026年5月14日届满，相关股份将于5月15日正式解禁流通。其中，基石投资者合计持股420.1万股。 国海证券发布研报称，Suba T2D适应
 
 ## 正文
 
-法国国防部表示，法国戴高乐号航母战斗群于周三驶过苏伊士运河，正向红海南部海域行进。
+银诺医药-B（02591）午前涨超43%，截至发稿，股价上涨43.08%，现报18.10港元，成交额1.97亿港元。
 
-该舰队将在局势允许的情况下，参与由英法主导的联合行动，为途经霍尔木兹海峡的商船提供护航。
+银诺医药年度业绩显示，2025 年实现收入1.32亿元，亏损3.41亿元。
 
-法国总统埃马纽埃尔・马克龙明确拒绝参与以武力强行打通海峡的行动，同时不会加入美国短期护航计划 “自由行动”—— 这项行动旨在引导船舶安全通行霍尔木兹海峡。
+值得注意的是，银诺医药基石投资者的禁售期将于2026年5月14日届满，相关股份将于5月15日正式解禁流通。
 
-不过，马克龙提议组建一支国际防御护航部队，待地区战事结束后，正式在霍尔木兹海峡开展常态化执勤。
+其中，基石投资者合计持股420.1万股。
 
-上月，法国与英国共同主持召开线上会议，约 50 个国家参会，共同启动相关行动方案的制定工作。
+国海证券发布研报称，Suba T2D适应症2025年1月获得NMPA认证，且已被纳入国家医保目录。
 
-身处冲突一线的美国及其他相关国家并未受邀参与此次会议。
+Suba的III期减重数据预计2026年年底前公布。
 
-责任编辑：刘明亮
+该行指出，在IIb期研究中，20毫克每周一次给药方案于第18周实现10.6%体重降幅，且于该时间点未观察到平台期；而20毫克每两周一次给药方案于第18周实现9.7%体重降幅。
+
+治疗肥胖及超重的III期临床研究，已于2025年完成患者入组。
 
 ## 相关推荐
 
-- 2026-06-30 02:24 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 02:41 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 02:22 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 02:33 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 02:12 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 02:12 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 02:21 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 02:21 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 02:13 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 02:20 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 02:35 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 02:38 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 02:39 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 02:25 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 02:26 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 02:20 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 02:28 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 02:43 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 02:22 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 02:35 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-30 02:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 02:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 02:42 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 02:36 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:32 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/856880855747.shtml)
-- 2026-06-30 02:26 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/6885638.shtml)
-- 2026-06-30 02:13 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/319113223006.shtml)
-- 2026-06-30 02:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/4117458.shtml)
-- 2026-06-30 02:24 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/49208.shtml)
-- 2026-06-30 02:30 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/20097858.shtml)
-- 2026-06-30 02:21 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/4532117.shtml)
-- 2026-06-30 02:18 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/85790429507.shtml)
-- 2026-06-30 02:18 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/730239230107.shtml)
-- 2026-06-30 02:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/7728811530.shtml)
-- 2026-06-30 02:17 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/86986239791.shtml)
-- 2026-06-30 02:33 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/581064219413.shtml)
-- 2026-06-30 02:29 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/44181779.shtml)
-- 2026-06-30 02:41 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/911741493310.shtml)
-- 2026-06-30 02:38 - [世界杯](https://www.share.kurohicncr.top/Article/details/71461.shtml)
+- 2026-06-30 02:40 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/537645781165.shtml)
+- 2026-06-30 02:48 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/473351927.shtml)
+- 2026-06-30 02:23 - [电影后室值得看吗](http://www.share.minike.top/Article/details/76400658.shtml)
+- 2026-06-30 02:42 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/5714187654.shtml)
+- 2026-06-30 02:47 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/136377.shtml)
+- 2026-06-30 02:27 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/1410468.shtml)
+- 2026-06-30 02:32 - [恋与深空回应争议](http://www.share.minike.top/Article/details/17234954034.shtml)
+- 2026-06-30 02:36 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/4100872.shtml)
+- 2026-06-30 02:29 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/7381528192.shtml)
+- 2026-06-30 02:30 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/02798781939.shtml)
+- 2026-06-30 02:27 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/87681.shtml)
+- 2026-06-30 02:23 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/196872.shtml)
+- 2026-06-30 02:32 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/38073.shtml)
+- 2026-06-30 02:19 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/25990208.shtml)
+- 2026-06-30 02:33 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/6419897.shtml)

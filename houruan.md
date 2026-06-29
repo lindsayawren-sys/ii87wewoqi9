@@ -1,49 +1,49 @@
-# 航空股早盘涨幅居前 东方航空及中国国航均涨超6%
+# 内房股早盘连续走高 富力地产上涨8%远洋集团涨超7%
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-航空股早盘涨幅居前，截至发稿，东方航空（00670）上涨6.36%，报4.35港元；中国国航（00753）上涨6%，报5.30港元；南方航空（01055）上涨5.77%，报4.40港元；国泰航空（00293）上涨3.64%，报12.53港元。责任编辑：卢昱君
+内房股早盘连续走高，截至发稿，富力地产（02777）上涨8%，报0.405港元；远洋集团（03377）上涨7.14%，报0.075港元；中国海外宏洋集团（00081）上涨2.23%，报3.21港元；碧桂园（02007）上涨3.70%，报0.28港元。责任编辑：卢昱君
 
 ## 正文
 
-航空股早盘涨幅居前，截至发稿，东方航空（00670）上涨6.36%，报4.35港元；中国国航（00753）上涨6%，报5.30港元；南方航空（01055）上涨5.77%，报4.40港元；国泰航空（00293）上涨3.64%，报12.53港元。
+内房股早盘连续走高，截至发稿，富力地产（02777）上涨8%，报0.405港元；远洋集团（03377）上涨7.14%，报0.075港元；中国海外宏洋集团（00081）上涨2.23%，报3.21港元；碧桂园（02007）上涨3.70%，报0.28港元。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:34 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 02:37 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 02:39 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 02:37 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 02:30 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 02:24 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 02:24 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 02:16 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 02:31 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 02:34 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 02:36 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 02:37 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 02:24 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 02:22 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 02:32 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-30 02:34 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 02:21 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 02:22 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 02:20 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 02:30 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 02:46 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 02:36 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 02:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 02:43 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 02:19 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 02:35 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 02:22 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 02:39 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 02:45 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 02:41 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:21 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/921931997646.shtml)
-- 2026-06-30 02:24 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/16164160532.shtml)
-- 2026-06-30 02:25 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/81203445.shtml)
-- 2026-06-30 02:26 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/22067.shtml)
-- 2026-06-30 02:41 - [恋与深空 巧合](http://www.share.minike.top/Article/details/16527.shtml)
-- 2026-06-30 02:14 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/034310.shtml)
-- 2026-06-30 02:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/661891986.shtml)
-- 2026-06-30 02:36 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/0059571646.shtml)
-- 2026-06-30 02:41 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/24722021735.shtml)
-- 2026-06-30 02:42 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/10994519.shtml)
-- 2026-06-30 02:24 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/999823.shtml)
-- 2026-06-30 02:33 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/09815850187.shtml)
-- 2026-06-30 02:20 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/2510048626.shtml)
-- 2026-06-30 02:24 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/91017833.shtml)
-- 2026-06-30 02:37 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/7171938.shtml)
+- 2026-06-30 02:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/36874827.shtml)
+- 2026-06-30 02:29 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/193992.shtml)
+- 2026-06-30 02:41 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/18144958160.shtml)
+- 2026-06-30 02:31 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/75731.shtml)
+- 2026-06-30 02:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/42545.shtml)
+- 2026-06-30 02:45 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/710746.shtml)
+- 2026-06-30 02:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/145357.shtml)
+- 2026-06-30 02:31 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/66066868.shtml)
+- 2026-06-30 02:45 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/8755010.shtml)
+- 2026-06-30 02:30 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/652140430574.shtml)
+- 2026-06-30 02:27 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/61943668.shtml)
+- 2026-06-30 02:36 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/880393833987.shtml)
+- 2026-06-30 02:46 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/93084.shtml)
+- 2026-06-30 02:42 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/34173715.shtml)
+- 2026-06-30 02:39 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/19363862.shtml)

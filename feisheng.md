@@ -1,57 +1,59 @@
-# 高盛：潍柴动力目标价升至56港元 维持“买入”评级
+# 社会救助法7月起施行 将保障哪些群体？一文了解
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-高盛发布研报称，潍柴动力（02338）H股近期的升势已开始反映往复式燃气发动机（RICE）的增长空间，但尚未反映固体氧化物燃料电池（SOFC）的潜力，而潍柴动力（000338.SZ）A股则尚未反映上述两项因素。即使H股及A股年初至今已累升129%及81%，但在全球人工智能数据中心（AIDC）电力供应链中，以市盈率计算仍属于最廉价标的。该行维持“买入”评级，将H股及A股目标价分别
+社会救助法于4月30日经十四届全国人大常委会第二十二次会议表决通过，将于2026年7月1日起施行。从纳入立法规划到落地，这部法律打磨三十年，不仅补齐社会救助领域法律短板，还新增个人信息保护、失信惩戒等群众关切条款。 新通过的社会救助法共7章78条，涵盖总则、救助对象和措施、救助程序等内容。草案审议期间，两次面向全社会公开征求意见，民意满满，公众意见聚焦隐私保护、简化审批、严惩骗
 
 ## 正文
 
-高盛发布研报称，潍柴动力（02338）H股近期的升势已开始反映往复式燃气发动机（RICE）的增长空间，但尚未反映固体氧化物燃料电池（SOFC）的潜力，而潍柴动力（000338.SZ）A股则尚未反映上述两项因素。
+社会救助法于4月30日经十四届全国人大常委会第二十二次会议表决通过，将于2026年7月1日起施行。
 
-即使H股及A股年初至今已累升129%及81%，但在全球人工智能数据中心（AIDC）电力供应链中，以市盈率计算仍属于最廉价标的。
+从纳入立法规划到落地，这部法律打磨三十年，不仅补齐社会救助领域法律短板，还新增个人信息保护、失信惩戒等群众关切条款。
 
-该行维持“买入”评级，将H股及A股目标价分别由46港元及42元人民币，上调至56港元及48元人民币。
+新通过的社会救助法共7章78条，涵盖总则、救助对象和措施、救助程序等内容。
 
-报告指出，美国同业的上季业绩不单止重申了AI资本支出的正面展望，亦反映RICE及SOFC作为即场主用电源解决方案的角色日益重要。
+草案审议期间，两次面向全社会公开征求意见，民意满满，公众意见聚焦隐私保护、简化审批、严惩骗保等问题，这些诉求都在最终法律中得到回应。
 
-该行认为，潍柴动力在亚洲市场提供了相关领域的最佳投资机会。
+全国人大常委会法工委社会法室副主任高莉娜在接受记者专访时表示，立法团队深入城乡基层，倾听低保家庭、特困老人等群体心声，吸纳各地实践经验，反复打磨条文。
 
-责任编辑：卢昱君
+既兼顾地区差异、平衡部门衔接，更直面信息泄露、公职人员滥用职权、骗保等群众担心的痛点。
+
+这部法律来之不易，在此之前的十余年间，2014年出台的《社会救助暂行办法》是社会救助工作的主要依据，而社会救助法的落地，则标志着我国民生兜底保障迈入法治化新阶段。
+
+全国人大常委会法工委社会法室副主任 高莉娜：制定社会救助法是贯彻落实习近平总书记重要指示批示精神和党中央决策部署的必然要求，社会救助是保基本、兜底线、救急难的制度。
 
 ## 相关推荐
 
-- 2026-06-30 02:19 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 02:34 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 02:23 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 02:31 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 02:21 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 02:22 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 02:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 02:19 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 02:39 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 02:16 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 02:22 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 02:19 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 02:31 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 02:39 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 02:19 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 02:48 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 02:47 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 02:20 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 02:29 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 02:46 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 02:43 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 02:30 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 02:21 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 02:37 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 02:20 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 02:45 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 02:26 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 02:48 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:16 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/85724872.shtml)
-- 2026-06-30 02:34 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/20518.shtml)
-- 2026-06-30 02:30 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/348853289.shtml)
-- 2026-06-30 02:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/494183279739.shtml)
-- 2026-06-30 02:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/988860352.shtml)
-- 2026-06-30 02:31 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/797518497.shtml)
-- 2026-06-30 02:20 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/628476626.shtml)
-- 2026-06-30 02:21 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/32618.shtml)
-- 2026-06-30 02:13 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/86196505.shtml)
-- 2026-06-30 02:18 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/43597810230.shtml)
-- 2026-06-30 02:20 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/95135303995.shtml)
-- 2026-06-30 02:24 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/083395535642.shtml)
-- 2026-06-30 02:39 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/826447807395.shtml)
-- 2026-06-30 02:31 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/941460484.shtml)
-- 2026-06-30 02:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/080325110.shtml)
+- 2026-06-30 02:29 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/13298483.shtml)
+- 2026-06-30 02:46 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/6140907079.shtml)
+- 2026-06-30 02:30 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/555205266.shtml)
+- 2026-06-30 02:47 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/94057095.shtml)
+- 2026-06-30 02:40 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/1178438.shtml)
+- 2026-06-30 02:42 - [日本 高位逼抢](https://www.share.minike.top/Article/details/80469.shtml)
+- 2026-06-30 02:35 - [金牌调解](http://www.share.minike.top/Article/details/0805779.shtml)
+- 2026-06-30 02:36 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/820851546233.shtml)
+- 2026-06-30 02:31 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/66522525.shtml)
+- 2026-06-30 02:26 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/1903034433.shtml)
+- 2026-06-30 02:25 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/30873640956.shtml)
+- 2026-06-30 02:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/11424962.shtml)
+- 2026-06-30 02:30 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/280154932.shtml)
+- 2026-06-30 02:47 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/40754888898.shtml)
+- 2026-06-30 02:38 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/39384419.shtml)

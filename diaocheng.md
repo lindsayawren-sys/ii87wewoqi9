@@ -1,61 +1,53 @@
-# 美国商务部长就爱泼斯坦案闭门作证 委员会主席称其并非“100%说真话”
+# 专家：日本不断突破战后武器出口限制，在军事化道路上越走越远
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-美国商务部长霍华德·卢特尼克周三成为首位就杰弗里·爱泼斯坦案件及执法部门潜在疏漏向众议院委员会作证的在任内阁成员。卢特尼克曾是爱泼斯坦的邻居，并曾造访这位声名狼藉的金融家位于加勒比海的岛屿。 今年早些时候，司法部公布的文件显示，时任Cantor Fitzgerald LP首席执行官的卢特尼克曾于2012年造访爱泼斯坦的私人岛屿。这发生在爱泼斯坦因被指安排未成年人卖淫而被定罪的数
+发布时间：2026年05月12日 14:03 来源：中国新闻网 4月21日，日本首相高市早苗以“内阁总理大臣”的名义向靖国神社供奉了祭品。同一天，日本政府通过内阁决议，完成了对“防卫装备转移三原则”及其运用指南的修改，原则上将允许杀伤性武器对外出口。 对于日本一系列危险言行，上海市日本学会会长、上海对外经贸大学日本经济研究中心主任陈子雷接受中新网专访时表示，高市早苗向靖国神社供
 
 ## 正文
 
-美国商务部长霍华德·卢特尼克周三成为首位就杰弗里·爱泼斯坦案件及执法部门潜在疏漏向众议院委员会作证的在任内阁成员。
+发布时间：2026年05月12日 14:03 来源：中国新闻网 4月21日，日本首相高市早苗以“内阁总理大臣”的名义向靖国神社供奉了祭品。
 
-卢特尼克曾是爱泼斯坦的邻居，并曾造访这位声名狼藉的金融家位于加勒比海的岛屿。
+同一天，日本政府通过内阁决议，完成了对“防卫装备转移三原则”及其运用指南的修改，原则上将允许杀伤性武器对外出口。
 
-今年早些时候，司法部公布的文件显示，时任Cantor Fitzgerald LP首席执行官的卢特尼克曾于2012年造访爱泼斯坦的私人岛屿。
+对于日本一系列危险言行，上海市日本学会会长、上海对外经贸大学日本经济研究中心主任陈子雷接受中新网专访时表示，高市早苗向靖国神社供奉祭品，通过与中韩等国家在历史问题上制造对立，目的是为了获得日本国内右翼势力以及美国政府的支持。
 
-这发生在爱泼斯坦因被指安排未成年人卖淫而被定罪的数年之后。
+陈子雷还表示，1976年，日本三木武夫内阁对“武器出口三原则”作出增补，全面禁止了日本武器出口，体现了当时的和平主义理念。
 
-这一披露使得卢特尼克受到抨击。
+而现在，日本宣布正式废除5类非战斗武器的用途限制，这意味着，1976年的禁令被彻底终结了，由此可见，“日本在军事化道路上越走越远”。
 
-众议院监督委员会主席James Comer周三对记者表示，卢特尼克此前在公开声明中关于他是否去过爱泼斯坦岛屿的问题“并没有100%说真话”，但他补充说，目前没有看到证据指向这位商务部长存在任何不当行为。
-
-周三上午，卢特尼克在安保人员和助手的簇拥下抵达国会办公楼，对记者们的提问没有作出回应。
-
-他正在闭门作证，委员会计划在未来几天公布逐字稿。
+(巩微微） 责任编辑：【孟湘君】
 
 ## 相关推荐
 
-- 2026-06-30 02:12 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 02:34 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 02:24 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 02:41 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 02:41 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 02:40 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 02:35 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 02:41 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 02:12 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 02:30 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 02:40 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 02:19 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 02:39 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 02:32 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 02:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 02:44 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 02:37 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 02:41 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 02:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 02:35 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 02:36 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-30 02:24 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 02:25 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 02:23 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 02:20 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 02:33 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:21 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/073128.shtml)
-- 2026-06-30 02:18 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/2984335.shtml)
-- 2026-06-30 02:41 - [恋与深空 日服](http://www.blog.minike.top/Article/details/55089.shtml)
-- 2026-06-30 02:40 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/197691383593.shtml)
-- 2026-06-30 02:13 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/053225262.shtml)
-- 2026-06-30 02:14 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/45089700499.shtml)
-- 2026-06-30 02:41 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/0869140942.shtml)
-- 2026-06-30 02:16 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/44745.shtml)
-- 2026-06-30 02:24 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/53222363502.shtml)
-- 2026-06-30 02:36 - [女心理师](http://www.blog.minike.top/Article/details/144589377.shtml)
-- 2026-06-30 02:12 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/748963771.shtml)
-- 2026-06-30 02:27 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/8676703998.shtml)
-- 2026-06-30 02:29 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/91029953220.shtml)
-- 2026-06-30 02:30 - [爱很美味](https://www.share.minike.top/Article/details/26995.shtml)
-- 2026-06-30 02:19 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/76137391.shtml)
+- 2026-06-30 02:36 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/612476906954.shtml)
+- 2026-06-30 02:33 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/6944104.shtml)
+- 2026-06-30 02:19 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/126526.shtml)
+- 2026-06-30 02:33 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/2517709.shtml)
+- 2026-06-30 02:33 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/8189430125.shtml)
+- 2026-06-30 02:25 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/3145268.shtml)
+- 2026-06-30 02:23 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/171894743237.shtml)
+- 2026-06-30 02:36 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/9762135.shtml)
+- 2026-06-30 02:32 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/0042520.shtml)
+- 2026-06-30 02:34 - [流金岁月](https://www.share.kurohicncr.top/Article/details/55560212351.shtml)
+- 2026-06-30 02:29 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/856969.shtml)
+- 2026-06-30 02:28 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/355237.shtml)
+- 2026-06-30 02:48 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/594344952449.shtml)
+- 2026-06-30 02:21 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/06455176115.shtml)
+- 2026-06-30 02:43 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/2363532.shtml)

@@ -1,58 +1,57 @@
-# “十五五”蓄力赋能 吉林做强现代农业端稳“中国饭碗”
+# *ST益通内控被否、财报非标 受损股民可索赔
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-中新网长春5月7日电 (高龙安 李彦国)作为全国粮食单产持续领跑的粮食主产省份，吉林省粮食产量已经连续五年突破800亿斤。“十五五”时期，该省以发展现代化大农业为主攻方向，统筹推进科技农业、绿色农业、质量农业、品牌农业建设，推动农业强省建设实现新突破。 5月7日，吉林省政府新闻办在长春召开“开局起步‘十五五’ 推动吉林全面振兴和高质量发展”专题新闻发布会，吉林省副省长刘伟介绍现
+2026年5月8日，北京诚益通控制技术集团股份有限公司（简称：诚益通、*ST益通（维权），代码：300430）《关于股票交易严重异常波动的公告》。公司于2026年4 月30日披露了《关于公司股票交易被实施退市风险警示叠加其他风险警示暨停 牌的公告》。 曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据相关公告，诚益通涉嫌证券虚假陈述，受损股民可依法索
 
 ## 正文
 
-中新网长春5月7日电 (高龙安 李彦国)作为全国粮食单产持续领跑的粮食主产省份，吉林省粮食产量已经连续五年突破800亿斤。
+2026年5月8日，北京诚益通控制技术集团股份有限公司（简称：诚益通、*ST益通（维权），代码：300430）《关于股票交易严重异常波动的公告》。
 
-“十五五”时期，该省以发展现代化大农业为主攻方向，统筹推进科技农业、绿色农业、质量农业、品牌农业建设，推动农业强省建设实现新突破。
+公司于2026年4 月30日披露了《关于公司股票交易被实施退市风险警示叠加其他风险警示暨停 牌的公告》。
 
-5月7日，吉林省政府新闻办在长春召开“开局起步‘十五五’ 推动吉林全面振兴和高质量发展”专题新闻发布会，吉林省副省长刘伟介绍现代化大农业发展及农业强省建设相关情况。
+曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据相关公告，诚益通涉嫌证券虚假陈述，受损股民可依法索赔。
 
-“十四五”期间，吉林省农业生产条件持续改善、实现全面跃升，建成高标准农田2556万亩，建设规模相当于此前十年总和；累计实施保护性耕作1.19亿亩次，土壤有机质含量提升6.1%，耕层厚度增加3.5%，黑土地地力稳步回升；耕种收综合机械化率达95%，高出全国平均水平18.3个百分点。
+（厉健律师专栏） 公告显示：因信永中和会计师事务所（特殊普通合伙） 出具了无法表示意见的审计报告以及否定意见的内部控制审计报告，触及《深圳 证券交易所创业板股票上市规则》第10.3.1条、第9.4条的规定，公司股票自2026 年5月6日开市起被实行“退市风险警示”、“其他风险警示”，股票简称由“诚益通”变更为“*ST益通”，证券代码仍为“300430”，敬请广大投资者注意投资风险。
 
-2025年，吉林省粮食总产871.6亿斤，连续三年稳居全国第4位；粮食单产达到每亩990.8斤。
+公司股票交易价格连续三个交易日（2026年5月6日、2026年5月7日、2026年5月8日）收盘价格跌幅偏离值累计超过50%以上，根据深圳证券交易所有关规定，属于股票交易严重异常波动。
 
-“稳产增产关键靠科技支撑、靠单产提升。
+根据最高人民法院虚假陈述司法解释，上市公司等因证券虚假陈述行为导致投资者权益受损，投资者可以依法起诉索赔，索赔范围包括投资差额损失、佣金和印花税损失。
 
-”刘伟表示，吉林省将进一步促进“四良一智”集成增效，尽早实现“千亿斤”产能目标，让“中国饭碗”装进更多的“吉林好粮”。
+厉健律师表示，根据司法解释，暂定：在2025年4月24日至2026年4月29日期间买入诚益通股票，并在2026年4月29日收盘时持有该股票的受损股民，可索赔。
 
-依托白山松水禀赋与珍贵黑土地资源，吉林孕育出品质出众的“吉字号”农产品。
+索赔条件以法院认定为准。
 
 ## 相关推荐
 
-- 2026-06-30 02:29 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 02:37 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-30 02:24 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-30 02:30 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-30 02:38 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 02:39 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 02:18 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 02:14 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 02:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 02:18 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 02:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-30 02:31 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 02:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 02:44 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 02:30 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 02:35 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 02:36 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 02:24 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 02:41 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 02:23 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 02:25 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 02:36 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 02:41 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:39 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/95122447.shtml)
-- 2026-06-30 02:21 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/664566.shtml)
-- 2026-06-30 02:26 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/600461.shtml)
-- 2026-06-30 02:16 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/3637147170.shtml)
-- 2026-06-30 02:17 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/7017848423.shtml)
-- 2026-06-30 02:29 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/97221.shtml)
-- 2026-06-30 02:41 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/414135848.shtml)
-- 2026-06-30 02:34 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/2473735.shtml)
-- 2026-06-30 02:24 - [请回答王牌2019](https://www.blog.minike.top/Article/details/86277376579.shtml)
-- 2026-06-30 02:19 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/1569632.shtml)
-- 2026-06-30 02:19 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/2132068.shtml)
-- 2026-06-30 02:14 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/294416264.shtml)
-- 2026-06-30 02:35 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/61118179682.shtml)
-- 2026-06-30 02:39 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/912114.shtml)
-- 2026-06-30 02:16 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/35741589.shtml)
+- 2026-06-30 02:34 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/54686.shtml)
+- 2026-06-30 02:26 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/278023771107.shtml)
+- 2026-06-30 02:47 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/132407.shtml)
+- 2026-06-30 02:23 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/769137.shtml)
+- 2026-06-30 02:32 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/598490.shtml)
+- 2026-06-30 02:32 - [斛珠夫人](http://www.blog.minike.top/Article/details/54108093343.shtml)
+- 2026-06-30 02:37 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/04731.shtml)
+- 2026-06-30 02:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/087291912484.shtml)
+- 2026-06-30 02:46 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/100426653.shtml)
+- 2026-06-30 02:44 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/858325655.shtml)
+- 2026-06-30 02:28 - [一见倾心](http://www.share.minike.top/Article/details/826827926.shtml)
+- 2026-06-30 02:20 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/3869159374.shtml)
+- 2026-06-30 02:36 - [沙丘](https://www.blog.kurohicncr.top/Article/details/60915714.shtml)
+- 2026-06-30 02:35 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/209394409046.shtml)
+- 2026-06-30 02:20 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/1438112.shtml)

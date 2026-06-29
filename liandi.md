@@ -1,58 +1,52 @@
-# 中国版话剧《浮士德》以中国舞台语言重新呈现世界经典
+# ASMPT盘中涨超4% 拟剥离NEXX业务进一步聚焦后端封装
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-中新网北京5月7日电 (记者 应妮)根据歌德同名旷世巨作改编、已故世界戏剧大师里马斯·图米纳斯导演的中国版话剧《浮士德》，五一期间在北京艺术中心连演三场。该剧以中国舞台语言重新呈现世界经典，增强了经典文本的生命力和时代性。 该剧是导演里马斯·图米纳斯应邀与中国创作团队首次合作的舞台作品。里马斯因话剧《叶甫盖尼·奥涅金》《战争与和平》《万尼亚舅舅》等高口碑佳作，被中国观众熟知并喜
+ASMPT（00522）盘中涨超4%，截至发稿，股价上涨2.72%，现报173.50港元，成交额2.78亿港元。 近日，ASMPT发布公告，公司已通过间接全资附属公司ASMPT USA Holding， Inc．，与美国应用材料公司（Applied Materials， Inc．）于2026年4月30日签署购股协议，计划出售其所持的ASMPT NEXX， Inc．全部普通股股权
 
 ## 正文
 
-中新网北京5月7日电 (记者 应妮)根据歌德同名旷世巨作改编、已故世界戏剧大师里马斯·图米纳斯导演的中国版话剧《浮士德》，五一期间在北京艺术中心连演三场。
+ASMPT（00522）盘中涨超4%，截至发稿，股价上涨2.72%，现报173.50港元，成交额2.78亿港元。
 
-该剧以中国舞台语言重新呈现世界经典，增强了经典文本的生命力和时代性。
+近日，ASMPT发布公告，公司已通过间接全资附属公司ASMPT USA Holding， Inc．，与美国应用材料公司（Applied Materials， Inc．）于2026年4月30日签署购股协议，计划出售其所持的ASMPT NEXX， Inc．全部普通股股权。
 
-该剧是导演里马斯·图米纳斯应邀与中国创作团队首次合作的舞台作品。
+公告指出，基于本集团业务战略整合考量，本集团决定通过出售方式，将目标公司从半导体解决方案板块中剥离，此举有助于本集团进一步聚焦后端封装业务。
 
-里马斯因话剧《叶甫盖尼·奥涅金》《战争与和平》《万尼亚舅舅》等高口碑佳作，被中国观众熟知并喜爱，在创排中国版话剧《浮士德》时，他从原著中选取最具戏剧表现力的段落，在兼顾情节完整及哲学思考的同时，对原作约一万两千余行的诗句进行了结构性的舞台改编，将其转化为一部约三小时的戏剧作品，以期观众能够在有限的剧场时间，进入这部宏大的文学经典。
+华鑫证券指出，SK海力士和三星电子积极扩张HBM产能，SK海力士将龙仁集群首座晶圆厂投产时间提前至2027年2月，三星计划投入110万亿韩元支持HBM4及混合键合技术。
 
-剧中，学者浮士德穷尽学问后，陷入对既往认知的幻灭。
+高端存储领域，ASMPT TCB设备已被SK海力士采购用于HBM4量产，此前在12层HBM3E生产中获超30台批量订单，近期再获单价约40亿韩元的TCB设备共约300亿韩元。
 
-当他在绝望中徘徊时，与上帝打赌要赢得浮士德灵魂的魔鬼墨菲斯特出现，并唆使他与之立下契约。
-
-“焕发了青春”的浮士德狂热追求玛格丽特，让这个纯洁的女孩堕入情网，并最终导致了她彻底的毁灭……浮士德在体验与反思之间前行。
-
-在该剧出品人、制作人雷婷看来，200多年前歌德头顶的月亮，依然照着当代人。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:32 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 02:16 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 02:29 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 02:12 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 02:30 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 02:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 02:23 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 02:35 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 02:31 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 02:27 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 02:18 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 02:15 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 02:37 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 02:31 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 02:28 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 02:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 02:27 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 02:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 02:41 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 02:23 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 02:32 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 02:33 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:18 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/963801603.shtml)
-- 2026-06-30 02:33 - [极限挑战第一季](http://www.share.minike.top/Article/details/950199.shtml)
-- 2026-06-30 02:13 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/0521689.shtml)
-- 2026-06-30 02:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/3550426112.shtml)
-- 2026-06-30 02:29 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/647645326.shtml)
-- 2026-06-30 02:12 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/91735303.shtml)
-- 2026-06-30 02:34 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/83102.shtml)
-- 2026-06-30 02:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/89231396409.shtml)
-- 2026-06-30 02:29 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/642236213080.shtml)
-- 2026-06-30 02:15 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/248807.shtml)
-- 2026-06-30 02:26 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/08347094676.shtml)
-- 2026-06-30 02:24 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/04789977.shtml)
-- 2026-06-30 02:12 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/54995102963.shtml)
-- 2026-06-30 02:31 - [急先锋](http://www.share.minike.top/Article/details/359672472143.shtml)
-- 2026-06-30 02:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/21084947787.shtml)
+- 2026-06-30 02:22 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/097055527.shtml)
+- 2026-06-30 02:27 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/8520658.shtml)
+- 2026-06-30 02:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/18885142504.shtml)
+- 2026-06-30 02:35 - [沙丘](http://www.blog.kurohicncr.top/Article/details/191459869.shtml)
+- 2026-06-30 02:45 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/08266247.shtml)
+- 2026-06-30 02:44 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/2865038654.shtml)
+- 2026-06-30 02:39 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/02036.shtml)
+- 2026-06-30 02:34 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/0136193751.shtml)
+- 2026-06-30 02:22 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/469172.shtml)
+- 2026-06-30 02:23 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/810161.shtml)
+- 2026-06-30 02:37 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/9105658.shtml)
+- 2026-06-30 02:21 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/738553005526.shtml)
+- 2026-06-30 02:36 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/734607.shtml)
+- 2026-06-30 02:45 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/66990.shtml)
+- 2026-06-30 02:30 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/702589665451.shtml)

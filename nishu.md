@@ -1,59 +1,56 @@
-# 民营银行的“冰火图鉴”：规模排名首尾差36倍，国资救场成趋势
+# 2026年四川省防灾减灾宣传周在宜宾正式启动
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-来源：财经新一线 自2014年3月启动民营银行试点以来，我国的民营银行发展已走入第12个年头。12年间，行业格局已从集体探路演变为两极分化：头部与尾部资产规模相差36倍、净利润差距超百倍。在分化加剧、尾部承压的背景下，地方国资入主“救场”，正成为民营银行突围求生的新趋势。 分析人士指出，引入国资对民营银行的资本金稳定和经营持续性具有直接支撑作用，同时也能有效防范金融风险，但能否
+中新网宜宾5月11日电 (记者 刘忠俊)2026年四川省防灾减灾宣传周启动仪式5月11日在四川宜宾市举行。本次活动采用“仪式+展演+体验+互动”相结合的形式，深度融合科普宣教、实景展示与民众参与，着力营造“人人讲安全、个个会应急”的浓厚氛围，全面提升全民防灾避险意识和自救互救能力。 据了解，本次活动由四川省防灾减灾救灾委员会主办，四川省应急管理厅、宜宾市人民政府共同承办。 启动
 
 ## 正文
 
-来源：财经新一线 自2014年3月启动民营银行试点以来，我国的民营银行发展已走入第12个年头。
+中新网宜宾5月11日电 (记者 刘忠俊)2026年四川省防灾减灾宣传周启动仪式5月11日在四川宜宾市举行。
 
-12年间，行业格局已从集体探路演变为两极分化：头部与尾部资产规模相差36倍、净利润差距超百倍。
+本次活动采用“仪式+展演+体验+互动”相结合的形式，深度融合科普宣教、实景展示与民众参与，着力营造“人人讲安全、个个会应急”的浓厚氛围，全面提升全民防灾避险意识和自救互救能力。
 
-在分化加剧、尾部承压的背景下，地方国资入主“救场”，正成为民营银行突围求生的新趋势。
+据了解，本次活动由四川省防灾减灾救灾委员会主办，四川省应急管理厅、宜宾市人民政府共同承办。
 
-分析人士指出，引入国资对民营银行的资本金稳定和经营持续性具有直接支撑作用，同时也能有效防范金融风险，但能否真正扭转经营局面，仍取决于银行自身是否能在保持市场化经营机制的同时有效融合国资优势，实现业务模式的可持续重构。
+启动仪式现场，发布了四川省灾害成功避险典型案例，通过以案示警、以案科普的方式，引导民众主动排查身边安全隐患、熟练掌握避险逃生技能。
 
-01 喜忧参半的“成绩单” 在年报季的余温下，民营银行阵营交出了一份喜忧参半的“成绩单”。
+随后，现场大屏实时连线四川9个市州，从川东到川西、从平原到高原，全方位展示了各地防灾减灾工作的丰富实践成果。
 
-整体来看，民营银行仍在规模扩张与盈利平稳的轨道上前行。
+紧接着，第二届四川省救援队伍风采展示竞赛的前三名优秀队伍轮番登台，亮出应急救援“看家本领”，生动诠释了新时代应急救援队伍的硬核担当与责任使命。
 
-19家民营银行中，已披露的18家机构2025年合计实现营业收入899.22亿元，同比小幅下滑1.84%；净利润微增1.92%，达186.23亿元；总资产规模更是突破2.21万亿元，同比增长9.19%。
+活动现场还设置了集观摩、体验、咨询于一体的防灾减灾体验区，涵盖装备展示、互动体验、应急自救等20余个科普点位，吸引了大批民众驻足参与，让大家在沉浸式学习中强化安全意识、提升应急技能。
 
-但剥开总量平稳的表层数据，行业内里“冰火两重天”的经营图景已清晰展现：头部机构依托资源优势持续领跑，尾部机构则在业绩与规模的双重压力下艰难求生，行业两极分化显著。
+在装备展示区，地震搜索机器人、灭火无人机等各类先进应急救援、专业救援及通信保障设备整齐列阵，集中展现了科技赋能防灾减灾的最新成果与硬核实力；科普互动区内，“危机时刻找出路”等趣味互动项目，让民众在寓教于乐中轻松掌握防灾避险知识；防灾避险宣传展区内，工作人员耐心解答民众疑问、发放科普资料，进一步筑牢民众安全思想防线，提升全民应急处置能力。
 
 ## 相关推荐
 
-- 2026-06-30 02:32 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 02:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 02:31 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 02:33 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 02:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 02:17 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 02:24 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 02:16 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 02:38 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-30 02:14 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 02:13 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 02:41 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 02:22 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 02:45 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 02:23 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 02:27 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 02:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 02:22 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 02:32 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 02:41 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 02:43 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 02:43 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 02:27 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:33 - [锐评T1零封KC](https://www.share.minike.top/Article/details/5325397228.shtml)
-- 2026-06-30 02:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/769015.shtml)
-- 2026-06-30 02:15 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/914024329.shtml)
-- 2026-06-30 02:12 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/36840696312.shtml)
-- 2026-06-30 02:34 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/931249723.shtml)
-- 2026-06-30 02:26 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/68889.shtml)
-- 2026-06-30 02:37 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/03459768.shtml)
-- 2026-06-30 02:23 - [世界杯](https://www.blog.kurohicncr.top/Article/details/304745.shtml)
-- 2026-06-30 02:22 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/059701109.shtml)
-- 2026-06-30 02:32 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/91465876.shtml)
-- 2026-06-30 02:12 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/866801399.shtml)
-- 2026-06-30 02:27 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/572661177797.shtml)
-- 2026-06-30 02:27 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/709618630675.shtml)
-- 2026-06-30 02:29 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/10042656017.shtml)
-- 2026-06-30 02:15 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/380514996401.shtml)
+- 2026-06-30 02:30 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/1333933.shtml)
+- 2026-06-30 02:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/95739277.shtml)
+- 2026-06-30 02:37 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/327143420.shtml)
+- 2026-06-30 02:37 - [美股](http://www.blog.minike.top/Article/details/85365229659.shtml)
+- 2026-06-30 02:35 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/559590300309.shtml)
+- 2026-06-30 02:47 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/45089.shtml)
+- 2026-06-30 02:21 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/2747453855.shtml)
+- 2026-06-30 02:23 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/48031.shtml)
+- 2026-06-30 02:48 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/041963808.shtml)
+- 2026-06-30 02:27 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/092089.shtml)
+- 2026-06-30 02:31 - [房价什么时候能涨](http://www.share.minike.top/Article/details/807230244708.shtml)
+- 2026-06-30 02:25 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/9356219.shtml)
+- 2026-06-30 02:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/4219189080.shtml)
+- 2026-06-30 02:20 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/08640432044.shtml)
+- 2026-06-30 02:38 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/764445607702.shtml)

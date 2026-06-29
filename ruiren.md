@@ -1,57 +1,56 @@
-# 丰田预警：中东战争将造成42亿美元损失
+# 特朗普称美伊停火协议命悬一线 据报华府考虑恢复军事行动可能性
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-丰田汽车表示，中东冲突将导致其零部件价格上涨、销量受损，合计损失达6700亿日元（约合42亿美元），成为最新一家公开披露此次动荡带来经营压力的汽车制造商。 这家全球最大汽车制造商周五称，受铝、橡胶轮胎等零部件价格飙升，以及中东地区销量下滑影响，公司净利润将下降22%至3万亿日元，这将是其净利润连续第三年下滑。 丰田财务集团首席负责人表示：“我们认为无法完全抵消中东冲突带来的67
+美伊停火周一陷入尤为脆弱的阶段，特朗普拒绝德黑兰最新和平提议，并称该协议“处于严重依赖生命维持设备的状态”。 特朗普周一在白宫椭圆形办公室对记者表示，伊朗的最新回应是“一堆垃圾”，他“甚至没有看完”。 一名知情人士称，伊朗要求华盛顿解除海上封锁并放松制裁，同时坚持对霍尔木兹海峡航运保留一定控制权。 特朗普未说明美国是否会恢复对伊朗的军事打击，但他此前曾威胁称，如果伊朗领导层不接
 
 ## 正文
 
-丰田汽车表示，中东冲突将导致其零部件价格上涨、销量受损，合计损失达6700亿日元（约合42亿美元），成为最新一家公开披露此次动荡带来经营压力的汽车制造商。
+美伊停火周一陷入尤为脆弱的阶段，特朗普拒绝德黑兰最新和平提议，并称该协议“处于严重依赖生命维持设备的状态”。
 
-这家全球最大汽车制造商周五称，受铝、橡胶轮胎等零部件价格飙升，以及中东地区销量下滑影响，公司净利润将下降22%至3万亿日元，这将是其净利润连续第三年下滑。
+特朗普周一在白宫椭圆形办公室对记者表示，伊朗的最新回应是“一堆垃圾”，他“甚至没有看完”。
 
-丰田财务集团首席负责人表示：“我们认为无法完全抵消中东冲突带来的6700亿日元负面影响。
+一名知情人士称，伊朗要求华盛顿解除海上封锁并放松制裁，同时坚持对霍尔木兹海峡航运保留一定控制权。
 
-” 除上述成本激增外，美国税收还给丰田带来1.4万亿日元的额外负担，这也是截至今年3月的财年净利润下降19%至3.8万亿日元的原因之一，尽管该业绩仍超出此前预期。
+特朗普未说明美国是否会恢复对伊朗的军事打击，但他此前曾威胁称，如果伊朗领导层不接受其条件，将采取行动。
 
-丰田的预估凸显出此次冲突对全球汽车行业的冲击持续扩大。
+他周一早些时候表示，正在考虑恢复护航计划以协助船只通过霍尔木兹海峡。
 
-此前，美国三大车企已警告称，大宗商品通胀将给它们带来50亿美元财务损失。
+据Axios报道，三名美国官员透露，在周日与伊朗的谈判陷入僵局后，特朗普将于周一与国家安全团队会面，讨论伊朗战争下一步行动，包括可能恢复军事行动。
 
-财报发布后，丰田在东京股市股价下跌2.1%，今年以来累计下跌14.3%。
+上述进展标志着特朗普在结束战争方面再次受挫。
 
-丰田财务集团首席负责人表示，此次成本上涨预估基于冲突将持续至明年3月的假设；其他日本企业在业绩指引中则假设冲突会更早结束。
+这场冲突引发全球能源危机，并对其本人及共和党带来严峻的国内政治风险。
 
 ## 相关推荐
 
-- 2026-06-30 02:34 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 02:35 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 02:13 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 02:27 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-30 02:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 02:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 02:36 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 02:34 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 02:41 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 02:34 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 02:38 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 02:38 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 02:40 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 02:20 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 02:43 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 02:33 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 02:38 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 02:19 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 02:41 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 02:47 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 02:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:15 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/25913.shtml)
-- 2026-06-30 02:21 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/319703835007.shtml)
-- 2026-06-30 02:19 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/5959704.shtml)
-- 2026-06-30 02:25 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/355302434236.shtml)
-- 2026-06-30 02:29 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/44747430.shtml)
-- 2026-06-30 02:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/64877606.shtml)
-- 2026-06-30 02:21 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/178644.shtml)
-- 2026-06-30 02:32 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/338747007.shtml)
-- 2026-06-30 02:14 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/93452904401.shtml)
-- 2026-06-30 02:32 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/119067610.shtml)
-- 2026-06-30 02:27 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/58454.shtml)
-- 2026-06-30 02:15 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/183050.shtml)
-- 2026-06-30 02:38 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/59385336451.shtml)
-- 2026-06-30 02:25 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/178599054827.shtml)
-- 2026-06-30 02:15 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/025705.shtml)
+- 2026-06-30 02:31 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/508846772752.shtml)
+- 2026-06-30 02:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/130536054511.shtml)
+- 2026-06-30 02:33 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/942249.shtml)
+- 2026-06-30 02:25 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/703255561.shtml)
+- 2026-06-30 02:31 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/97529091.shtml)
+- 2026-06-30 02:21 - [一见倾心](https://www.share.kurohicncr.top/Article/details/586178483373.shtml)
+- 2026-06-30 02:33 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/9098064.shtml)
+- 2026-06-30 02:41 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/716866418361.shtml)
+- 2026-06-30 02:24 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/44508600.shtml)
+- 2026-06-30 02:26 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/12252490989.shtml)
+- 2026-06-30 02:23 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/72991521.shtml)
+- 2026-06-30 02:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/81359422.shtml)
+- 2026-06-30 02:34 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/2709729781.shtml)
+- 2026-06-30 02:40 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/4922267.shtml)
+- 2026-06-30 02:28 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/839511365.shtml)

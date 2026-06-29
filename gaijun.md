@@ -1,57 +1,58 @@
-# 油价“深V”，欧美股市全线下跌
+# 书写大地壮丽奇迹 总台纪录片《奇迹中国》播出受关注
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-当地时间5月7日，欧美股市全线下跌，英国富时100指数、法国CAC40指数、德国DAX指数均跌逾1%。美股三大指数冲高回落，全线收跌，道指跌逾300点。热门中概股多数下跌，纳斯达克中国金龙指数跌1.4%。 现货黄金、现货白银价格冲高回落。现货黄金价格出现小幅下跌，现货白银价格涨幅收窄。国际原油价格走出“深V”走势，ICE布油、NYMEX WTI原油价格冲高，均涨逾2%。 欧美股
+中新网北京5月11日电 (记者 高凯)以山河为卷、以奋斗作笔、以实干当墨，全景镌刻新时代超级工程的壮阔实践，深情抒写中国工匠的时代风骨，中央广播电视总台社教节目中心十集大型纪录片《奇迹中国》近期播出，获得收视口碑双丰收，受到各方关注。 节目以有筋骨、有温度、有力量的纪实表达，礼赞劳动之美、传承匠心之志、彰显中国精神，成为五一档期的纪实力作。 《奇迹中国》将镜头探入冰川腹地、长江
 
 ## 正文
 
-当地时间5月7日，欧美股市全线下跌，英国富时100指数、法国CAC40指数、德国DAX指数均跌逾1%。
+中新网北京5月11日电 (记者 高凯)以山河为卷、以奋斗作笔、以实干当墨，全景镌刻新时代超级工程的壮阔实践，深情抒写中国工匠的时代风骨，中央广播电视总台社教节目中心十集大型纪录片《奇迹中国》近期播出，获得收视口碑双丰收，受到各方关注。
 
-美股三大指数冲高回落，全线收跌，道指跌逾300点。
+节目以有筋骨、有温度、有力量的纪实表达，礼赞劳动之美、传承匠心之志、彰显中国精神，成为五一档期的纪实力作。
 
-热门中概股多数下跌，纳斯达克中国金龙指数跌1.4%。
+《奇迹中国》将镜头探入冰川腹地、长江天堑、云端塔巅、大漠瀚海与能源新域，全景呈现新时代超级工程挑战自然极限、突破技术壁垒、重塑空间格局、筑牢民生根基的恢弘实践。
 
-现货黄金、现货白银价格冲高回落。
+从西天山深埋隧道的地质勘探团队，到张靖皋长江大桥的设计研发专班；从狮子洋海上铁塔的技术攻坚组，到塔克拉玛干沙漠的生态治理科研队伍，广大工程师、地质专家、技术骨干扎根无人之境、直面极端艰险，以专业智慧破解技术瓶颈，以科学担当扛起国家使命，让一个个“不可能”成为“中国奇迹”。
 
-现货黄金价格出现小幅下跌，现货白银价格涨幅收窄。
+节目中，高空作业的吊装技师、隧道施工的装配工匠、地下深井的焊接高手、大桥主塔的测量精英，他们于百米云端、千米井下、万顷碧波之上坚守岗位，以一丝不苟的专注、精益求精的执着，雕琢大国工程、成就中国品质；长年扎根高原孤岛的电网巡线员、驻守大漠深处的胡杨林管护员、守望沙漠公路的水井守护人、穿行山海之间的电力运维师、探索地下盐穴的储能探洞人，他们在孤寂中坚守、在风雨中逆行，以日复一日的巡查、年复一年的守护，保障能源畅通、守护生态安全、维系工程安稳；无数建设者辞别亲人、远离故土，在雪山草原战天斗地，在长江两岸昼夜奋战，在伶仃洋上争分夺秒，在沙漠戈壁垦荒筑绿，以小我融入大我、以小家成就大家，用奋斗足迹铺就互联互通、生态向好、民生改善、民族复兴的壮阔道路。
 
-国际原油价格走出“深V”走势，ICE布油、NYMEX WTI原油价格冲高，均涨逾2%。
+《奇迹中国》以人写史、以情聚力，深情礼赞中国工匠敢为人先、攻坚克难、自强不息、无私奉献的时代精神，让崇尚劳动、致敬奋斗的价值主旋律直抵人心。
 
-欧美股市全线下跌 当地时间5月7日，欧洲主要股指全线下跌，截至收盘，英国富时100指数下跌1.55%，法国CAC40指数下跌1.17%，德国DAX指数下跌1.02%，意大利MIB指数下跌0.82%，欧洲STOXX50指数下跌0.9%。
+节目以劳动者为主角、以奋斗为主线，以纪实笔触深情镌刻中国工匠群像，深刻诠释“劳动创造幸福、实干成就伟业”的时代真谛。
 
-美股三大指数冲高回落，全线下跌。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:27 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 02:29 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 02:23 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 02:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 02:41 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 02:13 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-30 02:35 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 02:18 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 02:13 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 02:13 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 02:35 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 02:35 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 02:32 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 02:34 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 02:20 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 02:35 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 02:38 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 02:44 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 02:33 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 02:41 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 02:49 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 02:24 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 02:43 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/221826561.shtml)
-- 2026-06-30 02:25 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/9277399.shtml)
-- 2026-06-30 02:23 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/779347490273.shtml)
-- 2026-06-30 02:38 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/27036.shtml)
-- 2026-06-30 02:15 - [速度与激情9](http://www.share.minike.top/Article/details/753067000738.shtml)
-- 2026-06-30 02:15 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/6725387153.shtml)
-- 2026-06-30 02:41 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/703858641.shtml)
-- 2026-06-30 02:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/9100950986.shtml)
-- 2026-06-30 02:37 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/933241216030.shtml)
-- 2026-06-30 02:37 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/7183992.shtml)
-- 2026-06-30 02:25 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/81772058514.shtml)
-- 2026-06-30 02:17 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/221557.shtml)
-- 2026-06-30 02:29 - [沙丘](http://www.blog.minike.top/Article/details/54804480793.shtml)
-- 2026-06-30 02:27 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/88944.shtml)
-- 2026-06-30 02:39 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/42587455.shtml)
+- 2026-06-30 02:39 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/38222.shtml)
+- 2026-06-30 02:41 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/839260.shtml)
+- 2026-06-30 02:31 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/7821349288.shtml)
+- 2026-06-30 02:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/918461079193.shtml)
+- 2026-06-30 02:41 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/80349.shtml)
+- 2026-06-30 02:34 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/060779645.shtml)
+- 2026-06-30 02:21 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/28384354991.shtml)
+- 2026-06-30 02:48 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/480119416463.shtml)
+- 2026-06-30 02:22 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/963511.shtml)
+- 2026-06-30 02:34 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/166071739539.shtml)
+- 2026-06-30 02:33 - [世界杯](https://www.blog.minike.top/Article/details/619555206.shtml)
+- 2026-06-30 02:33 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/007026.shtml)
+- 2026-06-30 02:29 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/539585.shtml)
+- 2026-06-30 02:22 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/605206437.shtml)
+- 2026-06-30 02:23 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/36608930452.shtml)

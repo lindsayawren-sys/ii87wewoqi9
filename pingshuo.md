@@ -1,57 +1,43 @@
-# 外交部：日本军国主义侵略罪行罄竹难书 铁证如山
+# 天坛公园5月13日至14日将暂停开放
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-5月8日，外交部发言人林剑主持例行记者会。总台央视记者提问，在东京审判开庭80周年纪念日之际，《远东国际军事法庭庭审记录·全译本》在中国首发，有关庭审记录是东京审判的核心历史文献，完整记载了法庭长达两年多的全部审理过程。参与东京审判的美国副检察官萨顿的亲笔日记也首次披露。请问中方对此有何评论？对此，林剑表示，《庭审记录·全译本》的出版和萨顿日记的披露，再次说明日本军国主义侵略罪
+中新网5月12日电 据“天坛”微信公众号消息，北京市天坛公园管理处12日发布通告称，天坛公园5月13日至14日将暂停开放。
 
 ## 正文
 
-5月8日，外交部发言人林剑主持例行记者会。
-
-总台央视记者提问，在东京审判开庭80周年纪念日之际，《远东国际军事法庭庭审记录·全译本》在中国首发，有关庭审记录是东京审判的核心历史文献，完整记载了法庭长达两年多的全部审理过程。
-
-参与东京审判的美国副检察官萨顿的亲笔日记也首次披露。
-
-请问中方对此有何评论？
-
-对此，林剑表示，《庭审记录·全译本》的出版和萨顿日记的披露，再次说明日本军国主义侵略罪行罄竹难书，铁证如山。
-
-80年过去了，日本右翼势力却始终未能深刻反省历史，极力美化侵略罪行，向日本社会灌输错误的历史观。
-
-一些政客还频繁参拜供奉甲级战犯所谓“靖国神社”，这实质是企图否定东京审判历史定论，挑战战后国际秩序。
-
-林剑指出，历史真相不容抹杀，正义底线不容模糊，战后国际秩序不容挑战。
+中新网5月12日电 据“天坛”微信公众号消息，北京市天坛公园管理处12日发布通告称，天坛公园5月13日至14日将暂停开放。
 
 ## 相关推荐
 
-- 2026-06-30 02:41 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 02:23 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 02:31 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 02:39 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 02:36 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 02:38 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 02:18 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 02:33 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 02:12 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 02:27 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 02:36 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-30 02:32 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 02:37 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 02:41 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-30 02:27 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 02:41 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 02:42 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 02:30 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 02:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 02:36 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 02:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 02:20 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/02969984528.shtml)
-- 2026-06-30 02:15 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/2194004.shtml)
-- 2026-06-30 02:35 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/8333438351.shtml)
-- 2026-06-30 02:16 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/32542687583.shtml)
-- 2026-06-30 02:17 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/32923803.shtml)
-- 2026-06-30 02:32 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/384683411.shtml)
-- 2026-06-30 02:30 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/3947835.shtml)
-- 2026-06-30 02:39 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/59147930.shtml)
-- 2026-06-30 02:14 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/121459082463.shtml)
-- 2026-06-30 02:20 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/85632.shtml)
-- 2026-06-30 02:22 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/06786.shtml)
-- 2026-06-30 02:38 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/0443474.shtml)
-- 2026-06-30 02:34 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/17212.shtml)
-- 2026-06-30 02:28 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/31209423.shtml)
-- 2026-06-30 02:13 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/2229965352.shtml)
+- 2026-06-30 02:44 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/366145.shtml)
+- 2026-06-30 02:42 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/826071.shtml)
+- 2026-06-30 02:48 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/463184240642.shtml)
+- 2026-06-30 02:36 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/25163845113.shtml)
+- 2026-06-30 02:36 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/98983116379.shtml)
+- 2026-06-30 02:44 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/3867195921.shtml)
+- 2026-06-30 02:30 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/14546852.shtml)
+- 2026-06-30 02:26 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/50804.shtml)
+- 2026-06-30 02:31 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/70682015.shtml)
+- 2026-06-30 02:32 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/61827826.shtml)
+- 2026-06-30 02:28 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/116083315052.shtml)
+- 2026-06-30 02:41 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/0202526.shtml)
+- 2026-06-30 02:39 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/32549497.shtml)
+- 2026-06-30 02:38 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/019863209.shtml)
+- 2026-06-30 02:23 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/952297.shtml)

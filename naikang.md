@@ -1,57 +1,58 @@
-# 礼来公司宣布向印第安纳州的制造基地追加投资45亿美元
+# A股成交额连续5天破3万亿元，资金加仓名单曝光
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-礼来公司周三表示，将向其位于印第安纳州的三个生产基地中的两个追加投资45亿美元，这使得这家美国制药商自2020年以来在该州的总资本扩张承诺额超过210亿美元。 此次追加投资旨在支持礼来公司新获批的每日一次口服减肥药Foundayo的计划生产，以及其处于后期研发阶段的下一代减肥候选药物Retatrutide的生产。 自去年以来，随着特朗普政府采取措施，除非企业降价或在美国本土生产
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨李益文 5月12日，A股市场再度迎来历史性一刻，全市场成交额再度突破3万亿元，连续第5个交易日维持在3万亿元以上规模，打破了此前连续4天成交额突破3万亿元的纪录。 与此同时，A股融资余额攀升至2.81万亿元，为历史最高纪录，较4月初低点增加2218.3亿元，增幅达8.56%。资金入场的积极信号持续释放
 
 ## 正文
 
-礼来公司周三表示，将向其位于印第安纳州的三个生产基地中的两个追加投资45亿美元，这使得这家美国制药商自2020年以来在该州的总资本扩张承诺额超过210亿美元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-此次追加投资旨在支持礼来公司新获批的每日一次口服减肥药Foundayo的计划生产，以及其处于后期研发阶段的下一代减肥候选药物Retatrutide的生产。
+记者丨李益文 5月12日，A股市场再度迎来历史性一刻，全市场成交额再度突破3万亿元，连续第5个交易日维持在3万亿元以上规模，打破了此前连续4天成交额突破3万亿元的纪录。
 
-自去年以来，随着特朗普政府采取措施，除非企业降价或在美国本土生产药品，否则将对品牌药征收100%的关税，全球制药商一直在扩大美国生产规模并囤积库存。
+与此同时，A股融资余额攀升至2.81万亿元，为历史最高纪录，较4月初低点增加2218.3亿元，增幅达8.56%。
 
-自2020年以来，礼来在美国的资本扩张承诺总额已超过500亿美元。
+资金入场的积极信号持续释放，市场热度攀升至年内高点。
 
-该公司计划于今年动工建设其近期宣布的多个美国生产基地。
+从成交额来看，本轮“万亿级”交易热潮始于“五一”假期之后。
 
-此外，周三有报道称，礼来正计划发行约80亿美元债券，以资助其一系列收购活动。
+5月6日，A股成交额突破3万亿元关口，此后5月7日、8日、11日、12日连续维持在3万亿元以上。
 
-据Dealogic数据显示，随着大型制药企业为应对即将到来的专利到期而寻求多元化投资组合并扩充研发管线，礼来今年在并购交易上的支出已超过300亿美元。
+其中，5月11日全天成交额达3.57万亿元，为A股历史第四高。
 
-责任编辑：李桐
+融资余额的攀升更为迅猛。
 
 ## 相关推荐
 
-- 2026-06-30 02:38 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 02:33 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 02:24 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 02:19 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 02:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 02:40 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-30 02:41 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 02:32 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 02:21 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 02:31 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 02:38 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 02:30 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 02:42 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 02:41 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 02:39 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 02:43 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 02:41 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 02:41 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 02:24 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-30 02:19 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 02:39 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 02:28 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 02:20 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/59590485.shtml)
-- 2026-06-30 02:39 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/2189440467.shtml)
-- 2026-06-30 02:35 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/055562849.shtml)
-- 2026-06-30 02:29 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/249659041920.shtml)
-- 2026-06-30 02:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/28640157856.shtml)
-- 2026-06-30 02:14 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/75821783.shtml)
-- 2026-06-30 02:22 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/35467630.shtml)
-- 2026-06-30 02:30 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/70391205014.shtml)
-- 2026-06-30 02:15 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/31597464332.shtml)
-- 2026-06-30 02:26 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/977014859398.shtml)
-- 2026-06-30 02:35 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/37420684076.shtml)
-- 2026-06-30 02:22 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/273104999.shtml)
-- 2026-06-30 02:19 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/1971650.shtml)
-- 2026-06-30 02:35 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/3495380005.shtml)
-- 2026-06-30 02:24 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/41710225.shtml)
+- 2026-06-30 02:35 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/1436111334.shtml)
+- 2026-06-30 02:23 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/5475379.shtml)
+- 2026-06-30 02:37 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/6947218156.shtml)
+- 2026-06-30 02:48 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/70741200043.shtml)
+- 2026-06-30 02:36 - [金刚川](https://www.share.minike.top/Article/details/8731751185.shtml)
+- 2026-06-30 02:27 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/414502835.shtml)
+- 2026-06-30 02:20 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/24841016888.shtml)
+- 2026-06-30 02:30 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/0232426383.shtml)
+- 2026-06-30 02:38 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/50727.shtml)
+- 2026-06-30 02:20 - [斛珠夫人](http://www.share.minike.top/Article/details/4977247.shtml)
+- 2026-06-30 02:29 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/23062964.shtml)
+- 2026-06-30 02:35 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/6458359.shtml)
+- 2026-06-30 02:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/827487456663.shtml)
+- 2026-06-30 02:30 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/371394462229.shtml)
+- 2026-06-30 02:20 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/63302.shtml)

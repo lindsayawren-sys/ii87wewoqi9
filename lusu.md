@@ -1,59 +1,56 @@
-# 一季度广告业头部企事业单位收入同比增长17.1%
+# 纳尔逊·佩尔茨（Nelson Peltz）为Wendy's私有化收购筹集资金进行谈判
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-市场监管总局今天公布数据显示，今年一季度全国从事广告业务的头部企事业单位共实现收入4454.4亿元，同比增长17.1%。我国广告业保持快速发展，实现良好开局。 一季度，互联网广告发布收入2642.8亿元，同比增长26.7%。其中，移动互联网广告发布收入2516.4亿元，同比增长26.8%。主流媒体广告业务稳步回暖、重回增长区间。 一季度，北京、上海、广东、浙江、福建、江苏等6个
+纳尔逊·佩尔茨旗下的Trian基金管理公司（Trian Fund Management）正在寻求投资者支持，以收购美国快餐连锁Wendy‘s并将其私有化。过去一年，这家餐饮运营商的股价已下跌超过40%。 据知情人士透露，Trian最近几周已与包括中东在内的外部投资者就为潜在收购Wendy‘s融资进行了讨论。 Wendy‘s由戴夫·托马斯（Dave Thomas）于1969年创立
 
 ## 正文
 
-市场监管总局今天公布数据显示，今年一季度全国从事广告业务的头部企事业单位共实现收入4454.4亿元，同比增长17.1%。
+纳尔逊·佩尔茨旗下的Trian基金管理公司（Trian Fund Management）正在寻求投资者支持，以收购美国快餐连锁Wendy‘s并将其私有化。
 
-我国广告业保持快速发展，实现良好开局。
+过去一年，这家餐饮运营商的股价已下跌超过40%。
 
-一季度，互联网广告发布收入2642.8亿元，同比增长26.7%。
+据知情人士透露，Trian最近几周已与包括中东在内的外部投资者就为潜在收购Wendy‘s融资进行了讨论。
 
-其中，移动互联网广告发布收入2516.4亿元，同比增长26.8%。
+Wendy‘s由戴夫·托马斯（Dave Thomas）于1969年创立，定位为“老式”汉堡连锁店，以方形牛肉饼和名为Frosty的奶昔为特色，托马斯本人经常出现在公司广告中。
 
-主流媒体广告业务稳步回暖、重回增长区间。
+Trian与Wendy‘s渊源可追溯到2005年的一次股东积极主义行动，目前Trian与佩尔茨合计持有该公司16%的股份。
 
-一季度，北京、上海、广东、浙江、福建、江苏等6个省（市）广告业务收入合计3610.8亿元，占全国总量的81.1%，较上年同期提升0.4个百分点。
+Trian高管彼得·梅（Peter May）与纳尔逊·佩尔茨之子布拉德利·佩尔茨（Bradley Peltz）均在Wendy’s董事会任职。
 
-（总台央视记者 王婧）责任编辑：刘万里 SF014
+佩尔茨家族还持有一家在纽约地区拥有87家Wendy‘s特许经营店的投资工具的少数股权。
+
+Wendy‘s在全球运营7000家门店，主要位于美国。
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 02:19 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 02:29 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 02:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 02:21 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 02:27 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 02:14 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-30 02:19 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 02:27 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 02:38 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 02:18 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 02:30 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-30 02:28 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 02:30 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 02:17 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 02:31 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 02:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 02:43 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 02:20 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 02:36 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 02:41 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 02:20 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 02:29 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 02:26 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 02:28 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:27 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/3372007.shtml)
-- 2026-06-30 02:22 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/69625697339.shtml)
-- 2026-06-30 02:35 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/202343.shtml)
-- 2026-06-30 02:34 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/66147.shtml)
-- 2026-06-30 02:31 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/3415951962.shtml)
-- 2026-06-30 02:20 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/704693883.shtml)
-- 2026-06-30 02:25 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/69077.shtml)
-- 2026-06-30 02:28 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/7815085.shtml)
-- 2026-06-30 02:33 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/932549.shtml)
-- 2026-06-30 02:40 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/98330.shtml)
-- 2026-06-30 02:16 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/647470162724.shtml)
-- 2026-06-30 02:33 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/52441121.shtml)
-- 2026-06-30 02:14 - [世界杯](http://www.blog.kurohicncr.top/Article/details/27691.shtml)
-- 2026-06-30 02:17 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/63031602.shtml)
-- 2026-06-30 02:28 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/77086644.shtml)
+- 2026-06-30 02:30 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/1664274.shtml)
+- 2026-06-30 02:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/5862208.shtml)
+- 2026-06-30 02:45 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/39269002499.shtml)
+- 2026-06-30 02:36 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/7556668304.shtml)
+- 2026-06-30 02:27 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/8269704.shtml)
+- 2026-06-30 02:28 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/63539.shtml)
+- 2026-06-30 02:25 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/564441066320.shtml)
+- 2026-06-30 02:23 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/51840.shtml)
+- 2026-06-30 02:20 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/894672329145.shtml)
+- 2026-06-30 02:25 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/022899476.shtml)
+- 2026-06-30 02:49 - [一生一世](https://www.blog.kurohicncr.top/Article/details/725503719.shtml)
+- 2026-06-30 02:48 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/919694522079.shtml)
+- 2026-06-30 02:46 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/099389.shtml)
+- 2026-06-30 02:30 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/70848025.shtml)
+- 2026-06-30 02:40 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/804638618559.shtml)

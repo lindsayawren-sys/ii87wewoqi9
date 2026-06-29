@@ -1,56 +1,61 @@
-# 西安高校创新“四维同心”模式 助党外人才竞相“绽放”
+# 88匹进口蒙古马为中国内地演艺市场发展添助力
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-中新网西安5月8日电 (李一璠 陈婧怡)在西安理工大学的一间实验室里，无党派人士、旱区水工程生态环境全国重点实验室副主任侯精明与他的团队成员正紧盯着屏幕上“智慧雨洪管控平台”系统模拟数据。目前该系统已成功应用于全国超百个国家级海绵城市试点及内涝治理工作中。 近年来，该校通过构建组织强基、思想领航、聚势建功、平台重构的“四维同心”工作模式，助力党外人才竞相“绽放”。 “我们不仅要
+中新网二连浩特5月11日电 (李爱平 梁晓虹)二连海关11日对外发布消息称，二连浩特公路口岸迎来今年首批88匹进口蒙古马。 这些来自蒙古国的蒙古马，正在为中国内地的演艺市场蓬勃发展增添助力。在内蒙古二连浩特市上演的《天骄传奇》大型实景剧、锡林郭勒盟上演的《蒙古马》大型实景剧，以及鄂尔多斯市杭锦旗上演的《英雄》大型实景剧中，骑手们表演所用的马匹，八成来自蒙古国。 中新网记者获悉，
 
 ## 正文
 
-中新网西安5月8日电 (李一璠 陈婧怡)在西安理工大学的一间实验室里，无党派人士、旱区水工程生态环境全国重点实验室副主任侯精明与他的团队成员正紧盯着屏幕上“智慧雨洪管控平台”系统模拟数据。
+中新网二连浩特5月11日电 (李爱平 梁晓虹)二连海关11日对外发布消息称，二连浩特公路口岸迎来今年首批88匹进口蒙古马。
 
-目前该系统已成功应用于全国超百个国家级海绵城市试点及内涝治理工作中。
+这些来自蒙古国的蒙古马，正在为中国内地的演艺市场蓬勃发展增添助力。
 
-近年来，该校通过构建组织强基、思想领航、聚势建功、平台重构的“四维同心”工作模式，助力党外人才竞相“绽放”。
+在内蒙古二连浩特市上演的《天骄传奇》大型实景剧、锡林郭勒盟上演的《蒙古马》大型实景剧，以及鄂尔多斯市杭锦旗上演的《英雄》大型实景剧中，骑手们表演所用的马匹，八成来自蒙古国。
 
-“我们不仅要待在实验室，更要把论文写在黄河两岸，写在陕西的34条重点产业链上。
+中新网记者获悉，这些实景剧每年旅游旺季的演出场次均为百余次，演出场景、内容和效果受到国内外游客的高度称赞。
 
-”九三学社社员、西安理工大学教授李怀恩表示。
+此次进口的蒙古马由二连浩特市一家文化传播公司引进。
 
-他深耕生态水文、水利经济与环境经济等方面的科研与教学工作多年，带领团队将界别优势转化为服务国家“黄河流域生态保护”和“双碳”目标的效能。
+该公司相关负责人马洪艳表示，近年来中国马术赛事、马文化演艺等市场需求持续攀升，专业赛事场馆、文旅景区对优质马匹的需求量不断上涨。
 
-民盟盟员、西安理工大学材料科学与工程学院院长李喜飞则致力于研究高性能电池材料。
+二连浩特口岸地处中国正北方，是中国对蒙古国开放的最大陆路口岸，承担着蒙古国70%以上日常生活用品的陆路运输任务。
 
-目前李喜飞教授团队已与多家相关企业达成深度合作，为高性能电池产业链作出重要贡献，创新成果落地开花。
+二连海关公路监管五科副科长辛恒缘介绍，近年来，二连浩特口岸累计入境蒙古国活马十余批次，总量500余匹，是中蒙口岸中入境蒙古马数量最多的口岸。
 
 ## 相关推荐
 
-- 2026-06-30 02:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 02:35 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 02:40 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 02:13 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 02:40 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 02:34 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 02:18 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 02:27 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 02:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-30 02:34 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 02:47 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 02:23 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 02:37 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 02:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 02:31 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 02:49 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 02:24 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 02:32 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 02:23 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 02:28 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 02:42 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 02:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 02:48 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 02:36 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 02:37 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/7134785084.shtml)
-- 2026-06-30 02:37 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/597199528.shtml)
-- 2026-06-30 02:34 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/25949.shtml)
-- 2026-06-30 02:18 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/36768133.shtml)
-- 2026-06-30 02:28 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/78160068470.shtml)
-- 2026-06-30 02:20 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/93999929290.shtml)
-- 2026-06-30 02:27 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/255859614706.shtml)
-- 2026-06-30 02:28 - [时光音乐会](http://www.share.minike.top/Article/details/278337981.shtml)
-- 2026-06-30 02:33 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/136549.shtml)
-- 2026-06-30 02:30 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/08541255.shtml)
-- 2026-06-30 02:12 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/2377255.shtml)
-- 2026-06-30 02:35 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/04132224.shtml)
-- 2026-06-30 02:17 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/4737089606.shtml)
-- 2026-06-30 02:32 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/18550362007.shtml)
-- 2026-06-30 02:31 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/250384990.shtml)
+- 2026-06-30 02:37 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/08185441.shtml)
+- 2026-06-30 02:41 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/890316.shtml)
+- 2026-06-30 02:40 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/9746917.shtml)
+- 2026-06-30 02:43 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/42949636.shtml)
+- 2026-06-30 02:37 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/09138.shtml)
+- 2026-06-30 02:20 - [美股](https://www.share.minike.top/Article/details/413276976129.shtml)
+- 2026-06-30 02:20 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/70893907877.shtml)
+- 2026-06-30 02:26 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/306168067.shtml)
+- 2026-06-30 02:29 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/716182.shtml)
+- 2026-06-30 02:39 - [天道](https://www.blog.minike.top/Article/details/713709899353.shtml)
+- 2026-06-30 02:28 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/324123613.shtml)
+- 2026-06-30 02:20 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/438383479.shtml)
+- 2026-06-30 02:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/05918.shtml)
+- 2026-06-30 02:33 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/975620.shtml)
+- 2026-06-30 02:39 - [女心理师](http://www.blog.minike.top/Article/details/80312.shtml)

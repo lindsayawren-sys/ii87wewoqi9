@@ -1,58 +1,52 @@
-# 申万菱信要换帅，贾经理真有点尬……
+# 江西一高校利用校园消费大数据对学生进行“隐形饭补”
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-来源：今晚吃基 基金公司的“换帅”，往往不只是换个门面，背后通常藏着KPI焦虑。 老牌公募申万菱金刚传出要换总经理，现任汪涛拟离任，接棒的是刚从长城基金总经理位置过来的邱春杨。 自2020年4月履职至今的汪涛，其在位超过6年，是申万菱信历史上任期最长的总经理…… 怎么，就要换了呢？ 这背后的逻辑，跟之前花重金挖来的明星经理贾成东，不能说完全没有关系。 1️⃣ 汪涛的“缩表” 总
+发布时间：2026年05月11日 20:19 来源：中国新闻网 无需主动申请、不予集中公示，有较大经济压力的在校学生就能直接在校园卡中获得一笔现金补助。近日，江西中医药大学不少经济困难的学生就在饭卡里收到了学校发放的这笔隐形补助。 该校学工处副处长欧阳苗告诉记者，为了尽量减轻部分需要扶持资助学生的心理负担，学校从今年开始，依托校园卡消费大数据，通过就餐记录、月消费总次数、月消费
 
 ## 正文
 
-来源：今晚吃基 基金公司的“换帅”，往往不只是换个门面，背后通常藏着KPI焦虑。
+发布时间：2026年05月11日 20:19 来源：中国新闻网 无需主动申请、不予集中公示，有较大经济压力的在校学生就能直接在校园卡中获得一笔现金补助。
 
-老牌公募申万菱金刚传出要换总经理，现任汪涛拟离任，接棒的是刚从长城基金总经理位置过来的邱春杨。
+近日，江西中医药大学不少经济困难的学生就在饭卡里收到了学校发放的这笔隐形补助。
 
-自2020年4月履职至今的汪涛，其在位超过6年，是申万菱信历史上任期最长的总经理…… 怎么，就要换了呢？
+该校学工处副处长欧阳苗告诉记者，为了尽量减轻部分需要扶持资助学生的心理负担，学校从今年开始，依托校园卡消费大数据，通过就餐记录、月消费总次数、月消费总金额为参照，再结合家庭经济困难学生数据库比对、学院辅导员逐一核实，最终确定资助对象，直接将500元补助打入学生饭卡。
 
-这背后的逻辑，跟之前花重金挖来的明星经理贾成东，不能说完全没有关系。
+记者采访发现，此举不仅让需要得到补助的同学受益，也使其他学生感受到了学校的关怀与温暖，让他们愿意在未来将这份温暖和善意传递出去。
 
-1️⃣ 汪涛的“缩表” 总经理当了6年，但汪涛的成绩单确实有点拿不出手： 💣 营收利润双杀：申万菱信的营收连续5年下滑，从2021年的6.62亿跌到2025年的4.72亿。
+据了解，该校将常态化开展隐形资助工作，让这份无声的守护持续温暖每一位逐梦的学子。
 
-净利润更是连续4年缩水，直接腰斩到了7000多万。
-
-💣 规模靠“注水”： 虽然管理规模重返“千亿”俱乐部，但细看结构全是货币基金在撑场面。
-
-反观即将上任的邱春杨，他在长城基金的履历可是相当光鲜： 提出了“合规、投研、产品”三条生命线，硬是把规模从1500亿干到了3700亿，且净利润是稳步增长的！
+(记者 华山) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 02:26 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 02:23 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-30 02:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 02:17 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 02:28 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 02:16 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 02:35 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 02:32 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 02:39 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 02:31 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 02:21 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 02:13 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 02:37 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 02:40 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 02:36 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 02:35 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 02:29 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-30 02:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 02:38 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 02:34 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-30 02:37 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 02:40 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [斛珠夫人](https://www.blog.minike.top/Article/details/651970151.shtml)
-- 2026-06-30 02:26 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/477635895.shtml)
-- 2026-06-30 02:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/936382688.shtml)
-- 2026-06-30 02:18 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/63530626.shtml)
-- 2026-06-30 02:15 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/9589196639.shtml)
-- 2026-06-30 02:15 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/87022845327.shtml)
-- 2026-06-30 02:31 - [世界杯](https://www.share.minike.top/Article/details/07626.shtml)
-- 2026-06-30 02:40 - [爱很美味](http://www.share.kurohicncr.top/Article/details/658567990.shtml)
-- 2026-06-30 02:18 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/854548098.shtml)
-- 2026-06-30 02:21 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/709165.shtml)
-- 2026-06-30 02:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/9606297603.shtml)
-- 2026-06-30 02:25 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/28841282805.shtml)
-- 2026-06-30 02:24 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/2457677521.shtml)
-- 2026-06-30 02:29 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/705642689.shtml)
-- 2026-06-30 02:15 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/638029.shtml)
+- 2026-06-30 02:27 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/633001093.shtml)
+- 2026-06-30 02:26 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/138202976.shtml)
+- 2026-06-30 02:45 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/309260269.shtml)
+- 2026-06-30 02:29 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/05324691.shtml)
+- 2026-06-30 02:40 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/105828.shtml)
+- 2026-06-30 02:24 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/21853758.shtml)
+- 2026-06-30 02:37 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/17678397385.shtml)
+- 2026-06-30 02:44 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/51287997.shtml)
+- 2026-06-30 02:44 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/50858159.shtml)
+- 2026-06-30 02:33 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/9887722.shtml)
+- 2026-06-30 02:36 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/817184397866.shtml)
+- 2026-06-30 02:26 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/133482434.shtml)
+- 2026-06-30 02:48 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/975795260117.shtml)
+- 2026-06-30 02:38 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/13224421450.shtml)
+- 2026-06-30 02:35 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/918956.shtml)

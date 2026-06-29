@@ -1,50 +1,48 @@
-# 摩根大通：中国汽车制造商或将占据更大的西欧市场份额
+# 5月12日热门中概股涨跌不一 奇景光电涨16.08%，富途控股跌3.27%
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:34 UTC+8
 
 ## 摘要
 
-摩根大通上调预期，预计到2028年中国车企在西欧市场份额将升至20%，高于此前预估的2030年达10%–15%；比亚迪、吉利、零跑汽车将成为这一趋势的最大受益者。包括Nick Lai 在内的分析师在研报中表示：“中国汽车出口具备结构性增长逻辑，将愈发成为全球投资者关注的核心主线。”该机构预测，到2028年中国乘用车在西欧销量有望达到约250万辆，较去年约100万辆大幅增长。摩根
+5月12日热门中概股涨跌不一，纳斯达克中国金龙指数（HXC）收高1.03%。 上涨个股（按市值从高到低）：拼多多涨0.02%，日月光半导体涨3.13%，网易涨0.26%，百度涨3.35%，京东涨1.33%，联电涨1.07%，贝壳涨1.62%，理想汽车涨4.83%，小鹏汽车涨3.39%，蔚来涨3.68%，华住酒店集团涨0.74%，中国新城农村涨1.37%，哔哩哔哩涨0.09%，万
 
 ## 正文
 
-摩根大通上调预期，预计到2028年中国车企在西欧市场份额将升至20%，高于此前预估的2030年达10%–15%；比亚迪、吉利、零跑汽车将成为这一趋势的最大受益者。
+5月12日热门中概股涨跌不一，纳斯达克中国金龙指数（HXC）收高1.03%。
 
-包括Nick Lai 在内的分析师在研报中表示：“中国汽车出口具备结构性增长逻辑，将愈发成为全球投资者关注的核心主线。
+上涨个股（按市值从高到低）：拼多多涨0.02%，日月光半导体涨3.13%，网易涨0.26%，百度涨3.35%，京东涨1.33%，联电涨1.07%，贝壳涨1.62%，理想汽车涨4.83%，小鹏汽车涨3.39%，蔚来涨3.68%，华住酒店集团涨0.74%，中国新城农村涨1.37%，哔哩哔哩涨0.09%，万国数据涨1.58%，慧荣科技涨3.34%，唯品会涨1.24%，BOSS直聘涨2.07%，亚朵集团涨1.37%，金山云涨2.96%，微牛涨0.57%，奇景光电涨16.08%，欢聚涨0.25%。
 
-”该机构预测，到2028年中国乘用车在西欧销量有望达到约250万辆，较去年约100万辆大幅增长。
+下跌个股（按市值从高到低）：台积电跌1.80%，阿里巴巴跌2.06%，中华电信跌1.60%，携程跌0.91%，富途控股跌3.27%，中通跌0.16%，腾讯音乐跌0.27%，满帮跌0.23%，新东方跌2.80%，WSP控股跌0.77%，名创优品跌2.08%，小马智行跌1.94%。
 
-摩根大通建议投资者重点布局海外营收占比高、增速快的新能源车企，涵盖比亚迪、吉利、零跑汽车及小鹏汽车。
-
-责任编辑：王永生
+领涨中概股列表： 领跌中概股列表： （截图来自新浪财经APP 行情-美股-中概股热门板块）下载新浪财经APP 责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 02:32 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 02:21 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 02:33 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 02:19 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-30 02:16 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 02:34 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-30 02:33 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 02:28 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 02:23 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 02:35 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 02:49 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-30 02:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 02:39 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 02:38 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 02:33 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 02:43 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 02:32 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 02:27 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 02:39 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 02:42 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:39 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/8871043.shtml)
-- 2026-06-30 02:41 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/57336989.shtml)
-- 2026-06-30 02:12 - [毒液2](https://www.share.minike.top/Article/details/3760552856.shtml)
-- 2026-06-30 02:35 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/827558713.shtml)
-- 2026-06-30 02:17 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/885466538.shtml)
-- 2026-06-30 02:38 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/96824223860.shtml)
-- 2026-06-30 02:25 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/03438.shtml)
-- 2026-06-30 02:24 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/606034917477.shtml)
-- 2026-06-30 02:25 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/9362814.shtml)
-- 2026-06-30 02:33 - [TOP Prada](http://www.blog.minike.top/Article/details/003372.shtml)
-- 2026-06-30 02:14 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/5180118571.shtml)
-- 2026-06-30 02:18 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/92720.shtml)
-- 2026-06-30 02:16 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/5721189.shtml)
-- 2026-06-30 02:34 - [青春环游记第三季](https://www.share.minike.top/Article/details/2821722428.shtml)
-- 2026-06-30 02:19 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/350588818928.shtml)
+- 2026-06-30 02:32 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/6113733629.shtml)
+- 2026-06-30 02:28 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/530716160141.shtml)
+- 2026-06-30 02:41 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/0993430665.shtml)
+- 2026-06-30 02:21 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/4685308.shtml)
+- 2026-06-30 02:19 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/737292035.shtml)
+- 2026-06-30 02:24 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/48342049.shtml)
+- 2026-06-30 02:28 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/876807649.shtml)
+- 2026-06-30 02:34 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/12219.shtml)
+- 2026-06-30 02:28 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/442229867032.shtml)
+- 2026-06-30 02:24 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/44541086346.shtml)
+- 2026-06-30 02:48 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/089544.shtml)
+- 2026-06-30 02:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/60139894.shtml)
+- 2026-06-30 02:23 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/0160774320.shtml)
+- 2026-06-30 02:21 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/689356410471.shtml)
+- 2026-06-30 02:34 - [美股](https://www.share.minike.top/Article/details/02397836.shtml)

@@ -1,60 +1,57 @@
-# 美教师联合会敦促美证交会严审SpaceX上市计划
+# 权益市场走强吸引基民入场，节后首周新基金发行环比暴增逾2倍，FOF年内发行份额已超去年全年
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 本周三，美国教师联合会（AFT）主席兰迪·温加滕致信美国证券交易委员会（SEC），敦促其加强对SpaceX公司首次公开募股（IPO）筹备工作的审查。鉴于SpaceX股票或将涉及该工会180万名教育、医疗及政府部门成员的退休账户，温加滕在信中表示：“我深切担忧此次大规模募股能否符合证券法关于全面披露重大信息及公平对待投资者的要求。
+记者|任飞 编辑|叶峰 上周，权益市场在节后出现上涨，持续的市场暖意让投资人风险偏好再度提升。从公募的发行来看，节后首周的新基发行数量环比大增223.08%，创下近三周新高。 而今年以来FOF新基发行数量已达77只，发行份额875.58亿份，募集份额875.64亿份，双双超越2025年全年水平。 在业内看来，结构性行情的持续让投资人参与基金投资的意愿增强，FOF基金更加贴近当下
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 本周三，美国教师联合会（AFT）主席兰迪·温加滕致信美国证券交易委员会（SEC），敦促其加强对SpaceX公司首次公开募股（IPO）筹备工作的审查。
+记者|任飞 编辑|叶峰 上周，权益市场在节后出现上涨，持续的市场暖意让投资人风险偏好再度提升。
 
-鉴于SpaceX股票或将涉及该工会180万名教育、医疗及政府部门成员的退休账户，温加滕在信中表示：“我深切担忧此次大规模募股能否符合证券法关于全面披露重大信息及公平对待投资者的要求。
+从公募的发行来看，节后首周的新基发行数量环比大增223.08%，创下近三周新高。
 
-” 温加滕及美国教师联合会希望SEC主席保罗·阿特金斯指示其团队，在当前的例行核查中重点审查SpaceX的IPO申请。
+而今年以来FOF新基发行数量已达77只，发行份额875.58亿份，募集份额875.64亿份，双双超越2025年全年水平。
 
-温加滕对该公司商业计划可能依赖“虚无或投机性技术”表示担忧，并对财务会计的详尽程度及董事会的履职能力提出质疑。
+在业内看来，结构性行情的持续让投资人参与基金投资的意愿增强，FOF基金更加贴近当下稳健、多资产投资需求，发行势头良好。
 
-根据新颁布的交易所规则，相关养老基金可能在IPO后数日内（而非数月）即持有SpaceX股票。
+多只FOF单周上涨超5%，个别回撤超3% 上周（5.4-5.10），A股市场大幅上涨，多只主动权益类基金多次出现单日涨幅超5%的情形，与此同时，FOF基金的单周表现也可圈可点，全周有多只基金净值涨幅超过5%，连续多个周度统计出现头部业绩产品超5%。
 
-然而，外界对SpaceX能否实现足以支撑其高估值的利润仍存疑，这意味着股份价值可能面临暴跌风险，进而损害退休人员的利益。
+具体来看，宽基指数方面，上证指数报4179.95点，上涨1.65%；深证成指报15563.80点，上涨3.02%；创业板指报3796.13点，上涨3.24%。
 
-温加滕在声明中强调：“委员会必须要求公司进行严格的信息披露，实施独立监管，并建立防止强制投资的保障机制。
+板块方面，通讯、电子和机械设备板块表现居前。
 
-否则，劳动者的终身积蓄将面临被一家更像马斯克‘家族企业’而非透明上市公司的企业所操控的风险。
+不仅如此，两融余额自4月上旬以来震荡走高，在5月6日和5月7日增长势头显著加快，并且再次创下历史新高。
 
 ## 相关推荐
 
-- 2026-06-30 02:34 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 02:26 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 02:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 02:19 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 02:38 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 02:34 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 02:29 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 02:27 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 02:18 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 02:15 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 02:37 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 02:19 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 02:41 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 02:26 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-30 02:41 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 02:23 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 02:32 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-30 02:28 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 02:39 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 02:23 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 02:43 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 02:38 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 02:34 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 02:43 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 02:41 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:28 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/57478663522.shtml)
-- 2026-06-30 02:13 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/92082609713.shtml)
-- 2026-06-30 02:26 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/06376323176.shtml)
-- 2026-06-30 02:23 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/778626170.shtml)
-- 2026-06-30 02:40 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/30903578256.shtml)
-- 2026-06-30 02:15 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/62428.shtml)
-- 2026-06-30 02:31 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/801534897.shtml)
-- 2026-06-30 02:28 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/6044199110.shtml)
-- 2026-06-30 02:23 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/47277709457.shtml)
-- 2026-06-30 02:16 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/80193144.shtml)
-- 2026-06-30 02:15 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/51116195223.shtml)
-- 2026-06-30 02:16 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/146390497750.shtml)
-- 2026-06-30 02:18 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/079834.shtml)
-- 2026-06-30 02:12 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/166646253.shtml)
-- 2026-06-30 02:21 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/109450501501.shtml)
+- 2026-06-30 02:34 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/975723494.shtml)
+- 2026-06-30 02:47 - [毒液2](https://www.blog.kurohicncr.top/Article/details/01246226.shtml)
+- 2026-06-30 02:26 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/91811921.shtml)
+- 2026-06-30 02:32 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/703624999861.shtml)
+- 2026-06-30 02:32 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/439124484.shtml)
+- 2026-06-30 02:30 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/783358.shtml)
+- 2026-06-30 02:24 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/537437.shtml)
+- 2026-06-30 02:42 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/30112723.shtml)
+- 2026-06-30 02:24 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/444799.shtml)
+- 2026-06-30 02:20 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/723108273997.shtml)
+- 2026-06-30 02:49 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/0655442.shtml)
+- 2026-06-30 02:24 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/71352633476.shtml)
+- 2026-06-30 02:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/433517.shtml)
+- 2026-06-30 02:41 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/1305272142.shtml)
+- 2026-06-30 02:19 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/446184.shtml)

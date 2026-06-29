@@ -1,61 +1,48 @@
-# 财经早报：特朗普称美伊“很有可能”达成协议，世界杯转播给中国开3亿美元天价，央视拒绝丨2026年5月6日
+# 海螺水泥遭The Capital Group Companies,Inc.减持约726.24万股 每股均价约20.36港元
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-【头条要闻】 王毅同伊朗外长阿拉格齐会谈 5月6日，中共中央政治局委员、外交部长王毅在北京同伊朗外长阿拉格齐举行会谈。 阿拉格齐通报了伊美谈判最新情况及伊方下步考虑，表示事实已经证明，政治危机无法通过军事手段解决，伊方将坚决维护国家主权和民族尊严，同时通过和平谈判方式，不断积累共识，寻求全面、永久的解决方案。当前可尽快解决好霍尔木兹海峡开放问题。 涉特朗普访华，中方最新回应 6
+据香港联交所最新数据显示，5月7日，The Capital Group Companies，Inc．减持海螺水泥（00914）726.2373万股，每股均价20.3599港元，总金额约为1.48亿港元。减持后最新持股数目约为1.25亿股，持股比例为9.62%。责任编辑：卢昱君
 
 ## 正文
 
-【头条要闻】 王毅同伊朗外长阿拉格齐会谈 5月6日，中共中央政治局委员、外交部长王毅在北京同伊朗外长阿拉格齐举行会谈。
+据香港联交所最新数据显示，5月7日，The Capital Group Companies，Inc．减持海螺水泥（00914）726.2373万股，每股均价20.3599港元，总金额约为1.48亿港元。
 
-阿拉格齐通报了伊美谈判最新情况及伊方下步考虑，表示事实已经证明，政治危机无法通过军事手段解决，伊方将坚决维护国家主权和民族尊严，同时通过和平谈判方式，不断积累共识，寻求全面、永久的解决方案。
+减持后最新持股数目约为1.25亿股，持股比例为9.62%。
 
-当前可尽快解决好霍尔木兹海峡开放问题。
-
-涉特朗普访华，中方最新回应 6日，外交部发言人林剑主持例行记者会。
-
-有记者就美国总统特朗普相关涉华言论提问。
-
-对此，林剑表示，中美双方就特朗普总统访华事保持着沟通。
-
-特朗普称美伊“很有可能”达成协议 当地时间5月6日，美国总统特朗普表示，美国和伊朗过去24小时内进行了“非常富有成效”的对话，“很有可能”最终会达成协议。
-
-特朗普称，“极有可能”在最新一轮会谈后与伊朗达成协议。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:13 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 02:14 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 02:30 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 02:18 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 02:20 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 02:28 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 02:22 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 02:32 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 02:36 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 02:37 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 02:28 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 02:21 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 02:30 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 02:12 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 02:30 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 02:34 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 02:27 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 02:25 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 02:36 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 02:35 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 02:32 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 02:40 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 02:30 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 02:40 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-30 02:48 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 02:48 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 02:35 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:28 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/0132690.shtml)
-- 2026-06-30 02:41 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/4555118.shtml)
-- 2026-06-30 02:35 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/61155432.shtml)
-- 2026-06-30 02:26 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/58347.shtml)
-- 2026-06-30 02:15 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/116485414.shtml)
-- 2026-06-30 02:21 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/22635.shtml)
-- 2026-06-30 02:33 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/6228965.shtml)
-- 2026-06-30 02:32 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/538986525.shtml)
-- 2026-06-30 02:15 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/4188351.shtml)
-- 2026-06-30 02:22 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/5501599366.shtml)
-- 2026-06-30 02:24 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/68055199680.shtml)
-- 2026-06-30 02:18 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/116664987610.shtml)
-- 2026-06-30 02:28 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/782569021.shtml)
-- 2026-06-30 02:41 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/13314188675.shtml)
-- 2026-06-30 02:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/490012777.shtml)
+- 2026-06-30 02:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/43481652872.shtml)
+- 2026-06-30 02:30 - [日本领先巴西](https://www.blog.minike.top/Article/details/88766.shtml)
+- 2026-06-30 02:41 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/949534.shtml)
+- 2026-06-30 02:34 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/36003.shtml)
+- 2026-06-30 02:28 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/79028518531.shtml)
+- 2026-06-30 02:40 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/084323599.shtml)
+- 2026-06-30 02:26 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/93150938.shtml)
+- 2026-06-30 02:27 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/01771612.shtml)
+- 2026-06-30 02:33 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/70113030.shtml)
+- 2026-06-30 02:20 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/8175166022.shtml)
+- 2026-06-30 02:21 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/3430840.shtml)
+- 2026-06-30 02:19 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/673233.shtml)
+- 2026-06-30 02:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/615339221.shtml)
+- 2026-06-30 02:31 - [这一刀 会很帅](http://www.share.minike.top/Article/details/702213991038.shtml)
+- 2026-06-30 02:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/65745026136.shtml)

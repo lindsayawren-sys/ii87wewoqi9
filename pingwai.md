@@ -1,57 +1,58 @@
-# 经纬度：全面跑赢全国，长三角经济“开门红”的密码
+# 油市波动而非价格飙升将主导石油巨头战略
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-澎湃特约评论员 李蜀 近段时间，各地2026年一季度经济运行成绩单陆续揭晓。其中，以4%的国土面积贡献全国四分之一经济总量的长三角地区，表现格外引人瞩目。 从省域看，长三角“一市三省”的经济增速全部跑赢全国大盘；从城市看，10座GDP万亿级城市也全面超过全国平均增速。 今年是“十五五”开局之年，一季度则是开局之年的开局。从过往历史看，一季度的增长情况往往能为全年打下基础、奠定基
+石油巨头们正准备迎接能源市场的长期动荡，这应会抑制它们在伊朗战争后增加支出的任何冲动。如今最大的担忧不是错过下一轮上涨，而是站在必然到来的回落的反面。 中东冲突以及霍尔木兹海峡自2月28日以来近乎完全关闭，引发了一场前所未有的油气供应危机，将原油价格推高至每桶100美元以上，并引发全球范围内对替代供应的争夺。 即使美伊和平协议很快达成，损害也已经造成。全球超过13%的石油供应和
 
 ## 正文
 
-澎湃特约评论员 李蜀 近段时间，各地2026年一季度经济运行成绩单陆续揭晓。
+石油巨头们正准备迎接能源市场的长期动荡，这应会抑制它们在伊朗战争后增加支出的任何冲动。
 
-其中，以4%的国土面积贡献全国四分之一经济总量的长三角地区，表现格外引人瞩目。
+如今最大的担忧不是错过下一轮上涨，而是站在必然到来的回落的反面。
 
-从省域看，长三角“一市三省”的经济增速全部跑赢全国大盘；从城市看，10座GDP万亿级城市也全面超过全国平均增速。
+中东冲突以及霍尔木兹海峡自2月28日以来近乎完全关闭，引发了一场前所未有的油气供应危机，将原油价格推高至每桶100美元以上，并引发全球范围内对替代供应的争夺。
 
-今年是“十五五”开局之年，一季度则是开局之年的开局。
+即使美伊和平协议很快达成，损害也已经造成。
 
-从过往历史看，一季度的增长情况往往能为全年打下基础、奠定基调。
+全球超过13%的石油供应和约五分之一的液化天然气流量的损失，加上海湾地区能源基础设施的大面积破坏，可能会产生长期后果，为未来几年的价格奠定底部。
 
-那么，一季度集体“开门红”，长三角究竟做对了什么？
+从表面上看，这应是英国石油、雪佛龙、埃克森美孚、壳牌和道达尔能源等能源巨头增加支出、扩大生产和抢占市场份额的理想背景。
 
-增速齐头并进，结构各展所长 一季度，江苏、浙江、上海、安徽的GDP增速分别为5.4%、6%、5.9%、5.8%，均高于全国5%的平均水平。
+这五大巨头第一季度盈利均超出预期。
 
-值得一提的是，除安徽外，其余两省一市也都是GDP总量位居前十的经济大省。
+然而，迄今为止该行业的反应却异常克制。
 
 ## 相关推荐
 
-- 2026-06-30 02:24 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-30 02:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 02:24 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 02:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 02:18 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 02:26 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 02:38 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 02:31 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 02:41 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 02:13 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 02:17 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 02:35 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 02:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 02:36 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 02:35 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 02:29 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 02:34 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 02:41 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 02:48 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 02:37 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 02:38 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 02:41 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 02:22 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:22 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/7584329739.shtml)
-- 2026-06-30 02:22 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/0250976.shtml)
-- 2026-06-30 02:30 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/60087.shtml)
-- 2026-06-30 02:37 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/94851.shtml)
-- 2026-06-30 02:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/687818.shtml)
-- 2026-06-30 02:26 - [千与千寻](https://www.share.minike.top/Article/details/83341.shtml)
-- 2026-06-30 02:15 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/985408587763.shtml)
-- 2026-06-30 02:41 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/382963392.shtml)
-- 2026-06-30 02:32 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/464716432.shtml)
-- 2026-06-30 02:22 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/8247459.shtml)
-- 2026-06-30 02:25 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/1802951613.shtml)
-- 2026-06-30 02:32 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/4869943.shtml)
-- 2026-06-30 02:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/0344222.shtml)
-- 2026-06-30 02:16 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/1096724.shtml)
-- 2026-06-30 02:33 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/7266318.shtml)
+- 2026-06-30 02:25 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/14519.shtml)
+- 2026-06-30 02:29 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/14834.shtml)
+- 2026-06-30 02:24 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/791779164.shtml)
+- 2026-06-30 02:43 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/567932671.shtml)
+- 2026-06-30 02:19 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/109477818138.shtml)
+- 2026-06-30 02:24 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/38534.shtml)
+- 2026-06-30 02:31 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/33367766450.shtml)
+- 2026-06-30 02:20 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/689080437146.shtml)
+- 2026-06-30 02:45 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/837946.shtml)
+- 2026-06-30 02:30 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/6646163.shtml)
+- 2026-06-30 02:48 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/27979.shtml)
+- 2026-06-30 02:28 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/10318980.shtml)
+- 2026-06-30 02:35 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/354437014.shtml)
+- 2026-06-30 02:24 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/0975128.shtml)
+- 2026-06-30 02:45 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/697942040641.shtml)

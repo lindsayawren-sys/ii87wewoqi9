@@ -1,57 +1,57 @@
-# 明确9种禁止性情形 严防商业贿赂 《医药代表管理办法》发布
+# 长安期货张晨：中东地缘风险仍有反复 甲醇震荡运行
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-记者刚刚从国家药监局获悉，《医药代表管理办法》今天由七部门联合公告发布。 据了解，为规范药品学术推广行为，促进医药产业健康有序发展，2020年9月国家药监局发布《医药代表备案管理办法(试行)》，建立医药代表备案制度，自2020年12月施行。截至目前超过2000个药品上市许可持有人在医药代表备案平台备案注册，备案医药代表约11.6万人，基本实现了对医药代表的统一信息管理。但是，少
+一、行情回顾：中东地缘冲突缓和预期上行，能化品震荡偏弱 五一假期归来甲醇期货大幅下挫，受美伊局势缓和预期升温、国际原油价格大幅下跌影响，能化板块集体走弱，甲醇09合约三个交易日下跌5.12%。 现货市场走势分化，内地市场凭借供需基本面支撑展现出较强抗跌韧性，而港口市场受情绪扰动回调幅度较大。具体来看，华东太仓进口价3145元/吨，环比节前下跌140元/吨；广东市场价3215元/
 
 ## 正文
 
-记者刚刚从国家药监局获悉，《医药代表管理办法》今天由七部门联合公告发布。
+一、行情回顾：中东地缘冲突缓和预期上行，能化品震荡偏弱 五一假期归来甲醇期货大幅下挫，受美伊局势缓和预期升温、国际原油价格大幅下跌影响，能化板块集体走弱，甲醇09合约三个交易日下跌5.12%。
 
-据了解，为规范药品学术推广行为，促进医药产业健康有序发展，2020年9月国家药监局发布《医药代表备案管理办法(试行)》，建立医药代表备案制度，自2020年12月施行。
+现货市场走势分化，内地市场凭借供需基本面支撑展现出较强抗跌韧性，而港口市场受情绪扰动回调幅度较大。
 
-截至目前超过2000个药品上市许可持有人在医药代表备案平台备案注册，备案医药代表约11.6万人，基本实现了对医药代表的统一信息管理。
+具体来看，华东太仓进口价3145元/吨，环比节前下跌140元/吨；广东市场价3215元/吨，环比下跌130元/吨；鲁南市场价3000元/吨，环比持平；川渝市场价2775元/吨，环比上涨55元/吨；陕西市场价2705元/吨，环比下跌10元/吨；内蒙古市场价2715元/吨，环比上涨10元/吨。
 
-但是，少数医药代表超越学术交流职责，从事药品推销，甚至参与行贿，严重扰乱公平竞争市场秩序，影响医药产业健康发展，助长医药行业不正之风和不良习气。
+产销区价差迅速收窄，后续需重点关注内地货源流向港口的情况。
 
-为进一步加强医药代表管理，端正净化行业秩序和行业风气，健全人员管理、部门联动及违法违规惩处管理制度，国家药监局会同公安部、国家卫生健康委、市场监管总局、国家医保局、国家中医药局、国家疾控局等部门对《医药代表备案管理办法(试行)》进行修订，增强法规制度的约束要求，全面夯实企业主体责任、厘清监管部门职责、加强工作衔接配合，力求达到教育惩戒、规范提升的效果。
+国际市场方面，CFR中国主港现货价417美元/吨，环比减少3美元/吨；CFR东南亚现货价636.5美元/吨，环比减少5美元/吨；FOB美国海湾现货价561.79美元/吨，环比减少23.41美元/吨；FOB鹿特丹现货价531欧元/吨，环比上涨1欧元/吨，整体国际甲醇市场报价承压。
 
-国家药监局表示，修订后的《医药代表管理办法》，重点明确了持有人对医药代表准入、医药代表备案和行为规范、医疗卫生机构对医药代表的药品学术推广接待管理，以及各有关单位的管理职责。
+假期过后最核心的变化在于宏观面中东局势的缓和预期。
 
-一是对医药代表准入、备案、学术推广、禁入等关键环节进行规范。
+市场消息显示，美伊双方接近达成停战谅解备忘录，结束后双方的战争状态或宣布结束。
 
-在准入环节，规定医药代表应当具有医学、药学或相关专业大专及以上学历，并掌握相关药物临床理论知识。
+特朗普方面宣称将开展护航行动以确保船只通行安全，受此影响，地缘紧张气氛骤然降温，原油价格大幅下跌，甲醇等能化品种跟随板块深度回调。
 
 ## 相关推荐
 
-- 2026-06-30 02:33 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 02:22 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 02:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 02:32 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 02:20 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 02:35 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 02:15 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 02:37 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 02:30 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 02:41 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 02:30 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 02:40 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 02:37 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 02:46 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 02:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 02:29 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 02:27 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 02:48 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 02:24 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 02:24 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 02:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-30 02:46 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:19 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/1340550.shtml)
-- 2026-06-30 02:27 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/329020.shtml)
-- 2026-06-30 02:31 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/7563013687.shtml)
-- 2026-06-30 02:15 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/1275798935.shtml)
-- 2026-06-30 02:13 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/3083875990.shtml)
-- 2026-06-30 02:20 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/68105.shtml)
-- 2026-06-30 02:20 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/89655.shtml)
-- 2026-06-30 02:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/92798137.shtml)
-- 2026-06-30 02:13 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/32938835835.shtml)
-- 2026-06-30 02:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/624420044574.shtml)
-- 2026-06-30 02:41 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/474890.shtml)
-- 2026-06-30 02:28 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/377552287431.shtml)
-- 2026-06-30 02:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/7453058.shtml)
-- 2026-06-30 02:21 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/29919.shtml)
-- 2026-06-30 02:30 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/39680921.shtml)
+- 2026-06-30 02:47 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/2053291.shtml)
+- 2026-06-30 02:27 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/1728026.shtml)
+- 2026-06-30 02:28 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/5212499.shtml)
+- 2026-06-30 02:49 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/5219376.shtml)
+- 2026-06-30 02:47 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/446518.shtml)
+- 2026-06-30 02:38 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/01680945.shtml)
+- 2026-06-30 02:45 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/915722.shtml)
+- 2026-06-30 02:26 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/33430263.shtml)
+- 2026-06-30 02:33 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/185552.shtml)
+- 2026-06-30 02:42 - [扬名立万](http://www.blog.minike.top/Article/details/1994272.shtml)
+- 2026-06-30 02:39 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/175751.shtml)
+- 2026-06-30 02:40 - [内马尔替补](https://www.share.minike.top/Article/details/462360072.shtml)
+- 2026-06-30 02:48 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/746114155.shtml)
+- 2026-06-30 02:23 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/89663.shtml)
+- 2026-06-30 02:33 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/98632.shtml)

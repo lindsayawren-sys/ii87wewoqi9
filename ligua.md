@@ -1,58 +1,56 @@
-# “令人担忧！” 宝马中国市场销量走低，CEO暗指中国车市产品同质化？ | 欧陆志
+# AI蒸馏复刻同事？潜藏三方面法律风险需关注
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-文 | 《欧陆志》栏目 郝倩 发自瑞士日内瓦 宝马集团近日发布的2026年一季度财报显示，该公司税前利润同比大幅下滑约25%——一边是管理层不断强调中国市场的重要性，一边是在电车上受到质疑的宝马。 同时，《欧陆志》梳理过去数年数据发现，宝马中国市场份额占全球销量，已经从峰值的33.5%降至一季度同期的25.5%左右。中国不再是“接近三分之一”的超级支柱市场。同时，最新季报显示，
+当下职场涌现出AI蒸馏复刻同事这类新型用工隐患，而社保未足额缴纳、临时用工劳动关系认定，则是常年高发的职场纠纷。让我们结合司法案例，解析新技术催生的全新法律风险，厘清这些经典用工维权难题。近日，AI开源工具“同事.skill”引发广泛关注，开发者通过收集、提取离职员工的聊天记录、工作文档、沟通习惯等数据，借助AI蒸馏技术生成具备特定人格特征、可替代人工完成工作任务的智能模型，被
 
 ## 正文
 
-文 | 《欧陆志》栏目 郝倩 发自瑞士日内瓦 宝马集团近日发布的2026年一季度财报显示，该公司税前利润同比大幅下滑约25%——一边是管理层不断强调中国市场的重要性，一边是在电车上受到质疑的宝马。
+当下职场涌现出AI蒸馏复刻同事这类新型用工隐患，而社保未足额缴纳、临时用工劳动关系认定，则是常年高发的职场纠纷。
 
-同时，《欧陆志》梳理过去数年数据发现，宝马中国市场份额占全球销量，已经从峰值的33.5%降至一季度同期的25.5%左右。
+让我们结合司法案例，解析新技术催生的全新法律风险，厘清这些经典用工维权难题。
 
-中国不再是“接近三分之一”的超级支柱市场。
+近日，AI开源工具“同事.skill”引发广泛关注，开发者通过收集、提取离职员工的聊天记录、工作文档、沟通习惯等数据，借助AI蒸馏技术生成具备特定人格特征、可替代人工完成工作任务的智能模型，被舆论称为“数字重生”。
 
-同时，最新季报显示，宝马在中国电动车销售占比6.6%，居然远低于欧洲的25.3%。
+依托数据提取、人格复刻、能力迁移等特性，AI蒸馏技术快速落地，类似“同事.skill”等未经授权复刻他人人格与工作能力的项目不断涌现，不仅严重侵害自然人的人格权、损害劳动者合法权益，还扰乱数字空间公序良俗，衍生出一系列现实法律风险。
 
-这个数据对比令人意外。
+风险一 数据未经授权滥用 人格权保护面临严峻挑战 AI蒸馏技术多以自然人肖像、声音、聊天记录、影像等人格要素为核心训练素材，通过数字化提取、特征固化、模型复刻等方式对人格利益进行实质性利用。
 
-在这一背景下，6日的一季度财报记者会，以及随后的投资人电话会中透露出诸多关键信息。
+实践中，大量开发者未经权利人同意，擅自抓取并使用个人数据，甚至对逝者实施“数字复活”，严重侵害自然人人格权益。
 
-这一次，是宝马集团首席执行官齐普策（Oliver Zipse）作为CEO的最后一次财报电话会，他借着这次电话会的机会感谢媒体和投资人陪着他从2000年走到现在。
+北京某法院2023年4月审结的殷某诉北京某智能科技有限公司人格权纠纷中，配音师殷某曾为科技公司录制有声读物，科技公司利用AI技术将殷某声音训练成文本转语音产品并对外出售，相关AI配音短视频广泛传播。
 
-这是电话会上有些感伤的时刻。
+法院认为，声音属于人格权客体，录音著作权不能替代人格权授权，企业即便享有录音版权，未经许可将他人声音用于AI蒸馏仍构成声音权侵权，判决公司赔礼道歉并赔偿殷某25万元。
 
 ## 相关推荐
 
-- 2026-06-30 02:38 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 02:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 02:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 02:18 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 02:27 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 02:36 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 02:23 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 02:13 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 02:31 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 02:12 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 02:28 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-30 02:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 02:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 02:46 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 02:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 02:39 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 02:28 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 02:41 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 02:24 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 02:46 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 02:29 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 02:33 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:16 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/957117.shtml)
-- 2026-06-30 02:20 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/31246486281.shtml)
-- 2026-06-30 02:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/5738291819.shtml)
-- 2026-06-30 02:24 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/464012755346.shtml)
-- 2026-06-30 02:40 - [恋与深空回应争议](https://www.share.minike.top/Article/details/112483701.shtml)
-- 2026-06-30 02:19 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/16002415990.shtml)
-- 2026-06-30 02:15 - [日本反击率先破门](https://www.share.minike.top/Article/details/63401845.shtml)
-- 2026-06-30 02:18 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/909561801971.shtml)
-- 2026-06-30 02:23 - [乔家的儿女](http://www.share.minike.top/Article/details/029054642499.shtml)
-- 2026-06-30 02:34 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/47451584630.shtml)
-- 2026-06-30 02:40 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/48626919.shtml)
-- 2026-06-30 02:19 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/421003261621.shtml)
-- 2026-06-30 02:20 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/199001596.shtml)
-- 2026-06-30 02:15 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/21895.shtml)
-- 2026-06-30 02:41 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/44985.shtml)
+- 2026-06-30 02:30 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/634094649.shtml)
+- 2026-06-30 02:28 - [世界杯](https://www.share.kurohicncr.top/Article/details/45180.shtml)
+- 2026-06-30 02:25 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/74660020.shtml)
+- 2026-06-30 02:24 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/406039250.shtml)
+- 2026-06-30 02:19 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/6497593511.shtml)
+- 2026-06-30 02:28 - [啊啊啊](https://www.blog.minike.top/Article/details/713355.shtml)
+- 2026-06-30 02:38 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/41594368.shtml)
+- 2026-06-30 02:35 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/066389958.shtml)
+- 2026-06-30 02:43 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/295789.shtml)
+- 2026-06-30 02:30 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/41013169222.shtml)
+- 2026-06-30 02:25 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/658535704.shtml)
+- 2026-06-30 02:31 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/53058525322.shtml)
+- 2026-06-30 02:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/155010.shtml)
+- 2026-06-30 02:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/935378479.shtml)
+- 2026-06-30 02:42 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/37722070.shtml)

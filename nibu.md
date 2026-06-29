@@ -1,59 +1,61 @@
-# 二手车平台淘车车冲刺IPO：连续三年亏损，遭阿里起诉索赔1000万，未足额缴纳社保和公积金
+# 欧盟拟向各行业发放更多碳排放免费配额
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-新浪科技讯 5月8日下午消息，二手车平台淘车车近日向港交所提交招股书，花旗担任独家保荐人，中信证券担任整体协调人。 招股书显示，淘车车自2018年成立。根据弗若斯特沙利文的资料，按2025年商品交易总额计，淘车车在中国二手车交易平台中排名第一，市场份额达3.8%。2025年平台累计交易量突破19万辆。 截至2025年12月31日，淘车车在国内拥有62家线下销售中心，与共计929
+欧盟委员会周一提议，未来数年向各行业发放更多免费碳排放配额，有望为企业节省40 亿欧元（折合 47 亿美元）的二氧化碳排放成本。 此次提案证实了媒体上周依据欧盟内部文件发布的相关报道。 欧盟碳市场是欧盟应对二氧化碳排放的核心政策工具，该机制要求工业企业产生污染时必须购买碳排放配额。 目前，这项碳交易机制面临越来越大的政治压力，各成员国担忧欧洲经济竞争力持续走弱。 部分高耗能重工
 
 ## 正文
 
-新浪科技讯 5月8日下午消息，二手车平台淘车车近日向港交所提交招股书，花旗担任独家保荐人，中信证券担任整体协调人。
+欧盟委员会周一提议，未来数年向各行业发放更多免费碳排放配额，有望为企业节省40 亿欧元（折合 47 亿美元）的二氧化碳排放成本。
 
-招股书显示，淘车车自2018年成立。
+此次提案证实了媒体上周依据欧盟内部文件发布的相关报道。
 
-根据弗若斯特沙利文的资料，按2025年商品交易总额计，淘车车在中国二手车交易平台中排名第一，市场份额达3.8%。
+欧盟碳市场是欧盟应对二氧化碳排放的核心政策工具，该机制要求工业企业产生污染时必须购买碳排放配额。
 
-2025年平台累计交易量突破19万辆。
+目前，这项碳交易机制面临越来越大的政治压力，各成员国担忧欧洲经济竞争力持续走弱。
 
-截至2025年12月31日，淘车车在国内拥有62家线下销售中心，与共计9294个指定展示位，销售中心及展示位的规模均位居全国第一；同时依托新媒体渠道矩阵搭建了在线平台，截至2025年12月31日，年度的全渠道月活跃用户突破1300万；淘车车还于迪拜及尼日利亚设有海外销售中心。
+部分高耗能重工业已敦促欧盟委员会增加免费碳排放配额，以减轻企业的合规成本压力。
 
-淘车车的收入来源主要包括二手车零售业务、车辆批发业务及平台服务。
+根据新提案，工业企业平均仍可获得覆盖自身约75% 排放量的免费配额分配。
 
-于2023年、2024年及2025年，淘车车的收入合共分别为44.29亿元、54.71亿元及66.62亿元；分别录得亏损6.96亿元、5.74亿元及9.17亿元，三年累计亏损21.87亿元；以非国际财务报告准则计量，经调整净亏损分别为2.43亿元、1.94亿元及2.05亿元。
+欧盟委员会表示，间接排放纳入配额覆盖范围后，将推高行业基准值；2026 至 2030 年间，预计将产生约 40 亿欧元的资金影响。
 
-股权结构显示，IPO前，易鑫集团作为淘车车的母公司，持股比例约为44.23%；淘车车董事会主席、CEO姜东合计持股约11.53%；腾讯合计持股约17.49%；京东持有2.74%股权。
+欧盟委员会将于 6 月底正式敲定各项行业基准。
 
 ## 相关推荐
 
-- 2026-06-30 02:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 02:24 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 02:19 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 02:24 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 02:36 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 02:14 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 02:35 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 02:30 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 02:18 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 02:36 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 02:35 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 02:13 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 02:26 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 02:42 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 02:38 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 02:44 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 02:33 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 02:42 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 02:29 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 02:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 02:31 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 02:21 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 02:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 02:40 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 02:21 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 02:27 - [巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 02:28 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 02:22 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:39 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/646856223.shtml)
-- 2026-06-30 02:37 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/349371.shtml)
-- 2026-06-30 02:17 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/195349.shtml)
-- 2026-06-30 02:39 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/95742.shtml)
-- 2026-06-30 02:16 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/189391578049.shtml)
-- 2026-06-30 02:22 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/15511.shtml)
-- 2026-06-30 02:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/08556.shtml)
-- 2026-06-30 02:27 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/465128826723.shtml)
-- 2026-06-30 02:27 - [点菜也要教吗](https://www.blog.minike.top/Article/details/5195876.shtml)
-- 2026-06-30 02:24 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/252275.shtml)
-- 2026-06-30 02:42 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/9025489615.shtml)
-- 2026-06-30 02:31 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/35349844549.shtml)
-- 2026-06-30 02:20 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/74232451.shtml)
-- 2026-06-30 02:19 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/332061966997.shtml)
-- 2026-06-30 02:15 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/728002455.shtml)
+- 2026-06-30 02:38 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/00890250455.shtml)
+- 2026-06-30 02:45 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/5406429247.shtml)
+- 2026-06-30 02:27 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/836715370.shtml)
+- 2026-06-30 02:47 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/565911868.shtml)
+- 2026-06-30 02:33 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/6030552.shtml)
+- 2026-06-30 02:34 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/732576630566.shtml)
+- 2026-06-30 02:25 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/890010581016.shtml)
+- 2026-06-30 02:24 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/893622208461.shtml)
+- 2026-06-30 02:48 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/409827495446.shtml)
+- 2026-06-30 02:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/01812184.shtml)
+- 2026-06-30 02:25 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/971573315.shtml)
+- 2026-06-30 02:35 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/2628525.shtml)
+- 2026-06-30 02:26 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/996131.shtml)
+- 2026-06-30 02:41 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/906132.shtml)
+- 2026-06-30 02:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/07570278.shtml)

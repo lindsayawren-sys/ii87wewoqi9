@@ -1,48 +1,56 @@
-# 广西瑶乡“五一”文旅消费热 古村古道引客来
+# 澳大利亚卫生官员：涉疫邮轮返澳人员将隔离至少三周
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:31 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月07日 08:44 来源：中国新闻网 “五一”假期期间，在广西贺州市富川瑶族自治县岔山、秀水等古村落，青石板路、古民居、地道的舌尖美食，以及独特的民俗文化吸引了大批游客。在有着700多年历史的岔山村，每到饭点，沿街30多家农家乐门庭若市，油茶、梭子粑粑等特色美食供不应求，假日消费格外红火。(张影 王璟 制作 王嘉怡) 责任编辑：【张燕玲】
+中新社悉尼5月11日电(记者 薄雯雯)澳大利亚卫生和老年护理部长马克·巴特勒11日表示，从涉汉坦病毒疫情的“洪迪厄斯”号邮轮疏散并返回澳大利亚的6人将接受至少三周隔离。 据澳大利亚广播公司报道，这6人包括4名澳大利亚公民、1名澳永久居民以及1名新西兰公民。他们预计将于11日晚些时候从西班牙特内里费岛搭乘澳政府安排的包机返澳，机上将配备医护人员。抵澳后，相关人员将被送往西澳大利亚
 
 ## 正文
 
-发布时间：2026年05月07日 08:44 来源：中国新闻网 “五一”假期期间，在广西贺州市富川瑶族自治县岔山、秀水等古村落，青石板路、古民居、地道的舌尖美食，以及独特的民俗文化吸引了大批游客。
+中新社悉尼5月11日电(记者 薄雯雯)澳大利亚卫生和老年护理部长马克·巴特勒11日表示，从涉汉坦病毒疫情的“洪迪厄斯”号邮轮疏散并返回澳大利亚的6人将接受至少三周隔离。
 
-在有着700多年历史的岔山村，每到饭点，沿街30多家农家乐门庭若市，油茶、梭子粑粑等特色美食供不应求，假日消费格外红火。
+据澳大利亚广播公司报道，这6人包括4名澳大利亚公民、1名澳永久居民以及1名新西兰公民。
 
-(张影 王璟 制作 王嘉怡) 责任编辑：【张燕玲】
+他们预计将于11日晚些时候从西班牙特内里费岛搭乘澳政府安排的包机返澳，机上将配备医护人员。
+
+抵澳后，相关人员将被送往西澳大利亚州首府珀斯附近的隔离设施。
+
+巴特勒表示，目前尚无澳大利亚人出现汉坦病毒感染症状。
+
+他说，汉坦病毒潜伏期可能长达42天，但传播风险通常会在前两周后下降，因此澳政府决定采取“预防性措施”。
+
+政府将在三周隔离期结束后，根据进一步的卫生建议决定后续安排。
+
+他还称，由于返澳人员需搭乘小型飞机进行长途飞行，旅途中存在一定传播风险。
 
 ## 相关推荐
 
-- 2026-06-30 02:21 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 02:14 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 02:22 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 02:12 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 02:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 02:36 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 02:29 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 02:25 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 02:33 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 02:23 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 02:15 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 02:35 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 02:24 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 02:35 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 02:21 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 02:22 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 02:25 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 02:28 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 02:25 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 02:48 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 02:47 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 02:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:25 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/761884503.shtml)
-- 2026-06-30 02:22 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/961952360615.shtml)
-- 2026-06-30 02:12 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/8928750677.shtml)
-- 2026-06-30 02:19 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/14521901915.shtml)
-- 2026-06-30 02:39 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/74044.shtml)
-- 2026-06-30 02:16 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/621951.shtml)
-- 2026-06-30 02:30 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/2241072.shtml)
-- 2026-06-30 02:30 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/2957970.shtml)
-- 2026-06-30 02:30 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/9373418530.shtml)
-- 2026-06-30 02:32 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/696769.shtml)
-- 2026-06-30 02:38 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/2595016.shtml)
-- 2026-06-30 02:34 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/3761305266.shtml)
-- 2026-06-30 02:34 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/955938963.shtml)
-- 2026-06-30 02:34 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/6510699751.shtml)
-- 2026-06-30 02:35 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/854278.shtml)
+- 2026-06-30 02:36 - [速度与激情9](http://www.share.minike.top/Article/details/9036100.shtml)
+- 2026-06-30 02:24 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/20549.shtml)
+- 2026-06-30 02:25 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/409745.shtml)
+- 2026-06-30 02:30 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/42550619.shtml)
+- 2026-06-30 02:46 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/476599.shtml)
+- 2026-06-30 02:36 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/8050575.shtml)
+- 2026-06-30 02:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/069902079234.shtml)
+- 2026-06-30 02:44 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/070667960.shtml)
+- 2026-06-30 02:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/84744247.shtml)
+- 2026-06-30 02:49 - [勇敢的心第二部](http://www.share.minike.top/Article/details/69057.shtml)
+- 2026-06-30 02:23 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/462243370.shtml)
+- 2026-06-30 02:25 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/8728115.shtml)
+- 2026-06-30 02:35 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/137022886969.shtml)
+- 2026-06-30 02:41 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/1313817670.shtml)
+- 2026-06-30 02:25 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/442959521.shtml)

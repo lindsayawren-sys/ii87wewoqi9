@@ -1,57 +1,57 @@
-# 百度旗下AI芯片公司昆仑芯计划在沪港两地上市
+# 全球轻稀土龙头2026年Q1净利润翻倍增长！稀土ETF华泰柏瑞（516780）流动性优势较突出
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-百度公司旗下芯片业务子公司昆仑芯，正计划在上海科创板进行首次公开募股，同时推进在中国香港的上市计划，以借助于市场对半导体股票的投资热情。 向中国证监会提交的文件显示，昆仑芯（北京）科技股份有限公司已启动上市辅导，辅导机构为中国国际金融股份有限公司。百度年初时曾表示，昆仑芯已以保密方式递交香港IPO文件。周五，百度港股股价一度上涨逾4%。 Jefferies分析师Thomas C
+近期，受稀土出口管制及海外补库需求推动，部分稀土品种价格持续走高。与此同时，国内稀土龙头2026年一季报利润高增，进一步强化了市场对行业景气修复的预期，稀土板块投资热度攀升。受此提振，稀土ETF华泰柏瑞（516780）5月以来连续3个交易日均实现资金净流入、日均成交额达1.65亿元，最新规模31.94亿元，流动性优势较突出。 稀土行业景气传导至业绩端，龙头公司表现亮眼。以国内某
 
 ## 正文
 
-百度公司旗下芯片业务子公司昆仑芯，正计划在上海科创板进行首次公开募股，同时推进在中国香港的上市计划，以借助于市场对半导体股票的投资热情。
+近期，受稀土出口管制及海外补库需求推动，部分稀土品种价格持续走高。
 
-向中国证监会提交的文件显示，昆仑芯（北京）科技股份有限公司已启动上市辅导，辅导机构为中国国际金融股份有限公司。
+与此同时，国内稀土龙头2026年一季报利润高增，进一步强化了市场对行业景气修复的预期，稀土板块投资热度攀升。
 
-百度年初时曾表示，昆仑芯已以保密方式递交香港IPO文件。
+受此提振，稀土ETF华泰柏瑞（516780）5月以来连续3个交易日均实现资金净流入、日均成交额达1.65亿元，最新规模31.94亿元，流动性优势较突出。
 
-周五，百度港股股价一度上涨逾4%。
+稀土行业景气传导至业绩端，龙头公司表现亮眼。
 
-Jefferies分析师Thomas Chong等人周五在报告中指出，选择在上海上市，表明百度推进昆仑芯分拆上市的计划取得进展，在内地上市有助于中国AI模型开发企业和芯片制造商更便捷地接触境内投资者。
+以国内某轻稀土行业龙头为例，其2026年一季报显示：营业收入118.59亿元，同比增长27.69%；归母净利润9.18亿元，同比大增113.12%；扣非归母净利润8.83亿元，同比+103.21%，环比+27.35%。
 
-该机构预计昆仑芯的香港上市可能在第三季度完成。
+与此同时，国内多家稀土企业一季度业绩均远超市场预期，主要得益于镨钕氧化物等主要产品均价同比显著走高。
 
-责任编辑：刘明亮
+稀土价格强势上行，供需格局持续偏紧。
+
+根据Wind数据，2026年Q1氧化镨钕均价为75.7万元/吨，环比增长33.7%。
 
 ## 相关推荐
 
-- 2026-06-30 02:38 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 02:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 02:25 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 02:14 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 02:30 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 02:25 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 02:19 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 02:15 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 02:27 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 02:35 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 02:31 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 02:15 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 02:41 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 02:39 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 02:28 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 02:45 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 02:32 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 02:25 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 02:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 02:45 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 02:29 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 02:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-30 02:25 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-30 02:22 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:12 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/739005.shtml)
-- 2026-06-30 02:37 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/22035334502.shtml)
-- 2026-06-30 02:35 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/85250559.shtml)
-- 2026-06-30 02:29 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/6929356488.shtml)
-- 2026-06-30 02:31 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/797733597041.shtml)
-- 2026-06-30 02:36 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/7270020185.shtml)
-- 2026-06-30 02:39 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/144830.shtml)
-- 2026-06-30 02:17 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/946726.shtml)
-- 2026-06-30 02:35 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/0032018406.shtml)
-- 2026-06-30 02:33 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/394148347.shtml)
-- 2026-06-30 02:23 - [恋与深空 日服](http://www.share.minike.top/Article/details/048811.shtml)
-- 2026-06-30 02:27 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/4748752970.shtml)
-- 2026-06-30 02:27 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/14556.shtml)
-- 2026-06-30 02:39 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/08433.shtml)
-- 2026-06-30 02:12 - [周生如故](http://www.blog.minike.top/Article/details/063931.shtml)
+- 2026-06-30 02:36 - [美股](http://www.blog.minike.top/Article/details/278591941528.shtml)
+- 2026-06-30 02:46 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/2619506.shtml)
+- 2026-06-30 02:33 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/535852.shtml)
+- 2026-06-30 02:40 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/06870.shtml)
+- 2026-06-30 02:45 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/250853648.shtml)
+- 2026-06-30 02:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/61319498.shtml)
+- 2026-06-30 02:40 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/711166.shtml)
+- 2026-06-30 02:44 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/039599.shtml)
+- 2026-06-30 02:31 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/830250.shtml)
+- 2026-06-30 02:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/03008010467.shtml)
+- 2026-06-30 02:28 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/83174.shtml)
+- 2026-06-30 02:46 - [啊啊啊](http://www.blog.minike.top/Article/details/229929.shtml)
+- 2026-06-30 02:45 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/2822919.shtml)
+- 2026-06-30 02:39 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/56598.shtml)
+- 2026-06-30 02:42 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/17656064.shtml)

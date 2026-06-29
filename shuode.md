@@ -1,60 +1,60 @@
-# Axon财报后股价大涨，泰瑟枪加速走向全球
+# 今年前四个月无人机袭击造成880名苏丹平民丧生
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-Axon Enterprise周四股价大涨，此前这家执法科技制造商公布的一季度财报显示，国际市场对泰瑟枪和执法记录仪的需求激增，推动公司业绩超预期并上调全年指引。 财报显示，Axon一季度营收同比增长34%至8.073亿美元，超出市场预期的7.789亿美元。国际业务营收翻了一番以上，达到1.608亿美元，占总销售额的20%，高于去年的12%。公司实现了连续五个季度亏损后的盈利转
+中新社北京5月12日电 喀土穆消息：当地时间5月11日，联合国人权事务高级专员沃尔克·图尔克透露，今年1月至4月，无人机袭击在苏丹造成至少880名平民死亡，占同期所有与冲突相关的平民死亡人数的80%以上。 综合《苏丹论坛报》等媒体消息，图尔克强烈谴责武装无人机使用量的增加，并指出无人机袭击已成为苏丹平民死亡的首要原因。图尔克警告说，此类袭击正将这场持续三年多的战争推向“新的、更
 
 ## 正文
 
-Axon Enterprise周四股价大涨，此前这家执法科技制造商公布的一季度财报显示，国际市场对泰瑟枪和执法记录仪的需求激增，推动公司业绩超预期并上调全年指引。
+中新社北京5月12日电 喀土穆消息：当地时间5月11日，联合国人权事务高级专员沃尔克·图尔克透露，今年1月至4月，无人机袭击在苏丹造成至少880名平民死亡，占同期所有与冲突相关的平民死亡人数的80%以上。
 
-财报显示，Axon一季度营收同比增长34%至8.073亿美元，超出市场预期的7.789亿美元。
+综合《苏丹论坛报》等媒体消息，图尔克强烈谴责武装无人机使用量的增加，并指出无人机袭击已成为苏丹平民死亡的首要原因。
 
-国际业务营收翻了一番以上，达到1.608亿美元，占总销售额的20%，高于去年的12%。
+图尔克警告说，此类袭击正将这场持续三年多的战争推向“新的、更加致命的阶段”。
 
-公司实现了连续五个季度亏损后的盈利转折，录得营业收入2900万美元。
+尽管雨季即将到来，但对无人机的日益依赖使得敌对行动持续不断，且冲突即将进入更加致命的阶段。
 
-公司总裁Josh Isner在电话会议上表示，公司正展现出更多全球化公司的特质，以技术供应商的姿态出现，能够跨多个不同产品线提供支持。
+图尔克透露，大多数因无人机袭击造成的平民死亡事件发生在科尔多凡地区和达尔富尔，但袭击也越来越多地蔓延到青尼罗河州、白尼罗河州和喀土穆等地。
 
-软件与服务业务增长35%，AI产品收入同比飙升超700%，反无人机产品收入增长超300%。
+交战各方多次使用无人机袭击民用目标和基础设施，“导致民众难以获得充足的食物、清洁用水和医疗保健”。
 
-基于强劲表现，Axon将2026全年营收增长预测从27%至30%上调至30%至32%。
+数据显示，在今年前四个月中，市场至少遭到28次袭击，医疗机构至少遭到12次袭击，这些机构经常因袭击被迫关闭。
 
-公司预计全年运营现金流超6亿美元，自由现金流约4.5亿美元。
+图尔克呼吁采取强有力的措施，防止先进武器和无人机被转让给交战各方。
 
 ## 相关推荐
 
-- 2026-06-30 02:39 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 02:21 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 02:28 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 02:22 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 02:41 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 02:18 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 02:13 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 02:30 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 02:35 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 02:15 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 02:33 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 02:14 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 02:26 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 02:32 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 02:36 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 02:42 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 02:22 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 02:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 02:40 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 02:37 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-30 02:47 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 02:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 02:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 02:42 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 02:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 02:22 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 02:45 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 02:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/98312.shtml)
-- 2026-06-30 02:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/18502334216.shtml)
-- 2026-06-30 02:15 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/198489.shtml)
-- 2026-06-30 02:34 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/421025620867.shtml)
-- 2026-06-30 02:23 - [电影后室值得看吗](https://www.share.minike.top/Article/details/0473652010.shtml)
-- 2026-06-30 02:16 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/766759771.shtml)
-- 2026-06-30 02:28 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/912614097886.shtml)
-- 2026-06-30 02:40 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/139086141533.shtml)
-- 2026-06-30 02:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/30250421.shtml)
-- 2026-06-30 02:25 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/04664958.shtml)
-- 2026-06-30 02:20 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/0131746845.shtml)
-- 2026-06-30 02:31 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/042735.shtml)
-- 2026-06-30 02:38 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/8426846.shtml)
-- 2026-06-30 02:33 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/930962.shtml)
-- 2026-06-30 02:36 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/8030812.shtml)
+- 2026-06-30 02:48 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/43750687.shtml)
+- 2026-06-30 02:46 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/931413395620.shtml)
+- 2026-06-30 02:22 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/56371.shtml)
+- 2026-06-30 02:28 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/597055.shtml)
+- 2026-06-30 02:41 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/913877.shtml)
+- 2026-06-30 02:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/57455648.shtml)
+- 2026-06-30 02:39 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/54795293.shtml)
+- 2026-06-30 02:34 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/21762.shtml)
+- 2026-06-30 02:30 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/82260668.shtml)
+- 2026-06-30 02:41 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/5943490.shtml)
+- 2026-06-30 02:36 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/577424979704.shtml)
+- 2026-06-30 02:27 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/564709809.shtml)
+- 2026-06-30 02:21 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/7599707.shtml)
+- 2026-06-30 02:32 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/37162.shtml)
+- 2026-06-30 02:36 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/172019371.shtml)

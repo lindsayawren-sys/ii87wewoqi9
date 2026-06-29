@@ -1,56 +1,50 @@
-# 大摩：威高股份目标价降至5.2港元 维持“与大市同步”评级
+# 大美边疆看我家丨黑龙江密山：兴凯湖的纯净之美
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-摩根士丹利发布研报称，将威高股份（01066）2026至2028年收入预测各上调4%，以反映每年约4%至5%的增长，处于管理层最新指引的下限。然而，该行下调威高股份2026至2030年的毛利率假设，以反映持续的定价压力及集中采购对一般耗材的影响，并按趋势微调营运开支比率。该行已计入威高2025年全年业绩，将2026至2028年每股盈利预测分别下调14.7%、13.8%及14.2
+发布时间：2026年05月11日 14:18 来源：中国新闻网 近日，在黑龙江省密山市，兴凯湖的湖水呈现出令人心醉的深邃湛蓝色，与晴朗的天空交相辉映。极具现代设计感的白色观景台与木质栈道延伸至水天之间，勾勒出人与自然和谐共处的优美线条。夕阳余晖下，成群的水鸟在广阔的湖面上自由翱翔，灵动的身影点缀着这片辽阔的蓝色水域，生动呈现了祖国东北边境湿地的勃勃生机与纯净之美。(作者：张铠伦
 
 ## 正文
 
-摩根士丹利发布研报称，将威高股份（01066）2026至2028年收入预测各上调4%，以反映每年约4%至5%的增长，处于管理层最新指引的下限。
+发布时间：2026年05月11日 14:18 来源：中国新闻网 近日，在黑龙江省密山市，兴凯湖的湖水呈现出令人心醉的深邃湛蓝色，与晴朗的天空交相辉映。
 
-然而，该行下调威高股份2026至2030年的毛利率假设，以反映持续的定价压力及集中采购对一般耗材的影响，并按趋势微调营运开支比率。
+极具现代设计感的白色观景台与木质栈道延伸至水天之间，勾勒出人与自然和谐共处的优美线条。
 
-该行已计入威高2025年全年业绩，将2026至2028年每股盈利预测分别下调14.7%、13.8%及14.2%。
+夕阳余晖下，成群的水鸟在广阔的湖面上自由翱翔，灵动的身影点缀着这片辽阔的蓝色水域，生动呈现了祖国东北边境湿地的勃勃生机与纯净之美。
 
-按更新后的人民币兑港元汇率1.14计算，目标价由6港元下调至5.2港元，维持“与大市同步”评级。
-
-该行认为，威高股份在中国医疗科技多个领域均有布局，包括一般耗材、骨科、药品包装、介入产品及血液管理等，拥有业内其中一个最有效的销售分销网络，是推出新产品的强大平台。
-
-惟近期增长受价格下调及行业销量低于平均所影响，加上持续的DRG及集中采购政策逆风，评级“与大市同步”反映其估值在稳定增长路径及股息率支持下属合理。
-
-责任编辑：卢昱君
+(作者：张铠伦） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 02:19 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 02:31 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 02:28 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 02:40 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 02:32 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 02:22 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 02:29 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 02:37 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 02:17 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 02:13 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 02:41 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 02:17 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 02:25 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-30 02:35 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 02:36 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 02:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 02:43 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 02:28 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 02:25 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 02:34 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 02:23 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 02:47 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 02:41 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 02:34 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:17 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/36942720645.shtml)
-- 2026-06-30 02:12 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/23184925.shtml)
-- 2026-06-30 02:34 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/20008211643.shtml)
-- 2026-06-30 02:12 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/263149796.shtml)
-- 2026-06-30 02:33 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/46472239047.shtml)
-- 2026-06-30 02:39 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/98737.shtml)
-- 2026-06-30 02:22 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/44211272.shtml)
-- 2026-06-30 02:24 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/26460.shtml)
-- 2026-06-30 02:20 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/34098.shtml)
-- 2026-06-30 02:18 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/33162113.shtml)
-- 2026-06-30 02:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/15094.shtml)
-- 2026-06-30 02:33 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/039776127164.shtml)
-- 2026-06-30 02:22 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/916635656183.shtml)
-- 2026-06-30 02:29 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/293018642.shtml)
-- 2026-06-30 02:41 - [刘念回应](http://www.blog.minike.top/Article/details/635031480995.shtml)
+- 2026-06-30 02:23 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/03568.shtml)
+- 2026-06-30 02:32 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/12284.shtml)
+- 2026-06-30 02:33 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/33270999423.shtml)
+- 2026-06-30 02:33 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/307533.shtml)
+- 2026-06-30 02:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/97348969167.shtml)
+- 2026-06-30 02:34 - [起风了](http://www.share.minike.top/Article/details/607384.shtml)
+- 2026-06-30 02:36 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/445377673976.shtml)
+- 2026-06-30 02:22 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/2934479648.shtml)
+- 2026-06-30 02:36 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/573302.shtml)
+- 2026-06-30 02:43 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/20067.shtml)
+- 2026-06-30 02:42 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/579347647.shtml)
+- 2026-06-30 02:25 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/507329073046.shtml)
+- 2026-06-30 02:47 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/7100574009.shtml)
+- 2026-06-30 02:25 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/8838274.shtml)
+- 2026-06-30 02:26 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/667386390966.shtml)

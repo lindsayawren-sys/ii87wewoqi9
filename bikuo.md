@@ -1,55 +1,57 @@
-# 刘诗雯再度当选国际乒联运动员委员会委员
+# 巴西4月通胀率符合预期，货币政策走向受地缘风险挑战
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-中新社伦敦5月7日电 国际乒联7日公布新一届运动员委员会选举结果，中国奥运冠军刘诗雯等10人当选委员。 国际乒联表示，本次选举于5月4日结束，共有300余人参与健全人运动员代表的投票。为确保洲际及性别比例上的平衡，共有8位健全人运动员进入新一届运动员委员会。除了两位现任主席刘诗雯和印度的阿昌塔以外，还有来自威尔士、加纳、英格兰、阿尔及利亚、厄瓜多尔、罗马尼亚的运动员代表。 此外
+巴西国家地理统计局（IBGE）周二发布的数据显示，受食品价格波动及地缘局势影响，巴西4月通胀水平出现回升，但仍处于该国央行设定的目标区间内，基本符合市场预期。 数据显示，巴西4月年化通胀率为4.39%，较上月的4.14%有所上升，与路透社此前调查的4.40%预期值基本持平。从环比来看，4月消费者物价指数（CPI）上涨0.67%，较3月0.88%的涨幅有所放缓。 在细分领域中，食
 
 ## 正文
 
-中新社伦敦5月7日电 国际乒联7日公布新一届运动员委员会选举结果，中国奥运冠军刘诗雯等10人当选委员。
+巴西国家地理统计局（IBGE）周二发布的数据显示，受食品价格波动及地缘局势影响，巴西4月通胀水平出现回升，但仍处于该国央行设定的目标区间内，基本符合市场预期。
 
-国际乒联表示，本次选举于5月4日结束，共有300余人参与健全人运动员代表的投票。
+数据显示，巴西4月年化通胀率为4.39%，较上月的4.14%有所上升，与路透社此前调查的4.40%预期值基本持平。
 
-为确保洲际及性别比例上的平衡，共有8位健全人运动员进入新一届运动员委员会。
+从环比来看，4月消费者物价指数（CPI）上涨0.67%，较3月0.88%的涨幅有所放缓。
 
-除了两位现任主席刘诗雯和印度的阿昌塔以外，还有来自威尔士、加纳、英格兰、阿尔及利亚、厄瓜多尔、罗马尼亚的运动员代表。
+在细分领域中，食品和饮料价格上涨1.34%，成为推高当月通胀的主要因素。
 
-此外，运动员委员会还包括两名来自英格兰和美国的残疾人运动员代表。
+交通运输成本在3月因伊朗相关地缘冲突引发国际油价飙升而剧烈波动后，于4月趋于平稳。
 
-后续，还将选举产生新一届运动员委员会主席。
+目前，巴西央行设定的通胀目标为3%，上下浮动区间为1.5个百分点。
 
-(完)
+尽管当前的通胀水平仍在该区间内，但决策层对潜在风险保持高度警惕。
+
+在4月的议息会议上，巴西央行已连续第二次将基准利率下调25个基点至14.50%，但由于美、以与伊朗的军事冲突持续僵持，通胀上行风险增加，央行对6月中旬的后续政策动向持开放态度。
 
 ## 相关推荐
 
-- 2026-06-30 02:31 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 02:24 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 02:34 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 02:34 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 02:16 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 02:20 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 02:30 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 02:25 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 02:39 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 02:17 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 02:40 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 02:45 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 02:41 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 02:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 02:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 02:24 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 02:33 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 02:40 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 02:39 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 02:44 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 02:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 02:43 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/093010.shtml)
-- 2026-06-30 02:36 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/26365056446.shtml)
-- 2026-06-30 02:34 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/94863946.shtml)
-- 2026-06-30 02:28 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/301869.shtml)
-- 2026-06-30 02:30 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/77837829933.shtml)
-- 2026-06-30 02:14 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/60569219.shtml)
-- 2026-06-30 02:23 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/9111230862.shtml)
-- 2026-06-30 02:32 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/859619.shtml)
-- 2026-06-30 02:17 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/76029310764.shtml)
-- 2026-06-30 02:25 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/41278.shtml)
-- 2026-06-30 02:34 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/68224.shtml)
-- 2026-06-30 02:38 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/593655459169.shtml)
-- 2026-06-30 02:40 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/43327365888.shtml)
-- 2026-06-30 02:25 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/88879.shtml)
-- 2026-06-30 02:29 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/60611562.shtml)
+- 2026-06-30 02:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/5012010.shtml)
+- 2026-06-30 02:46 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/8743180138.shtml)
+- 2026-06-30 02:27 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/078632904417.shtml)
+- 2026-06-30 02:45 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/19408311767.shtml)
+- 2026-06-30 02:30 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/67578673145.shtml)
+- 2026-06-30 02:24 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/63613.shtml)
+- 2026-06-30 02:46 - [急先锋](https://www.blog.kurohicncr.top/Article/details/791004.shtml)
+- 2026-06-30 02:33 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/5132734.shtml)
+- 2026-06-30 02:24 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/7437505596.shtml)
+- 2026-06-30 02:42 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/218219.shtml)
+- 2026-06-30 02:46 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/26752.shtml)
+- 2026-06-30 02:21 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/85061853303.shtml)
+- 2026-06-30 02:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/9896773203.shtml)
+- 2026-06-30 02:21 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/799140369.shtml)
+- 2026-06-30 02:19 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/021221624307.shtml)

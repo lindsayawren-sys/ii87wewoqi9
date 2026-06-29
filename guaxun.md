@@ -1,59 +1,57 @@
-# 体验经济蓬勃发展 “五一”假期文旅消费呈现新亮点
+# 韩国饲料原料采购团体MFG招标购入6.6万吨玉米
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:32 UTC+8
 
 ## 摘要
 
-新华社上海5月6日电(记者陈爱平)今年劳动节假期，部分省市放春假提前预热“假日经济”，传统热门目的地客流量持续增长，曾经的“小众目的地”成为“新宠”。满足人们多元需求、提供快乐情绪的“体验经济”蓬勃发展。多方数据显示今年劳动节文旅市场人气足、消费旺。同程旅行有关负责人介绍，今年劳动节假期北京、上海、广州、南京、杭州、重庆等热门目的地，酒店预订热度同比增长超四成，文旅产品预订热度
+据欧洲贸易商5月12日消息，韩国主要饲料原料采购团体（MFG）于当日举行的国际招标中，购入约6.6万吨动物饲料用玉米。 据悉，该批谷物由跨国粮商艾地盟（ADM）供应，预计产自南美或南非地区，计划于今年9月运抵韩国。在交易价格方面，成交价估算为每吨277.93美元（C&F，成本加运费），另需支付每吨1.50美元的港口卸货附加费。 相关统计显示，MFG本次招标原计划采购最高210，
 
 ## 正文
 
-新华社上海5月6日电(记者陈爱平)今年劳动节假期，部分省市放春假提前预热“假日经济”，传统热门目的地客流量持续增长，曾经的“小众目的地”成为“新宠”。
+据欧洲贸易商5月12日消息，韩国主要饲料原料采购团体（MFG）于当日举行的国际招标中，购入约6.6万吨动物饲料用玉米。
 
-满足人们多元需求、提供快乐情绪的“体验经济”蓬勃发展。
+据悉，该批谷物由跨国粮商艾地盟（ADM）供应，预计产自南美或南非地区，计划于今年9月运抵韩国。
 
-多方数据显示今年劳动节文旅市场人气足、消费旺。
+在交易价格方面，成交价估算为每吨277.93美元（C&F，成本加运费），另需支付每吨1.50美元的港口卸货附加费。
 
-同程旅行有关负责人介绍，今年劳动节假期北京、上海、广州、南京、杭州、重庆等热门目的地，酒店预订热度同比增长超四成，文旅产品预订热度同比增长超八成。
+相关统计显示，MFG本次招标原计划采购最高210，000吨玉米，但最终仅达成上述6.6万吨协议。
 
-上海市文化和旅游局最新数据显示，假期五天上海接待了游客1690.16万人次，同比增长2.43%。
+市场分析人士指出，目前尚无更多成交报告，最终采购规模及价格评估仍可能随市场波动进一步调整。
 
-上海推出文博美展、文娱演出和特色文旅活动200余场，又与2026上海国际花卉节、2026上海国际咖啡文化节、第七届上海“五五购物节”、2026上海邮轮文化旅游季等联动，旅游消费总金额为215.10亿元。
-
-无独有偶，多个热门目的地通过热门赛事、演唱会、展览等做强“票根经济”，带给人们丰富多元的假日体验。
-
-假期里，“苏超”“粤超”“闽超”等热门赛事及大型演唱会的举办地，景区门票、酒店订单等均呈现明显的同比增长。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-30 02:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 02:40 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 02:33 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 02:27 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 02:23 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 02:33 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 02:17 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 02:21 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 02:22 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 02:40 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 02:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 02:41 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 02:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 02:38 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 02:31 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 02:47 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 02:36 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 02:40 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 02:47 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 02:20 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 02:33 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 02:28 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 02:36 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 02:41 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 02:46 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 02:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 02:27 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 02:39 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/521079552721.shtml)
-- 2026-06-30 02:29 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/962984725.shtml)
-- 2026-06-30 02:21 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/57913303435.shtml)
-- 2026-06-30 02:18 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/0642785.shtml)
-- 2026-06-30 02:18 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/771913357.shtml)
-- 2026-06-30 02:28 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/196745019.shtml)
-- 2026-06-30 02:17 - [世界杯](https://www.share.kurohicncr.top/Article/details/953178494170.shtml)
-- 2026-06-30 02:36 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/828103978.shtml)
-- 2026-06-30 02:19 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/816826347337.shtml)
-- 2026-06-30 02:34 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/7944968.shtml)
-- 2026-06-30 02:28 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/61679665.shtml)
-- 2026-06-30 02:23 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/64752389385.shtml)
-- 2026-06-30 02:26 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/518391870.shtml)
-- 2026-06-30 02:17 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/20071087.shtml)
-- 2026-06-30 02:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/487442.shtml)
+- 2026-06-30 02:22 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/457898647.shtml)
+- 2026-06-30 02:42 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/4013035768.shtml)
+- 2026-06-30 02:30 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/33966599440.shtml)
+- 2026-06-30 02:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/719536724520.shtml)
+- 2026-06-30 02:40 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/94063.shtml)
+- 2026-06-30 02:21 - [刘念回应](https://www.share.kurohicncr.top/Article/details/3978503366.shtml)
+- 2026-06-30 02:21 - [美股](http://www.share.minike.top/Article/details/1785366355.shtml)
+- 2026-06-30 02:29 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/608428837.shtml)
+- 2026-06-30 02:32 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/96225.shtml)
+- 2026-06-30 02:36 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/779729.shtml)
+- 2026-06-30 02:39 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/3714730.shtml)
+- 2026-06-30 02:45 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/9678314.shtml)
+- 2026-06-30 02:35 - [第一炉香](https://www.blog.minike.top/Article/details/1463388886.shtml)
+- 2026-06-30 02:46 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/0465395156.shtml)
+- 2026-06-30 02:35 - [这一刀 会很帅](http://www.share.minike.top/Article/details/153764.shtml)

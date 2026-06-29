@@ -1,56 +1,54 @@
-# 港股通创新药回调蓄力，520880连日获亿元级净申购！机构：创新主线仍是医药板块最核心机会
+# 诺比侃早盘反弹超18% 公司称对恒信东方有关事件并不知情
 
-> 更新时间：2026-06-30 02:42:02 UTC+8
+> 更新时间：2026-06-30 02:49:33 UTC+8
 
 ## 摘要
 
-5月8日早盘，港股医药大面积回调，100%创新药研发标的——港股通创新药ETF华宝（520880）现跌0.8%，医疗核心资产——港股通医疗ETF华宝（159137）跌逾1.5%。 值得关注的是，港股通创新药ETF华宝（520880）场内延续较高溢价，显示买盘资金仍高度活跃，此前两日，520880连续获大额资金净申购，合计吸金超2.58亿元！ 成份股方面，创新药龙头多股调整，康方
+诺比侃（02635）早盘反弹超18%，昨日收跌14.42%。截至发稿，股价上涨18.09%，现报19.91港元，成交额3.55亿港元。 诺比侃公布，于近日注意到供应商之一恒信东方文化收到中国证监会北京监管局下发行政处罚决定书，当中载有与该集团相关内容。该集团澄清，与恒信东方之间仅有过一般业务往来，对有关虚增营业收入事件并不知情；双方过往交易为真实、有效，均已根据集团会计程序及政
 
 ## 正文
 
-5月8日早盘，港股医药大面积回调，100%创新药研发标的——港股通创新药ETF华宝（520880）现跌0.8%，医疗核心资产——港股通医疗ETF华宝（159137）跌逾1.5%。
+诺比侃（02635）早盘反弹超18%，昨日收跌14.42%。
 
-值得关注的是，港股通创新药ETF华宝（520880）场内延续较高溢价，显示买盘资金仍高度活跃，此前两日，520880连续获大额资金净申购，合计吸金超2.58亿元！
+截至发稿，股价上涨18.09%，现报19.91港元，成交额3.55亿港元。
 
-成份股方面，创新药龙头多股调整，康方生物跌逾2%，信达生物、石药集团、翰森制药均跌逾1%。
+诺比侃公布，于近日注意到供应商之一恒信东方文化收到中国证监会北京监管局下发行政处罚决定书，当中载有与该集团相关内容。
 
-一季报业绩高增，百济神州逆市五连涨。
+该集团澄清，与恒信东方之间仅有过一般业务往来，对有关虚增营业收入事件并不知情；双方过往交易为真实、有效，均已根据集团会计程序及政策妥善入帐；以及经查询后，董事会确认集团近期股价波动与有关事件之间并无关联，且并无任何根据上市规则及证券及期货条例须予披露的内幕消息。
 
-华福证券最新研报认为，创新主线后续仍是医药板块最重点机会方向，推荐持续积极关注。
+公告指出，相关内容指，在2022年，恒信东方与该集团开展算力系统集成及技术服务业务，向该集团销售软件。
 
-创新药板块得益于商业化初期快速放量和BD收益，2026年Q1营业收入继续保持高速增长。
+恒信东方从事该业务时不具有对商品的控制权，在知悉该业务交易模式的情形下，仍采用总额法确认收入，不符合企业会计准则相关规定，导致恒信东方披露的2022年年度报告存在虚假记载，2022年虚增营业收入约1.8亿元，占当期披露营业收入的37.12%。
 
-全年策略而言，创新药建议优先配置，重点关注具有BD出海潜力或已经实现BD的精选个股、商业化放量有望超预期的标的、前沿技术平台如基因治疗、小核酸、通用/体内CART等弹性主题。
-
-逢跌吸纳港股医药核心资产，关注两大T+0利器： 投纯粹创新药，认准港股通创新药ETF华宝（520880），100%布局创新药研发类公司，前十大权重股占比超七成，龙头属性突出。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:22 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 02:41 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 02:29 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 02:16 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 02:15 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-30 02:14 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 02:14 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 02:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 02:31 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 02:29 - [孙兴慜道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 02:47 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 02:40 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 02:30 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 02:20 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 02:48 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 02:49 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 02:47 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 02:26 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 02:22 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 02:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:38 - [青春环游记第三季](http://www.blog.minike.top/Article/details/591540.shtml)
-- 2026-06-30 02:36 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/8659730.shtml)
-- 2026-06-30 02:15 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/47282.shtml)
-- 2026-06-30 02:39 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/312685040.shtml)
-- 2026-06-30 02:34 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/948433654047.shtml)
-- 2026-06-30 02:19 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/2326862475.shtml)
-- 2026-06-30 02:14 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/494542021956.shtml)
-- 2026-06-30 02:27 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/306872.shtml)
-- 2026-06-30 02:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/8502798.shtml)
-- 2026-06-30 02:15 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/9145085.shtml)
-- 2026-06-30 02:16 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/2929206.shtml)
-- 2026-06-30 02:24 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/91158302280.shtml)
-- 2026-06-30 02:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/811267870796.shtml)
-- 2026-06-30 02:28 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/570175436.shtml)
-- 2026-06-30 02:36 - [毒液2](http://www.share.minike.top/Article/details/12436261923.shtml)
+- 2026-06-30 02:46 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/38910995991.shtml)
+- 2026-06-30 02:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/00393.shtml)
+- 2026-06-30 02:32 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/07120206.shtml)
+- 2026-06-30 02:23 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/754361037428.shtml)
+- 2026-06-30 02:47 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/46704.shtml)
+- 2026-06-30 02:32 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/98210.shtml)
+- 2026-06-30 02:33 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/28995.shtml)
+- 2026-06-30 02:36 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/6329487742.shtml)
+- 2026-06-30 02:45 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/66662257.shtml)
+- 2026-06-30 02:48 - [月亮](https://www.share.kurohicncr.top/Article/details/36873422.shtml)
+- 2026-06-30 02:49 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/166822004.shtml)
+- 2026-06-30 02:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/549874.shtml)
+- 2026-06-30 02:19 - [金刚川](http://www.blog.minike.top/Article/details/883196748899.shtml)
+- 2026-06-30 02:31 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/89984442.shtml)
+- 2026-06-30 02:29 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/48338742731.shtml)
