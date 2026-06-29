@@ -1,58 +1,57 @@
-# 以色列再次发动袭击！巴基斯坦突发连环爆炸！伊朗：正在做两手准备！原油怎么走
+# 上海市第一中级人民法院对被告人赵雨蝶虐待、故意伤害案一审宣判
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-期货日报 大家好，来看一下最新消息。 以色列再次袭击黎巴嫩南部奈拜提耶 据新华社援引黎巴嫩真主党旗下灯塔电视台20日报道，以色列炮击并空袭了黎巴嫩南部奈拜提耶地区哈布什镇，并对附近一个城镇发动空袭。 以色列空袭黎南部致至少5人死亡 据新华社援引黎巴嫩国家通讯社20日报道，以色列当天凌晨开始对黎南部奈拜提耶地区发动多轮空袭，已造成至少5人死亡。 伊朗称不信任美国 正在做两手准备
+中新网4月21日电 据“上海一中法院”微信公众号消息，2026年4月21日10时，上海市第一中级人民法院依法对上海市人民检察院第一分院指控被告人赵雨蝶犯虐待罪、故意伤害罪一案公开宣判：对被告人赵雨蝶以虐待罪判处有期徒刑二年；以故意伤害罪判处死刑，缓期二年执行，剥夺政治权利终身，决定执行死刑，缓期二年执行，剥夺政治权利终身。经法院审理查明：2024年7月至8月23日，被告人赵雨蝶
 
 ## 正文
 
-期货日报 大家好，来看一下最新消息。
+中新网4月21日电 据“上海一中法院”微信公众号消息，2026年4月21日10时，上海市第一中级人民法院依法对上海市人民检察院第一分院指控被告人赵雨蝶犯虐待罪、故意伤害罪一案公开宣判：对被告人赵雨蝶以虐待罪判处有期徒刑二年；以故意伤害罪判处死刑，缓期二年执行，剥夺政治权利终身，决定执行死刑，缓期二年执行，剥夺政治权利终身。
 
-以色列再次袭击黎巴嫩南部奈拜提耶 据新华社援引黎巴嫩真主党旗下灯塔电视台20日报道，以色列炮击并空袭了黎巴嫩南部奈拜提耶地区哈布什镇，并对附近一个城镇发动空袭。
+经法院审理查明：2024年7月至8月23日，被告人赵雨蝶在与男友黄某理及黄某理儿子即被害人黄某某共同生活期间，以黄某某顽皮不听话等为由，频繁采用殴打背部、臀部、腿部等处及牙咬腿部等方式实施虐待。
 
-以色列空袭黎南部致至少5人死亡 据新华社援引黎巴嫩国家通讯社20日报道，以色列当天凌晨开始对黎南部奈拜提耶地区发动多轮空袭，已造成至少5人死亡。
+同年8月24日傍晚，赵雨蝶在上海市浦东新区一开放式公园内，因不满黄某某乱跑等原因，多次用手拍打黄某某头面部，并用树枝抽打、用脚踢踹黄某某身体其他部位等。
 
-伊朗称不信任美国 正在做两手准备 据央视报道，伊朗议会国家安全和外交政策委员会发言人易卜拉欣·雷扎伊日前表示，黎巴嫩停火问题是伊朗的红线，伊朗不会在相关问题上退让。
+其间，赵雨蝶还将黄某某从河道岸堤下斜坡拎甩至堤面，致黄某某侧身倒地后头部撞击地面。
 
-关于伊美关系，雷扎伊表示，伊朗不信任美国，不会与其实现关系正常化。
+当日20时许，黄某某在家中昏迷倒地，赵雨蝶即将其送至医院抢救。
 
-雷扎伊强调，目前伊美处于敌对状态，伊朗正在为可能的另一场战争做准备，“我们不相信美国人说的话，而是基于自己的考量行事”，并表示伊朗也在采用谈判和外交的选项，将继续与美国进行谈判。
+黄某某因抢救无效于同年9月4日死亡。
 
-巴基斯坦开伯尔-普什图省发生连环爆炸 至少造成7人死亡 据央视报道，根据巴基斯坦警方通报，当地时间20日，巴基斯坦开伯尔-普什图省发生连环爆炸，造成至少7人死亡，另有人员受伤。
+经鉴定，被害人黄某某系钝性外力作用致颅脑损伤，引起中枢神经系统功能障碍死亡；黄某某2024年8月24日晚就诊时体表多处皮肤软组织挫伤已达轻伤一级，其中背部皮肤软组织挫伤达到轻伤一级，面部、胸部皮肤软组织挫伤分别达到轻微伤，左小腿咬伤致皮肤破损达到轻微伤。
 
-当地警方称，安全部队和执法机构已经立即赶到现场收集证据，并对这些事件展开调查。
+2024年8月29日，公安机关在赵雨蝶暂住处将其抓获。
 
 ## 相关推荐
 
-- 2026-06-29 23:53 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 00:16 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 23:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 00:07 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 23:51 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 23:48 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 00:14 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 23:59 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 23:56 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 00:01 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 23:51 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 23:53 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 00:23 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 23:54 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 00:13 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 00:15 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 00:23 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 00:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 23:59 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 00:18 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 00:05 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 00:16 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 00:14 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/49095208.shtml)
-- 2026-06-30 00:07 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/7746039.shtml)
-- 2026-06-30 00:14 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/2261687997.shtml)
-- 2026-06-29 23:51 - [沙丘](http://www.share.kurohicncr.top/Article/details/44516.shtml)
-- 2026-06-30 00:07 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/6782065.shtml)
-- 2026-06-30 00:03 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/9314670.shtml)
-- 2026-06-29 23:54 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/453817163.shtml)
-- 2026-06-30 00:15 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/133619813097.shtml)
-- 2026-06-29 23:54 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/518812148.shtml)
-- 2026-06-29 23:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/02682749.shtml)
-- 2026-06-30 00:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/844404541414.shtml)
-- 2026-06-30 00:17 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/8130759.shtml)
-- 2026-06-29 23:57 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/122476.shtml)
-- 2026-06-30 00:09 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/245318742704.shtml)
-- 2026-06-30 00:17 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/798529.shtml)
+- 2026-06-29 23:58 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/80658209.shtml)
+- 2026-06-30 00:04 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/90370.shtml)
+- 2026-06-30 00:10 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/707104788.shtml)
+- 2026-06-30 00:16 - [女心理师](https://www.share.kurohicncr.top/Article/details/918599.shtml)
+- 2026-06-30 00:11 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/84960.shtml)
+- 2026-06-30 00:23 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/8755504.shtml)
+- 2026-06-30 00:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/15895.shtml)
+- 2026-06-29 23:55 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/09130513.shtml)
+- 2026-06-30 00:17 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/94854264.shtml)
+- 2026-06-30 00:04 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/64985113154.shtml)
+- 2026-06-29 23:55 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/10258.shtml)
+- 2026-06-30 00:16 - [明星大侦探第一季](http://www.share.minike.top/Article/details/925216994.shtml)
+- 2026-06-30 00:11 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/5142388904.shtml)
+- 2026-06-30 00:17 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/824442.shtml)
+- 2026-06-30 00:03 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/35809534976.shtml)

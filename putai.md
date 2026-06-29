@@ -1,61 +1,61 @@
-# 易捷航空董事会拒绝卡斯尔莱克63亿美元收购要约
+# 伊朗称将对美军扣押伊朗商船作出回应
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-根据本次收购方案，接受要约的易捷航空股东每股将获得 625 便士现金，溢价幅度约 59% 此前易捷航空曾表示，卡斯尔莱克选择此时发起收购属于借机抄底，受中东局势影响，公司股价当时正处于阶段性低位。 易捷航空董事会否决了美国投资公司卡斯尔莱克第三次价值 47.4 亿英镑（折合 62.7 亿美元）的收购要约。受中东冲突冲击股价下跌后，这家美国投资机构仍呼吁该英国廉价航空公司的股东支
+中新社北京4月20日电 德黑兰消息：伊朗军方20日称，将对美军19日扣押伊朗商船的行径作出回应并报复。 据美联社报道，美国19日扣押了一艘悬挂伊朗国旗的商船。美方称，该船因越过美国在阿曼湾实施的封锁线而被扣押。 伊朗强烈谴责此举违反停火协议。据伊朗伊斯兰共和国通讯社报道，伊朗军方20日凌晨表示，伊朗武装部队将很快对美军这一武装海盗行径作出回应并报复。 伊朗外交部发言人伊斯梅尔·
 
 ## 正文
 
-根据本次收购方案，接受要约的易捷航空股东每股将获得 625 便士现金，溢价幅度约 59% 此前易捷航空曾表示，卡斯尔莱克选择此时发起收购属于借机抄底，受中东局势影响，公司股价当时正处于阶段性低位。
+中新社北京4月20日电 德黑兰消息：伊朗军方20日称，将对美军19日扣押伊朗商船的行径作出回应并报复。
 
-易捷航空董事会否决了美国投资公司卡斯尔莱克第三次价值 47.4 亿英镑（折合 62.7 亿美元）的收购要约。
+据美联社报道，美国19日扣押了一艘悬挂伊朗国旗的商船。
 
-受中东冲突冲击股价下跌后，这家美国投资机构仍呼吁该英国廉价航空公司的股东支持其将易捷航空私有化的收购计划。
+美方称，该船因越过美国在阿曼湾实施的封锁线而被扣押。
 
-按照收购方案，接受要约的易捷航空股东每股可获得 625 便士现金。
+伊朗强烈谴责此举违反停火协议。
 
-相较于该机构首次披露拟发起收购前、公司 5 月 28 日 394.20 便士的收盘价，本次要约溢价约 59%。
+据伊朗伊斯兰共和国通讯社报道，伊朗军方20日凌晨表示，伊朗武装部队将很快对美军这一武装海盗行径作出回应并报复。
 
-卡斯尔莱克要求易捷航空股东在本周五监管申报截止日期前考量该收购方案，届时收购方需正式对外公布明确的收购意向。
+伊朗外交部发言人伊斯梅尔·巴加埃19日在社交媒体上指出，美国对伊朗港口或海岸线的所谓“封锁”不仅违反了临时停火协议，而且是非法和犯罪行为。
 
-过去一个月内，该机构已先后两次提出收购报价：每股 560 便士、每股 600 便士的要约分别在本周二、上周六遭到拒绝，最新一轮收购要约于上周日被易捷航空董事会否决。
+伊朗伊斯兰革命卫队此前一天表示，由于美国违反停火协议，继续非法封锁伊朗港口，伊朗将关闭霍尔木兹海峡。
 
-易捷航空表示，董事会全体一致否决本次最新要约，理由是该报价仍严重低估了公司自身业务价值与未来发展前景，并建议股东现阶段不要接受本次收购邀约。
+彭博社称，19日全天未观察到有任何船只穿越霍尔木兹海峡。
 
 ## 相关推荐
 
-- 2026-06-29 23:49 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 23:51 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 00:01 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 23:59 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 23:55 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 00:15 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 00:06 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 23:52 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 00:12 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 23:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 00:05 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 00:01 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 23:54 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 00:00 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 23:58 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 00:03 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 00:04 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 23:57 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 00:03 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 23:58 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-30 00:02 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 00:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 00:21 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 00:05 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 23:58 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 00:17 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 00:00 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 00:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 00:14 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 00:16 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:10 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/41856153.shtml)
-- 2026-06-29 23:57 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/076799602043.shtml)
-- 2026-06-30 00:08 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/4674011.shtml)
-- 2026-06-29 23:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/26583228847.shtml)
-- 2026-06-29 23:57 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/249086.shtml)
-- 2026-06-30 00:01 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/414589549334.shtml)
-- 2026-06-30 00:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/489251610078.shtml)
-- 2026-06-30 00:12 - [送你一朵小红花](https://www.blog.minike.top/Article/details/985650.shtml)
-- 2026-06-29 23:55 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/6355757.shtml)
-- 2026-06-29 23:57 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/77578.shtml)
-- 2026-06-29 23:52 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/4044865868.shtml)
-- 2026-06-29 23:49 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/79892.shtml)
-- 2026-06-29 23:54 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/033412.shtml)
-- 2026-06-29 23:51 - [千与千寻](http://www.share.minike.top/Article/details/249858.shtml)
-- 2026-06-30 00:17 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/098935276105.shtml)
+- 2026-06-29 23:57 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/8880071.shtml)
+- 2026-06-30 00:16 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/1627811905.shtml)
+- 2026-06-30 00:08 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/33164.shtml)
+- 2026-06-30 00:03 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/94864.shtml)
+- 2026-06-30 00:12 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/682552017098.shtml)
+- 2026-06-30 00:18 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/686775.shtml)
+- 2026-06-30 00:04 - [周生如故](http://www.share.kurohicncr.top/Article/details/55265.shtml)
+- 2026-06-30 00:07 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/51356296153.shtml)
+- 2026-06-30 00:10 - [《贺子珍》](https://www.share.minike.top/Article/details/8643080.shtml)
+- 2026-06-30 00:09 - [天道](http://www.share.minike.top/Article/details/63672.shtml)
+- 2026-06-30 00:00 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/13458486719.shtml)
+- 2026-06-29 23:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/9778505999.shtml)
+- 2026-06-30 00:01 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/78813727.shtml)
+- 2026-06-30 00:20 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/14088292.shtml)
+- 2026-06-30 00:02 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/4312700035.shtml)

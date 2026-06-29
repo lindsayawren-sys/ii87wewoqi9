@@ -1,47 +1,56 @@
-# 康华医疗将于7月31日派发末期股息每股0.16元
+# “沉默的杀手”肾癌如何防？专家：及时检查 改掉这些坏习惯
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-康华医疗（03689）发布公告，该公司将于2026年7月31日派发末期股息每股0.16元。责任编辑：卢昱君
+因肾癌在疾病的早期阶段，大多数患者并没有明显的临床症状，极易被忽视，所以被称为“沉默的杀手”，血尿、腹部肿块、腰痛为其三大晚期症状。肾癌发生的原因有哪些？如何预防？一起了解。 中国医学科学院肿瘤医院泌尿外科副主任叶雄俊介绍，最好的预防方法是45岁之后进行健康查体。 B超可以发现1厘米以上的肿瘤，并显示肿瘤的位置，同时可以初步判断是否为良性。 如果提示肾脏有占位，可以进一步通过C
 
 ## 正文
 
-康华医疗（03689）发布公告，该公司将于2026年7月31日派发末期股息每股0.16元。
+因肾癌在疾病的早期阶段，大多数患者并没有明显的临床症状，极易被忽视，所以被称为“沉默的杀手”，血尿、腹部肿块、腰痛为其三大晚期症状。
 
-责任编辑：卢昱君
+肾癌发生的原因有哪些？
+
+如何预防？
+
+一起了解。
+
+中国医学科学院肿瘤医院泌尿外科副主任叶雄俊介绍，最好的预防方法是45岁之后进行健康查体。
+
+B超可以发现1厘米以上的肿瘤，并显示肿瘤的位置，同时可以初步判断是否为良性。
+
+如果提示肾脏有占位，可以进一步通过CT或者核磁影像检查确诊到底是不是一个恶性的肾脏肿瘤。
+
+叶雄俊说，肾癌发生主要有三个原因： 遗传。
 
 ## 相关推荐
 
-- 2026-06-30 00:00 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 00:15 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 00:08 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 23:53 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 23:58 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 00:00 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 00:06 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 23:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 00:02 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 00:10 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 23:48 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 23:54 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 23:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 00:12 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 00:22 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 23:55 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 00:09 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 00:02 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 00:14 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 00:18 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 00:03 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 00:18 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 00:02 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:55 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/50634.shtml)
-- 2026-06-30 00:01 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/983092471.shtml)
-- 2026-06-29 23:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/98399660353.shtml)
-- 2026-06-30 00:03 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/598858996.shtml)
-- 2026-06-29 23:59 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/173723.shtml)
-- 2026-06-30 00:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/03508326630.shtml)
-- 2026-06-30 00:15 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/9679297.shtml)
-- 2026-06-30 00:06 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/39616428151.shtml)
-- 2026-06-30 00:13 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/00205705.shtml)
-- 2026-06-30 00:00 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/6219771.shtml)
-- 2026-06-30 00:14 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/50152.shtml)
-- 2026-06-29 23:49 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/804701569.shtml)
-- 2026-06-29 23:48 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/92904193953.shtml)
-- 2026-06-29 23:50 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/85000308098.shtml)
-- 2026-06-30 00:11 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/70268722839.shtml)
+- 2026-06-30 00:07 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/663261.shtml)
+- 2026-06-30 00:12 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/6294180986.shtml)
+- 2026-06-30 00:08 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/6364548.shtml)
+- 2026-06-30 00:04 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/3247095996.shtml)
+- 2026-06-30 00:21 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/521949841.shtml)
+- 2026-06-30 00:11 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/889917327.shtml)
+- 2026-06-29 23:55 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/377397079.shtml)
+- 2026-06-29 23:57 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/509299253.shtml)
+- 2026-06-30 00:22 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/831074291914.shtml)
+- 2026-06-30 00:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/743950575.shtml)
+- 2026-06-30 00:03 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/93296846926.shtml)
+- 2026-06-29 23:56 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/866989252.shtml)
+- 2026-06-30 00:01 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/76322248012.shtml)
+- 2026-06-30 00:09 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/23130.shtml)
+- 2026-06-29 23:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/73383.shtml)

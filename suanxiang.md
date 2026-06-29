@@ -1,53 +1,57 @@
-# 海外华人作家戴小华：中华文化指引“家”的方向
+# 西藏拉萨首部城市管理综合性法规出台 5月1日起施行
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月20日 14:47 来源：中国新闻网 6月19日，出生于台湾的马来西亚华文作家戴小华在北京举行《忽如归》《情随心旅踏歌行》双书分享暨签售会。 戴小华祖籍河北沧州，生在台湾，定居吉隆坡。其纪实文学作品《忽如归》，以母亲逝后归葬河北沧州为叙事起点，追述了一个家庭在动荡岁月中的曲折经历。新书《情随心旅踏歌行》是一部跨越三十年的散文精选集，分为“因为有情”“桑
+中新网拉萨4月21日电 (记者 江飞波) 西藏自治区拉萨市官方20日举行的新闻发布会介绍，《拉萨市城市管理条例》(以下简称《条例》)已于2026年3月30日经西藏自治区第十二届人民代表大会常务委员会第二十二次会议批准，将于2026年5月1日起正式施行。这标志着拉萨市城市治理迈入法治化新阶段。 据悉，该《条例》共四十一条，涵盖了城市管理规定、执法与监督等多方面内容，填补了拉萨市城
 
 ## 正文
 
-发布时间：2026年06月20日 14:47 来源：中国新闻网 6月19日，出生于台湾的马来西亚华文作家戴小华在北京举行《忽如归》《情随心旅踏歌行》双书分享暨签售会。
+中新网拉萨4月21日电 (记者 江飞波) 西藏自治区拉萨市官方20日举行的新闻发布会介绍，《拉萨市城市管理条例》(以下简称《条例》)已于2026年3月30日经西藏自治区第十二届人民代表大会常务委员会第二十二次会议批准，将于2026年5月1日起正式施行。
 
-戴小华祖籍河北沧州，生在台湾，定居吉隆坡。
+这标志着拉萨市城市治理迈入法治化新阶段。
 
-其纪实文学作品《忽如归》，以母亲逝后归葬河北沧州为叙事起点，追述了一个家庭在动荡岁月中的曲折经历。
+据悉，该《条例》共四十一条，涵盖了城市管理规定、执法与监督等多方面内容，填补了拉萨市城市管理领域综合性法规的空白。
 
-新书《情随心旅踏歌行》是一部跨越三十年的散文精选集，分为“因为有情”“桑梓之情”“寰宇风情”三辑。
+拉萨市人大常委会党组成员、秘书长侯静华在发布会上表示，制定该《条例》旨在推动城市结构优化、绿色转型、文脉赓续、治理增效等。
 
-戴小华说，她曾对“何处是家”感到困惑，后来在文化工作中找到答案——家不是一种地域，而是一种精神。
+拉萨市城市管理局副局长秦彦磊指出，《条例》具有前瞻性和实用性，统筹了城市管理各相关领域工作，明确了城管、园林、公安、住建等多部门的职责，有助于打破部门壁垒，形成城市管理工作合力。
 
-(姜姿屹 张杨彬 制作 侯诗蕊) 责任编辑：【罗攀】
+值得关注的是，《条例》充分体现了拉萨作为西藏自治区首府城市的特色。
+
+在规划层面，要求市政基础设施、地下管线等专项规划体现地域文化、民族特色和时代风貌；在生态层面，明确城市绿化应因地制宜，优先选用适合本地自然条件的乡土植物；在管理层面，强调以铸牢中华民族共同体意识为主线。
+
+此外，《条例》还顺应数字化治理趋势，明确市、县(区)人民政府应推动城市治理智慧化和精细化，统筹建设城市运行管理服务平台，健全监测预警与指挥调度体系。
 
 ## 相关推荐
 
-- 2026-06-29 23:59 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 00:01 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 00:01 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 00:12 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-30 00:13 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 23:48 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 00:07 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 00:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 00:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 23:51 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 23:58 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 00:01 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 23:55 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 00:15 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 00:10 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 00:12 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 00:12 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 00:18 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 23:58 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-30 00:13 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 23:58 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 00:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:04 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/619489168652.shtml)
-- 2026-06-30 00:16 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/05115.shtml)
-- 2026-06-30 00:17 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/492764336254.shtml)
-- 2026-06-29 23:58 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/353766118522.shtml)
-- 2026-06-30 00:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/8919551.shtml)
-- 2026-06-30 00:02 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/810246978073.shtml)
-- 2026-06-30 00:09 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/19984098130.shtml)
-- 2026-06-29 23:55 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/41261.shtml)
-- 2026-06-30 00:01 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/3479979081.shtml)
-- 2026-06-30 00:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/93344.shtml)
-- 2026-06-30 00:02 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/402657.shtml)
-- 2026-06-30 00:07 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/5187133183.shtml)
-- 2026-06-30 00:11 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/30505.shtml)
-- 2026-06-30 00:15 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/84510.shtml)
-- 2026-06-29 23:53 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/9432407.shtml)
+- 2026-06-29 23:58 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/4463722293.shtml)
+- 2026-06-30 00:14 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/838488050534.shtml)
+- 2026-06-30 00:20 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/44962.shtml)
+- 2026-06-30 00:03 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/51379226551.shtml)
+- 2026-06-29 23:57 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/58821.shtml)
+- 2026-06-30 00:05 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/3772334902.shtml)
+- 2026-06-30 00:21 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/53329.shtml)
+- 2026-06-29 23:57 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/98270710.shtml)
+- 2026-06-30 00:21 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/0513779898.shtml)
+- 2026-06-30 00:05 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/178581585860.shtml)
+- 2026-06-29 23:57 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/531716153.shtml)
+- 2026-06-29 23:59 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/46632.shtml)
+- 2026-06-30 00:12 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/75413.shtml)
+- 2026-06-30 00:09 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/95030608261.shtml)
+- 2026-06-30 00:15 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/56010640883.shtml)

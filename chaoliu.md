@@ -1,49 +1,53 @@
-# 拾光纪·从“嘀嗒、嘀嗒”声中，听懂坚持党中央集中统一领导
+# 美国的企业关税退款门户网站开放
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-“坚持党中央集中统一领导”是党的领导的最高原则。“战争年代，党中央和毛主席用电台指挥全党全军，‘嘀嗒、嘀嗒’就是党中央和毛主席的声音”，习近平总书记曾用生动例子说明这个道理。日前，总书记给102岁的中央纵队“四大队”报务员张连生回信，强调新时代共产党人要传承红色基因，在新征程上书写优异答卷。
+美国海关边境保护局今日启用一套系统，允许美国进口商就过去一年被非法征收的1660亿美元关税申请退款。 美国的企业现可正式申请退还在美国总统特朗普执政期间“非法”征收的关税。 今年2月，美国最高法院裁定这些关税无效。受此影响的进口商超过30万家，涉及的货物运输超过5300万批次。特朗普曾依据《国际紧急经济权力法》征收了这些关税。责任编辑：李桐
 
 ## 正文
 
-“坚持党中央集中统一领导”是党的领导的最高原则。
+美国海关边境保护局今日启用一套系统，允许美国进口商就过去一年被非法征收的1660亿美元关税申请退款。
 
-“战争年代，党中央和毛主席用电台指挥全党全军，‘嘀嗒、嘀嗒’就是党中央和毛主席的声音”，习近平总书记曾用生动例子说明这个道理。
+美国的企业现可正式申请退还在美国总统特朗普执政期间“非法”征收的关税。
 
-日前，总书记给102岁的中央纵队“四大队”报务员张连生回信，强调新时代共产党人要传承红色基因，在新征程上书写优异答卷。
+今年2月，美国最高法院裁定这些关税无效。
+
+受此影响的进口商超过30万家，涉及的货物运输超过5300万批次。
+
+特朗普曾依据《国际紧急经济权力法》征收了这些关税。
+
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 23:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 00:00 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-30 00:00 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 23:49 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 00:16 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-30 00:04 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 00:07 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 00:00 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 00:03 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 00:12 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 23:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 00:17 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 23:50 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 00:12 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 00:20 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 00:15 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 00:05 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 00:06 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-30 00:16 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 00:03 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 00:00 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 00:08 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 23:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 00:13 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/88226840668.shtml)
-- 2026-06-30 00:09 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/432081680.shtml)
-- 2026-06-30 00:05 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/307645.shtml)
-- 2026-06-29 23:59 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/98462.shtml)
-- 2026-06-30 00:05 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/618037.shtml)
-- 2026-06-30 00:17 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/411900440982.shtml)
-- 2026-06-29 23:57 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/02976818345.shtml)
-- 2026-06-29 23:51 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/03910.shtml)
-- 2026-06-29 23:59 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/481306913661.shtml)
-- 2026-06-29 23:52 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/378836840.shtml)
-- 2026-06-29 23:53 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/81209436521.shtml)
-- 2026-06-30 00:13 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/1343394162.shtml)
-- 2026-06-30 00:03 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/685197659.shtml)
-- 2026-06-30 00:07 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/78630.shtml)
-- 2026-06-29 23:49 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/473622476826.shtml)
+- 2026-06-29 23:58 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/48133732381.shtml)
+- 2026-06-30 00:17 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/99098.shtml)
+- 2026-06-30 00:07 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/63631845335.shtml)
+- 2026-06-29 23:55 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/99471559.shtml)
+- 2026-06-30 00:14 - [第一炉香](http://www.share.minike.top/Article/details/1918617.shtml)
+- 2026-06-30 00:18 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/3962802.shtml)
+- 2026-06-30 00:23 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/891934.shtml)
+- 2026-06-30 00:13 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/34683816878.shtml)
+- 2026-06-29 23:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/3375526190.shtml)
+- 2026-06-30 00:18 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/66706342128.shtml)
+- 2026-06-30 00:12 - [一生一世](http://www.blog.kurohicncr.top/Article/details/41800984632.shtml)
+- 2026-06-30 00:21 - [美人鱼](http://www.share.kurohicncr.top/Article/details/184546505.shtml)
+- 2026-06-30 00:16 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/57878.shtml)
+- 2026-06-30 00:04 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/53712.shtml)
+- 2026-06-30 00:21 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/1601812.shtml)

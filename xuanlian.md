@@ -1,52 +1,52 @@
-# 本周已有11艘油轮运载2000万桶原油驶离伊朗港口
+# “爱奇艺疯了”冲上热搜第一，CEO独家回应
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-伊朗正在运输大量此前因美国封锁而无法外运的石油，在周三与华盛顿签署临时和平协议后，可能为其带来提振。 航运数据显示，本周共发现有11艘油轮离开伊朗位于阿曼湾的恰巴哈尔港，合计运载2000万桶原油。美军此前阻止这些船只驶入印度洋，这是其限制德黑兰获取石油美元努力的一部分。 与此同时，伊朗仍在继续努力控制哪些船只可以通过霍尔木兹海峡以及如何通行。伊朗为监管通行而设立的波斯湾国家管理
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者：刘佳 4月20日，爱奇艺公布有超百名艺人同意入驻爱奇艺专业级影视制作平台纳逗Pro的艺人库，很快“爱奇艺疯了”登上微博热搜第一，有用户质疑平台没有经过艺人AI授权生成了AI视频内容，还有多位艺人否认签约AI相关授权。 今日下午，爱奇艺CEO龚宇在接受第一财经独家采访时回应争议，表示爱奇艺纳逗艺人库列出
 
 ## 正文
 
-伊朗正在运输大量此前因美国封锁而无法外运的石油，在周三与华盛顿签署临时和平协议后，可能为其带来提振。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-航运数据显示，本周共发现有11艘油轮离开伊朗位于阿曼湾的恰巴哈尔港，合计运载2000万桶原油。
+记者：刘佳 4月20日，爱奇艺公布有超百名艺人同意入驻爱奇艺专业级影视制作平台纳逗Pro的艺人库，很快“爱奇艺疯了”登上微博热搜第一，有用户质疑平台没有经过艺人AI授权生成了AI视频内容，还有多位艺人否认签约AI相关授权。
 
-美军此前阻止这些船只驶入印度洋，这是其限制德黑兰获取石油美元努力的一部分。
+今日下午，爱奇艺CEO龚宇在接受第一财经独家采访时回应争议，表示爱奇艺纳逗艺人库列出的艺人，只是表示有意愿参与AI制作，并不是这些艺人已经同意了某一个AI项目的制作，此外该艺人库没有某些媒体提到的张若昀和于和伟等。
 
-与此同时，伊朗仍在继续努力控制哪些船只可以通过霍尔木兹海峡以及如何通行。
+他表示，爱奇艺纳逗Pro的商业模式是原则上尽可能把现实的艺人经纪公司、制作项目之前的关系丝滑地平移到AI制作上，艺人对一个项目的角色拥有决策权。
 
-伊朗为监管通行而设立的波斯湾国家管理局在其网站发布的一份文件中表示，航运企业必须遵循其指定航线，并规定了船舶通过时可能面临通行费。
-
-责任编辑：丁文武
+责任编辑：张乔松
 
 ## 相关推荐
 
-- 2026-06-29 23:48 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 00:17 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 23:50 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 23:54 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 23:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 00:09 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 23:54 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 00:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 00:05 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 00:09 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 00:05 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 00:18 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 00:21 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 00:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 00:03 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 00:12 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 23:56 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 00:19 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 00:12 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 00:11 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 23:56 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 00:05 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:14 - [刘念回应](http://www.share.minike.top/Article/details/4621114185.shtml)
-- 2026-06-30 00:01 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/162163569405.shtml)
-- 2026-06-30 00:06 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/401728697.shtml)
-- 2026-06-30 00:03 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/615137398.shtml)
-- 2026-06-30 00:06 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/596052220071.shtml)
-- 2026-06-29 23:50 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/010728469.shtml)
-- 2026-06-30 00:14 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/8728440748.shtml)
-- 2026-06-29 23:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/680190.shtml)
-- 2026-06-29 23:56 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/731770541.shtml)
-- 2026-06-30 00:13 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/9050412378.shtml)
-- 2026-06-29 23:53 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/2553311.shtml)
-- 2026-06-30 00:16 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/01088436.shtml)
-- 2026-06-30 00:08 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/617332.shtml)
-- 2026-06-29 23:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/3045621.shtml)
-- 2026-06-30 00:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/5152593738.shtml)
+- 2026-06-30 00:12 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/16511646025.shtml)
+- 2026-06-30 00:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/1031908439.shtml)
+- 2026-06-30 00:01 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/6693126318.shtml)
+- 2026-06-30 00:10 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/5957065.shtml)
+- 2026-06-30 00:10 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/04120.shtml)
+- 2026-06-30 00:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/3891276211.shtml)
+- 2026-06-30 00:23 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/6388767.shtml)
+- 2026-06-30 00:13 - [欧洲缘何成为变暖最快的大洲](http://www.share.minike.top/Article/details/0498156089.shtml)
+- 2026-06-30 00:06 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/619501274.shtml)
+- 2026-06-29 23:58 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/35029836.shtml)
+- 2026-06-30 00:13 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/142811920652.shtml)
+- 2026-06-30 00:10 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/912507.shtml)
+- 2026-06-30 00:12 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/07372163697.shtml)
+- 2026-06-30 00:06 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/312855.shtml)
+- 2026-06-29 23:59 - [恋与深空致歉](https://www.blog.minike.top/Article/details/321843.shtml)

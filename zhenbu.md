@@ -1,58 +1,61 @@
-# 日媒揭露侵华日军疑进行动物血液输入人体实验 网友：丧失人性
+# 特朗普：如未能达成协议 极不可能延长停火期限
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新网6月22日电 据日本共同社20日报道，日军在侵华战争期间召开的会议上，军医学校的教官曾汇报反复进行将动物血液注入人体的“异种输血”实验情况。 报道称，这些实验疑似在中国进行，其名义上是研究如何在战场上应对大量输血的情况，但报道指出，日本军部在战败投降时曾试图销毁人体实验的证据，而共同社发现在官方组织“陆军军医团”的杂志中存在相关记录。 记录显示，实验对象为性别、年龄、国籍
+中新网4月21日电 据彭博社20日报道，美国总统特朗普称，他不太可能延长与伊朗达成的为期两周的停火协议。报道指出，这加大了谈判代表尽快达成协议、结束冲突的紧迫性。 特朗普在20日的一次电话采访中表示，他于7日宣布的停火协议将于“华盛顿时间22日晚间”到期——这可能为谈判争取到更多时间。但他同时也表示，如果届时未能达成协议，他“极不可能延长停火期限”。 “我不会仓促达成一项糟糕的
 
 ## 正文
 
-中新网6月22日电 据日本共同社20日报道，日军在侵华战争期间召开的会议上，军医学校的教官曾汇报反复进行将动物血液注入人体的“异种输血”实验情况。
+中新网4月21日电 据彭博社20日报道，美国总统特朗普称，他不太可能延长与伊朗达成的为期两周的停火协议。
 
-报道称，这些实验疑似在中国进行，其名义上是研究如何在战场上应对大量输血的情况，但报道指出，日本军部在战败投降时曾试图销毁人体实验的证据，而共同社发现在官方组织“陆军军医团”的杂志中存在相关记录。
+报道指出，这加大了谈判代表尽快达成协议、结束冲突的紧迫性。
 
-记录显示，实验对象为性别、年龄、国籍不详的23人。
+特朗普在20日的一次电话采访中表示，他于7日宣布的停火协议将于“华盛顿时间22日晚间”到期——这可能为谈判争取到更多时间。
 
-该实验违背伦理，包括向人体内大量输入马血这种因可能出现排斥反应而被认为违反常识的行为，以及在手术中阻断颈部血流后注射血清等与治疗无关的处置。
+但他同时也表示，如果届时未能达成协议，他“极不可能延长停火期限”。
 
-上述会议于1940年3月召开，名为“陆军军阵医药学研究会”。
+“我不会仓促达成一项糟糕的协议。
 
-当时的陆军省医务局局长及众多军医军官、药剂军官参加了会议。
+我们有的是时间。
 
-该报道在日本社交媒体引发了激烈讨论，大量日本网友表示这一系列人体实验的恶行“极其卑劣”“丧失人性”。
+”特朗普补充说。
 
-还有日本网友表示，“在得知曾经发生过这样的实验后，心理受到了巨大冲击”，并表示“难以想象当时的实验对象及其家人有多么痛苦”，“不能忘记中国等国曾在战争中受过深深伤害的这段历史”。
+他还称，协议达成前，不会停止对伊朗的海上封锁。
 
 ## 相关推荐
 
-- 2026-06-30 00:17 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 23:53 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 23:51 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 00:04 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 00:08 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 00:04 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 00:02 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 00:12 - [刘宇宁 好听](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 00:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 00:03 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 00:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 23:53 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 00:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 00:16 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 23:55 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 00:22 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 00:14 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 00:10 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 00:19 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 00:22 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 00:14 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 00:11 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 00:10 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-30 00:08 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 00:15 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 00:05 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 00:06 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:17 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/782682419.shtml)
-- 2026-06-29 23:54 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/094762.shtml)
-- 2026-06-29 23:54 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/6750253.shtml)
-- 2026-06-30 00:15 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/125703.shtml)
-- 2026-06-29 23:51 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/31456.shtml)
-- 2026-06-30 00:16 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/475618588791.shtml)
-- 2026-06-30 00:13 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/5216767114.shtml)
-- 2026-06-29 23:50 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/30102199175.shtml)
-- 2026-06-30 00:16 - [这一刀 会很帅](http://www.share.minike.top/Article/details/58160659.shtml)
-- 2026-06-30 00:13 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/394938830463.shtml)
-- 2026-06-30 00:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/520200.shtml)
-- 2026-06-30 00:01 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/34193222474.shtml)
-- 2026-06-29 23:50 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/021296365417.shtml)
-- 2026-06-29 23:54 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/102208807.shtml)
-- 2026-06-30 00:06 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/950341326906.shtml)
+- 2026-06-30 00:06 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/967544892.shtml)
+- 2026-06-30 00:06 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/61188432.shtml)
+- 2026-06-30 00:01 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/4662503.shtml)
+- 2026-06-29 23:58 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/343409134.shtml)
+- 2026-06-29 23:59 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/176158319.shtml)
+- 2026-06-30 00:07 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/9813493069.shtml)
+- 2026-06-30 00:17 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/10474992607.shtml)
+- 2026-06-30 00:08 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/565871787090.shtml)
+- 2026-06-30 00:21 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/5063492.shtml)
+- 2026-06-30 00:10 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/38230482.shtml)
+- 2026-06-30 00:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/925192685.shtml)
+- 2026-06-30 00:01 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/722775869992.shtml)
+- 2026-06-30 00:13 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/558835.shtml)
+- 2026-06-30 00:13 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/312774687.shtml)
+- 2026-06-30 00:23 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/38150155.shtml)

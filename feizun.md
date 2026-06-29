@@ -1,58 +1,57 @@
-# 688143，核查完成，明天复牌！曾大涨超200%！
+# 股海导航_2026年4月20日_沪深股市公告与交易提示
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！长盈通（688143）6月22日晚公告，近期，公司就股票交易风险的相关事项进行了核查。鉴于相关核查工作已完成，经公司向上交所申请，公司股票将于6月23日（星期二）开市起复牌。 长盈通专业从事光纤陀螺核心器件光纤环及其综合解决方案研发、生产、销售和服务，主要产品为光纤环器件、特种光纤、新型材料、高端装备、特种
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【停牌】 002542 中化岩土（维权） 300123 亚光科技 300807 天迈科技 600958 东方证券 603007 *ST花王 688270 臻镭科技（维权） 688511 *ST天微 【复牌】 600358 国旅联合（维权） 6
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-长盈通（688143）6月22日晚公告，近期，公司就股票交易风险的相关事项进行了核查。
+【停牌】 002542 中化岩土（维权） 300123 亚光科技 300807 天迈科技 600958 东方证券 603007 *ST花王 688270 臻镭科技（维权） 688511 *ST天微 【复牌】 600358 国旅联合（维权） 603268 松发股份 【品大事】 东方证券：拟收购上海证券100%股权明起停牌 东方证券公告，公司正在筹划通过发行A股股份及支付现金的方式收购上海证券有限责任公司100%股权。
 
-鉴于相关核查工作已完成，经公司向上交所申请，公司股票将于6月23日（星期二）开市起复牌。
+鉴于该事项存在不确定性，为维护投资者利益，避免股价异常波动，公司A股股票将于4月20日开市起停牌，预计停牌时间不超过10个交易日。
 
-长盈通专业从事光纤陀螺核心器件光纤环及其综合解决方案研发、生产、销售和服务，主要产品为光纤环器件、特种光纤、新型材料、高端装备、特种线缆及其他光器件。
+中色股份：收购Raura公司99.9004%股权已经完成交割 中色股份公告，此前公告，全资子公司中色新加坡拟以1.06亿美元收购Breca公司及其关联人持有的Compaía Minera Raura S.A．（以下简称“Raura公司”）普通股及投资股合计约99.9004%股权。
 
-2026年一季度，公司营业利润为663.54万元，同比下滑29.38%，利润总额为662.86万元，归属于母公司所有者的净利润为589.87万元，同比下滑28.72%。
+本次交易已经完成国家相关主管部门备案以及秘鲁政府反垄断审批，中色新加坡已经根据《交易协议》的约定支付了交易价款。
 
-公司目前整体经营规模较小，抵御市场波动和行业变化的能力仍相对有限。
+秘鲁时间2026年4月17日，本次交易已经完成交割，中色新加坡持有Raura公司99.9004%股权，Raura公司将纳入公司合并报表范围内。
 
-虽然如此，2026年5月6日至6月16日，公司股票区间累计上涨幅度却达到249.36%，而同期申万国防军工行业下跌9.15%，上证A指下跌0.49%。
+信立泰：JK06境外临床试验展现出良好的安全性和疗效 信立泰公告，公司收到子公司美国Salubris Biotherapeutics，Inc．（简称“Salubris Bio”）的通知，其在美国癌症研究协会（AACR）2026年年会上公布了JK06的1/2期扩展队列数据。
 
-公司股票短期涨幅高于同期行业及上证指数涨幅，存在市场情绪过热及非理性炒作的情形。
+数据进一步展现出，JK06在包括非小细胞肺癌（NSCLC）和乳腺癌在内的不可切除的局部晚期或转移性肿瘤患者中，展现出良好的安全性和疗效。
 
 ## 相关推荐
 
-- 2026-06-29 23:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 23:58 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 23:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 00:14 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 00:05 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 23:56 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 23:52 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 00:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 23:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 23:55 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 00:09 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 00:06 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 23:58 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 00:05 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 00:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 00:06 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 00:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 23:57 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 00:02 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 23:55 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 00:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 00:13 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 23:55 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/4976623.shtml)
-- 2026-06-29 23:51 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/668937.shtml)
-- 2026-06-29 23:50 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/66288.shtml)
-- 2026-06-29 23:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/8837571100.shtml)
-- 2026-06-29 23:57 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/1423075.shtml)
-- 2026-06-30 00:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/89627474.shtml)
-- 2026-06-30 00:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/4986070901.shtml)
-- 2026-06-30 00:11 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/6704581412.shtml)
-- 2026-06-30 00:07 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/67521119403.shtml)
-- 2026-06-29 23:53 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/3998348335.shtml)
-- 2026-06-29 23:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/2699167382.shtml)
-- 2026-06-29 23:53 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/98525488.shtml)
-- 2026-06-30 00:16 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/86238500988.shtml)
-- 2026-06-30 00:05 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/7670707.shtml)
-- 2026-06-30 00:16 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/1769404.shtml)
+- 2026-06-29 23:58 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/83214121539.shtml)
+- 2026-06-29 23:59 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/34274977883.shtml)
+- 2026-06-29 23:56 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/227567099595.shtml)
+- 2026-06-30 00:10 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/98349.shtml)
+- 2026-06-30 00:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/70578047.shtml)
+- 2026-06-30 00:13 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/271064.shtml)
+- 2026-06-30 00:16 - [《贺子珍》](https://www.share.minike.top/Article/details/087665.shtml)
+- 2026-06-30 00:13 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/1626835127.shtml)
+- 2026-06-30 00:00 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/721571.shtml)
+- 2026-06-30 00:10 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/51439732.shtml)
+- 2026-06-30 00:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/1672693403.shtml)
+- 2026-06-30 00:14 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/27110956812.shtml)
+- 2026-06-30 00:09 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/964271.shtml)
+- 2026-06-30 00:23 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/3587597425.shtml)
+- 2026-06-30 00:23 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/31271.shtml)

@@ -1,59 +1,61 @@
-# 龙蟠科技午前涨近11% 磷酸铁锂价格翻倍需求依然旺盛
+# 凯撒娱乐延长与费尔蒂塔的收购谈判期
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-龙蟠科技（02465）午前涨超10%，截至发稿，股价上涨10.78%，现报13.67港元，成交额2.54亿港元。 据央视财经报道，磷酸铁、磷酸铁锂是新能源和储能电池的重要原材料，今年以来价格一路走高，市场热度居高不下。记者了解到，一包约400公斤的磷酸铁锂，现在的价格超过25000元，一年前的价格仅有10000元。尽管价格已翻倍，但需求依然旺盛。 龙蟠科技此前公布，拟在印度尼西
+凯撒娱乐已延长与亿万富翁蒂尔曼·费尔蒂塔就潜在收购进行的独家谈判期。费尔蒂塔身兼美国驻意大利及圣马力诺大使，也是费尔蒂塔娱乐公司的所有者。 据知情人士透露，这笔交易对凯撒娱乐的估值约为180亿美元。费尔蒂塔提出的报价为每股32美元，同时将承担凯撒娱乐超过110亿美元的债务。 此次谈判延长前，凯撒娱乐股价一直承压。拉斯维加斯游客量下降影响了该市度假村、酒店和赌场的收入，凯撒娱乐在
 
 ## 正文
 
-龙蟠科技（02465）午前涨超10%，截至发稿，股价上涨10.78%，现报13.67港元，成交额2.54亿港元。
+凯撒娱乐已延长与亿万富翁蒂尔曼·费尔蒂塔就潜在收购进行的独家谈判期。
 
-据央视财经报道，磷酸铁、磷酸铁锂是新能源和储能电池的重要原材料，今年以来价格一路走高，市场热度居高不下。
+费尔蒂塔身兼美国驻意大利及圣马力诺大使，也是费尔蒂塔娱乐公司的所有者。
 
-记者了解到，一包约400公斤的磷酸铁锂，现在的价格超过25000元，一年前的价格仅有10000元。
+据知情人士透露，这笔交易对凯撒娱乐的估值约为180亿美元。
 
-尽管价格已翻倍，但需求依然旺盛。
+费尔蒂塔提出的报价为每股32美元，同时将承担凯撒娱乐超过110亿美元的债务。
 
-龙蟠科技此前公布，拟在印度尼西亚投资建设“新能源汽车动力与储能电池正极材料规模化生产项目”。
+此次谈判延长前，凯撒娱乐股价一直承压。
 
-项目总投资金额约1.6亿美元，约合人民币10.88亿元，三期项目全面投产后，龙蟠科技印尼基地总产能将从当前的3万吨跃升至12万吨，成为海外规模最大的磷酸铁锂正极材料工厂。
+拉斯维加斯游客量下降影响了该市度假村、酒店和赌场的收入，凯撒娱乐在网络博彩领域也面临FanDuel和DraftKings等更大竞争对手的压力。
 
-责任编辑：卢昱君
+费尔蒂塔计划将其旗下兰德里餐饮集团和金块酒店及赌场与凯撒娱乐合并，打造一个规模更大的博彩业巨头。
+
+根据该方案，收购融资将包括20至30亿美元的股权融资和40至50亿美元的新资产担保借款。
 
 ## 相关推荐
 
-- 2026-06-29 23:50 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 00:01 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 23:52 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 00:16 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 00:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 00:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 00:15 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 23:58 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 00:11 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 00:07 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 00:11 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 00:07 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 23:48 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 23:58 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 23:49 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 00:21 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 00:18 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 23:55 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 00:21 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 23:57 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 00:03 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 00:20 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 00:20 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 00:20 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 00:14 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 00:23 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 00:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 00:23 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 23:58 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 00:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:50 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/936858.shtml)
-- 2026-06-30 00:09 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/269424.shtml)
-- 2026-06-29 23:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/443368086609.shtml)
-- 2026-06-29 23:59 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/10832234659.shtml)
-- 2026-06-29 23:51 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/761349088763.shtml)
-- 2026-06-29 23:52 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/49048.shtml)
-- 2026-06-30 00:16 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/1604173960.shtml)
-- 2026-06-29 23:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/89621.shtml)
-- 2026-06-29 23:53 - [爱很美味](http://www.share.kurohicncr.top/Article/details/2858984.shtml)
-- 2026-06-30 00:14 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/63116900.shtml)
-- 2026-06-29 23:54 - [我们的少年时代2](http://www.share.minike.top/Article/details/165972639.shtml)
-- 2026-06-30 00:01 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/901373378581.shtml)
-- 2026-06-29 23:49 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/213201.shtml)
-- 2026-06-30 00:11 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/813846.shtml)
-- 2026-06-30 00:17 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/72538.shtml)
+- 2026-06-30 00:18 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/57369.shtml)
+- 2026-06-30 00:12 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/596570469452.shtml)
+- 2026-06-30 00:02 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/949240673.shtml)
+- 2026-06-29 23:55 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/48773233107.shtml)
+- 2026-06-30 00:08 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/6625613217.shtml)
+- 2026-06-30 00:21 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/78164545.shtml)
+- 2026-06-30 00:19 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/525171.shtml)
+- 2026-06-30 00:05 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/03061637.shtml)
+- 2026-06-30 00:09 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/82020687.shtml)
+- 2026-06-29 23:55 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/133663.shtml)
+- 2026-06-30 00:11 - [我们的少年时代2](http://www.blog.minike.top/Article/details/90039.shtml)
+- 2026-06-30 00:00 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/587741177.shtml)
+- 2026-06-30 00:11 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/83136056.shtml)
+- 2026-06-30 00:18 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/04547638274.shtml)
+- 2026-06-29 23:54 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/510976.shtml)

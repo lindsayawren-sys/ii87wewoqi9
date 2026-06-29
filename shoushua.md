@@ -1,60 +1,52 @@
-# SpaceX周一盘前股价跌超4%，延续此前抛售行情
+# 打击“囤积居奇” 工信部回应存储器价格上涨
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-核心要点 SpaceX 周一盘前股价跌幅超4%，延续了此前的抛售行情。在完成创纪录的 IPO、股价迎来一波大涨之后，该股已连续两个完整交易日走低。 这家由埃隆・马斯克执掌的航天与人工智能企业，在 6 月 12 日完成轰动资本市场的上市后，跻身全球估值最高的企业之列。上市后前两个完整交易日，SpaceX 股价大幅飙升，周二其市值一度超越亚马逊，短暂超过微软，随后再度回落至两家企业
+发布时间：2026年04月21日 15:53 来源：中国新闻网 4月21日，国新办举行新闻发布会。工业和信息化部新闻发言人、信息通信发展司司长谢存在会上表示，近期存储器价格上涨，引发手机终端产品价格调整，受到各界广泛关注。针对这一问题，工信部将多措并举，支持存储器产业发展，保障产业链供应链稳定。一方面增强供给能力，促进供需对接，鼓励内外资企业加大投资力度，提升产出能力，支持终端
 
 ## 正文
 
-核心要点 SpaceX 周一盘前股价跌幅超4%，延续了此前的抛售行情。
+发布时间：2026年04月21日 15:53 来源：中国新闻网 4月21日，国新办举行新闻发布会。
 
-在完成创纪录的 IPO、股价迎来一波大涨之后，该股已连续两个完整交易日走低。
+工业和信息化部新闻发言人、信息通信发展司司长谢存在会上表示，近期存储器价格上涨，引发手机终端产品价格调整，受到各界广泛关注。
 
-这家由埃隆・马斯克执掌的航天与人工智能企业，在 6 月 12 日完成轰动资本市场的上市后，跻身全球估值最高的企业之列。
+针对这一问题，工信部将多措并举，支持存储器产业发展，保障产业链供应链稳定。
 
-上市后前两个完整交易日，SpaceX 股价大幅飙升，周二其市值一度超越亚马逊，短暂超过微软，随后再度回落至两家企业市值之下。
+一方面增强供给能力，促进供需对接，鼓励内外资企业加大投资力度，提升产出能力，支持终端企业与存储器企业加强互动对接，拓宽多元化供应渠道。
 
-在上周五六月节假期来临前，该股上周三、周四分别大跌 5%、3.6%。
+另一方面，通过多种手段维护市场秩序，引导存储器企业加强渠道管理，配合相关部门依法打击扰乱市场行为。
 
-本次 IPO 发行价定为每股 135 美元，截至上周四收盘，该股较发行价依旧累计上涨 37%。
-
-看多的投资者十分看好首席执行官埃隆・马斯克能够带领 SpaceX 实现长期收益增长。
-
-该公司 2025 年净亏损 49 亿美元，2026 年一季度亏损 42.8 亿美元。
+(记者 董泽宇 制作 王佳琪) 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-30 00:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 23:51 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 23:57 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 23:59 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 23:52 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 00:12 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 00:00 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 00:06 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 00:04 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 23:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 00:10 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 00:08 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 00:00 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 23:51 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 23:58 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 00:23 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 23:56 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 00:00 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 23:56 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 00:07 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 23:55 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 00:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 00:22 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 00:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:05 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/7597876149.shtml)
-- 2026-06-30 00:12 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/5396684469.shtml)
-- 2026-06-29 23:50 - [女心理师](http://www.share.minike.top/Article/details/21959.shtml)
-- 2026-06-29 23:56 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/74940384.shtml)
-- 2026-06-29 23:50 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/03759.shtml)
-- 2026-06-30 00:08 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/11974647.shtml)
-- 2026-06-29 23:53 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/382540.shtml)
-- 2026-06-29 23:50 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/5616032.shtml)
-- 2026-06-29 23:51 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/94174.shtml)
-- 2026-06-30 00:07 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/45412.shtml)
-- 2026-06-30 00:04 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/4924901.shtml)
-- 2026-06-30 00:05 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/01495069917.shtml)
-- 2026-06-30 00:09 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/97509.shtml)
-- 2026-06-29 23:56 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/2590360.shtml)
-- 2026-06-29 23:49 - [刘念回应](https://www.share.kurohicncr.top/Article/details/47236110.shtml)
+- 2026-06-30 00:09 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/6051697.shtml)
+- 2026-06-30 00:00 - [千香](https://www.blog.minike.top/Article/details/18283884283.shtml)
+- 2026-06-30 00:20 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/321839757.shtml)
+- 2026-06-30 00:03 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/06577.shtml)
+- 2026-06-30 00:17 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/21006194987.shtml)
+- 2026-06-30 00:00 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/75794.shtml)
+- 2026-06-29 23:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/0078002.shtml)
+- 2026-06-30 00:04 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/638395745.shtml)
+- 2026-06-29 23:55 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/987631426025.shtml)
+- 2026-06-30 00:12 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/4842181239.shtml)
+- 2026-06-30 00:03 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/444087.shtml)
+- 2026-06-29 23:57 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/646913568789.shtml)
+- 2026-06-30 00:22 - [时光音乐会](http://www.share.minike.top/Article/details/965722466.shtml)
+- 2026-06-30 00:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/17855433073.shtml)
+- 2026-06-30 00:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/78238740.shtml)

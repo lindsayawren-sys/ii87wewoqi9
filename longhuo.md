@@ -1,60 +1,61 @@
-# 香港上演端午龙舟竞渡
+# 科技行情持续升温！商业航天爆发，159231强势七连涨！算力芯片活跃，华宝基金科创人工智能ETF猛攻2.72%
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！孔子为什么说“温故而知新”？喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要
+周一（4月20日），A股三大指数涨跌不一，沪指震荡拉升，创业板指冲高回落，科创50指数涨超1.5%，两市环比放量成交2.58万亿元。热点快速轮动，全市场超3400只个股上涨，其中90只个股涨停，科技成长行情持续升温。 航空航天迎密集催化，商业航天概念爆发，一键布局商业航天+卫星导航+低空经济+大飞机的通用航空ETF华宝（159231）场内收涨2.86%强势七连涨，站上60日线！
 
 ## 正文
 
-学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？
+周一（4月20日），A股三大指数涨跌不一，沪指震荡拉升，创业板指冲高回落，科创50指数涨超1.5%，两市环比放量成交2.58万亿元。
 
-高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
+热点快速轮动，全市场超3400只个股上涨，其中90只个股涨停，科技成长行情持续升温。
 
-评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！
+航空航天迎密集催化，商业航天概念爆发，一键布局商业航天+卫星导航+低空经济+大飞机的通用航空ETF华宝（159231）场内收涨2.86%强势七连涨，站上60日线！
 
-孔子为什么说“温故而知新”？
+军工核心资产——军工ETF华宝（512810）再涨2.62%交投激增，单日成交超1亿元。
 
-喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？
+算力芯片继续活跃，重点布局国产AI的科创人工智能ETF华宝（589520）猛攻2.72%，强势收复所有均线！
 
-特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
+全“芯”布局科创板的科创芯片ETF华宝（589190）场内大涨1.74%，标的指数自本轮低点累计反弹达19.84%；聚焦港股芯片的港股通信息技术ETF华宝（159131）放量反弹1.62%。
 
-十届南博会，一叶清茶何以架起文明对话之桥？
+AI应用反弹，热门光模块CPO赛道小幅回调，资金借道ETF加码！
 
-中国沙漠治理经验，如何与世界共享？
+一键布局光模块CPO+AI应用的创业板人工智能ETF华宝（159363）场内收涨0.47%再创上市新高，资金抢筹7200万份。
 
 ## 相关推荐
 
-- 2026-06-30 00:08 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 00:06 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 23:59 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 00:07 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 23:59 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 00:06 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 23:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-30 00:01 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 23:55 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 23:50 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 00:05 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 00:16 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 23:52 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 00:14 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 23:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 00:01 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 23:59 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 23:56 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 00:07 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 00:18 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 00:18 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 00:14 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 00:12 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 00:22 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 00:00 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 00:22 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 23:58 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 00:14 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 00:05 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/134329.shtml)
-- 2026-06-30 00:08 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/45120277.shtml)
-- 2026-06-29 23:48 - [起风了](http://www.blog.kurohicncr.top/Article/details/340345168892.shtml)
-- 2026-06-30 00:16 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/27445681.shtml)
-- 2026-06-30 00:02 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/3536212389.shtml)
-- 2026-06-30 00:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/288290983.shtml)
-- 2026-06-29 23:56 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/72904.shtml)
-- 2026-06-30 00:05 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/15348205.shtml)
-- 2026-06-30 00:00 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/102072530.shtml)
-- 2026-06-30 00:00 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/29664519975.shtml)
-- 2026-06-30 00:16 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/11420651336.shtml)
-- 2026-06-30 00:17 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/56752.shtml)
-- 2026-06-29 23:54 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/0858221414.shtml)
-- 2026-06-29 23:49 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/3802493946.shtml)
-- 2026-06-30 00:09 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/535946.shtml)
+- 2026-06-30 00:11 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/5174929250.shtml)
+- 2026-06-30 00:04 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/58230103.shtml)
+- 2026-06-30 00:01 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/854844948446.shtml)
+- 2026-06-30 00:18 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/1352978.shtml)
+- 2026-06-30 00:05 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/430750.shtml)
+- 2026-06-30 00:22 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/4549681236.shtml)
+- 2026-06-30 00:10 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/7662851.shtml)
+- 2026-06-30 00:10 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/635075752096.shtml)
+- 2026-06-30 00:23 - [爱很美味](http://www.share.kurohicncr.top/Article/details/87382756248.shtml)
+- 2026-06-30 00:06 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/78573745346.shtml)
+- 2026-06-30 00:08 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/9933839.shtml)
+- 2026-06-30 00:22 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/828543.shtml)
+- 2026-06-30 00:11 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/5600089103.shtml)
+- 2026-06-29 23:59 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/312191760390.shtml)
+- 2026-06-30 00:00 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/314374.shtml)

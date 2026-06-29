@@ -1,57 +1,57 @@
-# 埃森哲下调营收预期引发市场对AI业务前景担忧，股价大跌 18%
+# 2026中华文化探源中原行系列活动启动
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-科技咨询企业埃森哲公布 5 月财季新增订单与营收增速双双下滑后，其股价周四暴跌 18%，跌至 2017 年以来最低水平。这份财报印证了市场观点：人工智能工具会冲击埃森哲这类依靠大批软件工程师承接客户项目的咨询公司。 埃森哲本财季新增订单（即当期签署合同总金额）为 193 亿美元，同比下降 2%；上一财季新增订单同比还上涨 6%。公司 5 月财季营收 187 亿美元，同比增长 6
+中新网郑州4月20日电 (王佳宁)19日，由河南省人民政府台湾事务办公室(以下简称河南省台办)、河南省文化和旅游厅共同主办的2026中华文化探源中原行系列活动启动仪式在郑州商都遗址博物院举办。 河南地处中原，是中华文明的主要发源地。启动仪式前夕，来自岛内的台胞，现场参加了在河南新郑举行的丙午年黄帝故里拜祖大典，与海内外炎黄子孙共同拜谒人文始祖黄帝。 上述启动仪式现场，台胞们观赏
 
 ## 正文
 
-科技咨询企业埃森哲公布 5 月财季新增订单与营收增速双双下滑后，其股价周四暴跌 18%，跌至 2017 年以来最低水平。
+中新网郑州4月20日电 (王佳宁)19日，由河南省人民政府台湾事务办公室(以下简称河南省台办)、河南省文化和旅游厅共同主办的2026中华文化探源中原行系列活动启动仪式在郑州商都遗址博物院举办。
 
-这份财报印证了市场观点：人工智能工具会冲击埃森哲这类依靠大批软件工程师承接客户项目的咨询公司。
+河南地处中原，是中华文明的主要发源地。
 
-埃森哲本财季新增订单（即当期签署合同总金额）为 193 亿美元，同比下降 2%；上一财季新增订单同比还上涨 6%。
+启动仪式前夕，来自岛内的台胞，现场参加了在河南新郑举行的丙午年黄帝故里拜祖大典，与海内外炎黄子孙共同拜谒人文始祖黄帝。
 
-公司 5 月财季营收 187 亿美元，同比增长 6%，相较于 2 月财季 8% 的增速小幅放缓。
+上述启动仪式现场，台胞们观赏体验了朱仙镇木版年画、牡丹香包等非物质文化遗产代表性项目，并参观了郑州商都遗址博物院。
 
-首席执行官朱莉・斯威特表示，中东局势冲突导致业务开展放缓、销售额不及预期，且这一低迷态势将延续至当前财季。
+河南省台办副主任祝展鹏表示，河南与台湾血缘相连、文源相近、情缘相融、商源相通。
 
-埃森哲同时下调了投资者对其 8 月结束的完整财年业绩预期，预计固定汇率下全年营收最高仅增长 4%，此前公司给出的预期为 5%。
+长期以来，河南始终秉持“两岸一家亲”理念，持续发挥中原文化和豫台渊源优势，积极搭建各种交流平台，不断深化豫台两地交流合作。
 
-周四收盘时，埃森哲总市值约 790 亿美元，较前一日缩水约 170 亿美元。
+“河南是我的故乡，每一次回来都觉得越来越好。
 
-责任编辑：江学思
+”台湾时事评论员介文汲在启动仪式上表示，拜祖大典让我们重温心灵的故乡，见证我们文明的璀璨，深度审视我们身处及塑造的周遭环境，并认真思索中华文明的未来。
 
 ## 相关推荐
 
-- 2026-06-29 23:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 00:16 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-30 00:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 00:13 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 23:52 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 00:09 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 23:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 23:56 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-30 00:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-30 00:10 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 23:55 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 00:12 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 23:56 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 23:56 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 23:54 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 23:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 00:20 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-30 00:02 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 00:11 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 00:16 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 23:56 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 00:07 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:16 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/70141.shtml)
-- 2026-06-30 00:07 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/58454391.shtml)
-- 2026-06-30 00:17 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/31621496.shtml)
-- 2026-06-30 00:16 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/9159989.shtml)
-- 2026-06-30 00:15 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/34338.shtml)
-- 2026-06-30 00:10 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/3447489.shtml)
-- 2026-06-30 00:02 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/20188047146.shtml)
-- 2026-06-29 23:51 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/4543909793.shtml)
-- 2026-06-30 00:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/93579681675.shtml)
-- 2026-06-30 00:06 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/9364005.shtml)
-- 2026-06-30 00:04 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/787957.shtml)
-- 2026-06-30 00:05 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/85156291215.shtml)
-- 2026-06-30 00:06 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/007185.shtml)
-- 2026-06-29 23:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/6947505488.shtml)
-- 2026-06-30 00:06 - [东方风云榜](http://www.share.minike.top/Article/details/245243.shtml)
+- 2026-06-30 00:03 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/638619413071.shtml)
+- 2026-06-30 00:21 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/223172538363.shtml)
+- 2026-06-29 23:59 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/55144.shtml)
+- 2026-06-30 00:18 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/8707090.shtml)
+- 2026-06-30 00:04 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/01499.shtml)
+- 2026-06-30 00:08 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/4257642149.shtml)
+- 2026-06-30 00:06 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/769689792.shtml)
+- 2026-06-30 00:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/38599958346.shtml)
+- 2026-06-29 23:59 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/288348975101.shtml)
+- 2026-06-29 23:59 - [一生一世](http://www.blog.minike.top/Article/details/0023968.shtml)
+- 2026-06-30 00:04 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/077857.shtml)
+- 2026-06-30 00:14 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/023448.shtml)
+- 2026-06-30 00:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/530993434.shtml)
+- 2026-06-30 00:00 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/79244632.shtml)
+- 2026-06-30 00:14 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/27071923.shtml)

@@ -1,56 +1,51 @@
-# 千年安居古城举行非遗龙舟会庆端午
+# 中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？评论：“张凌赫现象”凸显两
+根据《关于开展第36届中国新闻奖评选工作的通知》《关于开展第36届中国新闻奖视听设计(新闻漫画、新闻版面、互联网界面设计)专项初评工作的通知》的规定，经民主推荐及评委会评议，中国新闻社拟推荐3件新闻漫画、1件新闻版面作品参加中国新闻奖视听设计作品初评，现予以公示。公示期为2026年4月21日至4月27日，共5个工作日。如有异议，可以通过书面、电话方式，于2026年4月27日17
 
 ## 正文
 
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
+根据《关于开展第36届中国新闻奖评选工作的通知》《关于开展第36届中国新闻奖视听设计(新闻漫画、新闻版面、互联网界面设计)专项初评工作的通知》的规定，经民主推荐及评委会评议，中国新闻社拟推荐3件新闻漫画、1件新闻版面作品参加中国新闻奖视听设计作品初评，现予以公示。
 
-中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
+公示期为2026年4月21日至4月27日，共5个工作日。
 
-学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？
+如有异议，可以通过书面、电话方式，于2026年4月27日17时前反映。
 
-高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
-
-评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！
-
-孔子为什么说“温故而知新”？
-
-喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？
-
-特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
+联系电话：010-68316636 邮箱：zbs@chinanews.com.cn 中国新闻奖视听设计(新闻漫画)推荐作品目录 1.《靠“毒苗”撑腰撑不住“独苗”｜新漫评》 作者：张舰元 编辑：周锐、刘羡 作品推荐材料 2.《Comicomment: Playing with fire, risking self-destruction(贸然玩火，小心自焚丨新漫评)》 作者：王璐瑶 编辑：宋方灿、孟湘君、谷丽萍 作品推荐材料 3.《喂养债务“怪兽”，难免自掘坟墓｜新漫评》 作者：陈善坤 编辑：宋方灿、孟湘君、谷丽萍 作品推荐材料 中国新闻奖视听设计(新闻版面)推荐作品目录 1.2025年9月16日《中国新闻》报特别报道08-09版 作者：张琼、李腾飞、曹子云 编辑：集体(肖开霖、濮亚新、田清涛、王一凡) 作品推荐材料 作品版面
 
 ## 相关推荐
 
-- 2026-06-30 00:10 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 23:53 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 23:58 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 00:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 00:09 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 23:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 00:03 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 00:10 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 00:12 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 00:16 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 00:11 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 00:22 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 23:56 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 00:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 00:15 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 23:59 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 00:11 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 23:57 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 00:22 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 00:07 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 23:59 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 00:06 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 00:09 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/071606848693.shtml)
-- 2026-06-30 00:03 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/486030710.shtml)
-- 2026-06-30 00:00 - [美股](https://www.blog.kurohicncr.top/Article/details/385423.shtml)
-- 2026-06-30 00:07 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/510693719003.shtml)
-- 2026-06-29 23:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/58847242811.shtml)
-- 2026-06-29 23:49 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/422576.shtml)
-- 2026-06-30 00:00 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/800331.shtml)
-- 2026-06-29 23:55 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/60251831194.shtml)
-- 2026-06-29 23:57 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/3455669773.shtml)
-- 2026-06-29 23:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/79840150788.shtml)
-- 2026-06-29 23:53 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/727146438.shtml)
-- 2026-06-29 23:50 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/175411.shtml)
-- 2026-06-30 00:11 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/79992453.shtml)
-- 2026-06-30 00:09 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/585611029.shtml)
-- 2026-06-29 23:52 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/30172270.shtml)
+- 2026-06-29 23:57 - [起风了](http://www.share.kurohicncr.top/Article/details/039052240.shtml)
+- 2026-06-30 00:08 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/65313796082.shtml)
+- 2026-06-29 23:55 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/23946774.shtml)
+- 2026-06-30 00:12 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/795583968.shtml)
+- 2026-06-30 00:22 - [世界杯](https://www.blog.kurohicncr.top/Article/details/683986846.shtml)
+- 2026-06-30 00:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/94933.shtml)
+- 2026-06-30 00:18 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/0986766776.shtml)
+- 2026-06-30 00:07 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/729949.shtml)
+- 2026-06-30 00:15 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/75182124.shtml)
+- 2026-06-30 00:13 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/324297525026.shtml)
+- 2026-06-30 00:12 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/799518.shtml)
+- 2026-06-29 23:54 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/210000435.shtml)
+- 2026-06-30 00:21 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/927811815036.shtml)
+- 2026-06-30 00:15 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/724846.shtml)
+- 2026-06-29 23:55 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/77250.shtml)

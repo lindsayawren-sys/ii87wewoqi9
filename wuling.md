@@ -1,57 +1,55 @@
-# 中日友好人士小岛康誉：用短视频续写40余载新疆情缘
+# 泰铢维持跌势 泰国政府正考虑提高债务上限
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新社乌鲁木齐6月21日电 题：中日友好人士小岛康誉：用短视频续写40余载新疆情缘 作者 苟继鹏 “在互联网与短视频时代，我希望能借助短视频这一传播形式，向日本乃至全世界的民众，真实、全面地展现当下新疆的鲜活面貌。”中日友好人士小岛康誉21日在乌鲁木齐市接受中新社专访时说。 40多年来，小岛康誉已150多次到访新疆。他坦言：“新疆就是我的第二故乡。” 小岛康誉与新疆的情缘，始于
+泰国政府或将上调债务上限，新增约300亿美元借款规模，以提振受全球能源冲击拖累的本国经济，消息公布后泰铢跌幅持续维持。美元兑泰铢汇率上涨0.6%，报32.108。泰国政府计划将公共债务上限从国内生产总值（GDP）的70%上调至75%。泰国10年期隔夜指数互换利率上行5个基点，报1.99%。责任编辑：王永生
 
 ## 正文
 
-中新社乌鲁木齐6月21日电 题：中日友好人士小岛康誉：用短视频续写40余载新疆情缘 作者 苟继鹏 “在互联网与短视频时代，我希望能借助短视频这一传播形式，向日本乃至全世界的民众，真实、全面地展现当下新疆的鲜活面貌。
+泰国政府或将上调债务上限，新增约300亿美元借款规模，以提振受全球能源冲击拖累的本国经济，消息公布后泰铢跌幅持续维持。
 
-”中日友好人士小岛康誉21日在乌鲁木齐市接受中新社专访时说。
+美元兑泰铢汇率上涨0.6%，报32.108。
 
-40多年来，小岛康誉已150多次到访新疆。
+泰国政府计划将公共债务上限从国内生产总值（GDP）的70%上调至75%。
 
-他坦言：“新疆就是我的第二故乡。
+泰国10年期隔夜指数互换利率上行5个基点，报1.99%。
 
-” 小岛康誉与新疆的情缘，始于1982年。
-
-彼时的他，还是一名珠宝商人，听闻新疆盛产宝石，遂慕名而来。
-
-“那次虽然没有寻到珍贵的宝石，但我见到了比任何宝石都要珍贵的新疆文化遗产。
-
-”小岛康誉说，当他第一次走进吐鲁番市交河故城，内心十分震撼和感动。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 00:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 00:11 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 23:57 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 23:50 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 00:08 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 00:02 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 23:48 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 23:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-30 00:13 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 00:03 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 23:56 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 00:10 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 00:20 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 00:09 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 00:17 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 00:15 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 00:10 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 00:08 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 00:03 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 00:04 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 00:22 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 00:18 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 00:00 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 00:22 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 00:19 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 23:55 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/19318649.shtml)
-- 2026-06-30 00:16 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/065399182.shtml)
-- 2026-06-29 23:59 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/37989436.shtml)
-- 2026-06-30 00:13 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/612607256035.shtml)
-- 2026-06-29 23:50 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/49675.shtml)
-- 2026-06-29 23:57 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/012063.shtml)
-- 2026-06-30 00:12 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/25849820818.shtml)
-- 2026-06-29 23:55 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/820594020.shtml)
-- 2026-06-30 00:15 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/56456.shtml)
-- 2026-06-29 23:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/508759.shtml)
-- 2026-06-30 00:08 - [恋与深空 巧合](http://www.share.minike.top/Article/details/968542624451.shtml)
-- 2026-06-30 00:11 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/09239530.shtml)
-- 2026-06-30 00:08 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/281088423.shtml)
-- 2026-06-29 23:53 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/13225471.shtml)
-- 2026-06-30 00:15 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/25304823.shtml)
+- 2026-06-29 23:54 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/60272.shtml)
+- 2026-06-29 23:54 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/60404662477.shtml)
+- 2026-06-30 00:23 - [斛珠夫人](http://www.share.minike.top/Article/details/13957937077.shtml)
+- 2026-06-30 00:02 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/3193442.shtml)
+- 2026-06-30 00:12 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/7576439.shtml)
+- 2026-06-30 00:03 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/38777894309.shtml)
+- 2026-06-30 00:15 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/9830144470.shtml)
+- 2026-06-30 00:22 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/015708335603.shtml)
+- 2026-06-30 00:20 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/21557.shtml)
+- 2026-06-30 00:02 - [勇敢的心第二部](https://www.share.minike.top/Article/details/86855462.shtml)
+- 2026-06-30 00:09 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/9475246288.shtml)
+- 2026-06-30 00:22 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/975533541.shtml)
+- 2026-06-30 00:13 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/658525092.shtml)
+- 2026-06-29 23:59 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/99492698.shtml)
+- 2026-06-30 00:16 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/92523325373.shtml)

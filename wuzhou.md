@@ -1,59 +1,60 @@
-# 国家气候中心官宣 我国梅雨季节已全面开启
+# 习近平同沙特王储兼首相穆罕默德通电话
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中国天气网讯 国家气候中心监测显示，2026年江南地区、长江中下游地区于6月18日进入梅雨期，均较常年偏晚，江淮地区于19日入梅，较常年偏早；预计江南地区梅雨量较常年偏多，长江中下游地区和江淮地区梅雨量接近常年。我国梅雨监测区介绍根据国家标准《梅雨监测指标》(GB/T 33671-2017)，我国梅雨盛行的区域分为3个，即江南地区(Ⅰ)、长江中下游地区(Ⅱ)、江淮地区(Ⅲ)。
+新华社北京4月20日电 4月20日下午，国家主席习近平应约同沙特王储兼首相穆罕默德通电话。 习近平指出，中方高度重视发展对沙关系，始终坚持相互尊重、平等相待、互利共赢原则。今年是两国全面战略伙伴关系建立10周年，中方愿同沙方以此为契机，深化战略互信，加强务实合作，扩大各层级交往，持续拓展中沙关系的广度和深度，为中国同阿拉伯国家关系发展发挥示范作用。 针对当前中东海湾地区局势，习
 
 ## 正文
 
-中国天气网讯 国家气候中心监测显示，2026年江南地区、长江中下游地区于6月18日进入梅雨期，均较常年偏晚，江淮地区于19日入梅，较常年偏早；预计江南地区梅雨量较常年偏多，长江中下游地区和江淮地区梅雨量接近常年。
+新华社北京4月20日电 4月20日下午，国家主席习近平应约同沙特王储兼首相穆罕默德通电话。
 
-我国梅雨监测区介绍根据国家标准《梅雨监测指标》(GB/T 33671-2017)，我国梅雨盛行的区域分为3个，即江南地区(Ⅰ)、长江中下游地区(Ⅱ)、江淮地区(Ⅲ)。
+习近平指出，中方高度重视发展对沙关系，始终坚持相互尊重、平等相待、互利共赢原则。
 
-梅雨区具体监测预测意见 江南地区：6月18日入梅，较常年(6月9日)偏晚，预计梅雨期较常年(31天)偏短，梅雨量较常年(395毫米)偏多1～3成，强度总体偏强，呈前强后弱的阶段性特征。
+今年是两国全面战略伙伴关系建立10周年，中方愿同沙方以此为契机，深化战略互信，加强务实合作，扩大各层级交往，持续拓展中沙关系的广度和深度，为中国同阿拉伯国家关系发展发挥示范作用。
 
-长江中下游地区：6月18日入梅，较常年(6月14日)偏晚，预计梅雨期较常年(32天)偏短，梅雨量总体接近常年(318毫米)，但降水阶段性偏强，出现局地致灾性强降水过程的可能性大。
+针对当前中东海湾地区局势，习近平强调，中方主张立即、全面停火止战，支持一切有利于恢复和平的努力，坚持通过政治外交途径化解争端。
 
-江淮地区：6月19日入梅，较常年(6月23日)偏早，预计梅雨期较常年(21天)偏短，梅雨量接近常年(257毫米)，强度阶段性偏强。
+霍尔木兹海峡应该保持正常通行，这符合地区国家和国际社会共同利益。
 
-梅雨气象灾害与重点关注建议 入梅后，强对流天气活跃，短时强降水、雷雨大风、龙卷风、冰雹等强对流天气将频繁发生。
+中方支持地区国家构建睦邻、发展、安全、合作的共同家园，把前途命运掌握在自己手中，促进地区长治久安。
 
-受全球气候变暖的影响，我国局地强降水发生的频率和强度均有增加趋势，极端性更强，建议做好大中小河流防汛、城市暴雨积涝、山洪和地质灾害等的防范工作。
+穆罕默德表示，沙中关系是战略性的，发展对华关系对沙特至关重要。
+
+当前中东战事损害海湾国家安全，严重影响世界能源供应和经济运行。
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 23:52 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 00:11 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 23:59 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 00:16 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 23:50 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 23:56 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 00:10 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 00:09 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 23:58 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 23:51 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 23:58 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 00:17 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 00:04 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 00:18 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 00:03 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 00:10 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 00:21 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 00:01 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 00:01 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 00:13 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 00:10 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 00:17 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 23:59 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 00:22 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 00:22 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 00:22 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 23:58 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 23:54 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:02 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/09667.shtml)
-- 2026-06-29 23:50 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/09824343.shtml)
-- 2026-06-29 23:55 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/6095330601.shtml)
-- 2026-06-30 00:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/00895.shtml)
-- 2026-06-30 00:02 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/83071413155.shtml)
-- 2026-06-29 23:48 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/961841395815.shtml)
-- 2026-06-30 00:10 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/58023960779.shtml)
-- 2026-06-30 00:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/75636263.shtml)
-- 2026-06-30 00:16 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/66763333942.shtml)
-- 2026-06-30 00:14 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/6622300.shtml)
-- 2026-06-30 00:09 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/8552601524.shtml)
-- 2026-06-29 23:56 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/685635237317.shtml)
-- 2026-06-29 23:55 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/870221463492.shtml)
-- 2026-06-29 23:58 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/57936708474.shtml)
-- 2026-06-29 23:48 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/61362638.shtml)
+- 2026-06-30 00:15 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/856707238.shtml)
+- 2026-06-30 00:18 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/49885167.shtml)
+- 2026-06-30 00:07 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/04357.shtml)
+- 2026-06-30 00:20 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/99774.shtml)
+- 2026-06-30 00:01 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/810562650757.shtml)
+- 2026-06-30 00:10 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/579903.shtml)
+- 2026-06-29 23:58 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/6783548345.shtml)
+- 2026-06-30 00:07 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/513124.shtml)
+- 2026-06-30 00:22 - [女心理师](https://www.share.minike.top/Article/details/838807441739.shtml)
+- 2026-06-29 23:59 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/62203152318.shtml)
+- 2026-06-30 00:12 - [东方风云榜直播](https://www.blog.minike.top/Article/details/9746103745.shtml)
+- 2026-06-30 00:11 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/62178397.shtml)
+- 2026-06-30 00:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/623461.shtml)
+- 2026-06-30 00:07 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/7295195.shtml)
+- 2026-06-30 00:10 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/36946843.shtml)

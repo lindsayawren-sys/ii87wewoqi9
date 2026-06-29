@@ -1,58 +1,53 @@
-# 智能乐器降低学习门槛 国产新品丰富全球消费市场供给
+# 特步国际早盘涨超3% 机构预计公司一季度零售将录得中单位数增长
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-端午假期，和亲朋好友聚在一起玩玩音乐也是一种欢聚方式。现在音乐有了新的玩法，一些结合了传统乐器特性与现代数字技术的智能乐器正在成为新宠，这些智能乐器好玩之处在哪？ 在深圳市宝安区的一个公园里，一支由中老年人组成的“银发乐团”正在排练。他们手中的乐器，是可以通过语音交互改变音色和音调的智能电吹管。乐团老师介绍，近年来参加排练的人数不断增长，智能乐器降低了学习门槛，让零基础的老年人
+特步国际（01368）早盘涨超3%，截至发稿，股价上涨3.31%，现报4.68港元，成交额3695.48万港元。 4月17日，恒生指数有限公司宣布截至2026年3月31日恒生中国高股息率指数的年度指数检讨结果，其中，新调入特步国际等公司，有关变动将于2026年4月27日（星期一）起生效。 里昂发布研报称，预期特步国际2026年集团销售额按年增长4.4%，主要受产品创新及多元化推
 
 ## 正文
 
-端午假期，和亲朋好友聚在一起玩玩音乐也是一种欢聚方式。
+特步国际（01368）早盘涨超3%，截至发稿，股价上涨3.31%，现报4.68港元，成交额3695.48万港元。
 
-现在音乐有了新的玩法，一些结合了传统乐器特性与现代数字技术的智能乐器正在成为新宠，这些智能乐器好玩之处在哪？
+4月17日，恒生指数有限公司宣布截至2026年3月31日恒生中国高股息率指数的年度指数检讨结果，其中，新调入特步国际等公司，有关变动将于2026年4月27日（星期一）起生效。
 
-在深圳市宝安区的一个公园里，一支由中老年人组成的“银发乐团”正在排练。
+里昂发布研报称，预期特步国际2026年集团销售额按年增长4.4%，主要受产品创新及多元化推动，同时核心特步品牌及Saucony持续进行渠道重组。
 
-他们手中的乐器，是可以通过语音交互改变音色和音调的智能电吹管。
+对于2026年第一季，该行预计特步品牌及Saucony的零售销售额将分别录得中单位数百分比及约25%的按年增长。
 
-乐团老师介绍，近年来参加排练的人数不断增长，智能乐器降低了学习门槛，让零基础的老年人也能快速获得成就感。
+该行表示，对公司中期增长前景保持乐观，相信目前正在进行的调整将带来正面效果。
 
-除了银发族，智能乐器也受到年轻人和小朋友们的喜欢。
-
-在一家科技产品集合店，周末下午店内客流如织，而智能乐器体验区是最热闹的区域。
-
-不少人围在表演的乐手旁，想上手体验智能吉他。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 00:08 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 23:56 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 23:57 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 00:15 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 00:10 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 00:12 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 23:53 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 00:10 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 00:00 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 23:51 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 00:01 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 00:21 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 00:23 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 00:07 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 00:05 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 00:05 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-30 00:01 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-30 00:09 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 00:03 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 23:54 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 00:14 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 00:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [MG总经理直播被冲](http://www.blog.kurohicncr.top/Article/details/81631633.shtml)
-- 2026-06-29 23:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/2249439437.shtml)
-- 2026-06-30 00:05 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/10865230626.shtml)
-- 2026-06-29 23:48 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/5245828.shtml)
-- 2026-06-29 23:53 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/2455921249.shtml)
-- 2026-06-30 00:14 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/9164007729.shtml)
-- 2026-06-29 23:59 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/303596191.shtml)
-- 2026-06-30 00:04 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/446791.shtml)
-- 2026-06-30 00:14 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/968732233015.shtml)
-- 2026-06-29 23:56 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/48927575586.shtml)
-- 2026-06-30 00:00 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/89078.shtml)
-- 2026-06-30 00:10 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/6446873871.shtml)
-- 2026-06-30 00:13 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/5592140.shtml)
-- 2026-06-29 23:56 - [月亮](https://www.blog.minike.top/Article/details/119476.shtml)
-- 2026-06-30 00:10 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/8935313.shtml)
+- 2026-06-30 00:20 - [天道](https://www.share.minike.top/Article/details/85463516.shtml)
+- 2026-06-30 00:08 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/6154782497.shtml)
+- 2026-06-30 00:15 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/966940.shtml)
+- 2026-06-29 23:56 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/462772.shtml)
+- 2026-06-30 00:07 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/37279.shtml)
+- 2026-06-30 00:01 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/8449278972.shtml)
+- 2026-06-30 00:08 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/700413.shtml)
+- 2026-06-30 00:20 - [爱很美味](https://www.share.kurohicncr.top/Article/details/178345762.shtml)
+- 2026-06-30 00:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/06201.shtml)
+- 2026-06-30 00:04 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/49306246.shtml)
+- 2026-06-29 23:59 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/66460216197.shtml)
+- 2026-06-29 23:57 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/81519.shtml)
+- 2026-06-30 00:05 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/2675862.shtml)
+- 2026-06-30 00:00 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/48871252.shtml)
+- 2026-06-30 00:07 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/6149774312.shtml)

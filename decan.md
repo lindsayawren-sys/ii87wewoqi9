@@ -1,57 +1,50 @@
-# 今年股价涨超340%，SK海力士超越三星电子成韩国市值最高公司
+# TGS延长美国海湾多年期海底节点采集合同
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-SK海力士周一首次超越三星电子，成为韩国市值最高的上市公司。 截至当天收盘，SK海力士股价上涨5.61%，公司市值达到2080.37万亿韩元（约合13509.8亿美元），而三星电子股价下跌0.14%，市值为2066.66万亿韩元。 这一里程碑标志着三星电子自1999年成为韩国市值最高公司以来，首次失去榜首位置。 此次排名变化正值韩国两大芯片制造商持续受益于人工智能（AI）热潮推
+数据与情报公司TGS已延长其在美国海湾正在进行的多年期专有海底节点采集合同。 TGS表示，该海底节点采集合同已延长三年。 TGS首席执行官Kristian Johansen表示：“这一来自美国海湾一家主要生产商兼战略客户的长期承诺的延续，反映了我们对创新和卓越的不懈承诺，也彰显了我们适应不断变化的行业优先事项的能力。” “通过持续的服务质量以及对安全、可持续运营的承诺，我们将继
 
 ## 正文
 
-SK海力士周一首次超越三星电子，成为韩国市值最高的上市公司。
+数据与情报公司TGS已延长其在美国海湾正在进行的多年期专有海底节点采集合同。
 
-截至当天收盘，SK海力士股价上涨5.61%，公司市值达到2080.37万亿韩元（约合13509.8亿美元），而三星电子股价下跌0.14%，市值为2066.66万亿韩元。
+TGS表示，该海底节点采集合同已延长三年。
 
-这一里程碑标志着三星电子自1999年成为韩国市值最高公司以来，首次失去榜首位置。
+TGS首席执行官Kristian Johansen表示：“这一来自美国海湾一家主要生产商兼战略客户的长期承诺的延续，反映了我们对创新和卓越的不懈承诺，也彰显了我们适应不断变化的行业优先事项的能力。
 
-此次排名变化正值韩国两大芯片制造商持续受益于人工智能（AI）热潮推动的强劲半导体需求之际，其中SK海力士的股价涨幅显著高于三星电子。
+” “通过持续的服务质量以及对安全、可持续运营的承诺，我们将继续支持行业最大限度地挖掘现有开发的潜力。
 
-SK海力士如今已成为高带宽内存（HBM）芯片的主要供应商，其芯片被英伟达和谷歌等客户广泛应用于人工智能系统，该公司也因此成为全球人工智能热潮的最大受益者之一。
-
-今年以来，SK海力士股价已飙升超过340%。
-
-相比之下，三星电子的股价今年迄今上涨了197.7%。
-
-责任编辑：于健 SF069
+”责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 00:06 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 23:55 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 23:58 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 00:10 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 23:52 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 23:51 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 23:57 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 23:58 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-30 00:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 23:56 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 00:14 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 00:17 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 00:10 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 00:02 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 00:03 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 00:01 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 00:22 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 23:57 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 23:58 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 00:06 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 23:54 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:55 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/17613358388.shtml)
-- 2026-06-29 23:51 - [小娘惹](https://www.blog.minike.top/Article/details/897518.shtml)
-- 2026-06-30 00:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/562424.shtml)
-- 2026-06-30 00:12 - [我和我的家乡](http://www.blog.minike.top/Article/details/8117449953.shtml)
-- 2026-06-30 00:14 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/443478.shtml)
-- 2026-06-30 00:12 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/866667871333.shtml)
-- 2026-06-30 00:09 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/485974256.shtml)
-- 2026-06-29 23:57 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/483008471740.shtml)
-- 2026-06-30 00:01 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/159360.shtml)
-- 2026-06-29 23:57 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/6185693442.shtml)
-- 2026-06-29 23:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/510037941118.shtml)
-- 2026-06-29 23:48 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/924256650.shtml)
-- 2026-06-29 23:49 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/207987229258.shtml)
-- 2026-06-29 23:53 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/22514.shtml)
-- 2026-06-30 00:13 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/174487365108.shtml)
+- 2026-06-30 00:23 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/909365091.shtml)
+- 2026-06-29 23:56 - [恋与深空致歉](http://www.share.minike.top/Article/details/878407851.shtml)
+- 2026-06-29 23:58 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/030191400.shtml)
+- 2026-06-30 00:13 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/1085683362.shtml)
+- 2026-06-30 00:23 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/539754614645.shtml)
+- 2026-06-29 23:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/136327975.shtml)
+- 2026-06-30 00:23 - [一生一世](http://www.blog.minike.top/Article/details/993016207415.shtml)
+- 2026-06-30 00:09 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/862376986681.shtml)
+- 2026-06-30 00:01 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/19415.shtml)
+- 2026-06-30 00:09 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/332549.shtml)
+- 2026-06-30 00:19 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/66350506228.shtml)
+- 2026-06-30 00:11 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/4547776.shtml)
+- 2026-06-30 00:14 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.kurohicncr.top/Article/details/4282714749.shtml)
+- 2026-06-30 00:08 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/2507825321.shtml)
+- 2026-06-30 00:14 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/792810.shtml)

@@ -1,60 +1,44 @@
-# 俄央行宣布下调基准利率至14.25%
+# 导游迪丽教你唱跳 网友：这就是新疆人的“出厂”设置吧！
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科6月19日电 俄罗斯中央银行19日宣布，决定将基准利率下调25个基点至14.25%。 俄央行当天发布公告称，在今年初经济增长出现短暂下滑后，目前仍保持温和增长。可持续物价上涨略有放缓，总体维持在4%至5%的年化区间。俄央行预测，在当前货币政策下，2026年年化通胀率将降至4.5%至5.5%。可持续通胀率将在2026年下半年达到4%左右。 俄央行表示，中期内，通胀风险
+发布时间：2026年04月21日 09:39 来源：中国新闻网 导游迪丽教你唱跳 网友：这就是新疆人的“出厂”设置吧！ 责任编辑：【郭梦媛】
 
 ## 正文
 
-中新社莫斯科6月19日电 俄罗斯中央银行19日宣布，决定将基准利率下调25个基点至14.25%。
+发布时间：2026年04月21日 09:39 来源：中国新闻网 导游迪丽教你唱跳 网友：这就是新疆人的“出厂”设置吧！
 
-俄央行当天发布公告称，在今年初经济增长出现短暂下滑后，目前仍保持温和增长。
-
-可持续物价上涨略有放缓，总体维持在4%至5%的年化区间。
-
-俄央行预测，在当前货币政策下，2026年年化通胀率将降至4.5%至5.5%。
-
-可持续通胀率将在2026年下半年达到4%左右。
-
-俄央行表示，中期内，通胀风险将继续超过通缩风险。
-
-通胀风险主要与高通胀预期、工资增长长期超过生产率增长、全球经济前景恶化以及地缘政治紧张局势下全球物价压力上升有关。
-
-俄央行行长纳比乌琳娜当天在新闻发布会上表示，受一次性因素影响，当前物价上涨速度明显放缓，持续通胀预期也略有下降。
+责任编辑：【郭梦媛】
 
 ## 相关推荐
 
-- 2026-06-30 00:05 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 00:13 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 23:58 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 23:53 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 00:05 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 00:01 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 23:51 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 00:06 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-29 23:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 00:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 23:57 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-30 00:13 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 00:00 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 23:59 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 00:21 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 00:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 00:03 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 00:02 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 00:13 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 00:04 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 00:06 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 00:17 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 00:21 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 23:58 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:58 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/6363883.shtml)
-- 2026-06-29 23:53 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/56156166986.shtml)
-- 2026-06-30 00:14 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/92986500.shtml)
-- 2026-06-29 23:54 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/98612056033.shtml)
-- 2026-06-30 00:14 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/485009.shtml)
-- 2026-06-30 00:05 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/243343921452.shtml)
-- 2026-06-30 00:04 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/910285797529.shtml)
-- 2026-06-29 23:50 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/9194013895.shtml)
-- 2026-06-29 23:53 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/96623.shtml)
-- 2026-06-30 00:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/6738752468.shtml)
-- 2026-06-29 23:50 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/729966887.shtml)
-- 2026-06-30 00:06 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/1747762213.shtml)
-- 2026-06-29 23:54 - [把邻居裸体发群算维权还是侵权](http://www.share.minike.top/Article/details/055130.shtml)
-- 2026-06-30 00:08 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/51015398023.shtml)
-- 2026-06-29 23:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/4686690.shtml)
+- 2026-06-30 00:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/411963369.shtml)
+- 2026-06-30 00:22 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/7599590.shtml)
+- 2026-06-30 00:19 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/45518.shtml)
+- 2026-06-29 23:55 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/18819575597.shtml)
+- 2026-06-30 00:00 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/413390212.shtml)
+- 2026-06-30 00:13 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/3251410220.shtml)
+- 2026-06-30 00:14 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/3979083.shtml)
+- 2026-06-30 00:14 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/15946810739.shtml)
+- 2026-06-30 00:12 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/1419084.shtml)
+- 2026-06-30 00:08 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/896356.shtml)
+- 2026-06-30 00:20 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/432988535130.shtml)
+- 2026-06-29 23:58 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/885345142.shtml)
+- 2026-06-30 00:17 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/985626454.shtml)
+- 2026-06-29 23:57 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/12454.shtml)
+- 2026-06-30 00:20 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/5777845.shtml)

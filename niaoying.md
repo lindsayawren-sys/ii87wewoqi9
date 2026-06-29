@@ -1,49 +1,61 @@
-# 卡塔尔一工厂发生爆炸 致54人受伤18人失踪
+# 法院裁定GE Vernova不得退出Vineyard Wind海上风电场项目
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新网6月22日电 据法新社及路透社报道，当地时间22日，卡塔尔内政部表示，位于莱凡角工业城的一家工厂因“技术问题”发生爆炸，已致54人受伤、18人失踪。 据报道，有民众表示，卡塔尔首都多哈听到了巨大爆炸声。 目前救援行动正在进行中。
+马萨诸塞州一名法官上周五裁定，禁止GE Vernova放弃新英格兰地区最大海上风电场的工作。此前，开发商Vineyard Wind拒绝向这家风机供应商支付其声称的、针对这个45亿美元项目所欠的3亿多美元款项。 萨福克县高等法院法官Peter Krupp应开发商Vineyard Wind的请求发布了初步禁令，阻止GE Vernova旗下子公司终止合同并自4月28日起停止工作。 K
 
 ## 正文
 
-中新网6月22日电 据法新社及路透社报道，当地时间22日，卡塔尔内政部表示，位于莱凡角工业城的一家工厂因“技术问题”发生爆炸，已致54人受伤、18人失踪。
+马萨诸塞州一名法官上周五裁定，禁止GE Vernova放弃新英格兰地区最大海上风电场的工作。
 
-据报道，有民众表示，卡塔尔首都多哈听到了巨大爆炸声。
+此前，开发商Vineyard Wind拒绝向这家风机供应商支付其声称的、针对这个45亿美元项目所欠的3亿多美元款项。
 
-目前救援行动正在进行中。
+萨福克县高等法院法官Peter Krupp应开发商Vineyard Wind的请求发布了初步禁令，阻止GE Vernova旗下子公司终止合同并自4月28日起停止工作。
+
+Krupp法官写道：“该项目正处于关键阶段，失去VW的主要承包商将对项目造成不可估量的损失，并威胁到VW的融资。
+
+” Vineyard Wind位于玛莎葡萄园岛沿岸的806兆瓦项目已于2月份开始初步运营。
+
+此前一个月，该公司成功说服一名联邦法官阻止了特朗普政府叫停该项目建设的企图。
+
+但几天后，负责设计、制造和安装该项目风电机组的GE Renewables US LLC发出通知，威胁终止其13亿美元的合同，声称被拖欠3.6亿美元。
+
+Vineyard Wind随即提起诉讼，主张GE的行为错误地威胁了该项目的商业可行性。
 
 ## 相关推荐
 
-- 2026-06-29 23:49 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 23:58 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 00:00 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 23:49 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 23:54 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 00:06 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 00:16 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 00:11 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 23:53 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-30 00:01 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 00:00 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 23:52 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 00:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 00:06 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 00:07 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 00:03 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 23:56 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 00:17 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 00:23 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 00:02 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 00:12 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 23:54 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 00:19 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 23:54 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 00:10 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 00:19 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 00:08 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 00:23 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:51 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/103732814697.shtml)
-- 2026-06-30 00:16 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/85199928.shtml)
-- 2026-06-30 00:13 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/007441370.shtml)
-- 2026-06-29 23:53 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/927127071490.shtml)
-- 2026-06-29 23:49 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/61248200.shtml)
-- 2026-06-30 00:09 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/31155780342.shtml)
-- 2026-06-30 00:03 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/28204661614.shtml)
-- 2026-06-29 23:53 - [天道](https://www.share.kurohicncr.top/Article/details/2184908.shtml)
-- 2026-06-29 23:57 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/3345006518.shtml)
-- 2026-06-29 23:59 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/49925.shtml)
-- 2026-06-30 00:12 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/39457.shtml)
-- 2026-06-30 00:04 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/86295.shtml)
-- 2026-06-29 23:53 - [谁在推动“成都造”影视持续出圈](https://www.blog.minike.top/Article/details/312882.shtml)
-- 2026-06-30 00:11 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/57668998.shtml)
-- 2026-06-30 00:16 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/188896.shtml)
+- 2026-06-30 00:02 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/8125241288.shtml)
+- 2026-06-29 23:54 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/925216295094.shtml)
+- 2026-06-30 00:22 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/86278.shtml)
+- 2026-06-30 00:10 - [沉睡花园](http://www.blog.minike.top/Article/details/144270066084.shtml)
+- 2026-06-30 00:22 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/4226103202.shtml)
+- 2026-06-30 00:15 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/86394.shtml)
+- 2026-06-30 00:04 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/3240813389.shtml)
+- 2026-06-29 23:54 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/47160.shtml)
+- 2026-06-30 00:04 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/77949335043.shtml)
+- 2026-06-30 00:14 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/025035771489.shtml)
+- 2026-06-30 00:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/914813501.shtml)
+- 2026-06-30 00:09 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/8515938.shtml)
+- 2026-06-30 00:09 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/5899619.shtml)
+- 2026-06-30 00:23 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/825998267220.shtml)
+- 2026-06-30 00:21 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/4992569429.shtml)

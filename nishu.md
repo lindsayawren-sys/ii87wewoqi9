@@ -1,58 +1,58 @@
-# 今年以来自上海口岸出入境旅客数量突破2000万人次
+# 一粒小纽扣，如何联动大市场
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新网上海6月22日电 (记者 陈静)上海边检总站方面22日披露，今年截至6月22日，逾2000万人次中外旅客从上海口岸出入境。今年以来，上海口岸出入境外籍人员总数达671.2万人次，同比增长20.8%；其中，入境外籍人员总数达330.8万人次，同比增长20.2%。 今年端午假期(6月19日至6月21日)，上海边检机关累计查验出入境人员数31.3万人次，同比增长9.4%。其间，
+一粒小纽扣，如何联动大市场(财经深一度·宝藏小城的出口生意经) 在浙江温州永嘉县桥头镇，一座巨型纽扣造型雕塑巍然矗立。纽扣，正是桥头镇的亮眼名片——这里是名扬海内外的“中国纽扣之都”。 创业以来，面对不断变化的市场环境，当地纽扣产业如何一步步转型升级、创新发展？记者走进永嘉，探寻小纽扣中的市场脉动。 从桥头地摊出发，漂洋过海销往世界3月，桥头纽扣市场一派繁忙景象，各家店铺门口堆
 
 ## 正文
 
-中新网上海6月22日电 (记者 陈静)上海边检总站方面22日披露，今年截至6月22日，逾2000万人次中外旅客从上海口岸出入境。
+一粒小纽扣，如何联动大市场(财经深一度·宝藏小城的出口生意经) 在浙江温州永嘉县桥头镇，一座巨型纽扣造型雕塑巍然矗立。
 
-今年以来，上海口岸出入境外籍人员总数达671.2万人次，同比增长20.8%；其中，入境外籍人员总数达330.8万人次，同比增长20.2%。
+纽扣，正是桥头镇的亮眼名片——这里是名扬海内外的“中国纽扣之都”。
 
-今年端午假期(6月19日至6月21日)，上海边检机关累计查验出入境人员数31.3万人次，同比增长9.4%。
+创业以来，面对不断变化的市场环境，当地纽扣产业如何一步步转型升级、创新发展？
 
-其间，上海口岸出境内地居民数近10万人次，占出境旅客总量的56.9%。
+记者走进永嘉，探寻小纽扣中的市场脉动。
 
-韩国、泰国、新加坡、马来西亚仍是民众热门出境目的地，不少旅客通过“年假+小长假”方式错峰出行，跨境短途游热度明显上升。
+从桥头地摊出发，漂洋过海销往世界3月，桥头纽扣市场一派繁忙景象，各家店铺门口堆满的纽扣包裹，将发往全球各地。
 
-同时，毕业季带动的“青春出行”也成为假期出境客流的一大亮点。
+今年79岁的王碎奶，精神矍铄，时不时拉住相熟的商户嘱咐：“质量过关、价格实在，才能留得住客户。
 
-端午假期，外籍旅客来华旅游热度不减。
+”她是桥头镇纽扣生意最早的开拓者之一，也是当地纽扣产业40余年发展的亲历者与见证者。
 
-据统计，端午假期上海口岸入境外籍旅客达4.5万人次。
+上世纪70年代末，桥头人基本靠种地勉强糊口。
 
 ## 相关推荐
 
-- 2026-06-30 00:04 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 00:14 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 23:56 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 00:01 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 00:07 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 00:17 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 23:56 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 00:05 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 23:50 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 00:08 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 00:02 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 00:13 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 00:14 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 00:17 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 00:03 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 23:58 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 00:04 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 00:22 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 00:20 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 00:03 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 00:18 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 00:12 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 00:00 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 23:54 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:02 - [金牌调解](http://www.share.minike.top/Article/details/0107097.shtml)
-- 2026-06-30 00:08 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/34295881.shtml)
-- 2026-06-29 23:57 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/28136972.shtml)
-- 2026-06-30 00:01 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/950066626565.shtml)
-- 2026-06-30 00:05 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/31543.shtml)
-- 2026-06-29 23:52 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/707125908.shtml)
-- 2026-06-30 00:09 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/53436002.shtml)
-- 2026-06-30 00:12 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/32966407618.shtml)
-- 2026-06-30 00:15 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/908412512627.shtml)
-- 2026-06-29 23:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/61419080.shtml)
-- 2026-06-29 23:56 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/0731151504.shtml)
-- 2026-06-30 00:06 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/676762164315.shtml)
-- 2026-06-30 00:10 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/94875063586.shtml)
-- 2026-06-29 23:59 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/19392.shtml)
-- 2026-06-29 23:51 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/733072990289.shtml)
+- 2026-06-30 00:06 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/649847679592.shtml)
+- 2026-06-30 00:08 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/77658.shtml)
+- 2026-06-30 00:08 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/98175862501.shtml)
+- 2026-06-30 00:06 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/8233888532.shtml)
+- 2026-06-30 00:03 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/01311564012.shtml)
+- 2026-06-29 23:59 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/047858426452.shtml)
+- 2026-06-30 00:22 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/46120590672.shtml)
+- 2026-06-30 00:06 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/598751393307.shtml)
+- 2026-06-30 00:07 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/471872075113.shtml)
+- 2026-06-30 00:01 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/35750321715.shtml)
+- 2026-06-30 00:19 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/3875145020.shtml)
+- 2026-06-30 00:01 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/95987289.shtml)
+- 2026-06-30 00:20 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/126364363.shtml)
+- 2026-06-30 00:22 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/199384.shtml)
+- 2026-06-29 23:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/89430198228.shtml)

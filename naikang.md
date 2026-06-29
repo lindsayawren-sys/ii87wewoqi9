@@ -1,58 +1,57 @@
-# 欧洲央行管委：若通胀蔓延至能源领域以外，将支持下月再次加息
+# 绥芬河口岸一季度入境外籍游客同比增长100.5%
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-欧洲央行管委、比利时央行行长皮埃尔·温施（Pierre Wunsch）周五表示，如果看到欧元区通胀蔓延至能源以外的更多迹象，欧洲央行最早可能在下个月再次加息，即便美伊协议已令油价承压下行。 欧洲央行上周进行了三年来首次加息。此后，美国和伊朗达成的临时和平协议引发油价大幅下跌，缓解了人们对能源价格持续引发通胀冲击的担忧。 温施经常被视为支持高利率的政策鹰派，他表示，一项经确认的协
+中新网绥芬河4月20日电 (王琳 韩竺夏)绥芬河市委宣传部于20日对外发布消息，2026年第一季度，绥芬河口岸旅检入境游客达46652人次，同比增长47.7%；其中入境外籍游客26919人次，同比增长100.5%。免签政策实施以来，口岸枢纽作用进一步显现。 通关服务升级是客流增长的重要支撑。当地多部门联动搭建口岸服务联盟，一站式服务站、双语窗口与中俄双语小程序全面落地，推动通关
 
 ## 正文
 
-欧洲央行管委、比利时央行行长皮埃尔·温施（Pierre Wunsch）周五表示，如果看到欧元区通胀蔓延至能源以外的更多迹象，欧洲央行最早可能在下个月再次加息，即便美伊协议已令油价承压下行。
+中新网绥芬河4月20日电 (王琳 韩竺夏)绥芬河市委宣传部于20日对外发布消息，2026年第一季度，绥芬河口岸旅检入境游客达46652人次，同比增长47.7%；其中入境外籍游客26919人次，同比增长100.5%。
 
-欧洲央行上周进行了三年来首次加息。
+免签政策实施以来，口岸枢纽作用进一步显现。
 
-此后，美国和伊朗达成的临时和平协议引发油价大幅下跌，缓解了人们对能源价格持续引发通胀冲击的担忧。
+通关服务升级是客流增长的重要支撑。
 
-温施经常被视为支持高利率的政策鹰派，他表示，一项经确认的协议应该会降低通胀，并支持欧元区经济增长——甚至可能导致明年石油供应过剩。
+当地多部门联动搭建口岸服务联盟，一站式服务站、双语窗口与中俄双语小程序全面落地，推动通关效率提升30%以上。
 
-但他认为，如果服务业等行业的通胀上升，欧洲央行可能仍需再次加息，即便最终可能再度降息。
+外籍游客落地自驾、离境退税、卢布便捷支付等配套措施同步完善，6家退税商店覆盖核心商圈。
 
-“我们看到的服务业通胀数据不太乐观，”温施表示。
+24小时俄语报警求助与双语维权平台实现涉外投诉办结率100%，跨境旅游专列、机场专线及远程航线加密，立体化跨境出行网络加速成型。
 
-他指的是欧元区5月份服务业通胀率从3.0%升至3.5%。
+文旅商产深度融合进一步释放消费潜力。
 
-“如果这种情况持续下去，为了安全起见，或许应该再加息25个基点，然后等到通胀趋势开始逆转时再降息。
+绥芬河深耕跨境研学、中医药康养等特色业态，2025年累计接待俄罗斯研学师生近3000人次，康养接待量同比增长17%。
 
 ## 相关推荐
 
-- 2026-06-29 23:50 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 00:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 23:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 23:59 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 23:49 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 00:04 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 00:10 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 23:59 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 23:55 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 23:58 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 00:17 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 00:09 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 23:54 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 23:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 23:57 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 00:14 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 00:23 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 00:19 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 00:22 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 23:57 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 23:55 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 00:09 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 00:08 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:10 - [啊啊啊](https://www.blog.minike.top/Article/details/6705312053.shtml)
-- 2026-06-30 00:12 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/72137.shtml)
-- 2026-06-29 23:50 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/84476876295.shtml)
-- 2026-06-29 23:58 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/5084496824.shtml)
-- 2026-06-29 23:51 - [我们的少年时代2](http://www.blog.minike.top/Article/details/04311301143.shtml)
-- 2026-06-30 00:17 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/687417.shtml)
-- 2026-06-29 23:48 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/6542416.shtml)
-- 2026-06-30 00:15 - [女心理师](http://www.share.minike.top/Article/details/19952.shtml)
-- 2026-06-30 00:03 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/81755.shtml)
-- 2026-06-29 23:55 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/504831.shtml)
-- 2026-06-30 00:02 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/086903770.shtml)
-- 2026-06-30 00:10 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/73247.shtml)
-- 2026-06-29 23:54 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/088887305365.shtml)
-- 2026-06-30 00:04 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/165713204064.shtml)
-- 2026-06-30 00:12 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/3407661.shtml)
+- 2026-06-29 23:58 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/94164.shtml)
+- 2026-06-30 00:15 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/78526545405.shtml)
+- 2026-06-30 00:20 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/258687891062.shtml)
+- 2026-06-30 00:15 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/407799865019.shtml)
+- 2026-06-30 00:21 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/028904397729.shtml)
+- 2026-06-30 00:22 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/7693460015.shtml)
+- 2026-06-30 00:14 - [月亮](http://www.blog.minike.top/Article/details/36475777.shtml)
+- 2026-06-30 00:13 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/65104.shtml)
+- 2026-06-29 23:58 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/00373.shtml)
+- 2026-06-30 00:00 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/32601815.shtml)
+- 2026-06-30 00:04 - [扬名立万](https://www.share.kurohicncr.top/Article/details/78163176366.shtml)
+- 2026-06-30 00:02 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/6162759.shtml)
+- 2026-06-29 23:57 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/584703.shtml)
+- 2026-06-30 00:21 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/34635.shtml)
+- 2026-06-30 00:15 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/9987743384.shtml)

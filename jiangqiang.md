@@ -1,60 +1,57 @@
-# 评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”
+# 宁德时代午前涨超5%创新高 机构指H股溢价彰显稀缺性
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新社北京6月19日电 题：“张凌赫现象”凸显两岸同胞可以“双向奔赴” 中新社记者 容海升 从电视剧《逐玉》在台热播，到岛内青年“只要叫张凌赫来台湾就好”的呼声，大陆演员张凌赫引发一系列跨圈层的社会讨论和文化效应，成为两岸交流不可忽视的一个现象。“张凌赫现象”表层是台湾观众对青年演艺人员的喜爱，其根本仍是交流中“双向奔赴”。 这种“双向奔赴”有其文化脉络。早年间，台湾言情剧、偶
+宁德时代（03750）盘中涨超6%，高见745港元，创上市新高。截至发稿，股价上涨5.48%，现报741港元，成交额12.83亿港元。 4月21日，宁德时代将举办2026年“超级科技日”发布会，届时或发布钠电、凝聚态、快充等相关技术产品。公司表示，这是成立以来技术密度最高的一场发布会，每一个全新的技术、产品和生态都指向行业最关注的问题。华泰证券此前指出，公司一季度业绩超出预期，
 
 ## 正文
 
-中新社北京6月19日电 题：“张凌赫现象”凸显两岸同胞可以“双向奔赴” 中新社记者 容海升 从电视剧《逐玉》在台热播，到岛内青年“只要叫张凌赫来台湾就好”的呼声，大陆演员张凌赫引发一系列跨圈层的社会讨论和文化效应，成为两岸交流不可忽视的一个现象。
+宁德时代（03750）盘中涨超6%，高见745港元，创上市新高。
 
-“张凌赫现象”表层是台湾观众对青年演艺人员的喜爱，其根本仍是交流中“双向奔赴”。
+截至发稿，股价上涨5.48%，现报741港元，成交额12.83亿港元。
 
-这种“双向奔赴”有其文化脉络。
+4月21日，宁德时代将举办2026年“超级科技日”发布会，届时或发布钠电、凝聚态、快充等相关技术产品。
 
-早年间，台湾言情剧、偶像剧给大陆观众留下深刻印象，大陆早期偶像剧从中汲取不少创作技巧。
+公司表示，这是成立以来技术密度最高的一场发布会，每一个全新的技术、产品和生态都指向行业最关注的问题。
 
-近年来，《甄嬛传》《琅琊榜》《繁花》等大陆剧集相继成为台湾社交媒体热门话题，剧中台词也流行一时。
+华泰证券此前指出，公司一季度业绩超出预期，超出原因主要是乘用车单车带电量提升、商用车电动化加速，叠加公司市场份额提升，带动公司电池出货超预期。
 
-观看同一剧集时，两岸观众能共同理解台词。
+看好公司凭借领先的技术与产品力、加速渗透的全球版图布局，持续加深龙头护城河。
 
-这种默契，源自两岸同根同源的传统文化积淀。
+此外，针对宁德时代港股较A股显著溢价，兴业证券指出，宁德时代AH溢价率本质上是公司在全球市场中稀缺性和龙头地位的象征，反映了中国新能源企业获得全球资金的认可。
 
-这种“双向奔赴”体现市场选择。
+相比于对锂电行业短周期波动的关注，海外中长期资本更看重宁德时代作为全球电池龙头的地位、长期成长性及其在全球能源转型时代中的稀缺性。
 
 ## 相关推荐
 
-- 2026-06-30 00:00 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 23:48 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 23:53 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 00:11 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 00:03 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 00:15 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 00:10 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 00:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 00:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 00:03 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 23:50 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 23:57 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 00:08 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 23:59 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 00:15 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 00:13 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 00:11 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 00:18 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 00:15 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 23:57 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 00:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 23:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 00:12 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 00:10 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 00:16 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/611881444541.shtml)
-- 2026-06-30 00:14 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/27255.shtml)
-- 2026-06-30 00:02 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/518365070322.shtml)
-- 2026-06-29 23:56 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/41663676.shtml)
-- 2026-06-30 00:05 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/175458329480.shtml)
-- 2026-06-29 23:57 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/67331474.shtml)
-- 2026-06-30 00:10 - [逃狱兄弟](http://www.blog.minike.top/Article/details/210442480.shtml)
-- 2026-06-30 00:07 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/2420727440.shtml)
-- 2026-06-29 23:48 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/027792381.shtml)
-- 2026-06-29 23:59 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/9212680834.shtml)
-- 2026-06-30 00:07 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/5973962.shtml)
-- 2026-06-30 00:05 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/6842022.shtml)
-- 2026-06-30 00:12 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/765590555.shtml)
-- 2026-06-29 23:50 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/70973638.shtml)
-- 2026-06-30 00:10 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/2251146978.shtml)
+- 2026-06-30 00:19 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/09910994667.shtml)
+- 2026-06-30 00:12 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/239383994.shtml)
+- 2026-06-30 00:12 - [时光音乐会](http://www.share.minike.top/Article/details/017912739577.shtml)
+- 2026-06-30 00:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/9647976435.shtml)
+- 2026-06-29 23:55 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/64655066.shtml)
+- 2026-06-30 00:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/326728.shtml)
+- 2026-06-30 00:01 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/06548386.shtml)
+- 2026-06-30 00:12 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/532301.shtml)
+- 2026-06-29 23:56 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/5535253.shtml)
+- 2026-06-29 23:58 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/182451120.shtml)
+- 2026-06-30 00:10 - [金牌调解](http://www.blog.minike.top/Article/details/2539511089.shtml)
+- 2026-06-30 00:05 - [啊啊啊](https://www.share.minike.top/Article/details/8682345.shtml)
+- 2026-06-30 00:03 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/9497192.shtml)
+- 2026-06-30 00:13 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/77521252.shtml)
+- 2026-06-30 00:02 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/8652379606.shtml)

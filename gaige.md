@@ -1,60 +1,57 @@
-# 赏民俗技艺、探石刻艺术 北京五塔寺端午文化嘉年华举办
+# 阿联酋据悉寻求与美国建立货币互换机制，警告若美元短缺或改用人民币交易石油
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新网北京6月19日电 (记者 徐婧)看古彩戏法、着汉服游园、打卡通关文牒……北京博物馆季之第十三届“五色五香——五塔寺端午文化嘉年华”主题活动19日在北京石刻艺术博物馆(五塔寺)举办，邀请市民观众漫步古刹赏民俗、观展览、品古韵。 本次活动由北京市文物局主办，北京石刻艺术博物馆承办。当天，多项非遗展演轮番登场、热闹纷呈。舞狮灵动喜庆，京剧韵味悠长，京韵大鼓铿锵婉转，古彩戏法精妙
+专题：中国股市有望走出新高 新兴科技是主线 据报道，阿联酋央行行长上周在华盛顿特区与美国财政部和美联储官员会晤期间，提出了建立货币互换机制的想法。 尽管阿联酋目前尚未受到伊朗冲突最严重的经济影响，但其能源基础设施已遭到破坏，而霍尔木兹海峡的封锁阻断了石油出口，从而影响了其美元计价的收入。 如果伊朗冲突引发更严重的经济衰退，与美国达成货币互换协议将为阿联酋央行提供廉价的美元供应，
 
 ## 正文
 
-中新网北京6月19日电 (记者 徐婧)看古彩戏法、着汉服游园、打卡通关文牒……北京博物馆季之第十三届“五色五香——五塔寺端午文化嘉年华”主题活动19日在北京石刻艺术博物馆(五塔寺)举办，邀请市民观众漫步古刹赏民俗、观展览、品古韵。
+专题：中国股市有望走出新高 新兴科技是主线 据报道，阿联酋央行行长上周在华盛顿特区与美国财政部和美联储官员会晤期间，提出了建立货币互换机制的想法。
 
-本次活动由北京市文物局主办，北京石刻艺术博物馆承办。
+尽管阿联酋目前尚未受到伊朗冲突最严重的经济影响，但其能源基础设施已遭到破坏，而霍尔木兹海峡的封锁阻断了石油出口，从而影响了其美元计价的收入。
 
-当天，多项非遗展演轮番登场、热闹纷呈。
+如果伊朗冲突引发更严重的经济衰退，与美国达成货币互换协议将为阿联酋央行提供廉价的美元供应，用于支撑与美元挂钩的迪拉姆，或在流动性不足时补充外汇储备。
 
-舞狮灵动喜庆，京剧韵味悠长，京韵大鼓铿锵婉转，古彩戏法精妙绝伦，多样民俗技艺精彩呈现，让观众近距离感受传统文化的深厚底蕴与鲜活生命力。
+据报道，阿联酋官员还指出，是美国挑起了伊朗战事，使阿联酋卷入这场毁灭性冲突，并表示如果美元供应紧张，他们可能被迫使用人民币或其他货币进行石油交易。
 
-互动体验项目融合传统与趣味。
+任何主要产油国放弃美元都将对美元的霸主地位构成重大威胁。
 
-博物馆内设置“射五毒”“投好运”等端午民俗小游戏，开展汉服体验、通关文牒集章打卡兑奖等活动，观众可身着汉服游园打卡，集章赢取特色礼品。
+沙特在1974年决定以美元计价其石油出口，这一举措帮助确立了美元在全球石油贸易中的标准地位。
 
-现场展示端午手工艺品与文创产品，兼具实用性与文化性。
+由于石油是制造业和运输业的核心投入，其他地区的供应链也纷纷美元化，从而巩固了美元在支付领域的主导地位。
 
-活动期间还开展即兴相声、魔术、快板等快闪演出和演员巡游，打造移步换景的游园体验，让各年龄段观众都能乐在其中。
+但德意志银行的析师上个月警告称，伊朗冲突可能会加剧所谓“石油美元”体系中已经出现的一些裂痕。
 
 ## 相关推荐
 
-- 2026-06-29 23:49 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 23:50 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 00:12 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 00:16 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 00:03 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 00:14 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 23:54 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 00:04 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 00:07 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 00:07 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 00:17 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 23:51 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 23:54 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 23:50 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 00:13 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 00:02 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 00:15 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 00:10 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 00:09 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 00:19 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 00:00 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 00:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 23:54 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 00:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 00:01 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/4563898.shtml)
-- 2026-06-29 23:55 - [刘念回应](https://www.blog.minike.top/Article/details/64023658.shtml)
-- 2026-06-30 00:01 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/390800790136.shtml)
-- 2026-06-29 23:50 - [金牌调解](https://www.blog.minike.top/Article/details/7077766031.shtml)
-- 2026-06-30 00:09 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/6313853.shtml)
-- 2026-06-29 23:59 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/07018847.shtml)
-- 2026-06-29 23:49 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/134602380245.shtml)
-- 2026-06-30 00:01 - [美人鱼](http://www.blog.minike.top/Article/details/6180794.shtml)
-- 2026-06-29 23:52 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/47864680.shtml)
-- 2026-06-29 23:52 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/41127162.shtml)
-- 2026-06-29 23:52 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/1392493.shtml)
-- 2026-06-30 00:08 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/3649962.shtml)
-- 2026-06-30 00:16 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/8279289.shtml)
-- 2026-06-30 00:17 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/751439.shtml)
-- 2026-06-30 00:10 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/045777961.shtml)
+- 2026-06-30 00:22 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/11217451.shtml)
+- 2026-06-30 00:21 - [月亮](http://www.blog.kurohicncr.top/Article/details/59613951.shtml)
+- 2026-06-30 00:10 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/3876753.shtml)
+- 2026-06-30 00:06 - [世界杯](http://www.share.minike.top/Article/details/16462.shtml)
+- 2026-06-30 00:23 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/448366.shtml)
+- 2026-06-30 00:06 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/86604.shtml)
+- 2026-06-30 00:13 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/15573.shtml)
+- 2026-06-29 23:55 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/901447.shtml)
+- 2026-06-30 00:10 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/720942369.shtml)
+- 2026-06-30 00:06 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/11033427645.shtml)
+- 2026-06-29 23:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/5170438429.shtml)
+- 2026-06-29 23:56 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/79830917481.shtml)
+- 2026-06-30 00:18 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/50720689.shtml)
+- 2026-06-29 23:58 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/745441.shtml)
+- 2026-06-30 00:14 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/14587384.shtml)

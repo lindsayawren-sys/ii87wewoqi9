@@ -1,61 +1,59 @@
-# 端午假期广东龙舟竞技赛超500场 近10万名健儿挥桨
+# 内蒙古：站在AI算力新风口
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新网佛山6月19日电 (记者 程景伟)“龙舟竞渡-2026‘请到广东过端午’主会场活动”19日在佛山南海西樵山天湖公园启幕。 本次活动整合文旅、赛事、商贸等优质资源，集中展现广东源远流长的端午民俗文化、丰富多元的文旅产品以及暖心务实的惠民举措，持续做强“请到广东过端午”省级文旅IP，全力打造全省统一的“龙舟竞渡”品牌。 活动现场开设“一水同舟·湾区非遗墟”端午市集，统筹省、市
+中新网呼和浩特4月21日电 (记者 李爱平)“可以说，今天的内蒙古站在了AI算力的新风口上。”内蒙古自治区政府副主席孙俊青21日在呼和浩特表示，随着人工智能技术与各行各业深度渗透融合，Token调用量井喷式增长，内蒙古算力产业迎来了前所未有的发展机遇。当天，内蒙古自治区政府新闻办召开“开局起步‘十五五’”专题新闻发布会，孙俊青表示，作为国家八大算力枢纽节点和十大数据中心集群之一
 
 ## 正文
 
-中新网佛山6月19日电 (记者 程景伟)“龙舟竞渡-2026‘请到广东过端午’主会场活动”19日在佛山南海西樵山天湖公园启幕。
+中新网呼和浩特4月21日电 (记者 李爱平)“可以说，今天的内蒙古站在了AI算力的新风口上。
 
-本次活动整合文旅、赛事、商贸等优质资源，集中展现广东源远流长的端午民俗文化、丰富多元的文旅产品以及暖心务实的惠民举措，持续做强“请到广东过端午”省级文旅IP，全力打造全省统一的“龙舟竞渡”品牌。
+”内蒙古自治区政府副主席孙俊青21日在呼和浩特表示，随着人工智能技术与各行各业深度渗透融合，Token调用量井喷式增长，内蒙古算力产业迎来了前所未有的发展机遇。
 
-活动现场开设“一水同舟·湾区非遗墟”端午市集，统筹省、市、区、镇四级资源，设置超50个摊位，汇聚广东各地的特色好物。
+当天，内蒙古自治区政府新闻办召开“开局起步‘十五五’”专题新闻发布会，孙俊青表示，作为国家八大算力枢纽节点和十大数据中心集群之一，内蒙古积淀了诸多硬核优势，“截至2025年底，我区(内蒙古)算力总规模在国家八大枢纽节点省份占比达15.5%。
 
-市集以“广货行天下”为牵引，业态涵盖岭南美食、传统非遗、潮流文创、农特产品等多元品类。
+今年一季度，全区算力规模较去年底增加4.3万P，增长18%。
 
-现场设置龙舟文化展示打卡区，配套包粽子、制香包、旱地龙舟等民俗互动体验，让游客在观赛之余沉浸式感受端午烟火气。
+” 孙俊青表示，内蒙古支持和林格尔数据中心集群高质量发展，统筹推进呼和浩特与乌兰察布算力协同发展，落地一批超大规模智算中心项目，深入推进京数蒙算、绿算进京，让内蒙古算力“供得上、算得快、质更优”。
 
-活动设置传统民俗、现代文艺、文旅发布、全域联动等板块，集观赏性、互动性、实用性于一体。
+据悉，内蒙古还将布局一批零碳数据中心园区，加快建设绿电直供、源网荷储一体化等基础设施，让每一度绿电都成为创新动能，每一个Token都转化为发展优势，实现算电协同化、算力绿色化、绿算高值化；深入开展“人工智能+”行动，聚焦能源电力、现代农牧业、冶金化工、稀土新材料、装备制造、生物技术等领域，落地行业垂直大模型应用，打造一批产业数智化转型标杆企业，推进人工智能赋能千行百业。
 
-庄重古朴的醒狮开场、意蕴悠长的主题文艺展演、干货满满的文旅惠民礼包与观赛地图发布依次呈现。
-
-随后，西樵山特色“半山扒龙船”锦龙盛会拉开帷幕。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:52 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 23:48 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 00:11 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 23:48 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 23:57 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 00:05 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 23:59 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 00:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-30 00:17 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 00:10 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 00:14 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 00:04 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 23:58 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 23:59 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 00:10 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 00:07 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 00:20 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 00:13 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 00:21 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 00:19 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 23:56 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 23:59 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 00:05 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 23:59 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 23:55 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 00:20 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 00:18 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 00:08 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 23:58 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 00:02 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/307472813341.shtml)
-- 2026-06-29 23:54 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/143331178324.shtml)
-- 2026-06-30 00:05 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/94264.shtml)
-- 2026-06-30 00:02 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/63624.shtml)
-- 2026-06-29 23:58 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/6207760578.shtml)
-- 2026-06-30 00:03 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/589459.shtml)
-- 2026-06-29 23:55 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/5774076075.shtml)
-- 2026-06-30 00:11 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/21191.shtml)
-- 2026-06-30 00:13 - [金牌调解](https://www.share.minike.top/Article/details/5715502.shtml)
-- 2026-06-30 00:02 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/53228532.shtml)
-- 2026-06-29 23:54 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/881929.shtml)
-- 2026-06-30 00:10 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/935229.shtml)
-- 2026-06-29 23:51 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/65180708550.shtml)
-- 2026-06-30 00:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/290014929351.shtml)
-- 2026-06-29 23:54 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/231245183.shtml)
+- 2026-06-30 00:20 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/342418170.shtml)
+- 2026-06-30 00:15 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/56429234414.shtml)
+- 2026-06-29 23:56 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/70068105.shtml)
+- 2026-06-30 00:14 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/223552922903.shtml)
+- 2026-06-30 00:08 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/411860106.shtml)
+- 2026-06-30 00:00 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/882945919.shtml)
+- 2026-06-29 23:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/13660247194.shtml)
+- 2026-06-30 00:08 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/746646357.shtml)
+- 2026-06-30 00:00 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/45728974.shtml)
+- 2026-06-29 23:55 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/935148.shtml)
+- 2026-06-30 00:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/225275415.shtml)
+- 2026-06-30 00:01 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/638346680847.shtml)
+- 2026-06-30 00:18 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/97078435.shtml)
+- 2026-06-30 00:02 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/45208177.shtml)
+- 2026-06-29 23:56 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/776213395394.shtml)

@@ -1,59 +1,52 @@
-# 超百亿主力资金狂涌！有色金属掀涨停潮！锡业股份等5股涨停，华宝基金有色ETF（159876）盘中涨超1.5%
+# 伊朗宣布重新封锁霍尔木兹海峡后 该海峡通航量骤降
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-今日（6月22日）主力资金涌入有色金属板块，截至发稿，有色金属板块获主力资金净流入超102亿元，板块吸金额高居31个申万一级行业首位！，同标的指数规模最大*的有色ETF华宝（159876）场内价格盘中涨超1.5%，现涨1.05%，日k线或已走出震荡上行台阶。 成份股方面，驰宏锌锗、有研新材、云南锗业、株冶集团、锡业股份5股涨停，盛和资源涨超8%，金钼股份涨逾7%，权重股洛阳钼业
+船舶航行数据显示，伊朗上周末宣布再次封锁全球最重要的石油咽喉要道后，霍尔木兹海峡的通航量显著减少。 据海洋交通网站（MarineTraffic）数据，过去六小时内仅有六艘船只穿越了该海峡，其中五艘通过了阿巴斯港外由伊朗批准的航线，另外一艘为悬挂伊朗国旗的货轮。 伊朗军事官员在周六宣布，对该海峡的管控已“恢复至常态”。此前一天，伊朗方面曾称已完全开放了这一水域。 海洋交通网站的数
 
 ## 正文
 
-今日（6月22日）主力资金涌入有色金属板块，截至发稿，有色金属板块获主力资金净流入超102亿元，板块吸金额高居31个申万一级行业首位！
+船舶航行数据显示，伊朗上周末宣布再次封锁全球最重要的石油咽喉要道后，霍尔木兹海峡的通航量显著减少。
 
-，同标的指数规模最大*的有色ETF华宝（159876）场内价格盘中涨超1.5%，现涨1.05%，日k线或已走出震荡上行台阶。
+据海洋交通网站（MarineTraffic）数据，过去六小时内仅有六艘船只穿越了该海峡，其中五艘通过了阿巴斯港外由伊朗批准的航线，另外一艘为悬挂伊朗国旗的货轮。
 
-成份股方面，驰宏锌锗、有研新材、云南锗业、株冶集团、锡业股份5股涨停，盛和资源涨超8%，金钼股份涨逾7%，权重股洛阳钼业涨超4%，北方稀土涨逾3%。
+伊朗军事官员在周六宣布，对该海峡的管控已“恢复至常态”。
 
-锂方面，磷酸铁锂价格一年翻倍，需求依然旺盛。
+此前一天，伊朗方面曾称已完全开放了这一水域。
 
-国金证券表示，锂电板块2026年将延续补库与涨价趋势。
+海洋交通网站的数据显示，在该水域临时开放的期间，从周五到周六大约有30艘船只通过了这里。
 
-动力电池库存下降，储能库存回升，行业整体进入主动补库阶段。
-
-碳酸锂、氢氧化锂等资源品价格受供给收缩影响上涨。
-
-钨方面，需求增长叠加供给受限提升钨价，章源钨业上调6月下半月长单采购报价。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 00:01 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 23:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 23:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 00:06 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-30 00:03 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 23:54 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 23:54 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 00:09 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 23:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-30 00:14 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 00:13 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 23:56 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 00:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 00:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 00:17 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 00:00 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 23:55 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 00:03 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 23:54 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 00:20 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 00:09 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 00:11 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 00:22 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:17 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/401429391621.shtml)
-- 2026-06-30 00:16 - [起风了](https://www.share.minike.top/Article/details/20278684414.shtml)
-- 2026-06-30 00:00 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/97049.shtml)
-- 2026-06-29 23:57 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/4510978.shtml)
-- 2026-06-30 00:10 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/752698942.shtml)
-- 2026-06-30 00:00 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/9006372435.shtml)
-- 2026-06-29 23:49 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/35251305889.shtml)
-- 2026-06-30 00:07 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/55947954.shtml)
-- 2026-06-29 23:54 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/45448.shtml)
-- 2026-06-29 23:54 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/6417537.shtml)
-- 2026-06-29 23:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/86813.shtml)
-- 2026-06-30 00:03 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/420005163205.shtml)
-- 2026-06-29 23:57 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/13920.shtml)
-- 2026-06-30 00:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/4719141444.shtml)
-- 2026-06-30 00:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/87656594873.shtml)
+- 2026-06-30 00:08 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/36758909.shtml)
+- 2026-06-30 00:10 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/10622439.shtml)
+- 2026-06-30 00:11 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/119798150.shtml)
+- 2026-06-30 00:12 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/947028619.shtml)
+- 2026-06-30 00:12 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/1110835.shtml)
+- 2026-06-29 23:55 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/500591869714.shtml)
+- 2026-06-30 00:10 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/27585260076.shtml)
+- 2026-06-30 00:10 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/11709963.shtml)
+- 2026-06-30 00:04 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/54324280281.shtml)
+- 2026-06-30 00:10 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/502765147.shtml)
+- 2026-06-30 00:08 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/002945610648.shtml)
+- 2026-06-29 23:57 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/345861141232.shtml)
+- 2026-06-29 23:59 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/67444.shtml)
+- 2026-06-30 00:19 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/1686399809.shtml)
+- 2026-06-30 00:18 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/958402456.shtml)

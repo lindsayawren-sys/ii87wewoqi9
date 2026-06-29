@@ -1,58 +1,45 @@
-# 巨力集团高管大变动，杨子卸任副董事长
+# 习近平同莫桑比克总统查波共同出席合作文件签字仪式
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新网北京6月22日电(记者 谢艺观)国家企业信用信息公示系统显示，6月10日，巨力集团有限公司(以下简称“巨力集团”)发生工商变更，多名公司高管现职务变动。另据天眼查信息，杨建忠卸任总经理、董事长，杨子卸任副董事长，由杨建忠担任经理。 巨力集团持股信息显示，杨建忠持股83%、杨子持股17%。 公开信息显示，巨力集团创始于1985年，是以索具为主体的国际化集团上市公司，旗下的巨
+新华社快讯：4月21日，国家主席习近平同莫桑比克总统查波在北京共同出席合作文件签字仪式。
 
 ## 正文
 
-中新网北京6月22日电(记者 谢艺观)国家企业信用信息公示系统显示，6月10日，巨力集团有限公司(以下简称“巨力集团”)发生工商变更，多名公司高管现职务变动。
-
-另据天眼查信息，杨建忠卸任总经理、董事长，杨子卸任副董事长，由杨建忠担任经理。
-
-巨力集团持股信息显示，杨建忠持股83%、杨子持股17%。
-
-公开信息显示，巨力集团创始于1985年，是以索具为主体的国际化集团上市公司，旗下的巨力索具股份有限公司(以下简称“巨力索具”)专注于索具研发、制造、检测、销售。
-
-值得一提的是，5月份，巨力索具曾发布公告，公司于5月15日收到证监会下发的《中国证券监督管理委员会立案告知书》，因公司涉嫌信息披露误导性陈述违法违规，2026年5月13日，证监会决定对公司立案。
-
-今年3月，深交所就曾对巨力索具及相关当事人作出通报批评处分，违规行为包括：“商业航天”属于市场热点概念，但巨力索具对商业航天业务的信息发布不完整，风险提示不充分；未及时核实并澄清相关市场传闻。
-
-(完)
+新华社快讯：4月21日，国家主席习近平同莫桑比克总统查波在北京共同出席合作文件签字仪式。
 
 ## 相关推荐
 
-- 2026-06-30 00:04 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 00:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-30 00:06 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 23:53 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 00:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 00:06 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 00:05 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 00:17 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 00:10 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 23:53 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 00:08 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 00:15 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 23:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 23:58 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 00:20 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 00:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 23:59 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 23:56 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 00:02 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 00:00 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 00:08 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 00:12 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 00:20 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 23:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 00:14 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 00:21 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 00:20 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:50 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/5624649642.shtml)
-- 2026-06-29 23:58 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/2991838.shtml)
-- 2026-06-29 23:48 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/586972216111.shtml)
-- 2026-06-30 00:03 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/575324.shtml)
-- 2026-06-30 00:04 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/26422.shtml)
-- 2026-06-30 00:04 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/0290293.shtml)
-- 2026-06-30 00:12 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/18975357242.shtml)
-- 2026-06-30 00:08 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/003106534.shtml)
-- 2026-06-30 00:09 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/63181494363.shtml)
-- 2026-06-29 23:55 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/2170858.shtml)
-- 2026-06-29 23:58 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/85176.shtml)
-- 2026-06-30 00:12 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/244719586.shtml)
-- 2026-06-30 00:14 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/49324.shtml)
-- 2026-06-30 00:04 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/6477801826.shtml)
-- 2026-06-29 23:51 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/3447983997.shtml)
+- 2026-06-30 00:07 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/06325754287.shtml)
+- 2026-06-29 23:55 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/82110859.shtml)
+- 2026-06-29 23:56 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/66036982140.shtml)
+- 2026-06-30 00:20 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/0260462419.shtml)
+- 2026-06-30 00:02 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/653696407451.shtml)
+- 2026-06-30 00:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/47126351979.shtml)
+- 2026-06-30 00:17 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/733156924100.shtml)
+- 2026-06-30 00:21 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/79290.shtml)
+- 2026-06-30 00:21 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/1751062588.shtml)
+- 2026-06-30 00:23 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/689498291.shtml)
+- 2026-06-30 00:05 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/605897.shtml)
+- 2026-06-30 00:11 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/6473351362.shtml)
+- 2026-06-30 00:15 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/2639397.shtml)
+- 2026-06-30 00:08 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/6533549257.shtml)
+- 2026-06-30 00:22 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/2834797.shtml)

@@ -1,58 +1,59 @@
-# 进一步健全投融资相协调的资本市场功能 更好服务新质生产力和经济高质量发展
+# “白大褂”直播带货？警惕保健品营销陷阱
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-本文转载自：中国证券投资基金业协会 尊敬的吉宁书记、小川行长、龚正市长，各位领导、各位来宾，女士们、先生们： 大家上午好！很高兴又一次参加陆家嘴论坛。近来，世界形势变乱交织，国际经贸秩序深刻调整，全球金融市场高位波动，给经济发展和金融稳定带来了新考验，也对加强金融治理与监管合作提出了新课题。刚才，何立峰副总理在主旨演讲中深刻洞察世界经济金融发展大势，全面阐释进一步加快推进金融强
+近期，一些私域直播、社群营销打着“健康讲座”“专家直播”等旗号，专门针对老年人进行保健产品等推销。对此，国家卫生健康委发出四点提示。 国家卫生健康委新闻发言人胡强强介绍，一些推销保健产品的营销号上，有的由“演员”假扮成“医学专家”按稿宣讲，有的夸大、篡改保健产品的功效从而高价销售，还有的通过送礼品、听课领福利等方式引流，再以“健康焦虑”“情感陪伴”等话术层层诱导消费者，侵害老年
 
 ## 正文
 
-本文转载自：中国证券投资基金业协会 尊敬的吉宁书记、小川行长、龚正市长，各位领导、各位来宾，女士们、先生们： 大家上午好！
+近期，一些私域直播、社群营销打着“健康讲座”“专家直播”等旗号，专门针对老年人进行保健产品等推销。
 
-很高兴又一次参加陆家嘴论坛。
+对此，国家卫生健康委发出四点提示。
 
-近来，世界形势变乱交织，国际经贸秩序深刻调整，全球金融市场高位波动，给经济发展和金融稳定带来了新考验，也对加强金融治理与监管合作提出了新课题。
+国家卫生健康委新闻发言人胡强强介绍，一些推销保健产品的营销号上，有的由“演员”假扮成“医学专家”按稿宣讲，有的夸大、篡改保健产品的功效从而高价销售，还有的通过送礼品、听课领福利等方式引流，再以“健康焦虑”“情感陪伴”等话术层层诱导消费者，侵害老年人的健康权益和财产安全。
 
-刚才，何立峰副总理在主旨演讲中深刻洞察世界经济金融发展大势，全面阐释进一步加快推进金融强国建设的战略考量和重点部署，对于我们廓清认识、直面挑战、把握机遇，以自身发展的确定性应对各种不确定性提供了重要遵循。
+国家卫生健康委提醒大家：第一，凡是打着“专家讲座”“白大褂推荐”等旗号销售相关产品的，都要提高警惕，更不要因所谓专家的“头衔包装”和虚假的“案例见证”而盲目下单。
 
-我们将深入学习领会，认真抓好落实。
+所谓“专家”标榜的“头衔”越多越大，往往欺诈可能性越高。
 
-借此机会，我就加强资本市场功能建设，更好服务新质生产力和经济高质量发展，与大家作个交流。
+第二，警惕“送礼品、领红包、听课领福利”等引流手段。
 
-一、新“国九条”和“1+N”政策体系全面落地，中国资本市场稳中向好的确定性明显增强 2024年4月国务院出台的《关于加强监管防范风险推动资本市场高质量发展的若干意见》（简称新“国九条”），全面贯彻习近平总书记关于资本市场的一系列重要论述和中央金融工作会议精神，系统重塑市场基础制度和监管底层逻辑。
+此类私域营销往往先以小恩小惠的形式获取信任，再通过反复宣讲、情感拉近、焦虑渲染等方式推销。
 
-两年多来，在中央金融委及其办公室统筹指挥协调下，中国证监会以贯彻落实新“国九条”为契机，紧扣防风险、强监管、促高质量发展的主线，会同有关方面相继出台了近70项配套政策文件并狠抓落实，监管体系和制度机制建设取得重要突破，成效日益显现。
+家属要多关注老年人的入群、听课、下单等情况。
 
 ## 相关推荐
 
-- 2026-06-30 00:10 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 00:11 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 00:06 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 00:02 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 23:58 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 00:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 00:02 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 23:57 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 00:10 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 23:48 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 00:06 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 23:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 23:54 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 00:14 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 00:08 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 00:18 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 23:54 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 00:16 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 00:02 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 00:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 23:56 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 23:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 00:18 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 00:18 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 00:18 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:12 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/14087479810.shtml)
-- 2026-06-29 23:49 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/6352702977.shtml)
-- 2026-06-30 00:10 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/04988435.shtml)
-- 2026-06-30 00:02 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/142716676.shtml)
-- 2026-06-29 23:59 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/94637448.shtml)
-- 2026-06-29 23:55 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/6382452.shtml)
-- 2026-06-30 00:18 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/353526616198.shtml)
-- 2026-06-30 00:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/546502245081.shtml)
-- 2026-06-30 00:14 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/406101767.shtml)
-- 2026-06-29 23:54 - [天道](http://www.share.kurohicncr.top/Article/details/260490.shtml)
-- 2026-06-29 23:54 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/1244404.shtml)
-- 2026-06-29 23:52 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/9073415.shtml)
-- 2026-06-30 00:04 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/12434307005.shtml)
-- 2026-06-30 00:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/999727940847.shtml)
-- 2026-06-30 00:09 - [爱很美味](https://www.blog.minike.top/Article/details/0785427289.shtml)
+- 2026-06-30 00:21 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/95070569671.shtml)
+- 2026-06-30 00:10 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/658334408008.shtml)
+- 2026-06-30 00:11 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/260500.shtml)
+- 2026-06-30 00:08 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/2014995.shtml)
+- 2026-06-30 00:11 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/890396348.shtml)
+- 2026-06-29 23:58 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/1008491354.shtml)
+- 2026-06-30 00:22 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/31127730.shtml)
+- 2026-06-29 23:58 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/114209776.shtml)
+- 2026-06-30 00:05 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/519902.shtml)
+- 2026-06-29 23:55 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/725399413.shtml)
+- 2026-06-29 23:58 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/70881.shtml)
+- 2026-06-29 23:59 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/10259.shtml)
+- 2026-06-30 00:22 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/89883356954.shtml)
+- 2026-06-30 00:15 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/475205.shtml)
+- 2026-06-29 23:56 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/91380744.shtml)

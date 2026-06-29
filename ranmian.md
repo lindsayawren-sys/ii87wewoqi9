@@ -1,52 +1,57 @@
-# 广西龙胜梳秧节：云端梯田趣味拔河 千年农耕古俗引客来
+# 追觅俞浩：只要研究5个规律就可以管1000家公司
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 14:20 来源：中国新闻网 6月19日至6月20日正值端午假期，广西桂林市龙胜各族自治县龙脊镇平安村迎来一年一度的“梳秧节”。当地壮族村民在风景如画的梯田间进行拔河比赛。丰富多彩的民俗活动吸引众多中外游客前来观赏体验。 (杨宗盛 潘志祥 制作 王佳琪） 责任编辑：【李季】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：晚点LatePost 原标题：对话追觅俞浩：我的真实世界 追觅创始人 俞浩 从百万亿公司到为人类探索边界，俞浩想讲一套什么逻辑？ 文丨小晚 管艺雯 追觅创始人俞浩，将会是中国商业史上最具争议的创业者之一。 这不仅因为他在短时间内闯入诸多赛道，从扫地机、吸尘器到汽车、手机、大家电，还因为他对创新、管理、
 
 ## 正文
 
-发布时间：2026年06月21日 14:20 来源：中国新闻网 6月19日至6月20日正值端午假期，广西桂林市龙胜各族自治县龙脊镇平安村迎来一年一度的“梳秧节”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当地壮族村民在风景如画的梯田间进行拔河比赛。
+来源：晚点LatePost 原标题：对话追觅俞浩：我的真实世界 追觅创始人 俞浩 从百万亿公司到为人类探索边界，俞浩想讲一套什么逻辑？
 
-丰富多彩的民俗活动吸引众多中外游客前来观赏体验。
+文丨小晚 管艺雯 追觅创始人俞浩，将会是中国商业史上最具争议的创业者之一。
 
-(杨宗盛 潘志祥 制作 王佳琪） 责任编辑：【李季】
+这不仅因为他在短时间内闯入诸多赛道，从扫地机、吸尘器到汽车、手机、大家电，还因为他对创新、管理、商业的种种理解，几乎都站在主流认知的反面。
+
+1987 年出生于江苏南通的俞浩，因物理竞赛获奖被保送至清华大学航空航天系。
+
+他早年想做物理学家，研究生阶段试着研究湍流问题，很快放弃，转向工程与制造。
+
+2017 年他创办追觅，从高速数字马达做起，曾是小米生态链最边缘的代工厂，自建品牌、出海、高端化。
+
+俞浩说，追觅成立以来，每年都保持 100% 的收入增速。
 
 ## 相关推荐
 
-- 2026-06-30 00:17 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 23:56 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 23:58 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 00:08 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 23:58 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 00:00 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 00:00 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 23:52 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 23:54 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 00:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 23:58 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 23:54 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 00:00 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 00:06 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 00:10 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 00:15 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 00:02 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 00:10 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 00:20 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 00:13 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 00:10 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 00:08 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 00:09 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 00:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 00:23 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:51 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/7231015204.shtml)
-- 2026-06-29 23:56 - [世界杯](http://www.blog.minike.top/Article/details/410445945636.shtml)
-- 2026-06-30 00:04 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/16442995.shtml)
-- 2026-06-30 00:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/5876467.shtml)
-- 2026-06-30 00:14 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/692405300.shtml)
-- 2026-06-29 23:50 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/188178.shtml)
-- 2026-06-29 23:49 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/744484.shtml)
-- 2026-06-29 23:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/3697588372.shtml)
-- 2026-06-30 00:08 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/6821978.shtml)
-- 2026-06-30 00:17 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/1016003.shtml)
-- 2026-06-29 23:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/47836759.shtml)
-- 2026-06-29 23:54 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/25901506.shtml)
-- 2026-06-29 23:48 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/093176812.shtml)
-- 2026-06-29 23:54 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/059250915.shtml)
-- 2026-06-30 00:11 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/5067164.shtml)
+- 2026-06-30 00:15 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/525755069.shtml)
+- 2026-06-29 23:54 - [爱很美味](http://www.blog.minike.top/Article/details/43477731.shtml)
+- 2026-06-30 00:02 - [起风了](https://www.share.kurohicncr.top/Article/details/3445386837.shtml)
+- 2026-06-30 00:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/4551431.shtml)
+- 2026-06-30 00:04 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/887386429.shtml)
+- 2026-06-30 00:21 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/2116559.shtml)
+- 2026-06-30 00:17 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/01733986777.shtml)
+- 2026-06-30 00:19 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/62734611.shtml)
+- 2026-06-30 00:21 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/39199069.shtml)
+- 2026-06-30 00:02 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/4168403.shtml)
+- 2026-06-30 00:11 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/88056284.shtml)
+- 2026-06-30 00:00 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/46849298.shtml)
+- 2026-06-30 00:02 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/6168965035.shtml)
+- 2026-06-30 00:16 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/99223134.shtml)
+- 2026-06-30 00:17 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/78015.shtml)

@@ -1,54 +1,46 @@
-# “90后”快递员倾心守护传承花鼓灯
+# 和誉-B拟按每股12.18港元配股 净筹约5.17亿港元
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月19日 22:08 来源：中国新闻网 在安徽省阜阳市颍上县，“90后”的韩琪在2016年退伍后，回到家乡经营了一家快递服务中心，每天为周边的居民提供邮件收发工作。十年来，他的客户好评率连续十年位居全省前列，始终保持零投诉、零差评。但工作之余，他心中始终牵挂着颍上花鼓灯的非遗传承。 韩琪自幼受乡土文化熏陶，13岁便拜师学艺，苦练兰花表演、锣鼓演奏与道具制
+和誉-B（02256）公布，于2026年4月21日，该公司拟透过配售代理发行4290万股配售股份，每股配售股份12.18港元，配售所得净额约5.17亿港元，约90%用于研发创新的肿瘤及非肿瘤候选药物、推进国际多中心临床试验及潜在的商业化活动；及约10%作一般及公司用途。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年06月19日 22:08 来源：中国新闻网 在安徽省阜阳市颍上县，“90后”的韩琪在2016年退伍后，回到家乡经营了一家快递服务中心，每天为周边的居民提供邮件收发工作。
+和誉-B（02256）公布，于2026年4月21日，该公司拟透过配售代理发行4290万股配售股份，每股配售股份12.18港元，配售所得净额约5.17亿港元，约90%用于研发创新的肿瘤及非肿瘤候选药物、推进国际多中心临床试验及潜在的商业化活动；及约10%作一般及公司用途。
 
-十年来，他的客户好评率连续十年位居全省前列，始终保持零投诉、零差评。
-
-但工作之余，他心中始终牵挂着颍上花鼓灯的非遗传承。
-
-韩琪自幼受乡土文化熏陶，13岁便拜师学艺，苦练兰花表演、锣鼓演奏与道具制作，这份热爱一守就是二十年。
-
-眼见老一辈艺人日渐老去，不少传统曲目、表演技法濒临失传，他暗下决心做花鼓灯的“守护者”。
-
-刘鸿鹤 安徽阜阳报道 责任编辑：【曲克】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:01 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 23:51 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 00:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 00:15 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-30 00:03 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 23:49 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 23:56 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 23:58 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 00:11 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 00:14 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 00:00 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 23:50 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 00:15 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 00:16 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 00:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 23:56 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 00:19 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 00:19 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 00:10 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 00:17 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 00:00 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 00:23 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 23:56 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 00:01 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/930560085014.shtml)
-- 2026-06-29 23:48 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/89610739571.shtml)
-- 2026-06-30 00:04 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/05630.shtml)
-- 2026-06-30 00:07 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/8666548067.shtml)
-- 2026-06-30 00:17 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/44743425391.shtml)
-- 2026-06-30 00:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/504625916.shtml)
-- 2026-06-30 00:17 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/7666416.shtml)
-- 2026-06-30 00:11 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/96727.shtml)
-- 2026-06-29 23:53 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/60107068.shtml)
-- 2026-06-30 00:02 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/556618.shtml)
-- 2026-06-30 00:00 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/6533492323.shtml)
-- 2026-06-29 23:56 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/00256.shtml)
-- 2026-06-30 00:08 - [世界杯](http://www.blog.kurohicncr.top/Article/details/1154132.shtml)
-- 2026-06-30 00:05 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/123415693450.shtml)
-- 2026-06-29 23:54 - [小娘惹](https://www.blog.minike.top/Article/details/129475502.shtml)
+- 2026-06-30 00:21 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/800879096.shtml)
+- 2026-06-30 00:02 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/06137798552.shtml)
+- 2026-06-30 00:03 - [曼城官宣马雷斯卡出任主教练](https://www.share.kurohicncr.top/Article/details/76893176.shtml)
+- 2026-06-29 23:58 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/716129.shtml)
+- 2026-06-29 23:55 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/102933.shtml)
+- 2026-06-29 23:54 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/021195156605.shtml)
+- 2026-06-30 00:13 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/4797032.shtml)
+- 2026-06-29 23:54 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/4715970769.shtml)
+- 2026-06-30 00:09 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/9858286142.shtml)
+- 2026-06-30 00:22 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/096237.shtml)
+- 2026-06-30 00:03 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/534104109.shtml)
+- 2026-06-30 00:01 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/73030005396.shtml)
+- 2026-06-30 00:18 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/4786024.shtml)
+- 2026-06-30 00:17 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/12625.shtml)
+- 2026-06-30 00:07 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/88465034541.shtml)

@@ -1,44 +1,60 @@
-# 挪威将禁止小学生使用生成式人工智能
+# “书店市集”“文创书屋”……今天，我们怎样逛书店
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 14:54 来源：央视新闻 责任编辑：【王祎】
+原标题：今天，我们怎样逛书店？(新语) “书店市集”“文创书屋”“宝藏书咖”……越来越多的实体书店不再是传统意义上的卖书场所，而是以多元形态嵌入商圈、街巷、景区，呈现出“多场景适配”特点。更让人惊喜的是，一些书店已经开始尝试用AI(人工智能)等新技术读懂读者的阅读偏好，提供多样化的阅读体验。 那么，我们要怎样逛书店？从奔着买书去，到沉浸于更加丰富的阅读场景：追求潮流文化的年轻人
 
 ## 正文
 
-发布时间：2026年06月21日 14:54 来源：央视新闻 责任编辑：【王祎】
+原标题：今天，我们怎样逛书店？
+
+(新语) “书店市集”“文创书屋”“宝藏书咖”……越来越多的实体书店不再是传统意义上的卖书场所，而是以多元形态嵌入商圈、街巷、景区，呈现出“多场景适配”特点。
+
+更让人惊喜的是，一些书店已经开始尝试用AI(人工智能)等新技术读懂读者的阅读偏好，提供多样化的阅读体验。
+
+那么，我们要怎样逛书店？
+
+从奔着买书去，到沉浸于更加丰富的阅读场景：追求潮流文化的年轻人，可以在书城快闪店中“打卡探秘”，并一路逛进阅读世界；带孩子的家长，可以参加各地新华书店的亲子共读课堂，感受亲子阅读的氛围。
+
+在浙江杭州梦蝶书店，一本本藏书被细致编目，重现上世纪30年代梨园记忆，逛书店成为一场与历史的对话。
+
+因地制宜、因人而异，书店不再是“大而全”的杂货铺，而是“小而美”的场景设计师；不是简单的业态堆叠，而是精准对接读者需求的文化空间。
+
+许多书店在转型初期，旨在帮读者找到好书；借助大数据和AI，书店变得越来越懂读者的阅读口味，开始探索如何为读者规划一条阅读成长之路。
 
 ## 相关推荐
 
-- 2026-06-30 00:06 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 23:57 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 23:53 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 00:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 23:56 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 23:57 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 23:58 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 00:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 00:03 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 00:15 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 00:11 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 23:49 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 00:00 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 23:55 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 00:05 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 23:58 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 00:12 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 00:03 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 00:00 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 23:58 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 00:11 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 00:05 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 23:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 00:02 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 23:57 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 23:55 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:11 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/5548769505.shtml)
-- 2026-06-29 23:59 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/22852927.shtml)
-- 2026-06-29 23:56 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/67218297.shtml)
-- 2026-06-30 00:06 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/67634.shtml)
-- 2026-06-30 00:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/76984694431.shtml)
-- 2026-06-30 00:07 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/1192336929.shtml)
-- 2026-06-30 00:17 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/23522317.shtml)
-- 2026-06-29 23:50 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/7060065162.shtml)
-- 2026-06-29 23:52 - [东方风云榜](https://www.blog.minike.top/Article/details/411280509658.shtml)
-- 2026-06-29 23:56 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/9749971.shtml)
-- 2026-06-30 00:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/30002232.shtml)
-- 2026-06-30 00:02 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/9796115921.shtml)
-- 2026-06-29 23:48 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/76903.shtml)
-- 2026-06-30 00:06 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/76893062547.shtml)
-- 2026-06-30 00:03 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/136256.shtml)
+- 2026-06-30 00:10 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/5382898.shtml)
+- 2026-06-30 00:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/59538920275.shtml)
+- 2026-06-30 00:08 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/829556552040.shtml)
+- 2026-06-29 23:54 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/41735.shtml)
+- 2026-06-30 00:14 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/795671317.shtml)
+- 2026-06-30 00:06 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/52297.shtml)
+- 2026-06-30 00:06 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/369390116.shtml)
+- 2026-06-30 00:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/045749114139.shtml)
+- 2026-06-29 23:55 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/51326.shtml)
+- 2026-06-30 00:03 - [时光音乐会](http://www.share.minike.top/Article/details/5881947.shtml)
+- 2026-06-30 00:00 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/25854016006.shtml)
+- 2026-06-30 00:11 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/3434268.shtml)
+- 2026-06-30 00:00 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/11568942.shtml)
+- 2026-06-30 00:20 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/592064.shtml)
+- 2026-06-30 00:07 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/97829.shtml)

@@ -1,57 +1,60 @@
-# 资管大佬：美国财政债务是核心支撑，黄金长牛根基仍在
+# 长城基金韩林：光纤行业高景气有望延续
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——市场普遍担忧新任美联储主席抗通胀政策会打压黄金，但默克投资创始人阿克塞尔·默克（Axel Merk）提出截然不同的判断。他认为沃什偏鹰举措仅会带来短期金价扰动，长期反而稳定市场波动，美国债务高企、持续财政赤字等结构性问题，才是支撑黄金牛市的底层逻辑，投资者不应单纯以利率涨跌判断黄金价值。 沃什偏鹰表态短期压制金价，改革举措降低市场剧烈波动 上周三（6月17日
+近期，A股光纤光缆板块热度持续升温。Wind数据显示，截至4月15日，光纤指数今年以来累计上涨81.31%。光纤光缆板块的这一行情是否具备支撑？行业景气度能否延续？针对这些投资关心的问题，长城数字经济混合基金经理韩林展开了深入分析。 针对光纤行业，近日多个券商研报分析，高景气有望持续到2027年。对此，韩林表示，基本认同券商研报判断，光纤行业高景气或将持续至2027年底，甚至有
 
 ## 正文
 
-汇通财经APP讯——市场普遍担忧新任美联储主席抗通胀政策会打压黄金，但默克投资创始人阿克塞尔·默克（Axel Merk）提出截然不同的判断。
+近期，A股光纤光缆板块热度持续升温。
 
-他认为沃什偏鹰举措仅会带来短期金价扰动，长期反而稳定市场波动，美国债务高企、持续财政赤字等结构性问题，才是支撑黄金牛市的底层逻辑，投资者不应单纯以利率涨跌判断黄金价值。
+Wind数据显示，截至4月15日，光纤指数今年以来累计上涨81.31%。
 
-沃什偏鹰表态短期压制金价，改革举措降低市场剧烈波动 上周三（6月17日），凯文·沃什（Kevin Warsh）完成就任美联储主席后的首场新闻发布会，全程将稳定物价、遏制通胀作为政策核心，强硬措辞令市场大幅上调加息预期，金价随之迎来短期回调。
+光纤光缆板块的这一行情是否具备支撑？
 
-阿克塞尔·默克表示，单纯从利率维度看，偏鹰政策确实会形成阶段性利空，但沃什推行的制度改革具备长远利好。
+行业景气度能否延续？
 
-他取消过度前瞻指引、弱化点阵图预期引导，减少央行频繁干预市场的行为，避免过往政策信号混乱带来的大幅行情震荡。
+针对这些投资关心的问题，长城数字经济混合基金经理韩林展开了深入分析。
 
-他说：“美联储过往政策调整总是滞后，容易放大市场冲击，减少政策预判类沟通，能够规避重大决策失误，整体降低资产波动率。
+针对光纤行业，近日多个券商研报分析，高景气有望持续到2027年。
 
-”在他看来，稳定的市场环境更利于黄金走出持续性行情。
+对此，韩林表示，基本认同券商研报判断，光纤行业高景气或将持续至2027年底，甚至有望在需求超预期情况下延长至2028年，这一轮涨价潮具备较强的持续性，核心支撑来自需求刚性与供给刚性形成的持续供需缺口。
 
-利率机会成本逻辑存在局限，黄金核心价值在于购买力保值 行业主流观点认为，美债收益率走高会抬升无息黄金的持有成本，进而压制金价，但默克对这套单一逻辑提出质疑。
+需求端，AI算力基建是长期系统性工程，并非短期脉冲式投入，Meta、微软等海外巨头光纤采购订单已覆盖至2030年，国内智算中心、一体化算力网络、千兆光网建设持续落地，根据CRU数据，数据中心光纤需求占比或将快速提升至2027年的30%-35%，无人机等场景也带来小幅增量，整体需求可能不会快速回落。
 
 ## 相关推荐
 
-- 2026-06-30 00:15 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 23:55 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 23:49 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 00:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 00:07 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 00:00 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 00:02 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 00:07 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 00:17 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 00:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 00:16 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 00:03 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 00:17 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 00:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 00:07 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-30 00:16 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 00:19 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 23:58 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 00:14 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 23:57 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 00:01 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 23:59 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 00:16 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 23:58 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 00:17 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:58 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/65123.shtml)
-- 2026-06-30 00:01 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/490639161.shtml)
-- 2026-06-29 23:51 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/868778091.shtml)
-- 2026-06-30 00:14 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/767497388484.shtml)
-- 2026-06-30 00:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/949763850250.shtml)
-- 2026-06-30 00:12 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/566827.shtml)
-- 2026-06-30 00:15 - [青春环游记第三季](https://www.share.minike.top/Article/details/02876143.shtml)
-- 2026-06-30 00:17 - [女心理师](http://www.blog.kurohicncr.top/Article/details/591303890.shtml)
-- 2026-06-29 23:52 - [刘宇宁 好听](https://www.share.minike.top/Article/details/718793.shtml)
-- 2026-06-29 23:59 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/66619754.shtml)
-- 2026-06-30 00:10 - [一见倾心](https://www.share.minike.top/Article/details/133897.shtml)
-- 2026-06-30 00:14 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/7459992.shtml)
-- 2026-06-29 23:55 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/54257448384.shtml)
-- 2026-06-29 23:53 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/571158.shtml)
-- 2026-06-29 23:54 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/0759039.shtml)
+- 2026-06-30 00:21 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/599731246983.shtml)
+- 2026-06-30 00:08 - [起风了](https://www.share.kurohicncr.top/Article/details/6718167.shtml)
+- 2026-06-30 00:20 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/426894039.shtml)
+- 2026-06-30 00:21 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/118314397.shtml)
+- 2026-06-29 23:59 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/73007613817.shtml)
+- 2026-06-29 23:58 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/69616.shtml)
+- 2026-06-30 00:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/1549940.shtml)
+- 2026-06-30 00:13 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/7488546.shtml)
+- 2026-06-30 00:12 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/72858157896.shtml)
+- 2026-06-30 00:01 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/049955.shtml)
+- 2026-06-30 00:09 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/49602567.shtml)
+- 2026-06-30 00:13 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/92339805.shtml)
+- 2026-06-30 00:12 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/30516640.shtml)
+- 2026-06-30 00:04 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/721682177488.shtml)
+- 2026-06-30 00:05 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/06589.shtml)

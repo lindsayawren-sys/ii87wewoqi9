@@ -1,57 +1,58 @@
-# 中原建业拟发行7.73亿股认购股份
+# 梁家辉第五度夺得香港电影金像奖最佳男主角
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中原建业（09982）发布公告，于2026年6月18日，本公司与认购人（Star Bliss Investment Limited及Regulus Culture Limited）订立认购协议，认购人已有条件同意认购，而本公司已有条件同意配发及发行合共7.73亿股认购股份，认购价为每股认购股份0.09港元。 认购事项的所得款项总额为6957万港元，而认购事项的所得款项净额（经扣
+中新社香港4月19日电 (记者 戴小橦)第44届香港电影金像奖颁奖典礼19日晚在香港文化中心举行。香港演员梁家辉凭借在电影《捕风追影》中的出色表现，第五次夺得香港电影金像奖最佳男主角。 颁奖典礼现场，最佳电影、最佳男女主角、终身成就奖等奖项依次揭晓。其中，终身成就奖由香港演员周润发、导演刘伟强共同颁发，获奖者为被誉为“港产片特效之父”的朱家欣。 由演员转型导演的舒淇，凭借首部自
 
 ## 正文
 
-中原建业（09982）发布公告，于2026年6月18日，本公司与认购人（Star Bliss Investment Limited及Regulus Culture Limited）订立认购协议，认购人已有条件同意认购，而本公司已有条件同意配发及发行合共7.73亿股认购股份，认购价为每股认购股份0.09港元。
+中新社香港4月19日电 (记者 戴小橦)第44届香港电影金像奖颁奖典礼19日晚在香港文化中心举行。
 
-认购事项的所得款项总额为6957万港元，而认购事项的所得款项净额（经扣除本公司产生的相关开支后）将为6920万港元，相当于净认购价0.09港元。
+香港演员梁家辉凭借在电影《捕风追影》中的出色表现，第五次夺得香港电影金像奖最佳男主角。
 
-本公司一直积极监察行业内的结构性机遇，并探索与资产管理公司及地方不良资产纾困基金合作以发挥协同效应，为盘活不良资产及困境项目提供综合解决方案，同时发展困境项目管理的专业能力。
+颁奖典礼现场，最佳电影、最佳男女主角、终身成就奖等奖项依次揭晓。
 
-因此，认购人A的认购是一项策略性举措，透过将本集团的房地产代建专业知识与认购人A在不良资产领域的经验及交易寻源能力相结合，促进双方合作。
+其中，终身成就奖由香港演员周润发、导演刘伟强共同颁发，获奖者为被誉为“港产片特效之父”的朱家欣。
 
-凭藉此潜在战略合作伙伴关係，本集团可获得更多接触中国及香港困境项目机遇的渠道，并增强其提供增值重组及盘活服务的能力。
+由演员转型导演的舒淇，凭借首部自编自导的电影《女孩》拿下新晋导演奖。
 
-认购事项筹集的资金将支持本集团扩展困境房地产代建业务，并投资于技术创新，以提高其房地产代建服务的效率及生产力。
+舒淇感慨入行多年后再获“新人奖”，心情十分奇妙。
 
-因此，认购事项的投资可增强本集团的竞争地位，使其收入来源多元化，并推动长期可持续增长。
+她提到自己29年前曾斩获香港电影金像奖最佳新人与最佳女配角，自称“最老的新导演”，并向支持自己的香港观众及业内友人致谢。
 
-其亦表明认购人对本集团未来发展及前景的信心。
+入行41年的演员杜德伟，凭借电影《风林火山》首次提名香港电影金像奖，便成功拿下最佳男配角。
 
 ## 相关推荐
 
-- 2026-06-30 00:15 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 00:16 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 00:13 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 00:13 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 00:08 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 23:55 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 00:04 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-30 00:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 23:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 23:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 00:14 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 23:58 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 00:04 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 00:06 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 23:55 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 00:03 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 00:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 00:22 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 00:09 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 00:09 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 00:11 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 00:01 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 00:03 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:57 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/3982624303.shtml)
-- 2026-06-29 23:48 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/322518759747.shtml)
-- 2026-06-29 23:57 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/44237681.shtml)
-- 2026-06-30 00:01 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/12251.shtml)
-- 2026-06-30 00:17 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/051811324.shtml)
-- 2026-06-29 23:54 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/9155927.shtml)
-- 2026-06-29 23:48 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/42192966088.shtml)
-- 2026-06-29 23:52 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/81318.shtml)
-- 2026-06-29 23:52 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/82734.shtml)
-- 2026-06-30 00:08 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/8960683473.shtml)
-- 2026-06-29 23:50 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/327316.shtml)
-- 2026-06-30 00:06 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/31524229703.shtml)
-- 2026-06-30 00:13 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/32797.shtml)
-- 2026-06-30 00:08 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/6401989.shtml)
-- 2026-06-29 23:55 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/6281994.shtml)
+- 2026-06-30 00:15 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/580827031469.shtml)
+- 2026-06-30 00:01 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/4997118748.shtml)
+- 2026-06-30 00:05 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/2171544.shtml)
+- 2026-06-30 00:06 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/075927.shtml)
+- 2026-06-30 00:03 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/1400644.shtml)
+- 2026-06-29 23:54 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/28668054.shtml)
+- 2026-06-30 00:14 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/08107899.shtml)
+- 2026-06-30 00:08 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/6281273.shtml)
+- 2026-06-30 00:10 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/38415849.shtml)
+- 2026-06-30 00:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/36280322143.shtml)
+- 2026-06-30 00:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/420507361.shtml)
+- 2026-06-30 00:05 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/24618.shtml)
+- 2026-06-30 00:19 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/243171126163.shtml)
+- 2026-06-30 00:05 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/404347.shtml)
+- 2026-06-30 00:18 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/3739160681.shtml)

@@ -1,54 +1,54 @@
-# 广西继续发布洪水蓝色预警
+# 胜宏科技香港公开发售获431.15倍认购 每股发售价209.88港元
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月20日电(陈秋霞 周也茹)广西壮族自治区水文中心20日提供的信息显示，6月20日11时，广西共有洛清江上游及支流西河、古偿河，红水河支流刁江，龙江支流小环江等5条河流5个水文站超警0.05米至1.81米。广西壮族自治区水文中心预测，未来12小时至36小时，柳江中上游及支流龙江、洛清江、古宜河，桂江及西江干流等江河将继续上涨1米至5米，其中柳江柳州市城区河段、融江融
+胜宏科技（02476）公布配发结果，公司全球发售9585万股H股，香港公开发售（不包括海外雇员预留股份）占8.19%，国际发售（不包括中国雇员优先发售下的海外雇员预留股份）占83.48%。每股发售价209.88港元，全球发售净筹约198.894亿港元。每手100股，预计H股将于2026年4月21日（星期二）上午9时正（香港时间）于联交所开始买卖。 其中，香港公开发售获431.1
 
 ## 正文
 
-中新网南宁6月20日电(陈秋霞 周也茹)广西壮族自治区水文中心20日提供的信息显示，6月20日11时，广西共有洛清江上游及支流西河、古偿河，红水河支流刁江，龙江支流小环江等5条河流5个水文站超警0.05米至1.81米。
+胜宏科技（02476）公布配发结果，公司全球发售9585万股H股，香港公开发售（不包括海外雇员预留股份）占8.19%，国际发售（不包括中国雇员优先发售下的海外雇员预留股份）占83.48%。
 
-广西壮族自治区水文中心预测，未来12小时至36小时，柳江中上游及支流龙江、洛清江、古宜河，桂江及西江干流等江河将继续上涨1米至5米，其中柳江柳州市城区河段、融江融水县城河段、龙江金城江城区河段至宜州区三岔镇河段将出现警戒水位左右的洪水；桂江桂林市城区河段将出现接近警戒水位的洪水。
+每股发售价209.88港元，全球发售净筹约198.894亿港元。
 
-柳州、河池、桂林、来宾及百色等市部分中小河流可能出现超警洪水。
+每手100股，预计H股将于2026年4月21日（星期二）上午9时正（香港时间）于联交所开始买卖。
 
-广西壮族自治区水文中心于6月20日11时30分继续发布洪水蓝色预警，提请柳州、河池、桂林、来宾及百色等市上述沿江区域有关单位及社会公众加强防范，及时避险。
+其中，香港公开发售获431.15倍认购，国际发售（不包括中国雇员优先发售下的海外雇员预留股份）获18.5倍认购。
 
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:02 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 23:55 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 23:57 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 00:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 23:50 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 23:54 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 23:50 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 23:54 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 23:58 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 00:10 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 23:56 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 00:06 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 23:51 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 23:49 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 00:15 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 00:16 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 00:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-30 00:05 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 00:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 23:57 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 23:58 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 23:54 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 00:18 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 00:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 00:16 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 00:16 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 00:05 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 00:09 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:11 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/2274130812.shtml)
-- 2026-06-30 00:06 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/82955086.shtml)
-- 2026-06-30 00:14 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/987759.shtml)
-- 2026-06-29 23:59 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/986131189443.shtml)
-- 2026-06-30 00:03 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/41556268710.shtml)
-- 2026-06-30 00:17 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/293370753111.shtml)
-- 2026-06-30 00:04 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/93186.shtml)
-- 2026-06-30 00:01 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/75004.shtml)
-- 2026-06-29 23:53 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/17289251.shtml)
-- 2026-06-30 00:01 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/87444288.shtml)
-- 2026-06-30 00:17 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/3770295.shtml)
-- 2026-06-29 23:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/53392041984.shtml)
-- 2026-06-29 23:58 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/26036118722.shtml)
-- 2026-06-30 00:03 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/687155922.shtml)
-- 2026-06-29 23:55 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/728691.shtml)
+- 2026-06-29 23:55 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/49352077900.shtml)
+- 2026-06-30 00:23 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/442669868294.shtml)
+- 2026-06-30 00:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/47662127.shtml)
+- 2026-06-30 00:20 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/835312958699.shtml)
+- 2026-06-30 00:13 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/173811974997.shtml)
+- 2026-06-30 00:22 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/41091761.shtml)
+- 2026-06-30 00:17 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/393609.shtml)
+- 2026-06-29 23:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/88949.shtml)
+- 2026-06-30 00:05 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/286120291.shtml)
+- 2026-06-30 00:05 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/54653605.shtml)
+- 2026-06-30 00:14 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/29041221.shtml)
+- 2026-06-30 00:15 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/2655542248.shtml)
+- 2026-06-30 00:22 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/682001.shtml)
+- 2026-06-30 00:16 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/560395207568.shtml)
+- 2026-06-29 23:56 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/767079434.shtml)

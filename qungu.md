@@ -1,61 +1,57 @@
-# 税务部门提醒：个税汇算结束后收到“补税提醒”要及时核实处理
+# 2026“闽超”开赛 揭幕战厦门队3:0福州队
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新网北京6月22日电(记者 李金磊)2025年度个人所得税综合所得汇算将于今年6月30日结束。届时，部分纳税人将会收到税务部门通过短信、电话或个人所得税APP站内信等方式发送的提示，提醒其可能存在未申报或少申报收入、需要补缴税款的情况。对此，纳税人应该如何处理？不予理会可能面临什么后果？税务部门提醒，接到税务机关“补税”提示，要及时主动进行补正申报。不要有侥幸心理，更不要听信
+中国“玩梗式”赛事掀起 成为城市新流量从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮三亚亚沙会：开幕式主题歌亮相——世界很大，天涯不远中国咖啡第一村：从“种咖啡”到“兴体验”的转型路谷雨时节：酥雨生百谷 耕播待夏盈广西米粉一缕香味飘万里为啥“100%果汁”，配料表第一位是水？贪得无厌美利坚，“吃拿卡要”每一天从“谭警官”到“谭sir”：一位“交警网红”的变与不变苏林去的这所大
 
 ## 正文
 
-中新网北京6月22日电(记者 李金磊)2025年度个人所得税综合所得汇算将于今年6月30日结束。
+中国“玩梗式”赛事掀起 成为城市新流量从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮三亚亚沙会：开幕式主题歌亮相——世界很大，天涯不远中国咖啡第一村：从“种咖啡”到“兴体验”的转型路谷雨时节：酥雨生百谷 耕播待夏盈广西米粉一缕香味飘万里为啥“100%果汁”，配料表第一位是水？
 
-届时，部分纳税人将会收到税务部门通过短信、电话或个人所得税APP站内信等方式发送的提示，提醒其可能存在未申报或少申报收入、需要补缴税款的情况。
+贪得无厌美利坚，“吃拿卡要”每一天从“谭警官”到“谭sir”：一位“交警网红”的变与不变苏林去的这所大学，太宝藏了吧！
 
-对此，纳税人应该如何处理？
+开赛前两个月已爆单 义乌点燃世界杯经济明起较强冷空气将影响我国，局地降温10℃以上创历史！
 
-不予理会可能面临什么后果？
+11名中国选手晋级斯诺克世锦赛正赛中东战火冲击全球，中国经济开门红展现韧性一季度中国经济成绩单现五大亮点中东局势推高燃油成本 航空公司削减航班运力10小时、2400公里！
 
-税务部门提醒，接到税务机关“补税”提示，要及时主动进行补正申报。
+苏林再坐中国高铁，背后深意耐人寻味法国国民议会通过文物返还法案，大量流失文物能否顺利回家？
 
-不要有侥幸心理，更不要听信不法中介所谓“可以代为处理”“不用理会也没事”等不实承诺。
+黑龙江嫩江：黑土地开展施底肥作业迎春播谷雨：雨落润万物 所盼皆如愿AI“机器腿”撑起宏福苑居民归家路浙江杭州孔庙书市启幕 书香浸润千年府学张雪：要在有限的时间里面 尽情地享受生命何润东现身宿迁奥体，为“苏超”助阵藏族少年回应演唱《北京的金山上》走红：会好好学习 以后去北京看看台湾大叔心愿：盼“古早”台味飘香武汉街巷9秒登顶！
 
-汇算期结束，抽查复核发送“补税”提示 税务总局公布的数据显示，截至5月底，已有超过1.6亿人完成汇算申报。
+来看徒手爬椰子树名场面什么比赛让早起困难的记者，自发周日5点起床桂林首届“粉超”开幕 民众分享超大碗桂林米粉“三月三”的氛围有多欢乐？
 
-但汇算申报结束是不是个税汇算就结束了呢？
+连机器狗都被拉来跳舞了广西举办“三月三”活动 机器人来了也得“弹琴”桂黔滇湘粤五省区“网红”山歌爱好者打擂台唱山歌超治愈！
 
 ## 相关推荐
 
-- 2026-06-30 00:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 23:59 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 23:48 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 00:15 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 23:49 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 00:17 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 00:09 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 23:48 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 00:04 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 00:02 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 00:17 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 00:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 00:14 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 00:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 00:12 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 00:10 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 00:07 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 00:06 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 23:56 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 00:11 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 23:58 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 00:22 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 00:03 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 23:58 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 00:18 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 23:56 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:12 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/84264215.shtml)
-- 2026-06-30 00:10 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/619081331.shtml)
-- 2026-06-30 00:17 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/695885904.shtml)
-- 2026-06-30 00:12 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/533923.shtml)
-- 2026-06-29 23:49 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/61206.shtml)
-- 2026-06-30 00:07 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/29079515.shtml)
-- 2026-06-30 00:14 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/923853313632.shtml)
-- 2026-06-29 23:52 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/0409492858.shtml)
-- 2026-06-29 23:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/151149389661.shtml)
-- 2026-06-29 23:52 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/8928806.shtml)
-- 2026-06-30 00:06 - [美股](http://www.share.minike.top/Article/details/7657535851.shtml)
-- 2026-06-30 00:00 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/737955475.shtml)
-- 2026-06-30 00:11 - [房价什么时候能涨](http://www.share.minike.top/Article/details/8781352.shtml)
-- 2026-06-30 00:14 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/9296237.shtml)
-- 2026-06-30 00:11 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/90639.shtml)
+- 2026-06-30 00:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/62007547.shtml)
+- 2026-06-30 00:15 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/7427335.shtml)
+- 2026-06-29 23:58 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/78574374.shtml)
+- 2026-06-30 00:02 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/088807811606.shtml)
+- 2026-06-30 00:08 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/573298052.shtml)
+- 2026-06-30 00:12 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/18310.shtml)
+- 2026-06-29 23:58 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/632945842.shtml)
+- 2026-06-29 23:56 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/146698961.shtml)
+- 2026-06-29 23:57 - [炽夏](http://www.blog.minike.top/Article/details/56085.shtml)
+- 2026-06-30 00:12 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/01544.shtml)
+- 2026-06-30 00:15 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/3950669.shtml)
+- 2026-06-30 00:18 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/218277585210.shtml)
+- 2026-06-30 00:03 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/2954380565.shtml)
+- 2026-06-29 23:54 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/64079784.shtml)
+- 2026-06-30 00:15 - [请回答王牌2019](https://www.share.minike.top/Article/details/76801107.shtml)

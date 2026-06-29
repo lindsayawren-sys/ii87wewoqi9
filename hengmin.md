@@ -1,61 +1,46 @@
-# AI资金永不切换？中信证券裘翔：非AI板块启动，要等三个信号
+# 伊朗总统说要理性外交但对敌保持警惕
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！一边是科技板块屡创新高，另一边是消费板块持续低迷。买对的是牛市，买错的是熊市。这种极致的分化，究竟是短期波动，还是长期常态？日前，中信证券A股策略首席裘翔接受新浪财经专访，为投资者解读市场行情。直播详情>> 在裘翔看来，A股投资者需要彻底告别传统的牛熊思维，用“K型思维”取而代之。市场将长期呈现“杠铃结构”
+新华社德黑兰4月20日电 据伊朗伊斯兰共和国通讯社20日报道，伊朗总统佩泽希齐扬当天在视察司法部门时表示，战争不符合任何人的利益，应用一切理性外交途径缓和紧张局势，与此同时，“我们对敌人保持不信任，有必要在互动中保持警惕”。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-一边是科技板块屡创新高，另一边是消费板块持续低迷。
-
-买对的是牛市，买错的是熊市。
-
-这种极致的分化，究竟是短期波动，还是长期常态？
-
-日前，中信证券A股策略首席裘翔接受新浪财经专访，为投资者解读市场行情。
-
-直播详情>> 在裘翔看来，A股投资者需要彻底告别传统的牛熊思维，用“K型思维”取而代之。
-
-市场将长期呈现“杠铃结构”，一头是AI，另一头是供给约束型资产。
-
-而今年下半年，这另一头就是能源化工。
+新华社德黑兰4月20日电 据伊朗伊斯兰共和国通讯社20日报道，伊朗总统佩泽希齐扬当天在视察司法部门时表示，战争不符合任何人的利益，应用一切理性外交途径缓和紧张局势，与此同时，“我们对敌人保持不信任，有必要在互动中保持警惕”。
 
 ## 相关推荐
 
-- 2026-06-29 23:53 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 23:59 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 00:01 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 00:15 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 00:06 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 23:54 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 23:58 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 00:14 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 00:17 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 00:15 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 23:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 23:58 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 00:07 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 00:15 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 23:49 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 00:14 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 00:04 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 00:16 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 00:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 00:07 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 00:10 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 23:57 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 00:18 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 00:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 00:20 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 00:03 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 00:20 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 00:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 00:05 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/407451847.shtml)
-- 2026-06-30 00:09 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/245665.shtml)
-- 2026-06-29 23:52 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/94602040.shtml)
-- 2026-06-30 00:10 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/15540282000.shtml)
-- 2026-06-29 23:57 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/548433707.shtml)
-- 2026-06-30 00:03 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/261232.shtml)
-- 2026-06-29 23:49 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/149129217.shtml)
-- 2026-06-29 23:48 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/839345.shtml)
-- 2026-06-30 00:08 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/34364772.shtml)
-- 2026-06-30 00:00 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/4030733125.shtml)
-- 2026-06-30 00:11 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/93265.shtml)
-- 2026-06-30 00:06 - [第一炉香](https://www.share.kurohicncr.top/Article/details/921308713963.shtml)
-- 2026-06-30 00:07 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/321040.shtml)
-- 2026-06-30 00:04 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/85301.shtml)
-- 2026-06-30 00:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/231844667698.shtml)
+- 2026-06-29 23:58 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/26880897.shtml)
+- 2026-06-29 23:55 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/1624558.shtml)
+- 2026-06-29 23:57 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/011188149.shtml)
+- 2026-06-30 00:16 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/7583937.shtml)
+- 2026-06-30 00:00 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/6603905806.shtml)
+- 2026-06-30 00:12 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/78547328206.shtml)
+- 2026-06-30 00:06 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/0608123.shtml)
+- 2026-06-30 00:20 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/129656.shtml)
+- 2026-06-29 23:58 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/339755467292.shtml)
+- 2026-06-30 00:06 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/6593279513.shtml)
+- 2026-06-30 00:05 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/83226022999.shtml)
+- 2026-06-29 23:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/0738508806.shtml)
+- 2026-06-29 23:59 - [沙丘](http://www.share.kurohicncr.top/Article/details/55339393573.shtml)
+- 2026-06-30 00:22 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/25417690.shtml)
+- 2026-06-29 23:55 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/6523449.shtml)

@@ -1,61 +1,57 @@
-# 发射倒计时1天！长征七号甲即将升空
+# “赫哲故里”同江：一网江鲜跃上岸 春日渔市火出圈
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-截至6月22日收盘，市场震荡反弹，沪深两市成交额3.74万亿，创历史第二。航天ETF(159267)低开，最终收涨0.10%，成交额1.47亿。成分股方面，博云新材、中兵红箭涨停，航发动力上涨6.61%，海特高新上涨5.40%。据文昌航天观礼中心官网消息，2026年6月23日上午，长征七号甲运载火箭将在文昌航天发射场点火升空，发射进入一天倒计时。机构认为，随着可回收火箭密集验证
+中新网佳木斯4月21日电(赵鹏 梁晨 徐志强)春回松花江，开江鱼正鲜。暮春时节，东北边境小城同江市江边，渔民们清晨撒网捕捞，满载而归。鱼行里人头攒动，线上线下销售火爆。从江面到餐桌，从当地居民争相尝鲜到全国订单飞驰而来，一篓开江鱼，不仅“鲜”了一座城，更借助直播镜头和快递包裹，把界江春天的味道送往五湖四海。 一大早，映着松花江江面的薄雾，渔民们驾着渔船缓缓驶入松花江滩地水域，找
 
 ## 正文
 
-截至6月22日收盘，市场震荡反弹，沪深两市成交额3.74万亿，创历史第二。
+中新网佳木斯4月21日电(赵鹏 梁晨 徐志强)春回松花江，开江鱼正鲜。
 
-航天ETF(159267)低开，最终收涨0.10%，成交额1.47亿。
+暮春时节，东北边境小城同江市江边，渔民们清晨撒网捕捞，满载而归。
 
-成分股方面，博云新材、中兵红箭涨停，航发动力上涨6.61%，海特高新上涨5.40%。
+鱼行里人头攒动，线上线下销售火爆。
 
-据文昌航天观礼中心官网消息，2026年6月23日上午，长征七号甲运载火箭将在文昌航天发射场点火升空，发射进入一天倒计时。
+从江面到餐桌，从当地居民争相尝鲜到全国订单飞驰而来，一篓开江鱼，不仅“鲜”了一座城，更借助直播镜头和快递包裹，把界江春天的味道送往五湖四海。
 
-机构认为，随着可回收火箭密集验证、卫星互联网建设提速以及发射能力持续提升，中国商业航天正在从“探索验证期”迈向“成长爆发期”。
+一大早，映着松花江江面的薄雾，渔民们驾着渔船缓缓驶入松花江滩地水域，找准鱼群活动区域后，果断下网。
 
-未来行业竞争的重点将逐步从技术验证转向工程兑现能力。
+稍作等待后，收网的时刻到了。
 
-相关机构表示，国产链在火箭、测控、激光通信及星敏器等领域已形成完整布局，相关企业具备技术优势，将持续受益于航天产业快速发展。
+随着渔网逐渐收拢，缓缓出水，里面装满了活蹦乱跳的江鱼。
 
-另机构指出，全球太空竞赛加速推进，商业航天产业链迎来发展机遇，可回收火箭技术进步将带动行业整体提升，通信行业作为核心受益领域值得关注，相关基础设施建设需求将持续释放。
+经过数小时连续作业，渔民们满载而归。
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 00:02 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 00:02 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 23:54 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 00:02 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 23:58 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 00:10 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 00:02 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 00:11 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 00:01 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 00:13 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 23:54 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 00:05 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 23:54 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 23:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 23:59 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 00:04 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 23:55 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 00:02 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 23:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 00:17 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 00:05 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 23:57 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 00:17 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 00:12 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 00:19 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/4146067.shtml)
-- 2026-06-30 00:01 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/60069597239.shtml)
-- 2026-06-29 23:55 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/88931334189.shtml)
-- 2026-06-30 00:09 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/64297609906.shtml)
-- 2026-06-29 23:52 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/02543171571.shtml)
-- 2026-06-30 00:15 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/8088250.shtml)
-- 2026-06-30 00:00 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/686479.shtml)
-- 2026-06-29 23:55 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/478331.shtml)
-- 2026-06-29 23:57 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/94475954.shtml)
-- 2026-06-30 00:06 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/1364612950.shtml)
-- 2026-06-30 00:15 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/286840701.shtml)
-- 2026-06-30 00:09 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/322389847.shtml)
-- 2026-06-30 00:08 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/2939440373.shtml)
-- 2026-06-30 00:07 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/25052.shtml)
-- 2026-06-30 00:13 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/230117.shtml)
+- 2026-06-30 00:21 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/757952.shtml)
+- 2026-06-30 00:17 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/372510756.shtml)
+- 2026-06-30 00:23 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/584677.shtml)
+- 2026-06-30 00:17 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/9466033299.shtml)
+- 2026-06-29 23:55 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/957574927972.shtml)
+- 2026-06-30 00:12 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/5794848945.shtml)
+- 2026-06-30 00:18 - [月亮](https://www.blog.minike.top/Article/details/636120.shtml)
+- 2026-06-30 00:11 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/459351.shtml)
+- 2026-06-30 00:21 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/254564745.shtml)
+- 2026-06-30 00:05 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/055677.shtml)
+- 2026-06-29 23:59 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/13903.shtml)
+- 2026-06-30 00:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/947958271.shtml)
+- 2026-06-30 00:03 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/1982487.shtml)
+- 2026-06-30 00:11 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/5595902804.shtml)
+- 2026-06-30 00:07 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/9343325.shtml)

@@ -1,58 +1,60 @@
-# 主持人施可莹去世，年仅29岁
+# SpaceX继续推进IPO计划，据悉将于本周举行为期三天的分析师会议
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-6月21日，香港主持人施可莹亲友通过其社交账号发布消息称，施可莹当天凌晨因癌症离世，年仅29岁。 今年5月，施可莹在社交平台公开自己患卵巢癌的消息，并分享了自己的“抗癌日记”。 2025年10月，施可莹在检查中发现10cm卵巢肿瘤，并在短时间内长到17cm，肚子胀得像“怀孕5个月”大。为不影响工作，施可莹买大码衣服遮住身形继续完成各类宣传活动。 2026年2月，施可莹在肿瘤切除
+据知情人士透露，SpaceX正推进其史上最受瞩目的IPO之一的计划，本周将在其位于德克萨斯州的发射基地和位于田纳西州的大型数据中心举行为期三天的闭门分析师会议。 SpaceX将通过此次会议向华尔街顶尖的航空航天和科技分析师就这起史上规模最大的IPO进行简报，公司高管的目标是在6月底上市交易。 知情人士透露，此次推介活动将于周二在SpaceX位于德克萨斯州博卡奇卡的星际基地举行，
 
 ## 正文
 
-6月21日，香港主持人施可莹亲友通过其社交账号发布消息称，施可莹当天凌晨因癌症离世，年仅29岁。
+据知情人士透露，SpaceX正推进其史上最受瞩目的IPO之一的计划，本周将在其位于德克萨斯州的发射基地和位于田纳西州的大型数据中心举行为期三天的闭门分析师会议。
 
-今年5月，施可莹在社交平台公开自己患卵巢癌的消息，并分享了自己的“抗癌日记”。
+SpaceX将通过此次会议向华尔街顶尖的航空航天和科技分析师就这起史上规模最大的IPO进行简报，公司高管的目标是在6月底上市交易。
 
-2025年10月，施可莹在检查中发现10cm卵巢肿瘤，并在短时间内长到17cm，肚子胀得像“怀孕5个月”大。
+知情人士透露，此次推介活动将于周二在SpaceX位于德克萨斯州博卡奇卡的星际基地举行，届时将举办全天会议和分析师参观活动。
 
-为不影响工作，施可莹买大码衣服遮住身形继续完成各类宣传活动。
+知情人士还表示，另一批代表机构投资者（包括大型共同基金和养老基金）的分析师将于周三在星际基地参加另一场简报会。
 
-2026年2月，施可莹在肿瘤切除手术后确诊卵巢癌，且癌细胞已扩散到盲肠区域。
+此外，他们补充说，分析师们还受邀于周四前往位于田纳西州孟菲斯的Colossus数据中心，考察该公司的“Macrohard”项目。
 
-4月，她接受子宫切除手术及化疗，需要通过人工造口完成日常排泄。
+一位知情人士透露，为保密起见，与会者需上交电子设备方可参加会议。
 
-6月，医生表示其“身体太差”已经不适合做化疗，她申请做“大体老师”，希望以此帮到更多医学生。
+据两位知情人士透露，在分析师见面会大约两周后，SpaceX预计将为部分华尔街分析师举办一场单独的“模型构建日”活动，其中一些分析师所在的银行正在参与SpaceX的交易。
 
-施可莹离世消息发出后，众多网友表示悼念和叹息，其男友、歌手陈章棨亦在社交平台发文悼念“永远记住活泼的你”。
+在这样的会议上，公司通常会向分析师详细介绍其财务预测、商业逻辑以及其他关键数据，这些数据将帮助分析师在SpaceX上市前计算其盈利预期。
 
 ## 相关推荐
 
-- 2026-06-30 00:13 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 00:04 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 00:11 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 23:57 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 00:15 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 23:55 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 00:02 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 23:54 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 23:48 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 23:54 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 23:58 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 23:54 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 00:10 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 00:07 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 00:14 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 00:05 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 23:58 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 00:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 00:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 00:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 00:07 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 23:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 00:15 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 00:00 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 00:20 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 23:56 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:54 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/6589299966.shtml)
-- 2026-06-30 00:00 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/224176507940.shtml)
-- 2026-06-30 00:10 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/00303616234.shtml)
-- 2026-06-29 23:56 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/152743610.shtml)
-- 2026-06-29 23:57 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/417772.shtml)
-- 2026-06-29 23:59 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/644497.shtml)
-- 2026-06-30 00:13 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/03507.shtml)
-- 2026-06-29 23:54 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/026547.shtml)
-- 2026-06-29 23:55 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/241517074778.shtml)
-- 2026-06-30 00:10 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/68109664.shtml)
-- 2026-06-30 00:03 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/197800463.shtml)
-- 2026-06-29 23:53 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/008188787546.shtml)
-- 2026-06-30 00:09 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/924016.shtml)
-- 2026-06-29 23:56 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/70892318831.shtml)
-- 2026-06-29 23:54 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/7538601.shtml)
+- 2026-06-30 00:21 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/0648254.shtml)
+- 2026-06-29 23:55 - [斛珠夫人](http://www.share.minike.top/Article/details/9118045.shtml)
+- 2026-06-30 00:17 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/441633.shtml)
+- 2026-06-30 00:11 - [一见倾心](https://www.share.minike.top/Article/details/069812126.shtml)
+- 2026-06-30 00:23 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/595243.shtml)
+- 2026-06-30 00:01 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/611561.shtml)
+- 2026-06-30 00:16 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/11957663.shtml)
+- 2026-06-30 00:03 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/025126949090.shtml)
+- 2026-06-30 00:12 - [85花告别古偶](https://www.blog.minike.top/Article/details/854454090.shtml)
+- 2026-06-30 00:05 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/15582465.shtml)
+- 2026-06-30 00:07 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/8806801.shtml)
+- 2026-06-30 00:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/16079.shtml)
+- 2026-06-30 00:03 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/88406911.shtml)
+- 2026-06-30 00:23 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/545775159.shtml)
+- 2026-06-30 00:03 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/710822.shtml)

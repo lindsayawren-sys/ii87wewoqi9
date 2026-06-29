@@ -1,59 +1,57 @@
-# 【新思想引领新征程】在文脉赓续中推动城市高质量发展
+# 法治护航 共沐书香——写在第一个“全民阅读活动周”到来之际
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-视频：【新思想引领新征程】在文脉赓续中推动城市高质量发展来源：央视综合 央视网消息(新闻联播)：历史文化是城市的灵魂，习近平总书记指出，保护好传统街区、保护好古建筑、保护好文物，就是保存了城市的历史和文脉。牢记总书记嘱托，各地在城市建设中坚持因地制宜，不断完善历史文化保护传承体系，持续提升活化利用水平，在文脉赓续中推动城市高质量发展。 苏州平江历史文化街区距今已有2500多年历
+春日正是读书时。 今年是《全民阅读促进条例》(以下简称《条例》)施行的第一年，也是国务院批复设立“全民阅读活动周”后的第一年。 4月20日至22日，第五届全民阅读大会在江西南昌市举办，“全民阅读活动周”同步启动。 习近平总书记高度重视推动全民阅读，建设书香社会，多次阐明阅读的重要性—— “要提倡多读书，建设书香社会，不断提升人民思想境界、增强人民精神力量，中华民族的精神世界就能
 
 ## 正文
 
-视频：【新思想引领新征程】在文脉赓续中推动城市高质量发展来源：央视综合 央视网消息(新闻联播)：历史文化是城市的灵魂，习近平总书记指出，保护好传统街区、保护好古建筑、保护好文物，就是保存了城市的历史和文脉。
+春日正是读书时。
 
-牢记总书记嘱托，各地在城市建设中坚持因地制宜，不断完善历史文化保护传承体系，持续提升活化利用水平，在文脉赓续中推动城市高质量发展。
+今年是《全民阅读促进条例》(以下简称《条例》)施行的第一年，也是国务院批复设立“全民阅读活动周”后的第一年。
 
-苏州平江历史文化街区距今已有2500多年历史，端午假期，这里游人如织，人们在亭台水榭间观古建、品民俗，尽享水乡文化之美。
+4月20日至22日，第五届全民阅读大会在江西南昌市举办，“全民阅读活动周”同步启动。
 
-2023年7月，习近平总书记来到这里考察。
+习近平总书记高度重视推动全民阅读，建设书香社会，多次阐明阅读的重要性—— “要提倡多读书，建设书香社会，不断提升人民思想境界、增强人民精神力量，中华民族的精神世界就能更加厚重深邃。
 
-他对大家说，平江历史文化街区是传承弘扬中华优秀传统文化、加强社会主义精神文明建设的宝贵财富，要保护好、挖掘好、运用好。
+” “共产党人要把读马克思主义经典、悟马克思主义原理当作一种生活习惯、当作一种精神追求，用经典涵养正气、淬炼思想、升华境界、指导实践。
 
-牢记总书记嘱托，当地对河街相邻、城水共生的城市格局持续开展系统性保护，古宅、古树、古井应保尽保；昆曲、评弹、缂丝等非遗工坊遍布其间，水韵姑苏特色更加鲜明。
+” “哪怕一天挤出半小时，即使读几页书，只要坚持下去，必定会积少成多、积沙成塔，积跬步以至千里。
 
-今年上半年，平江历史文化街区接待游客预计超1500万人次。
+” ………… 习近平总书记的谆谆嘱托，化作全民阅读的生动实践。
 
-让城市留下记忆，让人们记住乡愁。
+在习近平新时代中国特色社会主义思想特别是习近平文化思想指引下，全民阅读深入推进，中华大地共沐书香。
 
 ## 相关推荐
 
-- 2026-06-29 23:56 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 00:11 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 23:50 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 23:54 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 23:50 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 23:48 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 00:15 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 23:49 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 00:11 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 00:01 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 23:51 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 23:59 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-30 00:15 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 23:59 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 00:22 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 00:11 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 00:00 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 23:56 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 00:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 00:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 00:21 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 00:07 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 00:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 00:23 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:10 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/6275898288.shtml)
-- 2026-06-29 23:57 - [逃狱兄弟](https://www.share.minike.top/Article/details/33925034364.shtml)
-- 2026-06-29 23:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/856269716.shtml)
-- 2026-06-30 00:01 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/10464.shtml)
-- 2026-06-29 23:58 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/8615363.shtml)
-- 2026-06-29 23:58 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/985702422609.shtml)
-- 2026-06-29 23:49 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/97349367.shtml)
-- 2026-06-30 00:02 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/653719175.shtml)
-- 2026-06-29 23:52 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/45874601.shtml)
-- 2026-06-30 00:11 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/0236540498.shtml)
-- 2026-06-30 00:00 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/975106751569.shtml)
-- 2026-06-29 23:58 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/0580711.shtml)
-- 2026-06-29 23:56 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/3986196325.shtml)
-- 2026-06-29 23:51 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/5015524.shtml)
-- 2026-06-30 00:00 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/43747.shtml)
+- 2026-06-29 23:57 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/7134537602.shtml)
+- 2026-06-29 23:57 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/3640275836.shtml)
+- 2026-06-30 00:22 - [东方风云榜直播](http://www.blog.minike.top/Article/details/2582876.shtml)
+- 2026-06-30 00:02 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/735448148477.shtml)
+- 2026-06-30 00:16 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/5675135406.shtml)
+- 2026-06-30 00:02 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/21685961690.shtml)
+- 2026-06-30 00:09 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/26332.shtml)
+- 2026-06-30 00:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/8743289156.shtml)
+- 2026-06-30 00:11 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/47101118.shtml)
+- 2026-06-30 00:08 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/954601.shtml)
+- 2026-06-30 00:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/161703380995.shtml)
+- 2026-06-30 00:07 - [天道](https://www.share.minike.top/Article/details/166510202574.shtml)
+- 2026-06-29 23:59 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/10537453929.shtml)
+- 2026-06-30 00:00 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/3432356743.shtml)
+- 2026-06-30 00:20 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/256076742943.shtml)

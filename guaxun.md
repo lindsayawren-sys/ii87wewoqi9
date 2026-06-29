@@ -1,60 +1,59 @@
-# 外资机构调研活跃，AI半导体等高景气赛道受青睐
+# 如祺出行2025年财报：营收倍增难掩“流血”扩张本质，市值蒸发九成凸显边缘化危机
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-Wind数据显示，2026年以来至6月19日，外资机构对A股上市公司调研活动频频，半导体、电子设备等科技赛道，以及医疗及高端制造领域公司成为外资重点关注对象。 从外资调研机构家数来看，澜起科技以179家外资机构调研位居榜首，以绝对优势领先市场，前来调研的外资机构包括高盛、摩根士丹利、瑞银、安本投资、景顺等。奥比中光-W以145家紧随其后，调研机构包括贝莱德、摩根大通、景顺、Po
+背靠广汽集团的如祺出行（09680.HK）发布2025年全年业绩，报告期内公司营收同比暴增114.6%至52.86亿元，净亏损收窄48.1%至2.93亿元。然而，这份高增长财报难以掩盖其“以价换量”、依赖第三方平台导流、自身盈利能力羸弱的本质。更令人瞩目的是其资本市场的惨淡表现：上市不足两年，股价较发行价跌去近70%，当前市值仅约17亿港元，且从未进入港股通名单，流动性几近枯竭
 
 ## 正文
 
-Wind数据显示，2026年以来至6月19日，外资机构对A股上市公司调研活动频频，半导体、电子设备等科技赛道，以及医疗及高端制造领域公司成为外资重点关注对象。
+背靠广汽集团的如祺出行（09680.HK）发布2025年全年业绩，报告期内公司营收同比暴增114.6%至52.86亿元，净亏损收窄48.1%至2.93亿元。
 
-从外资调研机构家数来看，澜起科技以179家外资机构调研位居榜首，以绝对优势领先市场，前来调研的外资机构包括高盛、摩根士丹利、瑞银、安本投资、景顺等。
+然而，这份高增长财报难以掩盖其“以价换量”、依赖第三方平台导流、自身盈利能力羸弱的本质。
 
-奥比中光-W以145家紧随其后，调研机构包括贝莱德、摩根大通、景顺、Point72等。
+更令人瞩目的是其资本市场的惨淡表现：上市不足两年，股价较发行价跌去近70%，当前市值仅约17亿港元，且从未进入港股通名单，流动性几近枯竭，已成为港股市场中一个被边缘化的“仙股”样本。
 
-百济神州、汇川技术、华明装备、怡合达、华润微同样受到逾百家外资机构关注。
+营收“虚胖”：增长全靠第三方导流，毛利率揭示盈利窘境 如祺出行2025年的营收翻倍增长，并非源于自身品牌力或运营效率的飞跃，而是其商业模式转向的直接结果。
 
-此外，胜宏科技、沪电股份、欧陆通等近20家公司也获得了超50家（不到100家）外资机构的调研。
+增长引擎实为“流量采购”。
 
-从行业分布来看，外资调研高度聚焦三大方向：一是半导体及芯片相关公司，澜起科技、华润微、安集科技等均榜上有名；二是医疗器械与创新药赛道，百济神州、迈瑞医疗、联影医疗等获得持续关注；三是以大金重工、华勤技术为代表的高端装备制造企业，亦受到外资机构密切跟踪。
+收入暴增的核心原因是出行服务收入（主要为网约车）激增131.8%。
 
-值得关注的是，多家公司在被调研总次数有限的情况下，外资参与机构数量依然可观。
+细看之下，这主要得益于公司大幅加深与高德、美团等第三方聚合平台的合作。
 
-例如至纯科技（维权）、长电科技，虽然公司披露的接待调研次数较少，但是均吸引了50家左右的外资机构前来调研，显示外资对相关公司的关注具有较强主动性和目的性。
+2025年，其销售及营销开支中的“第三方出行服务平台服务费”飙升至5.04亿元，同比激增210%。
 
 ## 相关推荐
 
-- 2026-06-30 00:17 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 00:08 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 23:52 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 00:13 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 00:04 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 00:14 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 00:00 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 00:06 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 00:09 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 00:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 00:11 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 00:17 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 00:13 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 00:03 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 23:56 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 00:01 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 00:23 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 00:11 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 00:12 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 00:20 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 00:05 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 00:14 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 00:01 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 00:12 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 00:20 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 00:09 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 23:57 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/86311091581.shtml)
-- 2026-06-29 23:52 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/495245269536.shtml)
-- 2026-06-30 00:10 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/87056.shtml)
-- 2026-06-29 23:48 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/60403373021.shtml)
-- 2026-06-30 00:09 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/91113996.shtml)
-- 2026-06-29 23:55 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/41182.shtml)
-- 2026-06-30 00:16 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/5827341897.shtml)
-- 2026-06-29 23:53 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/6675426.shtml)
-- 2026-06-29 23:57 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/041894270685.shtml)
-- 2026-06-29 23:52 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/78247.shtml)
-- 2026-06-30 00:04 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/015701384253.shtml)
-- 2026-06-30 00:00 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/892065.shtml)
-- 2026-06-30 00:03 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/3917273.shtml)
-- 2026-06-29 23:52 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/221432399308.shtml)
-- 2026-06-30 00:17 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/43921165.shtml)
+- 2026-06-29 23:57 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/138246.shtml)
+- 2026-06-30 00:05 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/2797929040.shtml)
+- 2026-06-30 00:19 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/46958.shtml)
+- 2026-06-29 23:54 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/6200010093.shtml)
+- 2026-06-30 00:14 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/5046287408.shtml)
+- 2026-06-30 00:03 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/43758.shtml)
+- 2026-06-30 00:04 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/69422.shtml)
+- 2026-06-30 00:19 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/97657878.shtml)
+- 2026-06-30 00:20 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/534295288491.shtml)
+- 2026-06-29 23:58 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/37584402869.shtml)
+- 2026-06-30 00:12 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/72614424.shtml)
+- 2026-06-30 00:10 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/7294294905.shtml)
+- 2026-06-30 00:13 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/507562029.shtml)
+- 2026-06-30 00:16 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/927949.shtml)
+- 2026-06-30 00:22 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/068665.shtml)

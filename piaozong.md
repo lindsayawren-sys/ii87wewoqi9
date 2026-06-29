@@ -1,45 +1,50 @@
-# 周六福于6月18日斥资799.57万港元回购49.61万股
+# 韩国将迎来自伊朗战争以来首艘经由霍尔木兹海峡的油轮
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-周六福（06168）发布公告，于2026年6月18日斥资799.57万港元回购49.61万股。责任编辑：卢昱君
+韩国每日经济新闻援引匿名行业消息人士称，自本轮战事爆发以来，韩国即将迎来首批经由霍尔木兹海峡运输的原油到货。苏伊士型油轮敖德萨号载有约100万桶原油，计划于5月8日抵达韩国大山港，为现代炼油（HD Hyundai Oilbank）供货。该油轮在阿联酋装载原油后，顺利驶过霍尔木兹海峡，此次航行早于伊朗军方近期重新收紧海峡通行管控之前。报道称，本次供油，是自3月20日鹰韦洛尔号运送
 
 ## 正文
 
-周六福（06168）发布公告，于2026年6月18日斥资799.57万港元回购49.61万股。
+韩国每日经济新闻援引匿名行业消息人士称，自本轮战事爆发以来，韩国即将迎来首批经由霍尔木兹海峡运输的原油到货。
 
-责任编辑：卢昱君
+苏伊士型油轮敖德萨号载有约100万桶原油，计划于5月8日抵达韩国大山港，为现代炼油（HD Hyundai Oilbank）供货。
+
+该油轮在阿联酋装载原油后，顺利驶过霍尔木兹海峡，此次航行早于伊朗军方近期重新收紧海峡通行管控之前。
+
+报道称，本次供油，是自3月20日鹰韦洛尔号运送200万桶原油抵韩之后，首艘经霍尔木兹海峡驶入韩国的油轮。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 00:16 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 23:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 00:02 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 00:15 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 23:59 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 00:03 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 00:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 00:11 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 23:57 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 00:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 23:57 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 00:13 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 23:54 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 00:02 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 00:15 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 00:00 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 00:07 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 00:01 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 00:19 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 23:57 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 23:55 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:16 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/543098.shtml)
-- 2026-06-30 00:08 - [恋与深空致歉](http://www.share.minike.top/Article/details/6873213262.shtml)
-- 2026-06-30 00:13 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/7316246.shtml)
-- 2026-06-30 00:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/232860959.shtml)
-- 2026-06-30 00:07 - [千香](http://www.share.minike.top/Article/details/6510324275.shtml)
-- 2026-06-30 00:14 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/790313218.shtml)
-- 2026-06-29 23:58 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/803029439.shtml)
-- 2026-06-29 23:56 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/5349142.shtml)
-- 2026-06-30 00:05 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/0648730.shtml)
-- 2026-06-30 00:10 - [第一炉香](http://www.share.kurohicncr.top/Article/details/73882.shtml)
-- 2026-06-29 23:59 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/09979878244.shtml)
-- 2026-06-29 23:58 - [央行首次3000亿元隔夜逆回购操作](http://www.share.minike.top/Article/details/84010.shtml)
-- 2026-06-30 00:16 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/42893.shtml)
-- 2026-06-30 00:16 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/66175716.shtml)
-- 2026-06-30 00:12 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/880102080452.shtml)
+- 2026-06-30 00:22 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/72031.shtml)
+- 2026-06-30 00:02 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/982655282.shtml)
+- 2026-06-30 00:05 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/737299422187.shtml)
+- 2026-06-29 23:57 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/89664768.shtml)
+- 2026-06-30 00:05 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/7165874.shtml)
+- 2026-06-30 00:21 - [月亮](http://www.blog.kurohicncr.top/Article/details/20774837689.shtml)
+- 2026-06-30 00:04 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/7824141.shtml)
+- 2026-06-30 00:14 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/32835247.shtml)
+- 2026-06-30 00:19 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/637255255.shtml)
+- 2026-06-30 00:12 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/724883.shtml)
+- 2026-06-30 00:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/51196.shtml)
+- 2026-06-29 23:57 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/206171529162.shtml)
+- 2026-06-29 23:55 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/288514271562.shtml)
+- 2026-06-29 23:56 - [小龙女配音去世 李若彤发文悼念](https://www.share.kurohicncr.top/Article/details/21902718.shtml)
+- 2026-06-30 00:05 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/2859201.shtml)

@@ -1,56 +1,61 @@
-# 古巴革命元老拉米罗·巴尔德斯逝世
+# 2026年中华茶祖节祭祀典礼在湖南株洲举行
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新社北京6月22日电 哈瓦那消息：古巴革命元老、曾任切·格瓦拉副手的拉米罗·巴尔德斯·梅嫩德斯(Ramiro Valdés Menéndez)于当地时间6月21日上午在古巴首都哈瓦那逝世，享年94岁。 综合古巴《格拉玛报》《辩论报》以及美联社等媒体报道，拉米罗于1932年4月28日出生于古巴阿特米萨省，是古巴革命的关键参与者，也是古巴革命领袖菲德尔·卡斯特罗最早的追随者之一。
+中新网株洲4月20日电 (张和生 何湘柳)谷雨时节，茶香氤氲。4月20日，2026(丙午)年“中华茶祖节”祭祀炎帝陵典礼在湖南株洲举行，茶业协会代表、茶农代表以及社会各界人士参加。 相传炎帝神农氏是中华农耕文明的创始者，与黄帝轩辕氏一起并称为中华民族两大始祖。《茶经》中记载：“茶之为饮，发乎神农氏”。炎帝神农氏被公认为中华茶祖。谷雨时节正是采茶制茶的关键时期，2009年起，茶界
 
 ## 正文
 
-中新社北京6月22日电 哈瓦那消息：古巴革命元老、曾任切·格瓦拉副手的拉米罗·巴尔德斯·梅嫩德斯(Ramiro Valdés Menéndez)于当地时间6月21日上午在古巴首都哈瓦那逝世，享年94岁。
+中新网株洲4月20日电 (张和生 何湘柳)谷雨时节，茶香氤氲。
 
-综合古巴《格拉玛报》《辩论报》以及美联社等媒体报道，拉米罗于1932年4月28日出生于古巴阿特米萨省，是古巴革命的关键参与者，也是古巴革命领袖菲德尔·卡斯特罗最早的追随者之一。
+4月20日，2026(丙午)年“中华茶祖节”祭祀炎帝陵典礼在湖南株洲举行，茶业协会代表、茶农代表以及社会各界人士参加。
 
-他在1953年7月26日参加了攻打蒙卡达兵营的行动，行动失败后与卡斯特罗兄弟一同入狱。
+相传炎帝神农氏是中华农耕文明的创始者，与黄帝轩辕氏一起并称为中华民族两大始祖。
 
-出狱后，拉米罗随菲德尔·卡斯特罗前往墨西哥，参与创建革命组织七二六运动，也是格拉玛号远征队中为数不多的幸存成员之一。
+《茶经》中记载：“茶之为饮，发乎神农氏”。
 
-在古巴东部山区马埃斯特腊山脉的游击战争中，拉米罗担任切·格瓦拉的副手。
+炎帝神农氏被公认为中华茶祖。
 
-古巴革命胜利后，拉米罗着手创立了古巴的情报机构，并历任古巴内政部长、国务委员会副主席、部长会议副主席、副总理等职务。
+谷雨时节正是采茶制茶的关键时期，2009年起，茶界将“中华茶祖节”定于谷雨日。
 
-拉米罗逝世后，古巴国家主席迪亚斯-卡内尔在社交媒体发表悼文，称对拉米罗的离世感到巨大悲痛，他“一生的每一个举动，都印刻着他对菲德尔和劳尔领导的绝对忠诚，对战友们的忠诚”。
+9时39分，祭祀大典正式开始，全体参祭人员凝神肃立，敬献茶品、高香、花篮，参祭人员行三鞠躬礼，恭读《祭炎帝陵文》，焚帛书，谒陵一周，礼成。
 
-迪亚斯-卡内尔说，他将永远铭记拉米罗的支持和建议，以及他对祖国的“典范奉献”。
+随后举行的品茶活动中，往来宾客共品炎陵高山茶，共话茶产业发展。
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 00:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 23:49 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 00:15 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 23:49 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 23:56 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 23:57 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 00:01 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 00:00 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 23:58 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 23:55 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 00:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 00:10 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 00:19 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 00:10 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 23:59 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 00:09 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 00:11 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 00:21 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 00:16 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 00:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 00:22 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 00:06 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 00:18 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 00:11 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:03 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/450412.shtml)
-- 2026-06-30 00:00 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.kurohicncr.top/Article/details/55494951378.shtml)
-- 2026-06-30 00:03 - [扬名立万](http://www.share.minike.top/Article/details/63985319.shtml)
-- 2026-06-30 00:11 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/730933943459.shtml)
-- 2026-06-30 00:10 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/619898461524.shtml)
-- 2026-06-29 23:49 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/830568272832.shtml)
-- 2026-06-30 00:05 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/997508967.shtml)
-- 2026-06-29 23:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/234560.shtml)
-- 2026-06-29 23:50 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/21259.shtml)
-- 2026-06-29 23:49 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/1065808.shtml)
-- 2026-06-30 00:13 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/50100344.shtml)
-- 2026-06-30 00:11 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/7063403502.shtml)
-- 2026-06-30 00:14 - [美股](https://www.blog.kurohicncr.top/Article/details/273799894.shtml)
-- 2026-06-29 23:59 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/5626414.shtml)
-- 2026-06-29 23:54 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/374977191.shtml)
+- 2026-06-29 23:58 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/4391458815.shtml)
+- 2026-06-30 00:14 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/368734585.shtml)
+- 2026-06-30 00:16 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/5470545.shtml)
+- 2026-06-30 00:17 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/35127439688.shtml)
+- 2026-06-30 00:11 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/328483.shtml)
+- 2026-06-30 00:10 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/04491.shtml)
+- 2026-06-30 00:08 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/145821002.shtml)
+- 2026-06-30 00:09 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/444215.shtml)
+- 2026-06-30 00:20 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/53456024.shtml)
+- 2026-06-30 00:03 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/8631036.shtml)
+- 2026-06-29 23:56 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/77295.shtml)
+- 2026-06-29 23:58 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/17165.shtml)
+- 2026-06-30 00:02 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/83019.shtml)
+- 2026-06-30 00:06 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/56459.shtml)
+- 2026-06-30 00:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/492274593.shtml)

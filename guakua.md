@@ -1,56 +1,57 @@
-# 南京：英歌起舞闹街头
+# 远洋盖了一栋“只有一个业主的房子”，获得了国际认可
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z
+近日，2026年MUSE国际设计奖名单揭晓，远洋集团与远洋资本联合孵化的定制住宅品牌远洋小筑获得最高荣誉——铂金奖。 这次获奖作品并非摩天大楼，而是一栋位于北京城郊、专为一个家庭定制的私宅改建项目。远洋小筑打破了传统别墅的封闭感，将湖光、光影与家庭互动的温情融为一体，充分结合客户需求，提供了融合多套主力户型、多重空间场景与生活亮点的定制化设计菜单，让客户可以用公道的市场价格，享
 
 ## 正文
 
-浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？
+近日，2026年MUSE国际设计奖名单揭晓，远洋集团与远洋资本联合孵化的定制住宅品牌远洋小筑获得最高荣誉——铂金奖。
 
-外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！
+这次获奖作品并非摩天大楼，而是一栋位于北京城郊、专为一个家庭定制的私宅改建项目。
 
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
+远洋小筑打破了传统别墅的封闭感，将湖光、光影与家庭互动的温情融为一体，充分结合客户需求，提供了融合多套主力户型、多重空间场景与生活亮点的定制化设计菜单，让客户可以用公道的市场价格，享受到大品牌的产品和服务，让定制住宅成为高性价比之选 。
 
-中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
+获奖作品空间效果图（会客厅） 房地产进入“私人定制”时代 房地产下半场，远洋的镜头不但对准了城市天际线，也面向了一个个家庭的具体生活。
 
-学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？
+过去，房企最擅长规模化、标准化。
 
-高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
+如今居住者的需求正变得极其具体： 有人想在老家宅基地盖一栋有乡愁、有品质的房子。
 
-评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！
+有人需要翻新旧别墅，以适应三代同堂甚至四代同堂的新生活。
 
-孔子为什么说“温故而知新”？
+有人向往在城郊拥有一处安顿身心的田园小院。
 
 ## 相关推荐
 
-- 2026-06-29 23:59 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 23:53 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 23:52 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 23:50 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 23:53 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 00:03 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 00:10 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 00:16 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 23:48 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 00:05 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-30 00:03 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 00:03 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 23:56 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 00:03 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 00:06 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 00:07 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 00:19 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 00:13 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 23:56 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 00:05 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 23:57 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/415984799.shtml)
-- 2026-06-29 23:49 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/033438.shtml)
-- 2026-06-29 23:59 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/58881639.shtml)
-- 2026-06-29 23:55 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/71399289248.shtml)
-- 2026-06-30 00:02 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/3311389088.shtml)
-- 2026-06-29 23:49 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/2908744486.shtml)
-- 2026-06-30 00:02 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/914890148.shtml)
-- 2026-06-29 23:57 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/97948.shtml)
-- 2026-06-30 00:00 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/2422905.shtml)
-- 2026-06-29 23:59 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/8474068.shtml)
-- 2026-06-29 23:59 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/9876208.shtml)
-- 2026-06-30 00:16 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/63158.shtml)
-- 2026-06-30 00:16 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/74590380.shtml)
-- 2026-06-30 00:02 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/432304672.shtml)
-- 2026-06-30 00:09 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/65678013970.shtml)
+- 2026-06-29 23:56 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/930414910909.shtml)
+- 2026-06-30 00:12 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/3105218.shtml)
+- 2026-06-30 00:11 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/343939593.shtml)
+- 2026-06-30 00:05 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/8334365818.shtml)
+- 2026-06-30 00:03 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/7866642.shtml)
+- 2026-06-30 00:21 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/8830014999.shtml)
+- 2026-06-29 23:55 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/97928474.shtml)
+- 2026-06-30 00:21 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/73318706.shtml)
+- 2026-06-30 00:23 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/4226293.shtml)
+- 2026-06-29 23:58 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/67183362586.shtml)
+- 2026-06-30 00:09 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/545618350.shtml)
+- 2026-06-30 00:19 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/337300.shtml)
+- 2026-06-30 00:04 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/70277.shtml)
+- 2026-06-30 00:04 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/236342336080.shtml)
+- 2026-06-30 00:10 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/2753713754.shtml)

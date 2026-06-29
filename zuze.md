@@ -1,57 +1,60 @@
-# 创多项纪录！华润新能源启动申购，超200亿巨无霸IPO来了
+# 海湾油轮遇袭危及脆弱停火，欧洲股市下挫
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-来源：资本秘闻 新能源龙头华润新能源上市在即。根据安排，华润新能源将于6月22日启动申购，即将登陆深交所主板。据了解，华润新能源系港股上市公司华润电力的全资子公司，即“H股拆A”。此次冲击上市，华润新能源也创下多项纪录，公司拟公开发行股份约21.07亿股，位列2026年沪深两市新股首位，同时是深交所史上发行规模第二大的新股。此外，若超额配售选择权全额行使，预计华润新能源募集资金
+欧洲股市周一下跌，市场担忧周末美伊紧张局势再度升级，可能破坏两国间脆弱的停火协议。 截至伦敦时间上午 9：30（美国东部时间凌晨 4：30），欧洲斯托克 600 指数下跌超 1.1%，欧洲主要交易所与各行业板块全线飘绿。 美国总统特朗普周日表示，美国海军一艘导弹驱逐舰在阿曼湾向一艘悬挂伊朗国旗的货船开火并使其失去动力，随后海军陆战队员登船扣押了该船。 此次扣押行动是美国对海峡封
 
 ## 正文
 
-来源：资本秘闻 新能源龙头华润新能源上市在即。
+欧洲股市周一下跌，市场担忧周末美伊紧张局势再度升级，可能破坏两国间脆弱的停火协议。
 
-根据安排，华润新能源将于6月22日启动申购，即将登陆深交所主板。
+截至伦敦时间上午 9：30（美国东部时间凌晨 4：30），欧洲斯托克 600 指数下跌超 1.1%，欧洲主要交易所与各行业板块全线飘绿。
 
-据了解，华润新能源系港股上市公司华润电力的全资子公司，即“H股拆A”。
+美国总统特朗普周日表示，美国海军一艘导弹驱逐舰在阿曼湾向一艘悬挂伊朗国旗的货船开火并使其失去动力，随后海军陆战队员登船扣押了该船。
 
-此次冲击上市，华润新能源也创下多项纪录，公司拟公开发行股份约21.07亿股，位列2026年沪深两市新股首位，同时是深交所史上发行规模第二大的新股。
+此次扣押行动是美国对海峡封锁的升级。
 
-此外，若超额配售选择权全额行使，预计华润新能源募集资金总额约为245亿元，将刷新深交所IPO历史融资纪录。
+此前，伊朗已于周日早些时候向试图通过该航道的商船开火。
 
-01 发行价10.11元/股 6月22日，华润新能源将正式启动申购，发行价格为10.11元/股，发行市盈率为21.99倍，行业市盈率为20.86倍，投资者顶格申购需配市值632万元。
+自上周起，美国一直在对进出伊朗港口的船只实施海上封锁。
 
-作为华润电力的全资子公司，华润新能源的主营业务为投资、开发、运营和管理风力、太阳能发电站，主要产品为电力。
+伊朗认为持续的封锁违反了现行停火协议，并以此作为取消原定于周一在伊斯兰堡举行会谈的理由之一。
 
-华润新能源此次公开发行股票总数约为21.07亿股，发行股份占发行后公司总股本的比例约为16.2%。
+特朗普周日警告称，如果德黑兰不同意华盛顿方面结束冲突的条件，他将 “摧毁伊朗的每一座发电厂和每一座桥梁”。
 
 ## 相关推荐
 
-- 2026-06-30 00:04 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 00:09 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 00:03 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 00:04 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 00:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 00:09 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 00:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 23:55 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 23:54 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 00:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 00:15 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 00:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 00:22 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 23:58 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 00:02 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 23:56 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 00:10 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 00:07 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 00:03 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 00:01 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 00:00 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 00:05 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 00:07 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 23:54 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 23:58 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:10 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/063460.shtml)
-- 2026-06-30 00:02 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/387707.shtml)
-- 2026-06-29 23:48 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/32219271489.shtml)
-- 2026-06-30 00:05 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/532170062.shtml)
-- 2026-06-30 00:11 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/814376983516.shtml)
-- 2026-06-29 23:52 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/08664436.shtml)
-- 2026-06-30 00:09 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/46774489.shtml)
-- 2026-06-30 00:14 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/377989090894.shtml)
-- 2026-06-30 00:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/79572576.shtml)
-- 2026-06-30 00:13 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/955861.shtml)
-- 2026-06-29 23:55 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/7895518588.shtml)
-- 2026-06-29 23:49 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/0364228.shtml)
-- 2026-06-29 23:53 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/22872.shtml)
-- 2026-06-29 23:58 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/062012010406.shtml)
-- 2026-06-30 00:06 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/132663545767.shtml)
+- 2026-06-29 23:57 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/80896338865.shtml)
+- 2026-06-30 00:05 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/2996911413.shtml)
+- 2026-06-29 23:57 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/81351483186.shtml)
+- 2026-06-30 00:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/449339898.shtml)
+- 2026-06-30 00:09 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/673427829.shtml)
+- 2026-06-30 00:08 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/372683.shtml)
+- 2026-06-30 00:16 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/33927078.shtml)
+- 2026-06-30 00:06 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/63047.shtml)
+- 2026-06-29 23:56 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/081452504.shtml)
+- 2026-06-30 00:00 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/363382441635.shtml)
+- 2026-06-30 00:21 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/08941721.shtml)
+- 2026-06-30 00:11 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/93322973270.shtml)
+- 2026-06-30 00:02 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/3891103560.shtml)
+- 2026-06-30 00:21 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/33814.shtml)
+- 2026-06-30 00:06 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/12662.shtml)

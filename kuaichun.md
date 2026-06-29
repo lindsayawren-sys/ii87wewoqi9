@@ -1,51 +1,61 @@
-# 伊朗媒体：伊朗副外长将率团在瑞士举行技术性会谈
+# （乡村行·看振兴）广东上陵镇：春笋破土采收忙 笋干飘香产业兴
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰6月22日电据伊朗媒体22日报道，从22日开始，由伊朗外交部副部长加里巴巴迪率领的伊朗团队在瑞士同美方举行技术性会谈。伊朗主要谈判团队已离开瑞士回国。（完）责任编辑：宋雅芳
+中新网河源4月21日电 (张璐 黄汶)近日，走进广东河源市和平县上陵镇，只见山林间的春笋破土而出、长势喜人。村民们正忙碌地采挖春笋，绿竹强村笋干加工坊(简称“工坊”)已全面投入笋干加工生产。 在上陵镇翠山村，村民吴水娴正在竹林采挖春笋。她表示：“今年春季雨水充沛，春笋长势良好，这段时间每天能挖两百多斤春笋，交给工坊后收入约百元。” 据了解，上陵镇毛竹资源有12万亩，全镇立竹库存
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网河源4月21日电 (张璐 黄汶)近日，走进广东河源市和平县上陵镇，只见山林间的春笋破土而出、长势喜人。
 
-新华社德黑兰6月22日电据伊朗媒体22日报道，从22日开始，由伊朗外交部副部长加里巴巴迪率领的伊朗团队在瑞士同美方举行技术性会谈。
+村民们正忙碌地采挖春笋，绿竹强村笋干加工坊(简称“工坊”)已全面投入笋干加工生产。
 
-伊朗主要谈判团队已离开瑞士回国。
+在上陵镇翠山村，村民吴水娴正在竹林采挖春笋。
 
-（完）责任编辑：宋雅芳
+她表示：“今年春季雨水充沛，春笋长势良好，这段时间每天能挖两百多斤春笋，交给工坊后收入约百元。
+
+” 据了解，上陵镇毛竹资源有12万亩，全镇立竹库存量超过2400万株，每年可产出毛竹400万根以上，所产毛竹笋肉质厚实、鲜嫩脆爽、清甜爽口，粗纤维丰富，富有嚼劲。
+
+工坊去年派员工到福建永安学习毛竹抚育技术，引进乳酸发酵型白笋干制作工艺。
+
+目前工坊年加工鲜笋可达50万斤，年产值约150万元，直接带动约100人就业。
+
+此外，竹笋附加值明显提高，有效带动了竹农增收。
 
 ## 相关推荐
 
-- 2026-06-30 00:01 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 00:12 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 23:53 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 23:53 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 00:02 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 00:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 00:13 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 23:52 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 00:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 00:09 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 00:13 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 00:07 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 23:55 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 00:07 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 00:01 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 00:00 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 00:10 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 00:17 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 00:05 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 00:17 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 00:14 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 00:10 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 00:13 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 00:18 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 00:14 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 00:22 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 23:56 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 23:58 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:06 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/2850347.shtml)
-- 2026-06-29 23:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/84285.shtml)
-- 2026-06-29 23:59 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/153762245275.shtml)
-- 2026-06-30 00:15 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/62855.shtml)
-- 2026-06-29 23:53 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/082868.shtml)
-- 2026-06-30 00:07 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/0654951.shtml)
-- 2026-06-29 23:59 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/2221230.shtml)
-- 2026-06-29 23:49 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/93359.shtml)
-- 2026-06-30 00:16 - [《贺子珍》](http://www.share.minike.top/Article/details/28011103.shtml)
-- 2026-06-30 00:17 - [啊啊啊](https://www.share.minike.top/Article/details/1693554546.shtml)
-- 2026-06-30 00:11 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/389944016908.shtml)
-- 2026-06-29 23:53 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/9877490554.shtml)
-- 2026-06-29 23:49 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/02802.shtml)
-- 2026-06-30 00:11 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/565392429.shtml)
-- 2026-06-30 00:08 - [时光音乐会](https://www.blog.minike.top/Article/details/5031217.shtml)
+- 2026-06-30 00:09 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/429622129083.shtml)
+- 2026-06-30 00:02 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/34313.shtml)
+- 2026-06-30 00:13 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/46439744.shtml)
+- 2026-06-30 00:17 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/351156.shtml)
+- 2026-06-29 23:56 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/7230546531.shtml)
+- 2026-06-30 00:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/861544520226.shtml)
+- 2026-06-30 00:08 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/574952.shtml)
+- 2026-06-30 00:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/9771920.shtml)
+- 2026-06-29 23:54 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/32636820823.shtml)
+- 2026-06-30 00:14 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/3887386976.shtml)
+- 2026-06-29 23:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/599887722084.shtml)
+- 2026-06-30 00:10 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/5861811.shtml)
+- 2026-06-30 00:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/254697432765.shtml)
+- 2026-06-30 00:13 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/09181.shtml)
+- 2026-06-30 00:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/0161500409.shtml)

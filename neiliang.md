@@ -1,60 +1,61 @@
-# 长江上岸渔民“祖技新用”：科学捕捞守护渔业“根脉”
+# 美国军用无人机制造商Aevex上市两日股价翻倍 防务科技股获追捧
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新网江西九江6月19日电 题：长江上岸渔民“祖技新用”：科学捕捞守护渔业“根脉” 作者 卢梦梦 吴敏 自2020年“长江十年禁渔计划”启动后，上岸渔民沈治政19日又一次在渔业科考船上度过端午节。 在长江入赣第一站——江西九江瑞昌市码头镇，沈治政自少时起便和祖辈在江上捕鱼。2020年“洗脚上岸”后，他加入了当地的长江禁渔巡护队，还迎来了新的“捕捞”任务。 长江瑞昌段地处长江中下
+军用无人机制造商Aevex Corp．股价在两个交易日内翻倍，成为近期上市后表现抢眼的防务科技公司之一。 该公司获Madison Dearborn Partners支持，其A类股周一在纽约一度大涨49%，至40.25美元，较上周20美元的首次公开募股（IPO）价翻倍。 此次发行正值防务科技公司IPO激增之际，随着全球冲突加剧，各国为应对新威胁而增加军费支出。无人机尤其受到关注，
 
 ## 正文
 
-中新网江西九江6月19日电 题：长江上岸渔民“祖技新用”：科学捕捞守护渔业“根脉” 作者 卢梦梦 吴敏 自2020年“长江十年禁渔计划”启动后，上岸渔民沈治政19日又一次在渔业科考船上度过端午节。
+军用无人机制造商Aevex Corp．股价在两个交易日内翻倍，成为近期上市后表现抢眼的防务科技公司之一。
 
-在长江入赣第一站——江西九江瑞昌市码头镇，沈治政自少时起便和祖辈在江上捕鱼。
+该公司获Madison Dearborn Partners支持，其A类股周一在纽约一度大涨49%，至40.25美元，较上周20美元的首次公开募股（IPO）价翻倍。
 
-2020年“洗脚上岸”后，他加入了当地的长江禁渔巡护队，还迎来了新的“捕捞”任务。
+此次发行正值防务科技公司IPO激增之际，随着全球冲突加剧，各国为应对新威胁而增加军费支出。
 
-长江瑞昌段地处长江中下游，是长江江西段四大家鱼(指青鱼、草鱼、鲢鱼、鳙鱼四种重要淡水经济鱼类)国家级水产种质资源保护区的一部分，也是江西瑞昌长江四大家鱼原种场所在地。
+无人机尤其受到关注，因其在当前战争中被伊朗、以色列和美国广泛使用，这一趋势延续了自2022年俄乌冲突以来的态势。
 
-“长江十年禁渔计划”启动后，该原种场成为中国唯一一家可以在长江捕捞四大家鱼天然鱼苗的国家级原种场。
+“公司所处行业正当其时 —— 防务科技 —— 而且其上市正值上周五市场整体风险偏好回升之际，”盈透证券首席策略师Steve Sosnick表示。
 
-沈治政是该种场捕苗服务队的一员，队员们都是上岸渔民。
+这为该股提供了足够动力，吸引新一批交易员“跟风入场，”他表示。
 
-据史料记载，瑞昌渔民在长江捕捞四大家鱼天然鱼苗，最早可追溯至唐朝初期。
+由Arcline Investment Management支持的Arxis Inc．上周上市首日大涨38%，融资11.3亿美元；而无人机软件公司Swarmer Inc．在3月IPO后前两个交易日股价飙升1000%。
 
-宋末元初文学家周密也曾在《癸辛杂识》一书中提到“江州等处水滨产鱼苗，地主至于夏，皆取之出售，以此为利”，介绍九江瑞昌渔民“取鱼苗出售”的产业传统。
+随着军费开支转向以无人机等无人化、相对低成本技术为主的新一代系统，投资者兴趣也随之上升，Aevex正有望从中受益。
 
 ## 相关推荐
 
-- 2026-06-30 00:08 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 00:00 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 23:51 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 00:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 23:51 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 23:48 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 00:05 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 23:57 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 00:14 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 23:50 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 00:09 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 23:52 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 00:08 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 00:08 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 23:58 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 00:05 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 23:58 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 23:56 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 00:02 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 00:03 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 00:10 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 00:19 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 00:01 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 00:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 00:19 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 23:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 00:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-30 00:18 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 23:56 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:54 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/48007.shtml)
-- 2026-06-29 23:57 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/357149311.shtml)
-- 2026-06-30 00:12 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/83576853.shtml)
-- 2026-06-30 00:02 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/493457497965.shtml)
-- 2026-06-30 00:13 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/80917890879.shtml)
-- 2026-06-29 23:52 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/288463.shtml)
-- 2026-06-30 00:17 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/34202.shtml)
-- 2026-06-30 00:04 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/6717976319.shtml)
-- 2026-06-30 00:01 - [送你一朵小红花](https://www.blog.minike.top/Article/details/9696176.shtml)
-- 2026-06-29 23:55 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/846154.shtml)
-- 2026-06-30 00:00 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/98238088187.shtml)
-- 2026-06-30 00:12 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/899481070.shtml)
-- 2026-06-30 00:03 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/98041250120.shtml)
-- 2026-06-29 23:59 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/869827739.shtml)
-- 2026-06-30 00:17 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/168392097.shtml)
+- 2026-06-30 00:03 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/3873250758.shtml)
+- 2026-06-30 00:23 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/78678643.shtml)
+- 2026-06-30 00:05 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/769382619.shtml)
+- 2026-06-30 00:03 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/92947507.shtml)
+- 2026-06-30 00:21 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/298891.shtml)
+- 2026-06-30 00:01 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/74747.shtml)
+- 2026-06-30 00:14 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/40709237148.shtml)
+- 2026-06-30 00:18 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/707951438.shtml)
+- 2026-06-30 00:05 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/590549.shtml)
+- 2026-06-29 23:59 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/45435592.shtml)
+- 2026-06-30 00:08 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/60508317.shtml)
+- 2026-06-29 23:55 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/03519295677.shtml)
+- 2026-06-30 00:10 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/64958817009.shtml)
+- 2026-06-30 00:16 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/0546938.shtml)
+- 2026-06-30 00:13 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/3269978475.shtml)

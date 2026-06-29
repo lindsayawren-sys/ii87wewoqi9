@@ -1,48 +1,47 @@
-# 奥地利外长赖辛格将访华
+# 开盘：国内期货主力合约涨跌互现 多晶硅涨超4%
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新社北京6月21日电 中国外交部发言人21日宣布，应中共中央政治局委员、外交部长王毅邀请，奥地利外长赖辛格将于6月22日至26日访华。(完)
+早盘开盘，国内期货主力合约涨跌互现。 20号胶、橡胶、焦煤、焦炭、低硫燃料油（LU）涨超1%，烧碱、纯碱、纸浆、棕榈油涨近1%；跌幅方面，PX、PTA、苯乙烯（EB）、纯苯、丙烯、甲醇跌超1%。 责任编辑：朱赫楠
 
 ## 正文
 
-中新社北京6月21日电 中国外交部发言人21日宣布，应中共中央政治局委员、外交部长王毅邀请，奥地利外长赖辛格将于6月22日至26日访华。
+早盘开盘，国内期货主力合约涨跌互现。
 
-(完)
+20号胶、橡胶、焦煤、焦炭、低硫燃料油（LU）涨超1%，烧碱、纯碱、纸浆、棕榈油涨近1%；跌幅方面，PX、PTA、苯乙烯（EB）、纯苯、丙烯、甲醇跌超1%。
+
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-30 00:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 00:14 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 00:09 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 23:58 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 00:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 00:06 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 00:06 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 23:56 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 00:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 00:01 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 23:49 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 00:04 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 00:09 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 00:07 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 00:02 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 00:14 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 00:17 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 00:16 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 00:01 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 00:17 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 00:03 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 00:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 00:00 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 00:00 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-30 00:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:12 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/724446.shtml)
-- 2026-06-29 23:57 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/77412842700.shtml)
-- 2026-06-29 23:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/1221115025.shtml)
-- 2026-06-30 00:00 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/5301384251.shtml)
-- 2026-06-30 00:04 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/7791865778.shtml)
-- 2026-06-30 00:14 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/14062735.shtml)
-- 2026-06-29 23:55 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/454115480497.shtml)
-- 2026-06-30 00:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/033728.shtml)
-- 2026-06-30 00:11 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/30955892948.shtml)
-- 2026-06-29 23:59 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/9640699012.shtml)
-- 2026-06-29 23:49 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/752873079.shtml)
-- 2026-06-30 00:04 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/624338.shtml)
-- 2026-06-30 00:03 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/30432.shtml)
-- 2026-06-29 23:57 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/8504053.shtml)
-- 2026-06-30 00:12 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/8819398049.shtml)
+- 2026-06-30 00:16 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/884714729.shtml)
+- 2026-06-30 00:07 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/00247.shtml)
+- 2026-06-30 00:13 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/585276597.shtml)
+- 2026-06-30 00:14 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/527262.shtml)
+- 2026-06-30 00:00 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/042926269704.shtml)
+- 2026-06-30 00:07 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/9239359438.shtml)
+- 2026-06-30 00:13 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/2162993366.shtml)
+- 2026-06-30 00:14 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/57110251.shtml)
+- 2026-06-30 00:10 - [国常会听取人工智能发展情况汇报](https://www.blog.kurohicncr.top/Article/details/0163734.shtml)
+- 2026-06-30 00:02 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/122405.shtml)
+- 2026-06-30 00:09 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/77941279.shtml)
+- 2026-06-29 23:59 - [一见倾心](http://www.share.kurohicncr.top/Article/details/63843.shtml)
+- 2026-06-29 23:57 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/9791399.shtml)
+- 2026-06-30 00:18 - [把邻居裸体发群算维权还是侵权](http://www.share.minike.top/Article/details/6253040.shtml)
+- 2026-06-30 00:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/84004195875.shtml)

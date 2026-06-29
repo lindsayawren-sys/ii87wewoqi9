@@ -1,58 +1,57 @@
-# 近四成美国人不相信美国能够再延续250年
+# 两部门公布首批“专业与标准化教育融合试点”名单
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-当地时间6月14日晚，白宫南草坪灯火通明，一座八角笼坐落在聚光灯下，4000余名受邀宾客围坐四周。 这场安排在美国总统特朗普80岁生日当天的UFC格斗赛事，被白宫宣称为美国建国250周年系列纪念活动之一，现场军乐团助阵、战机飞越，场面宏大。 而在这场盛大的纪念活动背后，美国民众却开始担忧：美国是否能坚持下一个250年。 据路透社与益普索于6月12日至15日进行的一项全国在线民调
+中新网4月21日电 据国家市场监督管理总局网站消息，近日，市场监管总局、教育部联合印发《关于公布专业与标准化教育融合试点名单的通知》，全国共281个试点项目入选。此次试点是两部门首次联合开展的全国性专业与标准化教育融合试点工作，标志着我国标准化人才培养迈入新阶段。首批试点经自主申报、初选推荐、专家评审、社会公示等程序产生，覆盖全国30个省(区、市)的253所高等院校。试点专业覆
 
 ## 正文
 
-当地时间6月14日晚，白宫南草坪灯火通明，一座八角笼坐落在聚光灯下，4000余名受邀宾客围坐四周。
+中新网4月21日电 据国家市场监督管理总局网站消息，近日，市场监管总局、教育部联合印发《关于公布专业与标准化教育融合试点名单的通知》，全国共281个试点项目入选。
 
-这场安排在美国总统特朗普80岁生日当天的UFC格斗赛事，被白宫宣称为美国建国250周年系列纪念活动之一，现场军乐团助阵、战机飞越，场面宏大。
+此次试点是两部门首次联合开展的全国性专业与标准化教育融合试点工作，标志着我国标准化人才培养迈入新阶段。
 
-而在这场盛大的纪念活动背后，美国民众却开始担忧：美国是否能坚持下一个250年。
+首批试点经自主申报、初选推荐、专家评审、社会公示等程序产生，覆盖全国30个省(区、市)的253所高等院校。
 
-据路透社与益普索于6月12日至15日进行的一项全国在线民调显示，约38%的受访者认为250年后美国将不再是一个统一的国家。
+试点专业覆盖人工智能、智能制造、低空经济、食品质量安全、现代服务业等多个国家重点产业与民生领域，超八成试点引入企业、科研机构等标准化领域相关单位联合参与，联合承担单位达373家。
 
-这不仅仅是对国家寿命的悲观预期。
+通过试点，将推动全国各地区高等院校精准对接产业发展需求，预计培养兼具专业素养和标准化知识技能的复合型人才近4万名，有效缓解重点产业领域急需人才短缺的局面。
 
-该调查显示，仅30%的受访者认为美国是世界上最伟大的国家；约三分之二的受访者同意“美国民主正面临失败风险”的说法。
-
-美国一贯以“民主灯塔”自称，当美国民众不再相信民主，这意味着什么，可想而知。
-
-美国民众对未来的担忧并非凭空而来。
+下一步，市场监管总局将会同教育部不断扩大标准化教育覆盖面，持续完善人才培养体系，推进科技创新与标准研制“双通型”人才队伍建设，为标准引领高质量发展筑牢人才根基。
 
 ## 相关推荐
 
-- 2026-06-29 23:54 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 23:55 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 23:50 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 00:04 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-30 00:06 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 23:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 23:55 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 00:06 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 00:13 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 00:00 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 00:01 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 23:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 00:03 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 00:05 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 00:19 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 00:13 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 00:09 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 00:02 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 23:57 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 00:11 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 00:24 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 00:15 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 23:54 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 00:03 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 00:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 00:00 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 00:19 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/060931226.shtml)
-- 2026-06-30 00:02 - [小娘惹](https://www.share.minike.top/Article/details/24930633.shtml)
-- 2026-06-30 00:11 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/85700497.shtml)
-- 2026-06-30 00:04 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/7248319.shtml)
-- 2026-06-29 23:50 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/439219076.shtml)
-- 2026-06-30 00:14 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/521911223.shtml)
-- 2026-06-30 00:15 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/27169519.shtml)
-- 2026-06-29 23:50 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/314159.shtml)
-- 2026-06-30 00:10 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/6811386853.shtml)
-- 2026-06-29 23:58 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/91855281681.shtml)
-- 2026-06-30 00:10 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/606240.shtml)
-- 2026-06-30 00:06 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/239484940539.shtml)
-- 2026-06-30 00:05 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/713422096871.shtml)
-- 2026-06-30 00:09 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/3138876.shtml)
-- 2026-06-29 23:57 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/8965927.shtml)
+- 2026-06-30 00:20 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/971486133.shtml)
+- 2026-06-29 23:58 - [欧洲缘何成为变暖最快的大洲](https://www.blog.minike.top/Article/details/38833592.shtml)
+- 2026-06-30 00:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/5531946.shtml)
+- 2026-06-30 00:03 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/1076989.shtml)
+- 2026-06-30 00:12 - [世界杯](https://www.blog.minike.top/Article/details/844432160.shtml)
+- 2026-06-30 00:18 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/92572945543.shtml)
+- 2026-06-29 23:55 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/07722079.shtml)
+- 2026-06-30 00:18 - [美股](https://www.share.kurohicncr.top/Article/details/00270.shtml)
+- 2026-06-30 00:01 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/1453833.shtml)
+- 2026-06-30 00:07 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/619308379.shtml)
+- 2026-06-30 00:21 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/23821.shtml)
+- 2026-06-30 00:20 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/943996.shtml)
+- 2026-06-30 00:15 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/36346067527.shtml)
+- 2026-06-30 00:09 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/264600081712.shtml)
+- 2026-06-29 23:56 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/4067219777.shtml)

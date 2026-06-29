@@ -1,47 +1,61 @@
-# 美国怀疑ASML顶级光刻机流入中国 荷兰巨头坚称“不可能”
+# 监管机构密切关注Anthropic的Mythos模型，警惕银行业风险
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-来源：JQman科技网 近日，美国商务部长霍华德·卢特尼克在一系列会晤中向荷兰光刻机巨头ASML表达担忧，声称可能有一台极紫外（EUV）光刻机流入中国，若属实将严重违反现行出口管制制度。ASML坚决否认这一指控，明确表示从未向中国交付任何EUV系统，且美国商务部未向媒体或ASML公开展示相关证据。责任编辑：张恒星
+监管机构周一表示，正在密切关注人工智能公司 Anthropic 的前沿大模型 Mythos 的研发进展。专家称，该模型可能具备破坏银行系统稳定的潜在能力。 专家表示，Mythos 拥有极强的高级代码编写能力，使其具备前所未有的识别网络安全漏洞的潜在能力，这也引发了全球多家监管机构的更严格审查。 澳大利亚证券与投资委员会（ASIC）发言人周一称：“澳大利亚证券与投资委员会正与各国
 
 ## 正文
 
-来源：JQman科技网 近日，美国商务部长霍华德·卢特尼克在一系列会晤中向荷兰光刻机巨头ASML表达担忧，声称可能有一台极紫外（EUV）光刻机流入中国，若属实将严重违反现行出口管制制度。
+监管机构周一表示，正在密切关注人工智能公司 Anthropic 的前沿大模型 Mythos 的研发进展。
 
-ASML坚决否认这一指控，明确表示从未向中国交付任何EUV系统，且美国商务部未向媒体或ASML公开展示相关证据。
+专家称，该模型可能具备破坏银行系统稳定的潜在能力。
 
-责任编辑：张恒星
+专家表示，Mythos 拥有极强的高级代码编写能力，使其具备前所未有的识别网络安全漏洞的潜在能力，这也引发了全球多家监管机构的更严格审查。
+
+澳大利亚证券与投资委员会（ASIC）发言人周一称：“澳大利亚证券与投资委员会正与各国同行监管机构密切监控这些进展，评估其对澳大利亚市场可能产生的影响。
+
+” “澳大利亚证券与投资委员会正与其他监管机构、政府部门及金融行业保持紧密沟通，以理解并应对技术变革带来的变化。
+
+” 该委员会表示，期望持有金融服务牌照的机构能够 “主动采取行动”，保护其客户与服务对象。
+
+澳大利亚银行业监管机构 —— 澳大利亚审慎监管局（APRA）称，将 “持续评估这些技术进步带来的影响，以确保金融体系持续安全并具备抗风险能力”。
+
+韩国金融监督院（FSS）周一表示，已于上周一与金融机构的信息安全官员举行会议，评估与 Mythos 相关的风险。
 
 ## 相关推荐
 
-- 2026-06-30 00:09 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 00:17 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 23:50 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 00:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 00:06 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 23:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 00:04 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 00:12 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 00:02 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 00:15 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 00:17 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 23:58 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 00:12 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 23:57 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 00:10 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 23:58 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 23:57 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 00:15 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 00:06 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 23:58 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 00:20 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 00:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 00:14 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 23:56 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 00:11 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 00:07 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:07 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/856713441083.shtml)
-- 2026-06-30 00:03 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/027516704.shtml)
-- 2026-06-30 00:01 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/77453834490.shtml)
-- 2026-06-30 00:12 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/0686070.shtml)
-- 2026-06-30 00:02 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/95769595855.shtml)
-- 2026-06-30 00:03 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/710058614.shtml)
-- 2026-06-30 00:01 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/3339509.shtml)
-- 2026-06-30 00:18 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/0973331.shtml)
-- 2026-06-29 23:53 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/25284508519.shtml)
-- 2026-06-30 00:05 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/706091706973.shtml)
-- 2026-06-30 00:11 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/84625.shtml)
-- 2026-06-29 23:48 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/29422.shtml)
-- 2026-06-29 23:56 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/74772871335.shtml)
-- 2026-06-29 23:50 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/34868061.shtml)
-- 2026-06-29 23:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/93437890952.shtml)
+- 2026-06-30 00:13 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/80359644.shtml)
+- 2026-06-30 00:06 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/7469051320.shtml)
+- 2026-06-30 00:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/1351778.shtml)
+- 2026-06-30 00:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/98172.shtml)
+- 2026-06-29 23:54 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/63145538660.shtml)
+- 2026-06-30 00:04 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/50809277295.shtml)
+- 2026-06-30 00:07 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/069918465.shtml)
+- 2026-06-29 23:56 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/98321.shtml)
+- 2026-06-29 23:58 - [新官上任三把火](http://www.blog.minike.top/Article/details/7066805.shtml)
+- 2026-06-30 00:16 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/94497.shtml)
+- 2026-06-30 00:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/11659.shtml)
+- 2026-06-30 00:14 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/4716655346.shtml)
+- 2026-06-30 00:00 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/0213893.shtml)
+- 2026-06-29 23:55 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/308570.shtml)
+- 2026-06-30 00:06 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/504126.shtml)

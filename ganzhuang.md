@@ -1,49 +1,47 @@
-# 财政部：在政府采购活动中对46家美国企业采取相关措施
+# 万成集团股份于4月21日上午起停牌 以待发布内幕消息
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新网6月22日电 6月22日，财政部发布关于在政府采购活动中对有关美国企业采取相关措施的通知，根据有关法律法规，经批准，现决定在政府采购活动中对46家美国企业采取相关措施。具体通知如下： 一、采购人在政府采购活动中，不得采购46家美国企业(不包括在华美资企业)生产的产品。 二、本通知自印发之日起施行。
+万成集团股份（01451）公布，公司股份将自2026年4月21日上午九时正起在香港联合交易所有限公司短暂停牌，以待发布公司将根据香港公司收购及合并守则刊发并构成公司内幕消息的公告。责任编辑：卢昱君
 
 ## 正文
 
-中新网6月22日电 6月22日，财政部发布关于在政府采购活动中对有关美国企业采取相关措施的通知，根据有关法律法规，经批准，现决定在政府采购活动中对46家美国企业采取相关措施。
+万成集团股份（01451）公布，公司股份将自2026年4月21日上午九时正起在香港联合交易所有限公司短暂停牌，以待发布公司将根据香港公司收购及合并守则刊发并构成公司内幕消息的公告。
 
-具体通知如下： 一、采购人在政府采购活动中，不得采购46家美国企业(不包括在华美资企业)生产的产品。
-
-二、本通知自印发之日起施行。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 00:10 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 00:01 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 00:17 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 23:49 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 00:00 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 00:08 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 00:08 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 23:54 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 00:17 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 23:55 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 00:09 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 23:55 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 23:59 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 00:03 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 00:04 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 00:00 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 00:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 00:10 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 00:20 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 00:11 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 00:19 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 00:23 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 00:18 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 00:05 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 00:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:14 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/2063101.shtml)
-- 2026-06-29 23:58 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/84431.shtml)
-- 2026-06-30 00:04 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/3781428.shtml)
-- 2026-06-30 00:00 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/823245.shtml)
-- 2026-06-29 23:51 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/90193145315.shtml)
-- 2026-06-29 23:54 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/80345.shtml)
-- 2026-06-30 00:11 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/45112689.shtml)
-- 2026-06-30 00:17 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/44530410.shtml)
-- 2026-06-30 00:15 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/9940282.shtml)
-- 2026-06-29 23:52 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/240684156647.shtml)
-- 2026-06-29 23:53 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/821048.shtml)
-- 2026-06-30 00:15 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/65997890879.shtml)
-- 2026-06-29 23:51 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/26809979.shtml)
-- 2026-06-29 23:53 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/5479366468.shtml)
-- 2026-06-30 00:06 - [第一炉香](http://www.share.minike.top/Article/details/0831694277.shtml)
+- 2026-06-30 00:10 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/481640.shtml)
+- 2026-06-29 23:58 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/71970476.shtml)
+- 2026-06-30 00:06 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/762380.shtml)
+- 2026-06-30 00:06 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/70803.shtml)
+- 2026-06-30 00:17 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/054773813.shtml)
+- 2026-06-30 00:08 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/8110544699.shtml)
+- 2026-06-30 00:07 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/22141141.shtml)
+- 2026-06-30 00:04 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/643148.shtml)
+- 2026-06-30 00:14 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/272590478.shtml)
+- 2026-06-30 00:19 - [小龙女配音去世 李若彤发文悼念](https://www.share.kurohicncr.top/Article/details/1350337558.shtml)
+- 2026-06-30 00:12 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/991622192150.shtml)
+- 2026-06-30 00:21 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/46491165.shtml)
+- 2026-06-30 00:10 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/72687230639.shtml)
+- 2026-06-29 23:54 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/9629196858.shtml)
+- 2026-06-30 00:07 - [如何看待乌空军3架米格-29被摧毁](https://www.share.minike.top/Article/details/7287711.shtml)

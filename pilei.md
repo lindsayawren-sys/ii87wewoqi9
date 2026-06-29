@@ -1,57 +1,52 @@
-# 王沪宁主持召开全国政协主席会议
+# 金鸿顺：实控人刘栩被列入失信被执行人 公司亦无法与其取得联系
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-新华社北京6月22日电 政协第十四届全国委员会第五十二次主席会议22日在京召开。中共中央政治局常委、全国政协主席王沪宁主持并讲话。 会议传达学习贯彻习近平总书记近期重要讲话和重要指示精神。王沪宁表示，习近平党建思想对强党强国具有重大现实意义和长远指导意义，在习近平新时代中国特色社会主义思想中有着特殊重要的地位，要持续推动学习贯彻习近平党建思想走深走实，把学习成效体现到坚持人民政
+金鸿顺公告，公司于近日通过查询获悉实际控制人刘栩被列入失信被执行人，公司及公司董事会在此之前未收到控股股东或实际控制人及其相关人员的任何形式通知。公司将按照相关规定解除刘栩的非独立董事职务。实际控制人刘栩自2025年9月底起已不到公司现场履职，同时其多次缺席第三届董事会会议；自2025年12月中旬至本公告披露日，刘栩未与公司联系，公司亦无法与刘栩取得联系。目前公司经营业务正常开
 
 ## 正文
 
-新华社北京6月22日电 政协第十四届全国委员会第五十二次主席会议22日在京召开。
+金鸿顺公告，公司于近日通过查询获悉实际控制人刘栩被列入失信被执行人，公司及公司董事会在此之前未收到控股股东或实际控制人及其相关人员的任何形式通知。
 
-中共中央政治局常委、全国政协主席王沪宁主持并讲话。
+公司将按照相关规定解除刘栩的非独立董事职务。
 
-会议传达学习贯彻习近平总书记近期重要讲话和重要指示精神。
+实际控制人刘栩自2025年9月底起已不到公司现场履职，同时其多次缺席第三届董事会会议；自2025年12月中旬至本公告披露日，刘栩未与公司联系，公司亦无法与刘栩取得联系。
 
-王沪宁表示，习近平党建思想对强党强国具有重大现实意义和长远指导意义，在习近平新时代中国特色社会主义思想中有着特殊重要的地位，要持续推动学习贯彻习近平党建思想走深走实，把学习成效体现到坚持人民政协性质定位、充分发挥专门协商机构作用、聚焦党和国家中心任务履职尽责的实际行动和工作成效上。
+目前公司经营业务正常开展，其停止履职不会对公司经营管理活动产生重大影响。
 
-要深入学习贯彻习近平总书记对常态化做好东西部协作工作的重要指示精神，围绕促进区域协调发展、推进乡村全面振兴、推动全体人民共同富裕等积极建言献策。
-
-要深入学习贯彻习近平总书记关于前瞻布局和发展未来产业的重要论述，引导经济界、科技界等相关界别政协委员通过视察考察调研、提案、社情民意信息等提出意见和建议。
-
-要深入学习贯彻习近平总书记关于一体推进教育科技人才发展的重要论述，聚焦建立健全教育科技人才一体推进协调机制、加快建设国家战略人才力量等重点问题，深入调查研究、协商议政，助力推动科技自主创新和人才自主培养。
-
-会议审议通过政协第十四届全国委员会常务委员会第十八次会议议程(草案)和日程，决定8月下旬在北京召开全国政协十四届常委会第十八次会议。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 23:49 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 00:07 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 00:07 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 00:03 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 00:17 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 23:53 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 23:49 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 23:51 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 00:15 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 00:12 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 00:03 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 00:11 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 00:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 23:54 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 23:57 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 00:11 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 00:18 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 00:18 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 00:09 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 00:00 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 23:55 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 00:21 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 00:07 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/3118510265.shtml)
-- 2026-06-30 00:13 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/6421495.shtml)
-- 2026-06-29 23:58 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/217859.shtml)
-- 2026-06-30 00:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/967699025228.shtml)
-- 2026-06-30 00:08 - [日防卫省正考虑引进美企人工智能系统](https://www.share.minike.top/Article/details/9265536.shtml)
-- 2026-06-30 00:05 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/0546357.shtml)
-- 2026-06-30 00:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/7302808.shtml)
-- 2026-06-30 00:14 - [金刚川](http://www.blog.kurohicncr.top/Article/details/2360534966.shtml)
-- 2026-06-30 00:02 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/7404421424.shtml)
-- 2026-06-29 23:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/4955453.shtml)
-- 2026-06-29 23:51 - [周生如故](http://www.share.minike.top/Article/details/0740209.shtml)
-- 2026-06-29 23:58 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/4905240518.shtml)
-- 2026-06-30 00:13 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/4610098.shtml)
-- 2026-06-29 23:58 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/463473769611.shtml)
-- 2026-06-29 23:51 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/590278442637.shtml)
+- 2026-06-29 23:59 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/8367216065.shtml)
+- 2026-06-30 00:17 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/825157247671.shtml)
+- 2026-06-30 00:18 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/037216691242.shtml)
+- 2026-06-29 23:54 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/057368790080.shtml)
+- 2026-06-30 00:17 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/8464398.shtml)
+- 2026-06-30 00:16 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/856802.shtml)
+- 2026-06-30 00:21 - [扬名立万](http://www.share.kurohicncr.top/Article/details/189360112.shtml)
+- 2026-06-30 00:04 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/5396605385.shtml)
+- 2026-06-30 00:15 - [美人鱼](https://www.blog.minike.top/Article/details/1587358352.shtml)
+- 2026-06-29 23:57 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/197831.shtml)
+- 2026-06-30 00:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/4441574.shtml)
+- 2026-06-30 00:14 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/9807907292.shtml)
+- 2026-06-30 00:07 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/176797833.shtml)
+- 2026-06-30 00:06 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/704189457.shtml)
+- 2026-06-30 00:08 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/948702796.shtml)

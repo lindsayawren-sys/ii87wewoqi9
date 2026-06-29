@@ -1,61 +1,57 @@
-# 不靠贷款了，银行决定换个“活法”
+# “DeepSeek首次融资”传闻震动市场！寒武纪、沐曦股份、摩尔线程和张雪机车的天使投资人都回应了
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-来源：柒财经 不靠贷款活，渐成趋势。 杭州银行董事长宋剑斌在2026年一季度业绩会上称，“未来银行的增长点不在信贷，如果死磕信贷，或许不行。” 6月17日，央行行长潘功胜在在2026陆家嘴论坛上表示：贷款“降速提质”或将成为宏观运行的新常态之一。 潘功胜行长进一步指出，2025年的社会融资规模增量中，贷款占比45%；债券和股票融资合计占比47%，首次超过贷款。 种种迹象释放出强
+DeepSeek成立以来的首次外部融资，无疑是这个周末一级市场最大的焦点。 4月19日，在上海国投公司、上海科创金融研究院、上海天使会主办的2026天使投资大会间隙，寒武纪和沐曦股份的天使投资人——和利资本创始合伙人孔令国；摩尔线程天使投资人——深圳数据经济研究院、AI经济研究中心联席主任王捷；张雪机车天使投资人——高信资本创始合伙人兼董事长曹斌，在接受证券时报记者采访时均对“
 
 ## 正文
 
-来源：柒财经 不靠贷款活，渐成趋势。
+DeepSeek成立以来的首次外部融资，无疑是这个周末一级市场最大的焦点。
 
-杭州银行董事长宋剑斌在2026年一季度业绩会上称，“未来银行的增长点不在信贷，如果死磕信贷，或许不行。
+4月19日，在上海国投公司、上海科创金融研究院、上海天使会主办的2026天使投资大会间隙，寒武纪和沐曦股份的天使投资人——和利资本创始合伙人孔令国；摩尔线程天使投资人——深圳数据经济研究院、AI经济研究中心联席主任王捷；张雪机车天使投资人——高信资本创始合伙人兼董事长曹斌，在接受证券时报记者采访时均对“是否有意向参与DeepSeek融资”的问题进行了回应。
 
-” 6月17日，央行行长潘功胜在在2026陆家嘴论坛上表示：贷款“降速提质”或将成为宏观运行的新常态之一。
+其中，孔令国表示，DeepSeek为中国AI产业作出了巨大贡献，但和利资本聚焦半导体与集成电路产业投资，不会考虑投资DeepSeek；王捷与曹斌则称有意向投资DeepSeek。
 
-潘功胜行长进一步指出，2025年的社会融资规模增量中，贷款占比45%；债券和股票融资合计占比47%，首次超过贷款。
+孔令国：天使投资其实投的是人 深耕半导体与集成电路产业投资近30年，孔令国先后押中寒武纪与沐曦股份，为两家公司的天使投资人。
 
-种种迹象释放出强烈信号：那个长达十几年、以工业化和城镇化为核心驱动力的信贷高增时代，正在落幕。
+孔令国在大会间隙接受记者采访时表示，“2016年觉得AI要起来了，寒武纪做的高端复杂AI芯片，国内当时做的人很少，而且团队在AI领域确实也有很多积累，在供应链上面我们有能提供助力，于是就投了它。
 
-而一个与当下高质量发展更加匹配，更能满足多样化经济需求的“新银行”，开始展露雏形。
+” 面对记者“现在还持有吗”的问题，他笑称，这是一个扎心的问题，“2024年就已退出，一方面是基金期限让我们没办法再持有；另一方面，天使投资人在上市后退出，赚的是公司从一级市场到二级市场估值之间的钱，至于上市后估值一路上扬，这是后话，不是一级市场投资人能预测到的”。
 
-01 不靠贷款，银行想换个“活法” 低利率、低息差环境中，银行放贷也在变难。
+他说，常说投资是投人，天使投资尤其是看人。
 
-根据央行4月数据，今年前四个月，我国人民币贷款累计增加8.59万亿元，4月新增人民币贷款录得-100亿元，环比、同比分别少增3.0万亿元、2900亿元。
+这一理念在投资沐曦股份时体现得淋漓尽致。
 
 ## 相关推荐
 
-- 2026-06-29 23:52 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 23:53 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 00:08 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 00:17 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 00:16 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 23:53 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 23:59 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 23:57 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 23:58 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 00:03 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 00:00 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 00:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-30 00:18 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 00:15 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 23:53 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 23:58 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 00:20 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 00:00 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 00:20 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 00:00 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 00:03 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 00:00 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 00:18 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 00:01 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 00:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 00:14 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/2462322.shtml)
-- 2026-06-29 23:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/938528819.shtml)
-- 2026-06-30 00:17 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/522909549082.shtml)
-- 2026-06-29 23:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/848819795756.shtml)
-- 2026-06-29 23:49 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/26214.shtml)
-- 2026-06-30 00:05 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/23831175485.shtml)
-- 2026-06-30 00:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/614135741.shtml)
-- 2026-06-29 23:50 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/021433281.shtml)
-- 2026-06-29 23:54 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/6224660.shtml)
-- 2026-06-30 00:04 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/3901182.shtml)
-- 2026-06-30 00:15 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/4349734068.shtml)
-- 2026-06-29 23:56 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/727730409325.shtml)
-- 2026-06-30 00:14 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/586121.shtml)
-- 2026-06-30 00:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/9607358753.shtml)
-- 2026-06-30 00:00 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/65052583480.shtml)
+- 2026-06-30 00:17 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/14533311074.shtml)
+- 2026-06-30 00:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/276605.shtml)
+- 2026-06-30 00:04 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/09881345.shtml)
+- 2026-06-30 00:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/41761889.shtml)
+- 2026-06-30 00:16 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/95742.shtml)
+- 2026-06-30 00:10 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/7846951.shtml)
+- 2026-06-30 00:12 - [月亮](https://www.blog.kurohicncr.top/Article/details/166017260.shtml)
+- 2026-06-30 00:15 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/96662.shtml)
+- 2026-06-30 00:00 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/40905696939.shtml)
+- 2026-06-29 23:56 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/4927255.shtml)
+- 2026-06-30 00:15 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/185043512.shtml)
+- 2026-06-30 00:11 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/01938713.shtml)
+- 2026-06-29 23:58 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/927622787.shtml)
+- 2026-06-29 23:58 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/39215027281.shtml)
+- 2026-06-30 00:17 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/83745097707.shtml)

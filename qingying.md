@@ -1,49 +1,55 @@
-# 兴业科技拟斥资5500万元收购磷化铟衬底相关业务资产
+# 中国马术协会第十一届会员代表大会在京召开
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-6月21日，兴业科技（002674.SZ）发布公告称，公司已与青岛立昂晶电半导体科技有限公司签署框架协议，拟以现金方式出资5500万元收购青岛立昂旗下磷化铟衬底及半导体电子材料业务相关资产，涵盖该业务线全部资产、运营团队、知识产权等。本次收购目前仅为意向性约定，后续尚需提交公司董事会审议，预计不会对公司当期业绩产生实质性影响。（文章来源：央广财经）
+中新网4月21日电 据中国马术协会网站消息，中国马术协会第十一届会员代表大会及第一次理事会于2026年4月21日在国家体育总局自行车击剑运动管理中心顺利召开。 大会审议通过了《第十届理事会财务报告》《第十届理事会工作报告》以及新修订的《中国马术协会章程》，选举产生了第十一届理事会成员。姚迎春当选第十一届中国马术协会主席，刘诗来、张莹君当选副主席，韩继玲当选秘书长。 国家体育总局
 
 ## 正文
 
-6月21日，兴业科技（002674.SZ）发布公告称，公司已与青岛立昂晶电半导体科技有限公司签署框架协议，拟以现金方式出资5500万元收购青岛立昂旗下磷化铟衬底及半导体电子材料业务相关资产，涵盖该业务线全部资产、运营团队、知识产权等。
+中新网4月21日电 据中国马术协会网站消息，中国马术协会第十一届会员代表大会及第一次理事会于2026年4月21日在国家体育总局自行车击剑运动管理中心顺利召开。
 
-本次收购目前仅为意向性约定，后续尚需提交公司董事会审议，预计不会对公司当期业绩产生实质性影响。
+大会审议通过了《第十届理事会财务报告》《第十届理事会工作报告》以及新修订的《中国马术协会章程》，选举产生了第十一届理事会成员。
 
-（文章来源：央广财经）
+姚迎春当选第十一届中国马术协会主席，刘诗来、张莹君当选副主席，韩继玲当选秘书长。
+
+国家体育总局自行车击剑运动管理中心副主任、党委副书记刘立强宣读理事会候选人名单。
+
+会议传达了国家体育总局关于同意中国马术协会换届的批复意见。
+
+姚迎春代表新一届协会理事会，首先对第十届理事会的工作及全体马术人的努力表示肯定和感谢。
+
+他表示，新一届理事会将锚定体育强国建设发展目标，立足项目发展实际，秉持服务国家战略、服务行业发展、服务会员需求、服务人民健康的宗旨，恪尽职守，守正创新，严于律己，扎实工作，全力推动中国马术事业健康有序可持续发展。
 
 ## 相关推荐
 
-- 2026-06-29 23:53 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 23:56 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 23:58 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 23:58 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 23:48 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 23:58 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 00:12 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 00:11 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-30 00:01 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 00:14 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 00:11 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 23:56 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 00:10 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 00:21 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 00:02 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 23:56 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 00:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 00:11 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 00:17 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 00:16 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 23:56 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 23:57 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 00:13 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 00:16 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:07 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/110262746750.shtml)
-- 2026-06-30 00:07 - [锐评T1零封KC](https://www.share.minike.top/Article/details/8757869.shtml)
-- 2026-06-30 00:09 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/15702.shtml)
-- 2026-06-30 00:12 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/8021491325.shtml)
-- 2026-06-30 00:01 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/2688897.shtml)
-- 2026-06-30 00:11 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/82625524.shtml)
-- 2026-06-30 00:08 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/55174867.shtml)
-- 2026-06-30 00:14 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/6747419945.shtml)
-- 2026-06-30 00:03 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/044730200.shtml)
-- 2026-06-30 00:09 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/9635035261.shtml)
-- 2026-06-30 00:11 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/3902856992.shtml)
-- 2026-06-29 23:50 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/71114.shtml)
-- 2026-06-30 00:04 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/03350.shtml)
-- 2026-06-29 23:53 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/1110746821.shtml)
-- 2026-06-30 00:16 - [请回答王牌2019](http://www.blog.minike.top/Article/details/9506462.shtml)
+- 2026-06-30 00:10 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/7432543.shtml)
+- 2026-06-30 00:07 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/65799.shtml)
+- 2026-06-29 23:55 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/91393465494.shtml)
+- 2026-06-30 00:09 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/46767202.shtml)
+- 2026-06-30 00:12 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/189535245938.shtml)
+- 2026-06-30 00:00 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/027014.shtml)
+- 2026-06-29 23:59 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/57612120106.shtml)
+- 2026-06-30 00:05 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/3408915347.shtml)
+- 2026-06-30 00:02 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/3579620.shtml)
+- 2026-06-30 00:12 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/02142451.shtml)
+- 2026-06-30 00:04 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/760583333709.shtml)
+- 2026-06-30 00:19 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/073244662.shtml)
+- 2026-06-30 00:13 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/437917064877.shtml)
+- 2026-06-29 23:59 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/75352111.shtml)
+- 2026-06-29 23:57 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/7639253.shtml)

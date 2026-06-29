@@ -1,57 +1,56 @@
-# 调解方发表联合声明 伊美谈判进展“令人鼓舞”
+# 以法治之力铸牢中华民族共同体意识
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-新华社多哈6月22日电 卡塔尔和巴基斯坦作为伊朗同美国谈判的调解方22日发表联合声明说，伊美谈判“在积极和建设性的氛围中举行，取得了令人鼓舞的进展，包括建立了进一步技术性谈判的机制”。 联合声明说，在谅解备忘录的基础上，各方同意设立一个高级别委员会，负责监督谈判进程。首席谈判代表将定期向高级别委员会报告，并牵头核问题、制裁问题的工作组，以及监督与解决争端小组，以确保谅解备忘录等
+制定民族团结进步促进法，以国家立法形式将新时代党在民族工作中取得的重大理论和实践成果转化为国家意志，标志着我国民族事务治理法治化水平迈上新的台阶。 十四届全国人大四次会议表决通过民族团结进步促进法，该法将于2026年7月1日起施行。作为我国民族工作领域的一部基础性、综合性法律，它的出台为铸牢中华民族共同体意识、推进民族团结进步事业提供了坚实的法治保障。这部法律有何重大意义？如何
 
 ## 正文
 
-新华社多哈6月22日电 卡塔尔和巴基斯坦作为伊朗同美国谈判的调解方22日发表联合声明说，伊美谈判“在积极和建设性的氛围中举行，取得了令人鼓舞的进展，包括建立了进一步技术性谈判的机制”。
+制定民族团结进步促进法，以国家立法形式将新时代党在民族工作中取得的重大理论和实践成果转化为国家意志，标志着我国民族事务治理法治化水平迈上新的台阶。
 
-联合声明说，在谅解备忘录的基础上，各方同意设立一个高级别委员会，负责监督谈判进程。
+十四届全国人大四次会议表决通过民族团结进步促进法，该法将于2026年7月1日起施行。
 
-首席谈判代表将定期向高级别委员会报告，并牵头核问题、制裁问题的工作组，以及监督与解决争端小组，以确保谅解备忘录等的有效执行。
+作为我国民族工作领域的一部基础性、综合性法律，它的出台为铸牢中华民族共同体意识、推进民族团结进步事业提供了坚实的法治保障。
 
-联合声明说，高级别委员会已就伊美60天内达成最终协议的路线图达成一致，这为立即启动进一步技术性谈判奠定基础。
+这部法律有何重大意义？
 
-伊美还建立了沟通渠道，确保在最终协议谈判期间，商业船舶安全通过霍尔木兹海峡。
+如何理解其核心要义和实践要求？
 
-此外，各方同意由调解方协助设立一个冲突消除小组，以确保终止在黎巴嫩的军事行动。
+“统战新语”自今日起陆续推出七篇解读稿件，邀请权威专家学者进行全方位、多角度的学理化阐释。
 
-本周内，技术性会谈将在瑞士比尔根山继续进行。
+坚持依法治国是中国特色解决民族问题正确道路的重要内涵。
+
+制定民族团结进步促进法，是坚持法治方向、回应时代之问、进一步完善民族工作法治化保障的重大举措，也是顺应中华民族共同体发展大势、推进民族事务治理现代化的必然要求。
 
 ## 相关推荐
 
-- 2026-06-30 00:11 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 23:57 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 23:50 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 00:00 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 00:09 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 00:02 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 00:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 00:17 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 00:10 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 23:53 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 00:06 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 23:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 23:51 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 00:16 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 00:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 00:20 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 00:03 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 23:58 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 00:18 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 23:58 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 23:58 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 00:20 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-30 00:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:55 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/822156023.shtml)
-- 2026-06-29 23:55 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/3733481939.shtml)
-- 2026-06-29 23:48 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/7537725054.shtml)
-- 2026-06-30 00:08 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/56811303367.shtml)
-- 2026-06-29 23:53 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/35055470.shtml)
-- 2026-06-30 00:02 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/20407.shtml)
-- 2026-06-30 00:01 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/14649.shtml)
-- 2026-06-29 23:56 - [啊啊啊](https://www.blog.minike.top/Article/details/6292578450.shtml)
-- 2026-06-29 23:54 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/533802.shtml)
-- 2026-06-29 23:58 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/62077029.shtml)
-- 2026-06-30 00:12 - [恋与深空致歉](https://www.share.minike.top/Article/details/8561273856.shtml)
-- 2026-06-30 00:02 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/7964964301.shtml)
-- 2026-06-29 23:49 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/754953.shtml)
-- 2026-06-30 00:10 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/395695.shtml)
-- 2026-06-29 23:51 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/48159.shtml)
+- 2026-06-30 00:12 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/392174966.shtml)
+- 2026-06-30 00:17 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/9626283.shtml)
+- 2026-06-29 23:57 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/16527912.shtml)
+- 2026-06-30 00:02 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/104484.shtml)
+- 2026-06-30 00:22 - [月亮](http://www.share.kurohicncr.top/Article/details/66253.shtml)
+- 2026-06-30 00:15 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/518324803734.shtml)
+- 2026-06-30 00:10 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/99276393.shtml)
+- 2026-06-30 00:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/74303.shtml)
+- 2026-06-30 00:22 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/137850020463.shtml)
+- 2026-06-30 00:17 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/12083775.shtml)
+- 2026-06-30 00:07 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/46181.shtml)
+- 2026-06-30 00:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/2572822.shtml)
+- 2026-06-30 00:08 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/919434986975.shtml)
+- 2026-06-30 00:05 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/752879781.shtml)
+- 2026-06-30 00:11 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/00732.shtml)

@@ -1,61 +1,51 @@
-# 塔克拉玛干沙漠南缘降水破极值引发局地洪水
+# 中国长安朱华荣：2030年公司年产销目标400万辆，新能源占比超60%
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐6月22日电 (苟继鹏)记者22日从新疆气象台获悉，连日来，塔克拉玛干沙漠南缘迎大范围降雨。6月19日08时至21日08时，和田地区全境共201站出现降水，其中共113站累计降水量24.4～94.9毫米。 19日20时至20日20时，和田国家站日降水量64.7毫米，破有气象记录以来的历史极值，单日降水量超过和田市多年平均降水量48.1毫米。 持续降水造成塔克拉玛干
+4月21日，“中国长安汽车集团全球战略发布会”举行，主题为：创新创业 智启长安。 中国长安汽车集团有限公司党委书记、董事长朱华荣表示，未来五年，公司将进一步聚焦大单品，产品谱系由63款调整为36款，降43%；打造一款年销量50万辆级，五款年销量30万辆级全球大单品。 他提到，到2030年，汽车年产销达400万辆、奋斗500万辆，其中阿维塔50万辆、深蓝100万辆、长安品牌260
 
 ## 正文
 
-中新网乌鲁木齐6月22日电 (苟继鹏)记者22日从新疆气象台获悉，连日来，塔克拉玛干沙漠南缘迎大范围降雨。
+4月21日，“中国长安汽车集团全球战略发布会”举行，主题为：创新创业 智启长安。
 
-6月19日08时至21日08时，和田地区全境共201站出现降水，其中共113站累计降水量24.4～94.9毫米。
+中国长安汽车集团有限公司党委书记、董事长朱华荣表示，未来五年，公司将进一步聚焦大单品，产品谱系由63款调整为36款，降43%；打造一款年销量50万辆级，五款年销量30万辆级全球大单品。
 
-19日20时至20日20时，和田国家站日降水量64.7毫米，破有气象记录以来的历史极值，单日降水量超过和田市多年平均降水量48.1毫米。
+他提到，到2030年，汽车年产销达400万辆、奋斗500万辆，其中阿维塔50万辆、深蓝100万辆、长安品牌260万辆，新能源占比超60%，海外占比35%-40%。
 
-持续降水造成塔克拉玛干沙漠南缘多条河流来水量明显增加，皮山河、克里雅河、尼雅河部分断面流量接近警戒流量。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-这两天，多位在新疆南部旅游出行的网友，在自媒体平台上发布视频称，新疆塔克拉玛干沙漠边缘地带下起了大雨，一度水漫吐和(吐鲁番至和田)高速公路，致使多段路面交通短暂受阻。
-
-6月20日下午，受连日降雨影响，喀什地区伽师县境内吐和高速1164公里处突发局部山洪，造成部分路段泥石大量淤积，道路通行受阻。
-
-伽师县公安局第一时间开展交通疏导和路面清淤作业，该路段快速恢复正常通行秩序。
-
-据新疆气象台预测，6月21日20时至6月24日20时，哈密市山区的部分区域和和田地区、巴州山区的局部区域及伊犁河谷山区、博州东部、阿勒泰地区、喀什地区南部山区、克州、吐鲁番市山区、塔城地区南部山区等地局地累计降水量达24.1毫米～67.7毫米。
+责任编辑：李昂
 
 ## 相关推荐
 
-- 2026-06-30 00:05 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 00:14 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 23:49 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 00:17 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 00:13 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 00:06 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 23:51 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 23:50 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 23:57 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 23:52 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 00:16 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 00:06 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 23:49 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 00:01 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 00:08 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 23:58 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 00:04 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 00:15 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 00:22 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 00:00 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 00:16 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 00:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 00:20 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 23:54 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 00:02 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 00:09 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/565486785338.shtml)
-- 2026-06-29 23:53 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/547298331.shtml)
-- 2026-06-30 00:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/972806536.shtml)
-- 2026-06-30 00:14 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/61426820.shtml)
-- 2026-06-29 23:54 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/31475.shtml)
-- 2026-06-29 23:55 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/7129863.shtml)
-- 2026-06-29 23:51 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/255436.shtml)
-- 2026-06-29 23:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/5676589.shtml)
-- 2026-06-29 23:59 - [一见倾心](http://www.blog.minike.top/Article/details/70308770.shtml)
-- 2026-06-29 23:53 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/480293382.shtml)
-- 2026-06-29 23:50 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/66132585.shtml)
-- 2026-06-29 23:48 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/348106536.shtml)
-- 2026-06-29 23:57 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/0525112.shtml)
-- 2026-06-29 23:57 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/326075661.shtml)
-- 2026-06-30 00:17 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/37676234542.shtml)
+- 2026-06-30 00:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/903090.shtml)
+- 2026-06-29 23:58 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/1881340550.shtml)
+- 2026-06-30 00:03 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/505478145.shtml)
+- 2026-06-30 00:10 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/83074143920.shtml)
+- 2026-06-30 00:21 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/4860605496.shtml)
+- 2026-06-29 23:56 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/9125724.shtml)
+- 2026-06-30 00:03 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/782004151.shtml)
+- 2026-06-29 23:59 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/7175023464.shtml)
+- 2026-06-29 23:55 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/3118200.shtml)
+- 2026-06-30 00:12 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/600444737513.shtml)
+- 2026-06-30 00:14 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/119523112810.shtml)
+- 2026-06-29 23:55 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/882512845359.shtml)
+- 2026-06-30 00:00 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/2539062.shtml)
+- 2026-06-29 23:56 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/7126744226.shtml)
+- 2026-06-30 00:20 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/4092546265.shtml)

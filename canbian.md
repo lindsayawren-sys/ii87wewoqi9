@@ -1,57 +1,48 @@
-# 艺术体操世界挑战杯北京站：中国队夺个人和集体全能双冠
+# 大风黄色预警：新疆西藏内蒙古局地阵风可达8至9级
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新社北京6月20日电 (记者 国璇)20日在国家体育馆进行的2026年世界体操联合会艺术体操世界挑战杯(北京站)中，中国队夺得个人全能和集体全能两枚金牌。 个人项目中，在2025年世青赛为中国队收获史上首枚奖牌的小将王淇在球、圈两项资格赛中登场，分别得到27.45分和28.55分，加上前一日在棒、带两项资格赛分别得到27.75分和27.05分，以四项总分110.80分夺得个人
+中国天气网讯 中央气象台4月20日06时继续发布大风黄色预警： 预计，4月20日08时至21日08时，新疆沿天山地区和南疆盆地、西藏大部、青海大部、甘肃河西、内蒙古中东部、东北地区大部、河北北部、北京、天津、山东半岛、苏皖大部、湖北东部等地部分地区有5～7级风，阵风8～9级，其中新疆东部山口、西藏北部、内蒙古中部局地有8～9级风，阵风10级以上；渤海、渤海海峡、黄海北部海域、黄
 
 ## 正文
 
-中新社北京6月20日电 (记者 国璇)20日在国家体育馆进行的2026年世界体操联合会艺术体操世界挑战杯(北京站)中，中国队夺得个人全能和集体全能两枚金牌。
+中国天气网讯 中央气象台4月20日06时继续发布大风黄色预警： 预计，4月20日08时至21日08时，新疆沿天山地区和南疆盆地、西藏大部、青海大部、甘肃河西、内蒙古中东部、东北地区大部、河北北部、北京、天津、山东半岛、苏皖大部、湖北东部等地部分地区有5～7级风，阵风8～9级，其中新疆东部山口、西藏北部、内蒙古中部局地有8～9级风，阵风10级以上；渤海、渤海海峡、黄海北部海域、黄海中西部和西南部部分海域将有7~8级、阵风9级的大风。
 
-个人项目中，在2025年世青赛为中国队收获史上首枚奖牌的小将王淇在球、圈两项资格赛中登场，分别得到27.45分和28.55分，加上前一日在棒、带两项资格赛分别得到27.75分和27.05分，以四项总分110.80分夺得个人全能冠军。
+预计，4月21日08时至22日08时，新疆沿天山地区、西藏北部、青海北部和南部、内蒙古中东部、东北地区大部、河北北部、山东半岛、云南东部等地部分地区有5～7级风，阵风8～9级，其中西藏北部、内蒙古中部、吉林中东部局地有8～9级风；渤海、渤海海峡、黄海北部部分海域将有7级、阵风8~9级的大风。
 
-赛后王淇说，能和这个项目的高手俄罗斯选手同台竞争并获胜，自己非常高兴，但在器械难度等方面还有瑕疵，需要不断改进。
-
-对于明天的单项比赛，王淇希望自己以平常心看待。
-
-“努力发挥训练时的最好水平，不要想太多，该怎么做就怎么做。
-
-” 队友王子露在比赛中出现失误，带操和棒操资格赛分获25.65分和25.45分，以四项总分106.20分位列第四。
-
-在今年欧锦赛夺冠的俄罗斯选手伊尔捷里亚科娃获得亚军，波兰选手莱温斯卡摘铜。
-
-集体全能3圈2棒项目资格赛中，中国队的新成套节目《凛冬之战》以《权力的游戏》为创编灵感，由于出现失误，获得24.95分，在该项目中位列第三。
+防御指南： 1、中央气象台、中国海上搜救中心提醒受大风影响海域航行、作业的船舶，注意航行安全； 2、森林、草场、城区防火部门做好防火准备，机场、铁路、公路等交通管理部门应采取措施保障交通安全； 3、停止高空、水上户外作业和游乐活动，加固或妥善安置围板、棚架广告牌、简易设施等易被大风吹动的搭建物； 4、行人与车辆不要在高大建筑物、广告牌等临时建筑物，或树的下方停留。
 
 ## 相关推荐
 
-- 2026-06-29 23:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 23:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 00:05 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 00:04 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 00:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 23:54 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 00:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 23:56 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 23:58 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 23:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 23:56 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 00:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 00:20 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 00:09 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 00:21 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 00:14 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 00:08 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 00:08 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 00:16 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 23:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 00:00 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 00:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 23:58 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:00 - [送你一朵小红花](https://www.share.minike.top/Article/details/15639.shtml)
-- 2026-06-29 23:55 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/76146661740.shtml)
-- 2026-06-29 23:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/337564595127.shtml)
-- 2026-06-30 00:05 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/16898989.shtml)
-- 2026-06-30 00:05 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/56881.shtml)
-- 2026-06-30 00:14 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/4335270.shtml)
-- 2026-06-30 00:01 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/73850657525.shtml)
-- 2026-06-29 23:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/17237234031.shtml)
-- 2026-06-30 00:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/40840550561.shtml)
-- 2026-06-29 23:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/21929704943.shtml)
-- 2026-06-29 23:56 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/85246748.shtml)
-- 2026-06-30 00:10 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/1667130.shtml)
-- 2026-06-29 23:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/9318656047.shtml)
-- 2026-06-30 00:08 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/8257672.shtml)
-- 2026-06-29 23:50 - [乔家的儿女](http://www.blog.minike.top/Article/details/0038250.shtml)
+- 2026-06-29 23:57 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/757739280.shtml)
+- 2026-06-30 00:05 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/5826165104.shtml)
+- 2026-06-29 23:59 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/63926710280.shtml)
+- 2026-06-29 23:57 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/38733313940.shtml)
+- 2026-06-30 00:22 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/34844.shtml)
+- 2026-06-30 00:01 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/819137898.shtml)
+- 2026-06-30 00:21 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/0374773.shtml)
+- 2026-06-30 00:07 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/70061325.shtml)
+- 2026-06-29 23:55 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/931449134.shtml)
+- 2026-06-30 00:10 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/0136674.shtml)
+- 2026-06-30 00:21 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/8681672491.shtml)
+- 2026-06-29 23:57 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/642499105.shtml)
+- 2026-06-30 00:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/840633456.shtml)
+- 2026-06-30 00:15 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/212446865671.shtml)
+- 2026-06-30 00:10 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/677494.shtml)

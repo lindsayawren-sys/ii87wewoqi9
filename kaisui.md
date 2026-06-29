@@ -1,53 +1,61 @@
-# 端午假期全社会跨区域人员流动量预计超6.5亿人次
+# 湖南茶叶产量超30万吨 综合产值突破1250亿元
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新网北京6月21日电(记者 张尼)记者从交通运输部获悉，端午假期三天(2026年6月19日-21日)，预计全社会跨区域人员流动总量为65278万人次，日均为21759.3万人次，同比持平。 其中，铁路客运总量4945.1万人次，日均为1648.4万人次，同比增长2.97%。 公路人员流动总量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)59489万人次
+中新网长沙4月21日电(向一鹏 戚宁)截至2025年底，湖南茶园面积326.7万亩，茶叶产量30.16万吨，综合产值突破1250亿元，构建起覆盖种植、加工、流通、文旅、文创的全产业链发展格局。 21日在长沙举行的2026茶祖节暨湖南沅陵碣滩茶文化旅游节新闻发布会，对外透露了上述信息。 2026茶祖节组委会副主任、湖南省供销合作总社党组成员、理事会副主任张军介绍，此次活动于4月2
 
 ## 正文
 
-中新网北京6月21日电(记者 张尼)记者从交通运输部获悉，端午假期三天(2026年6月19日-21日)，预计全社会跨区域人员流动总量为65278万人次，日均为21759.3万人次，同比持平。
+中新网长沙4月21日电(向一鹏 戚宁)截至2025年底，湖南茶园面积326.7万亩，茶叶产量30.16万吨，综合产值突破1250亿元，构建起覆盖种植、加工、流通、文旅、文创的全产业链发展格局。
 
-其中，铁路客运总量4945.1万人次，日均为1648.4万人次，同比增长2.97%。
+21日在长沙举行的2026茶祖节暨湖南沅陵碣滩茶文化旅游节新闻发布会，对外透露了上述信息。
 
-公路人员流动总量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)59489万人次，日均19830万人次，同比下降0.4%，其中，公路营业性客运量11288万人次，日均3763万人次，同比增长2.2%；高速公路及普通国省道非营业性小客车人员出行量48201万人次，日均16067万人次，同比下降1.0%。
+2026茶祖节组委会副主任、湖南省供销合作总社党组成员、理事会副主任张军介绍，此次活动于4月28日至5月20日举办，以“弘扬茶祖文化 促进茶旅融合”为主题，立足沅陵碣滩茶千年贡茶底蕴与生态优势，推动茶文化、茶产业、茶科技深度融合，联动生态旅游、乡村振兴全面发展，全力打响碣滩茶区域公用品牌，为湖南加快建设茶业强省注入强劲动力。
 
-水路客运总量276.3万人次，日均为92.1万人次，同比增长1.16%。
+沅陵县副县长钟群英介绍，目前沅陵茶园面积18.3万亩，茶叶加工企业130余家，2025年产量1.53万吨，综合产值23亿元，辐射带动12万涉茶人口、5000余户脱贫户持续增收，人均年增收超800元，实现“一片叶子富一方百姓”。
 
-民航客运总量567.6万人次，日均为189.2万人次，同比增长0.60%。
+本届茶祖节精心策划了开幕式、碣滩茶非遗展示展销暨全民品鉴活动、茶旅融合沉浸式体验暨采风活动等七大主题活动，兼顾文化性、专业性、体验性、传播性，为各界呈现一场特色鲜明、务实高效、影响广泛的茶文旅盛宴。
 
-(完)
+近年来，湖南茶产业呈现规模稳步扩大、质量持续提升、品牌更加响亮、融合不断深化的良好态势，茶产业已成为湖南特色优势产业、乡村振兴支柱产业、富民增收民生产业。
+
+湖南省农业农村厅总农艺师张志刚表示，今年湖南将紧扣“强链、补链、延链”发展目标，重点实施推进品牌体系建设行动、推进龙头企业集聚行动、推进“湘茶出湘”拓展市场行动等六大行动，推动湖南茶产业在高质量发展上再创新佳绩。
+
+据了解，茶祖节是经文化和旅游部审批保留、湖南省重点打造的茶文化节庆品牌，自2009年创办以来已连续举办17届，成为全国极具影响力的茶事活动平台。
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 23:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-30 00:04 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 00:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 00:17 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 23:57 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 00:10 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 00:04 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 23:59 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 00:10 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 23:57 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 00:01 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 00:18 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 00:21 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 00:00 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 00:22 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 00:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 00:21 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 00:20 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 00:21 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 00:13 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 23:55 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 00:17 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 00:11 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 00:17 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 00:22 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:15 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/7712968034.shtml)
-- 2026-06-30 00:08 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/652167731.shtml)
-- 2026-06-29 23:50 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/58006065.shtml)
-- 2026-06-29 23:48 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/2391626.shtml)
-- 2026-06-30 00:15 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/3022273.shtml)
-- 2026-06-30 00:06 - [极限挑战第一季](https://www.share.minike.top/Article/details/07378475995.shtml)
-- 2026-06-30 00:09 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/1100920.shtml)
-- 2026-06-29 23:53 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/725105120949.shtml)
-- 2026-06-30 00:06 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/9314509.shtml)
-- 2026-06-29 23:56 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/97232.shtml)
-- 2026-06-29 23:51 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/936154309.shtml)
-- 2026-06-30 00:16 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/9910582193.shtml)
-- 2026-06-30 00:17 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/575077771836.shtml)
-- 2026-06-29 23:54 - [极限挑战第一季](http://www.share.minike.top/Article/details/2173115.shtml)
-- 2026-06-29 23:56 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/58255.shtml)
+- 2026-06-30 00:10 - [巴黎区长紧急采购50台中国空调](https://www.share.kurohicncr.top/Article/details/44648.shtml)
+- 2026-06-30 00:15 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/549668572.shtml)
+- 2026-06-30 00:11 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/5038011.shtml)
+- 2026-06-29 23:55 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/28208.shtml)
+- 2026-06-30 00:05 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/1492259232.shtml)
+- 2026-06-30 00:14 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/030732959.shtml)
+- 2026-06-30 00:09 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/6968421.shtml)
+- 2026-06-30 00:16 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/0529471914.shtml)
+- 2026-06-30 00:19 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/985329.shtml)
+- 2026-06-29 23:56 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/782943182736.shtml)
+- 2026-06-30 00:12 - [张凌赫 客串](http://www.blog.minike.top/Article/details/91759016.shtml)
+- 2026-06-30 00:06 - [85花告别古偶](http://www.blog.minike.top/Article/details/1984040.shtml)
+- 2026-06-29 23:54 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/559009024.shtml)
+- 2026-06-30 00:07 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/56099.shtml)
+- 2026-06-30 00:00 - [我和我的家乡](http://www.share.minike.top/Article/details/91883.shtml)

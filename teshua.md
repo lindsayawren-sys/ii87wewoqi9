@@ -1,58 +1,54 @@
-# 特朗普特使与伊朗外长均将前往瑞士举行会谈
+# 外媒：法国一艘船只在霍尔木兹海峡遭“警告性射击”
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-据报道，美国特使威特科夫（Steve Witkoff）和伊朗外长阿拉格齐均将前往瑞士进行会谈。此前以色列和真主党同意在黎巴嫩停火，似乎重振了将结束伊朗战争的临时协议转化为中东持久和平协议的努力。 据报道，随着停火协议生效，威特科夫正前往瑞士，与已抵达当地的特朗普女婿库什纳会合。报道还称，阿拉格齐计划于周六启程前往瑞士。 这一进展可能表明，双方有意启动技术性谈判，以争取达成永久停
+中新网4月20日电 据法国《世界报》19日报道，法国达飞海运集团表示，旗下一艘船只18日在霍尔木兹海峡遭遇“警告性射击”，但船员均安然无恙。 据报道，国际海事组织表示，达飞海运一艘船只“受损”，但未透露更多细节。 另据英国海上贸易行动办公室18日通报称，接到多起霍尔木兹海峡附近船只遇袭事件的报告。一艘油轮船长报告称，伊朗伊斯兰革命卫队两艘炮艇靠近该油轮并向其开火。还有报告称，一
 
 ## 正文
 
-据报道，美国特使威特科夫（Steve Witkoff）和伊朗外长阿拉格齐均将前往瑞士进行会谈。
+中新网4月20日电 据法国《世界报》19日报道，法国达飞海运集团表示，旗下一艘船只18日在霍尔木兹海峡遭遇“警告性射击”，但船员均安然无恙。
 
-此前以色列和真主党同意在黎巴嫩停火，似乎重振了将结束伊朗战争的临时协议转化为中东持久和平协议的努力。
+据报道，国际海事组织表示，达飞海运一艘船只“受损”，但未透露更多细节。
 
-据报道，随着停火协议生效，威特科夫正前往瑞士，与已抵达当地的特朗普女婿库什纳会合。
+另据英国海上贸易行动办公室18日通报称，接到多起霍尔木兹海峡附近船只遇袭事件的报告。
 
-报道还称，阿拉格齐计划于周六启程前往瑞士。
+一艘油轮船长报告称，伊朗伊斯兰革命卫队两艘炮艇靠近该油轮并向其开火。
 
-这一进展可能表明，双方有意启动技术性谈判，以争取达成永久停火协议。
-
-白宫未回应关于威特科夫此次行程的置评请求。
-
-责任编辑：刘明亮
+还有报告称，一艘集装箱船遭不明发射物击中，部分集装箱受损，未引发火灾，也未造成环境影响。
 
 ## 相关推荐
 
-- 2026-06-30 00:13 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 00:03 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 23:55 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 00:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 23:49 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 23:59 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 00:16 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 23:59 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-30 00:03 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 00:08 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 00:05 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 00:00 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 23:53 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 00:14 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 00:02 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 00:21 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 00:07 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 00:10 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 00:12 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 00:21 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 00:04 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 00:06 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 00:01 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 23:57 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 23:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 00:14 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 23:58 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 00:10 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:53 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/32826467.shtml)
-- 2026-06-30 00:00 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/8262613850.shtml)
-- 2026-06-30 00:06 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/2086381171.shtml)
-- 2026-06-30 00:02 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/2012698353.shtml)
-- 2026-06-29 23:48 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5625153399.shtml)
-- 2026-06-30 00:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/015066316.shtml)
-- 2026-06-30 00:04 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/250839.shtml)
-- 2026-06-30 00:12 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/072920271660.shtml)
-- 2026-06-30 00:11 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/000868.shtml)
-- 2026-06-30 00:09 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/18905914482.shtml)
-- 2026-06-30 00:14 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/550180226.shtml)
-- 2026-06-30 00:16 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/20964849211.shtml)
-- 2026-06-30 00:08 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/508765532.shtml)
-- 2026-06-30 00:10 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/5098294.shtml)
-- 2026-06-29 23:51 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/5217244756.shtml)
+- 2026-06-30 00:06 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/2827521.shtml)
+- 2026-06-30 00:05 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/3253517311.shtml)
+- 2026-06-30 00:16 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/6981488228.shtml)
+- 2026-06-30 00:06 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/53009696254.shtml)
+- 2026-06-30 00:21 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/9172779479.shtml)
+- 2026-06-30 00:14 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/78437842924.shtml)
+- 2026-06-30 00:05 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/2069796.shtml)
+- 2026-06-30 00:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/74184.shtml)
+- 2026-06-30 00:04 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/8554412876.shtml)
+- 2026-06-30 00:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/1438637586.shtml)
+- 2026-06-29 23:54 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/593467551.shtml)
+- 2026-06-30 00:19 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/46271610033.shtml)
+- 2026-06-30 00:04 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/56457.shtml)
+- 2026-06-30 00:19 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/34315.shtml)
+- 2026-06-30 00:07 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/72444.shtml)

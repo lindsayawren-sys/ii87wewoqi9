@@ -1,61 +1,61 @@
-# 中金：拥挤不是看空理由，拥挤可能带来风险，但也可能意味着趋势加强
+# 商务部：欧盟《网络安全法》修订草案存在多方面问题
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周动态：模糊的沃什与拥挤的科技 来源：Kevin策略研究 1️⃣ 外资：主动外资流出港股3.6亿美元（vs． 上周4.2亿），流出A股1.6亿美元（vs． 上周1.5亿）。 被动外资流入港股16.3亿美元（vs． 上周3.9亿），流入A股6.5亿美元（vs． 上周流出1570万）图1图2。中国和新兴基金流
+中新社北京4月20日电 (记者 尹倩芸)中国商务部近日向欧委会提交了对欧盟《网络安全法》修订草案的评论意见，表达了中方严正关切和正式立场。中国商务部新闻发言人20日称，中方认为草案内容存在多方面问题。 具体而言，一是涉嫌违反最惠国待遇、国民待遇等世贸组织基本原则，既违反《1994年关税与贸易总协定》《服务贸易总协定》《补贴与反补贴措施协定》《技术性贸易壁垒协定》等多项协定规则，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京4月20日电 (记者 尹倩芸)中国商务部近日向欧委会提交了对欧盟《网络安全法》修订草案的评论意见，表达了中方严正关切和正式立场。
 
-本周动态：模糊的沃什与拥挤的科技 来源：Kevin策略研究 1️⃣ 外资：主动外资流出港股3.6亿美元（vs． 上周4.2亿），流出A股1.6亿美元（vs． 上周1.5亿）。
+中国商务部新闻发言人20日称，中方认为草案内容存在多方面问题。
 
-被动外资流入港股16.3亿美元（vs． 上周3.9亿），流入A股6.5亿美元（vs． 上周流出1570万）图1图2。
+具体而言，一是涉嫌违反最惠国待遇、国民待遇等世贸组织基本原则，既违反《1994年关税与贸易总协定》《服务贸易总协定》《补贴与反补贴措施协定》《技术性贸易壁垒协定》等多项协定规则，也违背欧盟服务贸易减让承诺。
 
-中国和新兴基金流出最多图3。
+二是涉嫌超出欧盟法律授权，侵蚀成员国管理国家安全事务的专属权限。
 
-2️⃣南向：转为流出44.4亿港元（vs． 上周流入42.5亿），日均11.1亿港元（vs． 上周8.5亿）图5。
+三是将对中欧经贸关系造成实质性伤害，对全球产供链造成严重冲击，也必将拖累欧盟自身的数字化、绿色化转型进程。
 
-买入建滔与中芯国际最多，卖出阿里、腾讯与中海油图6。
+发言人称，中方认为，草案以网络安全和供应链安全为名，引入极具主观随意性的“非技术风险”因素，特别是在草案中认定“网络安全关切国家”和“高风险供应商”名单，并在能源、交通、ICT等18个行业将列单的国家和供应商，全链条排除出欧盟相关供应链之外，这是经贸问题政治化、泛安全化的典型做法。
 
-🏵️本周港股对比A股和外围走势，再度生动说明了分子分母的差异。
+发言人说，在评论意见中，中方建议欧方删除草案中关于“网络安全关切国家”和“非技术风险”的规定，删除或实质修改“高风险供应商”认定标准及相关限制措施。
 
-周初伊朗局势传来好消息，港股与A股一起明显修复，是分母的作用。
+希望欧方高度重视并认真考虑中方提交的评论意见和修改建议，严格遵守世贸组织规则，避免采取歧视性限制措施，维护中欧及全球产供链稳定畅通。
 
 ## 相关推荐
 
-- 2026-06-30 00:06 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 00:05 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 00:01 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 23:55 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 23:50 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 00:10 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 00:09 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 00:13 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 23:48 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 23:48 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 23:50 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 00:16 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 00:07 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 00:15 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 23:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 23:56 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 00:11 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 00:16 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 23:57 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 00:08 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 00:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 00:22 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 00:14 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-30 00:20 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 00:09 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 00:02 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-30 00:06 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 00:06 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 00:01 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 00:16 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:53 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/5620429811.shtml)
-- 2026-06-30 00:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/157116808.shtml)
-- 2026-06-30 00:06 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/2432751.shtml)
-- 2026-06-30 00:09 - [小娘惹](https://www.share.kurohicncr.top/Article/details/977124100.shtml)
-- 2026-06-30 00:14 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/09599.shtml)
-- 2026-06-30 00:07 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/818501779428.shtml)
-- 2026-06-30 00:06 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/89251606660.shtml)
-- 2026-06-29 23:50 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/3913096972.shtml)
-- 2026-06-30 00:02 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/143514417.shtml)
-- 2026-06-29 23:58 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/4900934391.shtml)
-- 2026-06-29 23:57 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/644773918.shtml)
-- 2026-06-29 23:48 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/35844.shtml)
-- 2026-06-29 23:55 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/195311994902.shtml)
-- 2026-06-30 00:13 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/08984.shtml)
-- 2026-06-30 00:15 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/6525570078.shtml)
+- 2026-06-30 00:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/939098297950.shtml)
+- 2026-06-30 00:12 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/2624119750.shtml)
+- 2026-06-30 00:13 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/7240758476.shtml)
+- 2026-06-29 23:59 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/809121057.shtml)
+- 2026-06-29 23:59 - [爱很美味](https://www.share.minike.top/Article/details/225510.shtml)
+- 2026-06-30 00:23 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/01946217.shtml)
+- 2026-06-29 23:54 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/72175.shtml)
+- 2026-06-30 00:01 - [周生如故](https://www.share.minike.top/Article/details/8656657759.shtml)
+- 2026-06-30 00:11 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/429701105775.shtml)
+- 2026-06-30 00:01 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/801800.shtml)
+- 2026-06-30 00:19 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/60517928.shtml)
+- 2026-06-30 00:18 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/4073059.shtml)
+- 2026-06-30 00:16 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/55712949.shtml)
+- 2026-06-29 23:57 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/1269303212.shtml)
+- 2026-06-30 00:04 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/649650796.shtml)

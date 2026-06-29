@@ -1,58 +1,53 @@
-# 从墨脱到唐古拉：一位西藏门巴族铁路客运员的“天路”见证
+# 港澳台侨学生研学江西吉安 用镜头向海外传递中华文化
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月19日 21:08 来源：中国新闻网 2026年是青藏铁路全线通车20周年。27岁的桑杰平措来自西藏墨脱县背崩乡，如今是中国海拔最高的铁路乘降所——唐古拉山北麓雁石坪站的一名客运员。 他的人生，恰好串联起西藏交通发展的两个坐标：一个是曾经被称为“高原孤岛”的墨脱县，一个是青藏铁路穿越的唐古拉山地区。 近日，桑杰平措在受访时说，他小时候徒步出墨脱要走4天
+发布时间：2026年04月20日 17:37 来源：中国新闻网 4月17日至19日，华侨大学“声传四海”港澳台侨学生庐陵文化专业实践研学活动走进江西吉安。来自意大利、马来西亚等8个国家及地区的同学们不同于传统研学以参观为主的形式，全程注重拍摄记录，井冈山的红色印记、文天祥纪念馆的家国情怀、白鹭洲书院的书香气息、钓源古村的赣派古建以及吉州窑的非遗技艺，都成为了他们镜头中的素材。不
 
 ## 正文
 
-发布时间：2026年06月19日 21:08 来源：中国新闻网 2026年是青藏铁路全线通车20周年。
+发布时间：2026年04月20日 17:37 来源：中国新闻网 4月17日至19日，华侨大学“声传四海”港澳台侨学生庐陵文化专业实践研学活动走进江西吉安。
 
-27岁的桑杰平措来自西藏墨脱县背崩乡，如今是中国海拔最高的铁路乘降所——唐古拉山北麓雁石坪站的一名客运员。
+来自意大利、马来西亚等8个国家及地区的同学们不同于传统研学以参观为主的形式，全程注重拍摄记录，井冈山的红色印记、文天祥纪念馆的家国情怀、白鹭洲书院的书香气息、钓源古村的赣派古建以及吉州窑的非遗技艺，都成为了他们镜头中的素材。
 
-他的人生，恰好串联起西藏交通发展的两个坐标：一个是曾经被称为“高原孤岛”的墨脱县，一个是青藏铁路穿越的唐古拉山地区。
+不少同学都经营着自己的海外账号，他们用轻松幽默的镜头语言和接地气的表达，将中华文化融入每一段短视频中，向海外传递中华文化的魅力。
 
-近日，桑杰平措在受访时说，他小时候徒步出墨脱要走4天，如今被压缩成数小时车程。
+来自印度尼西亚的华裔学生吴妮雅是一名自媒体博主，她说出了大家的心声：“通过短视频平台，能让海外更多年轻人以轻松有趣的方式了解中华文化，这件事特别有意义，也特别棒。
 
-大学毕业后，他选择成为青藏铁路客运员。
-
-去年听说雁石坪要开通客运乘降业务，他主动申请前来。
-
-这里的牧民过去去安多县城要翻越唐古拉山，单程六七个小时，如今坐火车既安全又快捷。
-
-从藏东南雨林到“天路”之巅，如今，桑杰平措站在海拔4700多米的青藏铁路站台上，正帮更多人走向远方。
+”(吴敏 黄文芝) 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-29 23:58 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 00:06 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-30 00:01 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 23:57 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 00:06 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 23:48 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 00:15 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 00:10 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 00:05 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 00:12 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 00:02 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 00:12 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 00:14 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 00:12 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 00:18 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 00:01 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 00:05 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 00:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 00:21 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 00:03 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 00:15 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 00:18 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 00:03 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 00:07 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 00:11 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:57 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/6949178743.shtml)
-- 2026-06-29 23:58 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/212198.shtml)
-- 2026-06-30 00:04 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/911661728.shtml)
-- 2026-06-29 23:52 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/151244.shtml)
-- 2026-06-29 23:50 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/3722533.shtml)
-- 2026-06-30 00:06 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/18659711531.shtml)
-- 2026-06-30 00:08 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/956703.shtml)
-- 2026-06-30 00:01 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/0367918.shtml)
-- 2026-06-29 23:56 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/383126.shtml)
-- 2026-06-30 00:11 - [我和我的家乡](http://www.blog.minike.top/Article/details/942229.shtml)
-- 2026-06-30 00:01 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/127462432843.shtml)
-- 2026-06-29 23:53 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/23226796871.shtml)
-- 2026-06-30 00:08 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/05028613.shtml)
-- 2026-06-29 23:53 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/1734369686.shtml)
-- 2026-06-30 00:13 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/9224508.shtml)
+- 2026-06-30 00:03 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/79876910366.shtml)
+- 2026-06-30 00:12 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/90291052.shtml)
+- 2026-06-30 00:00 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/891323165.shtml)
+- 2026-06-30 00:21 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/70641126.shtml)
+- 2026-06-30 00:10 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/5792141930.shtml)
+- 2026-06-30 00:18 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/594376477.shtml)
+- 2026-06-30 00:10 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/1506510073.shtml)
+- 2026-06-30 00:10 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/0534502.shtml)
+- 2026-06-30 00:05 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/09099.shtml)
+- 2026-06-30 00:19 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/9555711380.shtml)
+- 2026-06-30 00:07 - [乔家的儿女](http://www.share.minike.top/Article/details/19417.shtml)
+- 2026-06-29 23:54 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/560994089.shtml)
+- 2026-06-29 23:57 - [毒液2](http://www.share.kurohicncr.top/Article/details/64489938974.shtml)
+- 2026-06-30 00:18 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/736409.shtml)
+- 2026-06-30 00:08 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/845001050.shtml)

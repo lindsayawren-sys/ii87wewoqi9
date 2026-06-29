@@ -1,61 +1,51 @@
-# 史诗级大涨！爆买8100亿！科技大牛市，疯狂一幕
+# 中国新闻社参评第36届中国新闻奖体育新闻作品初评公示
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-美股正迎来史无前例的资金涌入潮。 据最新数据， 截至6月17日当周 ，流入美国股票基金的资金规模达到创纪录的1192亿美元（约合人民币8100亿元），创出历史单周流入新高。其中，科技板块单周流入资金规模达192亿美元，亦创下历史新高。 目前，美股AI（人工智能）交易潮正在向上游扩散，美股半导体设备股全线大涨。数据显示，截至最新，美股总市值超百亿美元的9家半导体设备公司股价年内累
+根据《关于开展第36届中国新闻奖评选工作的通知》《关于开展第36届中国新闻奖体育新闻作品初评工作的通知》的规定，经民主推荐及评委会评议，中国新闻社拟推荐3件新闻作品参加中国新闻奖体育新闻作品的初评，现予以公示。公示期为2026年4月20日至4月24日，共5个工作日。如有异议，可以通过书面、电话方式，于2026年4月24日17时前反映。联系电话：010-68316636 邮箱：z
 
 ## 正文
 
-美股正迎来史无前例的资金涌入潮。
+根据《关于开展第36届中国新闻奖评选工作的通知》《关于开展第36届中国新闻奖体育新闻作品初评工作的通知》的规定，经民主推荐及评委会评议，中国新闻社拟推荐3件新闻作品参加中国新闻奖体育新闻作品的初评，现予以公示。
 
-据最新数据， 截至6月17日当周 ，流入美国股票基金的资金规模达到创纪录的1192亿美元（约合人民币8100亿元），创出历史单周流入新高。
+公示期为2026年4月20日至4月24日，共5个工作日。
 
-其中，科技板块单周流入资金规模达192亿美元，亦创下历史新高。
+如有异议，可以通过书面、电话方式，于2026年4月24日17时前反映。
 
-目前，美股AI（人工智能）交易潮正在向上游扩散，美股半导体设备股全线大涨。
-
-数据显示，截至最新，美股总市值超百亿美元的9家半导体设备公司股价年内累计涨幅均已超过75%，均创出历史新高。
-
-资金爆买 美银策略师援引EPFR Global的最新数据显示， 截至6月17日当周 ，流入美国股票基金的资金规模达到创纪录的1192亿美元，刷新历史峰值。
-
-值得一提的是，本轮资金流入呈现出全面性特征，并非仅集中于大盘股。
-
-据美银策略师披露，美国中盘股基金单周净流入达199亿美元，创历史纪录；美国小盘股基金单周净流入123亿美元，为历史第二高。
+联系电话：010-68316636 邮箱：zbs@chinanews.com.cn 中国新闻奖体育新闻推荐作品目录 消息 《法国总统马克龙和王楚钦、孙颖莎等切磋球技》 作者(主创人员)：王宁、张浪、吕杨、岳依桐 编辑：邹辉、齐彬、徐朋朋 评论 《(粤港澳全运会)开幕日评论：一份以体育为名的同心答卷》 作者(主创人员)：贺劭清、邢翀 编辑：郭金超、李晓喻、周兆军 通讯 《巩立姣：最后一掷，给天堂的妈妈》 作者(主创人员)：陈林、徐洋、王珊珊 编辑：张子扬、闫嘉欣、崔艳燕
 
 ## 相关推荐
 
-- 2026-06-29 23:54 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 00:15 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 00:09 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 00:00 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 00:05 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 23:48 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 00:03 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-30 00:11 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 23:57 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 00:17 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 23:58 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 23:56 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 00:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 00:10 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 23:55 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 00:14 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 00:03 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 00:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 23:54 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 00:01 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 00:18 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 23:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 23:54 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 00:16 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 00:14 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 00:09 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 23:57 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-30 00:04 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:48 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/9300889.shtml)
-- 2026-06-29 23:56 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/727433978.shtml)
-- 2026-06-30 00:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/3804096976.shtml)
-- 2026-06-30 00:14 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/97711.shtml)
-- 2026-06-30 00:02 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/469710826061.shtml)
-- 2026-06-29 23:57 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/747053.shtml)
-- 2026-06-30 00:16 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/843938.shtml)
-- 2026-06-30 00:00 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/2336248386.shtml)
-- 2026-06-30 00:01 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/98830905.shtml)
-- 2026-06-30 00:13 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/866246.shtml)
-- 2026-06-30 00:11 - [明星大侦探第一季](https://www.share.minike.top/Article/details/61709079.shtml)
-- 2026-06-30 00:01 - [月亮](http://www.share.minike.top/Article/details/63208.shtml)
-- 2026-06-30 00:00 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/674099.shtml)
-- 2026-06-29 23:48 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/8420806991.shtml)
-- 2026-06-29 23:59 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/560435.shtml)
+- 2026-06-29 23:59 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/8523603097.shtml)
+- 2026-06-30 00:06 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/368489.shtml)
+- 2026-06-30 00:19 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/972035.shtml)
+- 2026-06-30 00:03 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/42867355.shtml)
+- 2026-06-29 23:54 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/836413704195.shtml)
+- 2026-06-29 23:56 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/293400425218.shtml)
+- 2026-06-30 00:17 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/780451280.shtml)
+- 2026-06-30 00:23 - [扫黑风暴](https://www.blog.minike.top/Article/details/748558047.shtml)
+- 2026-06-30 00:09 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/59222.shtml)
+- 2026-06-30 00:15 - [女心理师](http://www.blog.kurohicncr.top/Article/details/73193502.shtml)
+- 2026-06-29 23:59 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/33929.shtml)
+- 2026-06-30 00:17 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/550411778.shtml)
+- 2026-06-30 00:18 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/75513632414.shtml)
+- 2026-06-30 00:10 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/98432.shtml)
+- 2026-06-30 00:10 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/508533317.shtml)

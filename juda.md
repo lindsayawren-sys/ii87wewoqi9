@@ -1,60 +1,56 @@
-# 端午假期三天中国跨区域人员流动量预计超6.5亿人次
+# 伊朗外交部称尚未决定是否参加新一轮美伊谈判
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新社北京6月21日电 (记者 刘文文)记者21日从中国交通运输部获悉，端午假期三天(2026年6月19日至21日)，预计全社会跨区域人员流动总量为65278万人次，日均为21759.3万人次，同比持平。 其中：铁路客运总量4945.1万人次，日均1648.4万人次，同比增长2.97%。公路人员流动总量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)594
+中新社北京4月20日电 德黑兰消息：伊朗外交部发言人巴加埃20日表示，鉴于美国前后矛盾的举动，伊朗尚未就参加新一轮美伊谈判做出任何决定。 综合伊朗伊斯兰共和国通讯社、塔斯尼姆通讯社报道，巴加埃说，美国一边声称采取外交手段并准备谈判，一边对伊朗进行海上封锁、袭击伊朗商船，这些行为公然违反临时停火协议。美方没有表明其推进外交进程的诚意。 他强调，美国言行不一，这种自相矛盾只会加深伊
 
 ## 正文
 
-中新社北京6月21日电 (记者 刘文文)记者21日从中国交通运输部获悉，端午假期三天(2026年6月19日至21日)，预计全社会跨区域人员流动总量为65278万人次，日均为21759.3万人次，同比持平。
+中新社北京4月20日电 德黑兰消息：伊朗外交部发言人巴加埃20日表示，鉴于美国前后矛盾的举动，伊朗尚未就参加新一轮美伊谈判做出任何决定。
 
-其中：铁路客运总量4945.1万人次，日均1648.4万人次，同比增长2.97%。
+综合伊朗伊斯兰共和国通讯社、塔斯尼姆通讯社报道，巴加埃说，美国一边声称采取外交手段并准备谈判，一边对伊朗进行海上封锁、袭击伊朗商船，这些行为公然违反临时停火协议。
 
-公路人员流动总量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)59489万人次，日均19830万人次，同比下降0.4%。
+美方没有表明其推进外交进程的诚意。
 
-水路客运总量276.3万人次，日均92.1万人次，同比增长1.16%。
+他强调，美国言行不一，这种自相矛盾只会加深伊朗对整个谈判进程的不信任，伊朗将在认真考虑自身国家利益的基础上，就未来道路做出必要决定。
 
-民航客运总量567.6万人次，日均189.2万人次，同比增长0.6%。
+据美联社报道，美国总统特朗普曾表示，美国谈判代表将于20日抵达巴基斯坦首都伊斯兰堡，参加新一轮谈判。
 
-6月21日(端午假期第三天)，全社会跨区域人员流动量预计为22018万人次，环比增长9.4%，同比增长1.1%。
+报道称，尽管外界对谈判能否举行存有疑问，巴基斯坦方面仍在为第二轮会谈做准备。
 
-其中：铁路客运量1794万人次，环比增长47.7%，同比下降0.4%。
+自19日以来，巴基斯坦已加强与美伊的外交接触，以确保会谈最早于21日举行。
 
-公路人员流动量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)19929万人次，环比增长6.9%，同比增长1.1%。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 23:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 00:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 00:09 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 00:05 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 00:14 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 00:04 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 00:01 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 00:04 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 00:05 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 00:04 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 00:08 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 00:11 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 00:08 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 23:56 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 00:15 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 23:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 00:03 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 23:56 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 00:00 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 00:22 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 00:00 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 00:21 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 00:14 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/967572049.shtml)
-- 2026-06-30 00:14 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/5227265.shtml)
-- 2026-06-29 23:55 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/51839359.shtml)
-- 2026-06-30 00:16 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/37178734.shtml)
-- 2026-06-29 23:54 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/5531406.shtml)
-- 2026-06-30 00:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/311775.shtml)
-- 2026-06-30 00:17 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/555940740377.shtml)
-- 2026-06-30 00:12 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/457254191.shtml)
-- 2026-06-30 00:09 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/3321156621.shtml)
-- 2026-06-30 00:03 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/173024500.shtml)
-- 2026-06-29 23:59 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/27997.shtml)
-- 2026-06-29 23:51 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/079789853.shtml)
-- 2026-06-29 23:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/3597858469.shtml)
-- 2026-06-29 23:58 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/5139781.shtml)
-- 2026-06-29 23:52 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/609962394278.shtml)
+- 2026-06-29 23:59 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/768719.shtml)
+- 2026-06-30 00:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/851639.shtml)
+- 2026-06-30 00:18 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/9988732.shtml)
+- 2026-06-29 23:54 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/04761695120.shtml)
+- 2026-06-29 23:59 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/583940493.shtml)
+- 2026-06-30 00:13 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/082005280792.shtml)
+- 2026-06-30 00:06 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/073117542.shtml)
+- 2026-06-30 00:05 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/9823806162.shtml)
+- 2026-06-30 00:19 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/5632811864.shtml)
+- 2026-06-30 00:08 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/2054234.shtml)
+- 2026-06-29 23:54 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/090583.shtml)
+- 2026-06-30 00:09 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/46448586.shtml)
+- 2026-06-29 23:54 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/938771268030.shtml)
+- 2026-06-30 00:20 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/25214704.shtml)
+- 2026-06-30 00:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/5524483.shtml)

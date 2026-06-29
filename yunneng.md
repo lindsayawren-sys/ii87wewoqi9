@@ -1,55 +1,58 @@
-# 香港黄金产业集团拟配售最多2320万股 净筹约9320万港元
+# 镜观·回响｜八桂欢歌三月三 共绘团结新画卷
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-香港黄金产业集团（02623）发布公告，于2026年6月18日，公司拟配售最多2320万股配售股份，相当于公司于本公告日期的现有已发行股本（不包括库存股份（如有））的约4.42%；及经配发及发行配售股份扩大后的公司已发行股本（不包括库存股份（如有））的约4.23%。配售价为每股配售股份4.08港元。假设所有配售股份获悉数配售，配售事项的所得款项总额将约为9470万港元；及配售事
+又是一年“三月三”，锦绣欢歌满八桂。 2021年4月27日，正在广西考察的习近平总书记来到广西民族博物馆，参观壮族文化展。博物馆外，三月三“歌圩节”壮族对歌等民族文化活动正在集中展示。习近平总书记同参加活动的各族群众亲切交流时强调： 总书记的重要指示，为广西做好民族团结工作、推动高质量发展指明了前进的方向。今日的八桂大地，民族团结进步之花常开长盛，边疆民族地区高质量发展步履铿锵
 
 ## 正文
 
-香港黄金产业集团（02623）发布公告，于2026年6月18日，公司拟配售最多2320万股配售股份，相当于公司于本公告日期的现有已发行股本（不包括库存股份（如有））的约4.42%；及经配发及发行配售股份扩大后的公司已发行股本（不包括库存股份（如有））的约4.23%。
+又是一年“三月三”，锦绣欢歌满八桂。
 
-配售价为每股配售股份4.08港元。
+2021年4月27日，正在广西考察的习近平总书记来到广西民族博物馆，参观壮族文化展。
 
-假设所有配售股份获悉数配售，配售事项的所得款项总额将约为9470万港元；及配售事项的所得款项净额估计约为9320万港元。
+博物馆外，三月三“歌圩节”壮族对歌等民族文化活动正在集中展示。
 
-公司拟将配售事项的全部所得款项净额用于寻求由董事会不时评估的合适投资及╱或收购机会，例如从事贵金属采矿业务的目标公司。
+习近平总书记同参加活动的各族群众亲切交流时强调： 总书记的重要指示，为广西做好民族团结工作、推动高质量发展指明了前进的方向。
 
-责任编辑：卢昱君
+今日的八桂大地，民族团结进步之花常开长盛，边疆民族地区高质量发展步履铿锵。
+
+节日的广西，处处欢歌盛景。
+
+如今，“壮族三月三·八桂嘉年华”活动已成为极具特色的民族盛会，更成为广西享誉全国的特色文化名片。
+
+从首府南宁的盛大展演，到全区各地的欢歌盛景，各族群众以歌会友、以舞传情，共绘民族团结进步的时代长卷。
 
 ## 相关推荐
 
-- 2026-06-29 23:48 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 00:11 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 00:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-30 00:06 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 00:05 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 00:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 00:09 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 00:16 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 00:16 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 23:54 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 00:10 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 23:52 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 23:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 23:50 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 23:53 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 00:20 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 00:03 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 00:10 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 23:57 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 00:04 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 00:11 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 00:14 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 23:58 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 00:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 00:20 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 00:06 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 23:56 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/54616.shtml)
-- 2026-06-29 23:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/50916.shtml)
-- 2026-06-29 23:58 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/691604770.shtml)
-- 2026-06-30 00:15 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/11957161.shtml)
-- 2026-06-30 00:11 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/0739506.shtml)
-- 2026-06-30 00:14 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/8618671640.shtml)
-- 2026-06-30 00:03 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/87684676734.shtml)
-- 2026-06-29 23:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/0375747254.shtml)
-- 2026-06-30 00:16 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/160108800947.shtml)
-- 2026-06-29 23:50 - [东方风云榜直播](http://www.blog.minike.top/Article/details/415768.shtml)
-- 2026-06-30 00:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/355675146004.shtml)
-- 2026-06-30 00:12 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/5707527891.shtml)
-- 2026-06-30 00:01 - [女心理师](https://www.blog.kurohicncr.top/Article/details/8470854213.shtml)
-- 2026-06-30 00:07 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/72619622.shtml)
-- 2026-06-29 23:52 - [乔家的儿女](https://www.share.minike.top/Article/details/38333.shtml)
+- 2026-06-30 00:17 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/018321849.shtml)
+- 2026-06-30 00:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/69875873260.shtml)
+- 2026-06-30 00:16 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/103370478258.shtml)
+- 2026-06-29 23:54 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/89069685.shtml)
+- 2026-06-30 00:15 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/082416572946.shtml)
+- 2026-06-30 00:07 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/94832.shtml)
+- 2026-06-29 23:55 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/7732216.shtml)
+- 2026-06-29 23:57 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/1011171528.shtml)
+- 2026-06-30 00:19 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/04812830820.shtml)
+- 2026-06-30 00:01 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/374514866047.shtml)
+- 2026-06-30 00:18 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/95655206.shtml)
+- 2026-06-30 00:18 - [沙丘](http://www.blog.kurohicncr.top/Article/details/2277258417.shtml)
+- 2026-06-30 00:00 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/981724244750.shtml)
+- 2026-06-30 00:03 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/4950096.shtml)
+- 2026-06-30 00:09 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/7104103700.shtml)

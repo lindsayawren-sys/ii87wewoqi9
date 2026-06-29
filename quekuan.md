@@ -1,61 +1,59 @@
-# 埃塞俄比亚执政党繁荣党赢得议会选举
+# 突发！美军向伊朗商船开火，伊军：将予以回应和报复，国际油价大涨
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新社约翰内斯堡6月21日电 亚的斯亚贝巴消息：埃塞俄比亚国家选举委员会21日公布该国第七届全国大选结果，执政党繁荣党(Prosperity Party)赢得联邦议会多数席位，将继续执政并组建下一届联邦政府。 根据选举委员会公布的数据，在已公布结果的联邦议会人民代表院(议会下院)486个席位中，繁荣党获得438席，占竞选席次九成。 根据埃塞俄比亚宪法，在人民代表院获得多数席位的
+文章来源：华夏时报 据新华社，美军中央司令部19日在社交媒体发表声明说，美军当天向一艘驶往伊朗阿巴斯港的伊朗货船开炮，使其失去推进动力，美海军陆战队员随后登上并控制这艘船。 声明称，悬挂伊朗国旗的“TOUSKA”号货轮当天穿过阿拉伯海北部，未遵守美军指令。美军“斯普鲁恩斯”号导弹驱逐舰用其舰炮向这艘货船的机舱发射数枚炮弹，摧毁其推进系统。随后，美军第31海军陆战队远征队士兵登上
 
 ## 正文
 
-中新社约翰内斯堡6月21日电 亚的斯亚贝巴消息：埃塞俄比亚国家选举委员会21日公布该国第七届全国大选结果，执政党繁荣党(Prosperity Party)赢得联邦议会多数席位，将继续执政并组建下一届联邦政府。
+文章来源：华夏时报 据新华社，美军中央司令部19日在社交媒体发表声明说，美军当天向一艘驶往伊朗阿巴斯港的伊朗货船开炮，使其失去推进动力，美海军陆战队员随后登上并控制这艘船。
 
-根据选举委员会公布的数据，在已公布结果的联邦议会人民代表院(议会下院)486个席位中，繁荣党获得438席，占竞选席次九成。
+声明称，悬挂伊朗国旗的“TOUSKA”号货轮当天穿过阿拉伯海北部，未遵守美军指令。
 
-根据埃塞俄比亚宪法，在人民代表院获得多数席位的政党或政党联盟负责组阁并任命总理，总理拥有该国最高行政权力。
+美军“斯普鲁恩斯”号导弹驱逐舰用其舰炮向这艘货船的机舱发射数枚炮弹，摧毁其推进系统。
 
-随着繁荣党赢得议会多数席位，现任总理阿比领导的执政党将继续掌权。
+随后，美军第31海军陆战队远征队士兵登上这艘货轮。
 
-本届大选是埃塞俄比亚近年来规模最大的全国性选举之一。
+目前，这艘船仍处于美方扣押下。
 
-官方数据显示，全国共有超过5400万名选民完成登记，数百万选民参与投票。
+美军中央司令部在社媒一同发布的视频显示，美舰向一艘集装箱货船发出警告，随后数次开炮。
 
-埃塞俄比亚联邦议会人民代表院议员由全国普选产生，任期5年。
+根据这份声明，自美军13日开始对波斯湾和阿曼湾所有伊朗港口实施海上封锁以来，已迫使25艘商船掉头或返回伊朗港口。
 
-(完)
+伊朗武装部队哈塔姆·安比亚中央司令部发言人当地时间20日表示，美国违反停火协议，在阿曼湾海域向一艘伊朗商船开火，并派遣多名士兵登上甲板，使该船导航系统瘫痪，犯下“海上劫掠”罪行。
 
 ## 相关推荐
 
-- 2026-06-30 00:08 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 00:10 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 00:13 - [蔚来车主罚站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 00:09 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 00:17 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 00:06 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 23:52 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 00:05 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 23:50 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 23:54 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 23:57 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 23:54 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 23:52 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 00:13 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 00:14 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 23:56 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 23:55 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 00:18 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 23:54 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 00:12 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 00:18 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 00:02 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 00:04 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 23:57 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 00:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 00:20 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 00:10 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 00:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/0958327.shtml)
-- 2026-06-30 00:00 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/839670032091.shtml)
-- 2026-06-30 00:16 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/438074329.shtml)
-- 2026-06-30 00:10 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/969782465.shtml)
-- 2026-06-30 00:16 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.kurohicncr.top/Article/details/1349120118.shtml)
-- 2026-06-30 00:04 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/0972978730.shtml)
-- 2026-06-30 00:04 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/03849976.shtml)
-- 2026-06-29 23:57 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/913933459361.shtml)
-- 2026-06-29 23:52 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/716602524.shtml)
-- 2026-06-29 23:57 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/826675.shtml)
-- 2026-06-30 00:06 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/071056579.shtml)
-- 2026-06-30 00:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/91657.shtml)
-- 2026-06-30 00:11 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/35352819410.shtml)
-- 2026-06-30 00:10 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/375696824.shtml)
-- 2026-06-30 00:07 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/935391.shtml)
+- 2026-06-30 00:22 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/03160994.shtml)
+- 2026-06-30 00:04 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/0713852.shtml)
+- 2026-06-29 23:55 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/33569.shtml)
+- 2026-06-29 23:57 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/3350381.shtml)
+- 2026-06-30 00:12 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/731495961626.shtml)
+- 2026-06-30 00:11 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/336383598132.shtml)
+- 2026-06-30 00:17 - [毒液2](http://www.blog.minike.top/Article/details/98046462.shtml)
+- 2026-06-29 23:59 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/790194.shtml)
+- 2026-06-30 00:20 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/3152881473.shtml)
+- 2026-06-30 00:19 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/4359027132.shtml)
+- 2026-06-30 00:14 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/24782701908.shtml)
+- 2026-06-30 00:17 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/83931.shtml)
+- 2026-06-30 00:14 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/32494995029.shtml)
+- 2026-06-30 00:20 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/5639951.shtml)
+- 2026-06-30 00:12 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/8220199.shtml)

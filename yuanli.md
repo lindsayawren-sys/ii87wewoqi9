@@ -1,58 +1,46 @@
-# 航运数据显示周日仅有5艘船只通过霍尔木兹海峡
+# 中国经济动力澎湃 上周硬核数据再“上新”
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-航运数据显示，在伊朗宣布再次关闭霍尔木兹海峡后，周日通过该海峡的船只数量急剧下降。伊朗称此举是因以色列和美国违反了临时停火协议。 分析公司Kpler的数据显示，周日仅有5艘船只通过了霍尔木兹海峡，而前一天则观测到26艘。这5艘船只包括3艘超大型原油运输船，每艘都载有200万桶沙特原油和燃料油，其中一艘正驶往日本。该数据可能不包括在海湾航行期间关闭应答器的船只。 上周，伊朗与美国
+一季度GDP同比增长5.0% 2025年网络视听行业市场规模达1.29万亿元 2026年以旧换新销售额已超5000亿 …… 上周多个领域统计数据再“上新” 亮眼的成绩单背后 是中国经济动力澎湃的生动写照 制片人丨房轶婷 策划丨张媛 编辑丨林琦
 
 ## 正文
 
-航运数据显示，在伊朗宣布再次关闭霍尔木兹海峡后，周日通过该海峡的船只数量急剧下降。
-
-伊朗称此举是因以色列和美国违反了临时停火协议。
-
-分析公司Kpler的数据显示，周日仅有5艘船只通过了霍尔木兹海峡，而前一天则观测到26艘。
-
-这5艘船只包括3艘超大型原油运输船，每艘都载有200万桶沙特原油和燃料油，其中一艘正驶往日本。
-
-该数据可能不包括在海湾航行期间关闭应答器的船只。
-
-上周，伊朗与美国达成协议，将4月份的停火协议延长60天，以便进行和平谈判，随后伊朗解除了对霍尔木兹海峡的实际封锁。
-
-但周六，德黑兰伊斯兰革命卫队宣布再次关闭该水道，以回应以色列对黎巴嫩的空袭。
-
-美国军方则表示，商船仍在航行。
+一季度GDP同比增长5.0% 2025年网络视听行业市场规模达1.29万亿元 2026年以旧换新销售额已超5000亿 …… 上周多个领域统计数据再“上新” 亮眼的成绩单背后 是中国经济动力澎湃的生动写照 制片人丨房轶婷 策划丨张媛 编辑丨林琦
 
 ## 相关推荐
 
-- 2026-06-30 00:17 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 00:07 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 23:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-30 00:06 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 23:55 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 23:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 00:17 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 00:08 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 23:59 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 00:09 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 00:10 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 00:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 00:17 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-30 00:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 00:05 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-30 00:12 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 00:09 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 23:54 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 00:22 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 00:05 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 00:11 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 00:22 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 00:07 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 23:57 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 23:56 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 23:56 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:09 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/351269640.shtml)
-- 2026-06-30 00:13 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/143449471751.shtml)
-- 2026-06-29 23:53 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/58736705.shtml)
-- 2026-06-30 00:12 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/517091891441.shtml)
-- 2026-06-30 00:08 - [千香](https://www.blog.kurohicncr.top/Article/details/00682.shtml)
-- 2026-06-30 00:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/82127.shtml)
-- 2026-06-29 23:48 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/05155.shtml)
-- 2026-06-30 00:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/391621876.shtml)
-- 2026-06-29 23:54 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/108637155298.shtml)
-- 2026-06-30 00:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/760548104568.shtml)
-- 2026-06-30 00:05 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/5008985394.shtml)
-- 2026-06-29 23:52 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/94124.shtml)
-- 2026-06-30 00:10 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/6711220791.shtml)
-- 2026-06-29 23:51 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/5048430822.shtml)
-- 2026-06-30 00:10 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/627346460342.shtml)
+- 2026-06-30 00:11 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/775941787039.shtml)
+- 2026-06-30 00:19 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/89096.shtml)
+- 2026-06-30 00:05 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/7955057.shtml)
+- 2026-06-29 23:59 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/91089907114.shtml)
+- 2026-06-30 00:18 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/9840461.shtml)
+- 2026-06-30 00:19 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/05846915973.shtml)
+- 2026-06-30 00:15 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/526466954802.shtml)
+- 2026-06-30 00:19 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/34488148.shtml)
+- 2026-06-30 00:05 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/062944796.shtml)
+- 2026-06-29 23:58 - [东方风云榜直播](https://www.share.minike.top/Article/details/8961550.shtml)
+- 2026-06-29 23:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/097205973.shtml)
+- 2026-06-30 00:06 - [美人鱼](https://www.blog.minike.top/Article/details/3168751.shtml)
+- 2026-06-30 00:07 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/7291969.shtml)
+- 2026-06-30 00:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/941916.shtml)
+- 2026-06-30 00:21 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/98667932076.shtml)

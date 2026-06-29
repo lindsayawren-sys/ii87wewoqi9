@@ -1,53 +1,57 @@
-# 拾光纪·在新征程上书写优异答卷！跟着总书记重温入党誓词
+# 湖北法院加大新兴领域知识产权保护力度
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-坚持党的领导是中国特色社会主义最本质的特征。5年前的6月18日，习近平总书记参观“‘不忘初心、牢记使命’中国共产党历史展览”、带领党员领导同志重温入党誓词。日前，习近平给新华社老党员张连生回信强调，传承红色基因，在新征程上书写优异答卷。在中国共产党成立105周年之际，跟着总书记重温入党誓词。
+中新网武汉4月21日电 (武一力 蔡蕾)记者从湖北省高级人民法院21日召开的新闻发布会上获悉，2025年，湖北法院知识产权审判呈现“案件规模稳步增长、新类型案件集中涌现、司法影响力显著提升”的特点。全年新收各类知识产权案件17894件，同比上升24.7%。新收案件覆盖人工智能、数据、平台责任、医药等全技术领域，涉外案件、数据权益、技术秘密、平台不正当竞争、数字文创、科技成果转化
 
 ## 正文
 
-坚持党的领导是中国特色社会主义最本质的特征。
+中新网武汉4月21日电 (武一力 蔡蕾)记者从湖北省高级人民法院21日召开的新闻发布会上获悉，2025年，湖北法院知识产权审判呈现“案件规模稳步增长、新类型案件集中涌现、司法影响力显著提升”的特点。
 
-5年前的6月18日，习近平总书记参观“‘不忘初心、牢记使命’中国共产党历史展览”、带领党员领导同志重温入党誓词。
+全年新收各类知识产权案件17894件，同比上升24.7%。
 
-日前，习近平给新华社老党员张连生回信强调，传承红色基因，在新征程上书写优异答卷。
+新收案件覆盖人工智能、数据、平台责任、医药等全技术领域，涉外案件、数据权益、技术秘密、平台不正当竞争、数字文创、科技成果转化等新类型案件2456件，比上年增加27.6%，多家国内外头部企业纷纷选择在湖北解决知识产权纠纷。
 
-在中国共产党成立105周年之际，跟着总书记重温入党誓词。
+据介绍，湖北法院针对高端制造、生物医药、人工智能、新能源等湖北重点培育的战略性新兴产业，依法严惩侵害技术成果侵权行为，妥善审理涉核心技术研发、成果转化、商业运用中的知识产权纠纷，强化对创新主体合法权益的保护。
+
+湖北法院结合数字经济发展趋势，依法审理涉人工智能技术、电商平台、网络文创、数字内容传播等新类型纠纷，规制“人工智能换脸”“深度合成”等数字技术滥用引发的侵权行为，妥善处理数字平台与经营者、消费者之间的知识产权争议。
+
+针对数字经济领域侵权行为隐蔽性、跨地域性特点，推动线上证据固定、电子数据取证等司法技术应用，减轻权利人举证负担。
+
+在保护文化创新成果方面，湖北法院依法打击直播、侵权影视动漫、仿冒文创产品等行为。
+
+围绕现代农业、特色产业发展需求，加大地理标志、区域公共品牌司法保护力度。
 
 ## 相关推荐
 
-- 2026-06-30 00:16 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 00:15 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 23:55 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 00:12 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 00:11 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 00:14 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 23:57 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 00:09 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 23:48 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 00:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 23:51 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 00:07 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 23:51 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 00:11 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 00:14 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 00:16 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 00:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 00:11 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 23:56 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-30 00:20 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 00:03 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 00:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 00:03 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 23:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 00:03 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 23:55 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:52 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/80501452245.shtml)
-- 2026-06-30 00:07 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/0337565.shtml)
-- 2026-06-29 23:56 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/04460267.shtml)
-- 2026-06-29 23:55 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/79155.shtml)
-- 2026-06-30 00:04 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/612091.shtml)
-- 2026-06-30 00:01 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/66647702023.shtml)
-- 2026-06-29 23:58 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/100357.shtml)
-- 2026-06-30 00:07 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/4969253.shtml)
-- 2026-06-30 00:05 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/388527.shtml)
-- 2026-06-30 00:13 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/3607703746.shtml)
-- 2026-06-30 00:06 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/413205285.shtml)
-- 2026-06-30 00:03 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/37140822220.shtml)
-- 2026-06-30 00:15 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/131534616.shtml)
-- 2026-06-29 23:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/7560296403.shtml)
-- 2026-06-30 00:04 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/2213638112.shtml)
+- 2026-06-30 00:02 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/310206372103.shtml)
+- 2026-06-30 00:07 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/12257.shtml)
+- 2026-06-29 23:55 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/09059430477.shtml)
+- 2026-06-30 00:13 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/993324.shtml)
+- 2026-06-29 23:56 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/670943240346.shtml)
+- 2026-06-30 00:04 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/6513315162.shtml)
+- 2026-06-29 23:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/908234769725.shtml)
+- 2026-06-30 00:03 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/9153881.shtml)
+- 2026-06-29 23:54 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/264658553.shtml)
+- 2026-06-29 23:58 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/4924468710.shtml)
+- 2026-06-30 00:21 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/404307.shtml)
+- 2026-06-30 00:00 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/2495133.shtml)
+- 2026-06-29 23:56 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/5179546.shtml)
+- 2026-06-30 00:19 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/3131145990.shtml)
+- 2026-06-30 00:02 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/43819.shtml)

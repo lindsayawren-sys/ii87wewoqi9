@@ -1,57 +1,56 @@
-# 恒润股份（603985）股票操纵索赔案再提交法院立案，凯撒旅业（000796）索赔案股民申报债权
+# 《诗刊》社第42届青春诗会启幕
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月18日，上海久诚律师事务所股票索赔律师许峰代理的恒润股份（维权）（603985）股票被操纵引发的投资者索赔案再向南京市中级人民法院提交一次立案。 许峰律师代理的恒润股份操纵市场民事索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律
+中新网浙江丽水4月20日电《诗刊》社第42届青春诗会日前在松阳开幕。 据了解，“青春诗会”自1980年创办，以发现青年诗人为己任，四十余载风雨兼程，见证了一代又一代青年诗人的成长与蜕变。2024年国际青春诗会更将视野扩大到全世界，彰显了青春的力量和诗歌的力量。第42届青春诗会将继续秉持其初心，以更开放的视野、更多元的视角、更创新的形式，为怀揣文学梦想的青年诗人提供展示才华的舞台
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月18日，上海久诚律师事务所股票索赔律师许峰代理的恒润股份（维权）（603985）股票被操纵引发的投资者索赔案再向南京市中级人民法院提交一次立案。
+中新网浙江丽水4月20日电《诗刊》社第42届青春诗会日前在松阳开幕。
 
-许峰律师代理的恒润股份操纵市场民事索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+据了解，“青春诗会”自1980年创办，以发现青年诗人为己任，四十余载风雨兼程，见证了一代又一代青年诗人的成长与蜕变。
 
-（许峰律师专栏） 2024年12月6日，证监会对江阴市恒润重工股份有限公司第二大股东、法定代表人、董事长承立新等作出行政处罚。
+2024年国际青春诗会更将视野扩大到全世界，彰显了青春的力量和诗歌的力量。
 
-经查明，承立新、丁键、张亚洲存在以下违法事实： 一、承立新、丁键和张亚洲商议合谋操纵股价。
+第42届青春诗会将继续秉持其初心，以更开放的视野、更多元的视角、更创新的形式，为怀揣文学梦想的青年诗人提供展示才华的舞台，促进诗歌创作与理论的深入交流。
 
-二、承立新、丁键和张亚洲合谋操纵股价过程 （一）承立新以他人名义代持“恒润股份” 承立新计划在2023年卖出“恒润股份”股票，2023年7月16日，承立新与阮某签订《代持协议书》，以某私募产品受让上述24，952，563股“恒润股份”。
+《诗刊》社主编李少君在开幕式上表示，第42届青春诗会是一次“双向奔赴”的唤醒。
 
-（二）承立新、丁键和张亚洲信息发布情况 2023年7月29日至11月8日，承立新、丁键、张亚洲等人操控上市公司发布4份利好信息，拉抬“恒润股份”股价。
+诗歌的美，在于青春心灵对世界的敏锐感知。
 
-上述期间，“恒润股份”股价上涨96.65%，同期上证指数下跌6.86%，偏离103.51%，中证风电产业指数下跌10.30%，偏离106.95%，“恒润股份”股价涨幅明显优于同期上证指数和行业指数。
+希望各位青年诗人们以此次诗会为纽带，用年轻的笔触去丈量松阳的经纬。
 
-（三）丁键控制使用相关证券账户维持“恒润股份”股价 许峰律师认为，在2023年7月10日到12月27日期间交易恒润股份股票而受损的投资者，目前已可发起索赔，最终索赔条件法院依法认定。
+中国作家协会党组成员、副主席何向阳当日致辞，并宣布第42届青春诗会正式启动。
 
 ## 相关推荐
 
-- 2026-06-29 23:49 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 00:17 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 00:07 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 00:05 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 23:59 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 00:13 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 23:54 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 23:58 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 00:07 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 23:53 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 00:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 00:23 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 00:21 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 00:02 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 00:03 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 23:55 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 00:05 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 00:22 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 23:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 00:00 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 00:16 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:00 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/496471084.shtml)
-- 2026-06-29 23:59 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/6671248.shtml)
-- 2026-06-29 23:49 - [起风了](https://www.blog.kurohicncr.top/Article/details/1288689.shtml)
-- 2026-06-30 00:09 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/7848724.shtml)
-- 2026-06-29 23:57 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/14407.shtml)
-- 2026-06-29 23:52 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/480711.shtml)
-- 2026-06-30 00:16 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/946998507566.shtml)
-- 2026-06-30 00:01 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/644987.shtml)
-- 2026-06-29 23:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/130299.shtml)
-- 2026-06-29 23:57 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/86405.shtml)
-- 2026-06-30 00:10 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/9482873515.shtml)
-- 2026-06-29 23:54 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/3902226642.shtml)
-- 2026-06-29 23:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/456270559779.shtml)
-- 2026-06-29 23:53 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/2921886.shtml)
-- 2026-06-29 23:52 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/568914.shtml)
+- 2026-06-30 00:12 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/0172435347.shtml)
+- 2026-06-30 00:01 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/73968.shtml)
+- 2026-06-30 00:12 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/565283852574.shtml)
+- 2026-06-30 00:15 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/912741190529.shtml)
+- 2026-06-30 00:01 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/2879042.shtml)
+- 2026-06-30 00:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/65622203.shtml)
+- 2026-06-30 00:17 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/3101685.shtml)
+- 2026-06-29 23:57 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/192806585.shtml)
+- 2026-06-30 00:05 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/1440991.shtml)
+- 2026-06-30 00:12 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/0758148.shtml)
+- 2026-06-30 00:09 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/170278509378.shtml)
+- 2026-06-30 00:11 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/319972033034.shtml)
+- 2026-06-30 00:03 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/2666480201.shtml)
+- 2026-06-30 00:17 - [沉睡花园](http://www.blog.minike.top/Article/details/038377769.shtml)
+- 2026-06-30 00:12 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/67834720959.shtml)

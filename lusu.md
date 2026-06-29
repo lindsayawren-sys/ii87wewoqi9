@@ -1,52 +1,60 @@
-# 张家界足球队与广东铭途足球队球员赛中发生肢体冲突 官方通报
+# 最高法：新收涉外知识产权一审案件11066件 持续打造知识产权诉讼优选地
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-中新网6月22日电 据“掌上张家界”微信公众号消息，张家界市足球协会22日发布情况通报称，6月21日下午，张家界足球队与广东铭途足球队在广州市广东铭途足球训练场进行交流赛，双方球员发生言语争执并升级为肢体冲突，造成不良社会影响。 事件发生后，张家界市足球协会高度重视，第一时间赶赴广州开展调查。目前，公安机关正在对该事件进行调查处置。张家界市足球协会表示，坚决反对任何形式的球场暴
+发布时间：2026年04月20日 23:04 来源：中国新闻网 4月20日，最高人民法院举行2026年知识产权宣传周新闻发布会，发布2025年人民法院知识产权典型案例。最高人民法院副院长陶凯元介绍，过去一年，人民法院新收涉外知识产权一审案件11066件，同比上升34.1%。人民法院坚持平等保护中外当事人合法权益，提升涉外知识产权审判质效和公信力。上海、福建、海南、广东、重庆、四
 
 ## 正文
 
-中新网6月22日电 据“掌上张家界”微信公众号消息，张家界市足球协会22日发布情况通报称，6月21日下午，张家界足球队与广东铭途足球队在广州市广东铭途足球训练场进行交流赛，双方球员发生言语争执并升级为肢体冲突，造成不良社会影响。
+发布时间：2026年04月20日 23:04 来源：中国新闻网 4月20日，最高人民法院举行2026年知识产权宣传周新闻发布会，发布2025年人民法院知识产权典型案例。
 
-事件发生后，张家界市足球协会高度重视，第一时间赶赴广州开展调查。
+最高人民法院副院长陶凯元介绍，过去一年，人民法院新收涉外知识产权一审案件11066件，同比上升34.1%。
 
-目前，公安机关正在对该事件进行调查处置。
+人民法院坚持平等保护中外当事人合法权益，提升涉外知识产权审判质效和公信力。
 
-张家界市足球协会表示，坚决反对任何形式的球场暴力行为，对违反体育道德和赛事纪律的行为始终坚持“零容忍”态度。
+上海、福建、海南、广东、重庆、四川六地高院先后与世界知识产权组织仲裁与调解中心签署合作协议，有序开展诉调对接，高效化解涉外纠纷，营造国际一流营商环境。
 
-下一步，张家界市足球协会将依据调查结果对相关人员进行严肃处理，后续调查处理结果将及时向社会公布。
+2025年，最高人民法院向世界知识产权组织推荐知识产权典型案例74件，其中66件入选世界知识产权数据库，与该组织合作编撰中国知识产权案例集(2019-2023)，将于4月26日正式发行。
+
+中国首批9件种业知识产权司法保护案例在国际植物新品种保护联盟案例库发布，向世界贡献中国司法智慧。
+
+此外，过去一年，人民法院还深化国际交流与合作，提升中国知识产权司法国际影响力。
+
+(记者 卢晓娜 刘世炯) 责任编辑：【李岩】
 
 ## 相关推荐
 
-- 2026-06-29 23:58 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 00:09 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 23:50 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 00:13 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 00:15 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 00:09 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 00:05 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 00:11 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 23:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 00:17 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 00:05 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 00:11 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 23:56 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 00:12 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 23:58 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 00:10 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 00:00 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 00:06 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 23:55 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 00:13 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 00:22 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 00:15 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 00:18 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 00:06 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 00:11 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 00:21 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:06 - [一见倾心](http://www.share.minike.top/Article/details/292125834.shtml)
-- 2026-06-30 00:02 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/32373.shtml)
-- 2026-06-30 00:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/2300740524.shtml)
-- 2026-06-30 00:04 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/0261395.shtml)
-- 2026-06-30 00:07 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/631790598.shtml)
-- 2026-06-29 23:52 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/1021946824.shtml)
-- 2026-06-30 00:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/155525.shtml)
-- 2026-06-30 00:02 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/2499194255.shtml)
-- 2026-06-30 00:06 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/924799.shtml)
-- 2026-06-30 00:08 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/9896562.shtml)
-- 2026-06-30 00:11 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/498919040.shtml)
-- 2026-06-30 00:15 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/37074391298.shtml)
-- 2026-06-29 23:52 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/776705264.shtml)
-- 2026-06-29 23:59 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/28989506.shtml)
-- 2026-06-30 00:06 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/12129.shtml)
+- 2026-06-30 00:18 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/748948678147.shtml)
+- 2026-06-30 00:17 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/179960.shtml)
+- 2026-06-29 23:58 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/35490.shtml)
+- 2026-06-29 23:54 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/65925994993.shtml)
+- 2026-06-29 23:56 - [货车司机恶意闯卡逃费被行拘](http://www.share.minike.top/Article/details/22153719305.shtml)
+- 2026-06-30 00:14 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/9691831759.shtml)
+- 2026-06-29 23:55 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/548810.shtml)
+- 2026-06-30 00:17 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/856157.shtml)
+- 2026-06-29 23:58 - [存储三巨头被告了](http://www.share.minike.top/Article/details/9857540726.shtml)
+- 2026-06-30 00:06 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/3818068.shtml)
+- 2026-06-30 00:07 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/9165129282.shtml)
+- 2026-06-30 00:20 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/20575854.shtml)
+- 2026-06-30 00:03 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/883772.shtml)
+- 2026-06-30 00:12 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/188402410751.shtml)
+- 2026-06-29 23:58 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/04028023.shtml)

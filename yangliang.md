@@ -1,60 +1,56 @@
-# 长江有色：节后仍面高库存压力 22日锌价或下跌
+# 全球单机容量最大漂浮式海上风电平台从广西北海出港
 
-> 更新时间：2026-06-30 00:18:02 UTC+8
+> 更新时间：2026-06-30 00:24:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 【ccmn.cn摘要】美元走强与美联储释放鹰派信号施压，隔周伦锌跌逾2%；矿紧锭松格局延续，然淡季下游需求整体偏弱，节后仍面高库存压力，今现锌或下跌。 【ccmn.cn锌期货市场】隔周伦锌震荡走软；开盘报3627美元/吨，高点报3636美元，低点报3551美元，尾盘收于3555美元，跌75美元，跌幅2.05%；成交量9988手减少2386手，持仓量257604手
+中新社广西北海4月20日电 (黄艳梅 王丽娟)广西海事局20日介绍，在“海巡1005”轮护航下，全球单机容量最大的漂浮式海上风电平台“三峡领航号”当天从广西北海铁山港8号码头完成一体化拖航出港，“奔赴”广东阳江青洲海上风电场。 “三峡领航号”单机容量达16兆瓦(MW)，基础平台长80.82米、宽91米、型深37米，设计吃水19米，年发电量约4465万千瓦时。 针对该平台庞大体量
 
 ## 正文
 
-长江有色金属网 【ccmn.cn摘要】美元走强与美联储释放鹰派信号施压，隔周伦锌跌逾2%；矿紧锭松格局延续，然淡季下游需求整体偏弱，节后仍面高库存压力，今现锌或下跌。
+中新社广西北海4月20日电 (黄艳梅 王丽娟)广西海事局20日介绍，在“海巡1005”轮护航下，全球单机容量最大的漂浮式海上风电平台“三峡领航号”当天从广西北海铁山港8号码头完成一体化拖航出港，“奔赴”广东阳江青洲海上风电场。
 
-【ccmn.cn锌期货市场】隔周伦锌震荡走软；开盘报3627美元/吨，高点报3636美元，低点报3551美元，尾盘收于3555美元，跌75美元，跌幅2.05%；成交量9988手减少2386手，持仓量257604手增加7801手。
+“三峡领航号”单机容量达16兆瓦(MW)，基础平台长80.82米、宽91米、型深37米，设计吃水19米，年发电量约4465万千瓦时。
 
-节后复市，沪锌低开震荡；主力2608合约开盘价报24825元/吨，跌25元，跌幅0.10%。
+针对该平台庞大体量带来的水动力复杂、受风流影响大、航道狭窄且通航密度高等难点，广西海事部门主动靠前服务，制定专项预案，实现安全隐患闭环管理。
 
-长江锌业网（pb.ccmn.cn）今日现货锌价行情预估： 宏观层面，欧洲央行宣布2023年以来首次加息，拉加德警告中东冲突引发的通胀正在扩散至能源以外领域，首席经济学家莱恩预计未来通胀超3%。
+海事部门还调派技术骨干现场指导船舶滚装作业，复核船舶稳性并严格审核风机底座系固方案，确保航行中设备“零位移”，为重大件设备海上运输提供全过程、全方位安全保障。
 
-美联储沃什首秀维持3.50%-3.75%不变，但点阵图9人支持年内加息（仅1人倾向降息），声明承认通胀高于2%目标并归因于能源供给冲击。
+“三峡领航号”预计经50小时海上拖航抵达阳江风电场，完成安装调试后，将于今年6月初投入试运行。
 
-美国初请失业金人数降至22.6万（预期22.5万），持续申领人数升至181万，劳动力市场仍具韧性，叠加5月非农超预期（+17.2万）→加息押注进一步强化。
-
-美元偏强运行压制锌价。
-
-国内方面，国务院发布《实施就业优先战略“十五五”规划》，强调就业稳定、技能人才队伍建设及劳动关系和谐，间接支撑中长期消费预期。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 00:06 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 00:14 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 23:56 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 00:09 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 00:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 00:13 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 23:56 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 23:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 23:55 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 23:54 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 00:02 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 23:50 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 23:48 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 00:07 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 00:07 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 00:19 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 00:07 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 23:59 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 00:20 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 00:08 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 00:14 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 00:11 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 23:56 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 00:01 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 00:01 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 00:00 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 23:58 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 00:09 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:17 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/63068295.shtml)
-- 2026-06-30 00:08 - [炽夏](http://www.share.kurohicncr.top/Article/details/55500209.shtml)
-- 2026-06-30 00:16 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/96996.shtml)
-- 2026-06-30 00:14 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/781716290504.shtml)
-- 2026-06-29 23:59 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/30088934.shtml)
-- 2026-06-29 23:54 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/935598.shtml)
-- 2026-06-29 23:53 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/824794513071.shtml)
-- 2026-06-29 23:50 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/21244763.shtml)
-- 2026-06-30 00:05 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/86562525884.shtml)
-- 2026-06-30 00:12 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/628307937390.shtml)
-- 2026-06-29 23:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/041701.shtml)
-- 2026-06-30 00:06 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/299356941.shtml)
-- 2026-06-29 23:49 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/675267048694.shtml)
-- 2026-06-29 23:51 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/684000071.shtml)
-- 2026-06-29 23:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/21921381.shtml)
+- 2026-06-30 00:20 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/459676832617.shtml)
+- 2026-06-30 00:00 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/71550.shtml)
+- 2026-06-30 00:21 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/613109922699.shtml)
+- 2026-06-29 23:57 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/0487937261.shtml)
+- 2026-06-30 00:09 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/782849.shtml)
+- 2026-06-29 23:59 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/0902954.shtml)
+- 2026-06-30 00:10 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/15490890.shtml)
+- 2026-06-30 00:07 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/109988066998.shtml)
+- 2026-06-30 00:06 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/24043228288.shtml)
+- 2026-06-29 23:57 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/48637975954.shtml)
+- 2026-06-30 00:02 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/800822078672.shtml)
+- 2026-06-30 00:11 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/401822.shtml)
+- 2026-06-29 23:58 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/657716153086.shtml)
+- 2026-06-30 00:21 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/05922.shtml)
+- 2026-06-30 00:13 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/12930.shtml)
