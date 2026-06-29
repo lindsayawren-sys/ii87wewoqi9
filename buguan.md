@@ -1,48 +1,58 @@
-# 广西南宁市江北水毁河堤正紧张修复
+# 依法推广普及国家通用语言文字 筑牢认同之基
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月25日 14:54 来源：中国新闻网 近日，广西南宁市江北中堤二坑口水毁段应急抢险工程指挥部接受中新社采访，介绍工程进度。2025年10月9日，受台风影响，南宁邕江水位超警，导致江北中堤二坑水闸出现漏水险情。险情过后，中国安能一局遵照政府上级部门委托，开展灾后重建项目施工。(王伟臣 王以照) 责任编辑：【叶攀】
+这种以国家通用语言文字为纽带、“一体主导、多元共生”的文化格局，为民族团结进步注入持久精神动力。 世界上许多统一多民族国家均以法律形式确立了通用语言文字的法定地位。民族团结进步促进法确立了全面推广普及国家通用语言文字的基本原则、制度安排与实施机制，将语言文字事业纳入民族团结进步事业的法治框架，实现了由政策实践向法律规范的制度化跃升，符合国际通行做法，标志着我国依法保障国家通用语
 
 ## 正文
 
-发布时间：2026年04月25日 14:54 来源：中国新闻网 近日，广西南宁市江北中堤二坑口水毁段应急抢险工程指挥部接受中新社采访，介绍工程进度。
+这种以国家通用语言文字为纽带、“一体主导、多元共生”的文化格局，为民族团结进步注入持久精神动力。
 
-2025年10月9日，受台风影响，南宁邕江水位超警，导致江北中堤二坑水闸出现漏水险情。
+世界上许多统一多民族国家均以法律形式确立了通用语言文字的法定地位。
 
-险情过后，中国安能一局遵照政府上级部门委托，开展灾后重建项目施工。
+民族团结进步促进法确立了全面推广普及国家通用语言文字的基本原则、制度安排与实施机制，将语言文字事业纳入民族团结进步事业的法治框架，实现了由政策实践向法律规范的制度化跃升，符合国际通行做法，标志着我国依法保障国家通用语言文字发展迈入新阶段。
 
-(王伟臣 王以照) 责任编辑：【叶攀】
+法治保障：从宪法原则迈向制度实践 国家通用语言文字是维系国家统一的文化纽带，是现代国家治理的基础工具。
+
+我国宪法明确规定“国家推广全国通用的普通话”，以根本大法形式确立了国家通用语言文字的宪法地位。
+
+这一规定内嵌于统一多民族国家的治理逻辑：国家通用语言文字是国家主权的象征符号，是政令统一的重要载体，是社会交往的基础工具，是公民平等的权利基础。
+
+民族团结进步促进法关于推广普及国家通用语言文字的规定，是宪法原则在民族工作领域的具体化、体系化展开。
+
+在全面推广普及国家通用语言文字的同时，国家依法保障少数民族学习使用和发展自己语言文字的权利和自由，鼓励各民族互相学习语言文字。
 
 ## 相关推荐
 
-- 2026-06-30 04:42 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 04:48 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 04:33 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 04:51 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 04:26 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 04:24 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 04:47 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 04:44 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 04:29 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 04:30 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 04:36 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 04:55 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 04:54 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 04:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 04:46 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 04:47 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 04:43 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 04:45 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 04:37 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 04:33 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 04:57 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 04:39 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:28 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/32025110.shtml)
-- 2026-06-30 04:47 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/552587.shtml)
-- 2026-06-30 04:29 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/46310800.shtml)
-- 2026-06-30 04:37 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/31957801967.shtml)
-- 2026-06-30 04:44 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/80074146.shtml)
-- 2026-06-30 04:43 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/833058145.shtml)
-- 2026-06-30 04:44 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/90011030843.shtml)
-- 2026-06-30 04:40 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/26821793.shtml)
-- 2026-06-30 04:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/50657645883.shtml)
-- 2026-06-30 04:32 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/65683165884.shtml)
-- 2026-06-30 04:33 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/209429926239.shtml)
-- 2026-06-30 04:52 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/08452862202.shtml)
-- 2026-06-30 04:53 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/5874540.shtml)
-- 2026-06-30 04:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/7522148.shtml)
-- 2026-06-30 04:53 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/038554.shtml)
+- 2026-06-30 04:33 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/24502747279.shtml)
+- 2026-06-30 04:33 - [苗族银饰](https://www.share.minike.top/Article/details/1139845.shtml)
+- 2026-06-30 04:54 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/16666530.shtml)
+- 2026-06-30 04:42 - [沉睡花园](https://www.blog.minike.top/Article/details/8178273841.shtml)
+- 2026-06-30 04:36 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/81629163349.shtml)
+- 2026-06-30 04:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/06103.shtml)
+- 2026-06-30 04:51 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/58044902.shtml)
+- 2026-06-30 04:53 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/2934211.shtml)
+- 2026-06-30 04:59 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/32475328598.shtml)
+- 2026-06-30 04:36 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/70275.shtml)
+- 2026-06-30 04:56 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/7079620634.shtml)
+- 2026-06-30 04:31 - [起风了](https://www.share.minike.top/Article/details/027945683194.shtml)
+- 2026-06-30 04:33 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/47385.shtml)
+- 2026-06-30 04:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/32705915.shtml)
+- 2026-06-30 04:58 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/7572269.shtml)

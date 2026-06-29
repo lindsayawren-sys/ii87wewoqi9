@@ -1,60 +1,51 @@
-# 推动海洋经济高质量发展 加快建设海洋强国
+# 汤臣集团获董事局主席徐枫增持13万股 每股作价2.33港元
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-加快建设海洋强国的号角，再次吹响。 4月24日召开的国务院常务会议，听取推动海洋经济高质量发展情况汇报。 “提高经略海洋能力，高效开发利用海洋，推动海洋经济高质量发展，加快建设海洋强国。”从会议披露的信息来看，海洋经济，正在被赋予全新的战略分量。 海洋对中国意味着什么？ 我国拥有1.8万余公里大陆海岸线、约300万平方公里主张管辖海域。2024年，海洋经济规模达到10.5万亿元
+香港联交所最新资料显示，4月20日，董事局主席徐枫增持汤臣集团（00258）13万股，每股作价 2.33港元，总金额为30.29万港元。增持后最新持股数目约为9.71亿股，最新持股比例为42.99%。责任编辑：卢昱君
 
 ## 正文
 
-加快建设海洋强国的号角，再次吹响。
+香港联交所最新资料显示，4月20日，董事局主席徐枫增持汤臣集团（00258）13万股，每股作价 2.33港元，总金额为30.29万港元。
 
-4月24日召开的国务院常务会议，听取推动海洋经济高质量发展情况汇报。
+增持后最新持股数目约为9.71亿股，最新持股比例为42.99%。
 
-“提高经略海洋能力，高效开发利用海洋，推动海洋经济高质量发展，加快建设海洋强国。
-
-”从会议披露的信息来看，海洋经济，正在被赋予全新的战略分量。
-
-海洋对中国意味着什么？
-
-我国拥有1.8万余公里大陆海岸线、约300万平方公里主张管辖海域。
-
-2024年，海洋经济规模达到10.5万亿元，比2012年翻了一番多，占国内生产总值的7.8%。
-
-2025年海洋生产总值超11万亿元，占国内生产总值比重为7.9%，比上年高0.1个百分点。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:39 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 04:38 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 04:27 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 04:44 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 04:43 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 04:51 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 04:53 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 04:42 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 04:50 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 04:43 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 04:26 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 04:40 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 04:51 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 04:32 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 04:32 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 04:49 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 04:43 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 04:37 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 04:50 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 04:32 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 04:48 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 04:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 04:59 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 04:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 04:39 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 04:30 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 04:45 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 04:49 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 04:32 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:25 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/58264.shtml)
-- 2026-06-30 04:45 - [房价什么时候能涨](https://www.share.minike.top/Article/details/121389842.shtml)
-- 2026-06-30 04:50 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/2099478.shtml)
-- 2026-06-30 04:53 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/1693806518.shtml)
-- 2026-06-30 04:44 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/2087199.shtml)
-- 2026-06-30 04:40 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/55357956817.shtml)
-- 2026-06-30 04:41 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/87229631.shtml)
-- 2026-06-30 04:49 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/56140.shtml)
-- 2026-06-30 04:35 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/41001986.shtml)
-- 2026-06-30 04:26 - [TOP Prada](https://www.share.minike.top/Article/details/04598.shtml)
-- 2026-06-30 04:28 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/8288866.shtml)
-- 2026-06-30 04:28 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/94296.shtml)
-- 2026-06-30 04:31 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/217330.shtml)
-- 2026-06-30 04:29 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/4152839.shtml)
-- 2026-06-30 04:47 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/6380079859.shtml)
+- 2026-06-30 04:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/635709061.shtml)
+- 2026-06-30 04:54 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/357610.shtml)
+- 2026-06-30 04:40 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/694289135529.shtml)
+- 2026-06-30 04:52 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/91058295.shtml)
+- 2026-06-30 04:44 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/7853236.shtml)
+- 2026-06-30 04:32 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/78115.shtml)
+- 2026-06-30 04:48 - [《共患难》](https://www.share.minike.top/Article/details/3068859933.shtml)
+- 2026-06-30 04:57 - [一见倾心](http://www.blog.minike.top/Article/details/4097798.shtml)
+- 2026-06-30 04:57 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/24977977142.shtml)
+- 2026-06-30 04:30 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/15120427.shtml)
+- 2026-06-30 04:33 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/952903.shtml)
+- 2026-06-30 04:36 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/43503692.shtml)
+- 2026-06-30 04:38 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/9555534662.shtml)
+- 2026-06-30 04:52 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/770978.shtml)
+- 2026-06-30 04:31 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/7070806.shtml)

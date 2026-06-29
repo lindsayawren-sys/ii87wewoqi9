@@ -1,57 +1,56 @@
-# 伦敦清算所：人民币将超日元，成为全球第二大对美元期权交易货币
+# 学习新语｜总书记的“读后感”
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-人民币在全球外汇期权市场的地位正加速跃升。伦敦清算所（LCH）预测，美元兑离岸人民币货币对有望在2028年超越美元兑日元，成为全球外汇期权市场第二大交易货币对，仅次于美元兑欧元。 伦敦清算所旗下外汇清算部门伦敦清算所 ForexClear负责人Andrew Batchelor在接受采访时表示，这一排名变化将在国际清算银行（BIS）2028年下一次三年期外汇及场外衍生品市场调查中
+“我的读书习惯，是家庭培养的，我父母很支持我读书。”习近平总书记说，自幼时起，他每天都要将阅读感想写成读书笔记交给父亲批阅。 从童年启蒙到知青岁月，从躬耕基层到领航中国，读书始终是总书记“最大的爱好”。4月23日是世界读书日，一起重温总书记的读书故事、品悟总书记的“读后感”。 一生追求“精忠报国” 童年时，母亲带着习近平，到新华书店买《岳飞传》小人书。回来之后，就给他讲精忠报国
 
 ## 正文
 
-人民币在全球外汇期权市场的地位正加速跃升。
+“我的读书习惯，是家庭培养的，我父母很支持我读书。
 
-伦敦清算所（LCH）预测，美元兑离岸人民币货币对有望在2028年超越美元兑日元，成为全球外汇期权市场第二大交易货币对，仅次于美元兑欧元。
+”习近平总书记说，自幼时起，他每天都要将阅读感想写成读书笔记交给父亲批阅。
 
-伦敦清算所旗下外汇清算部门伦敦清算所 ForexClear负责人Andrew Batchelor在接受采访时表示，这一排名变化将在国际清算银行（BIS）2028年下一次三年期外汇及场外衍生品市场调查中得到印证。
+从童年启蒙到知青岁月，从躬耕基层到领航中国，读书始终是总书记“最大的爱好”。
 
-他同时指出，所有在欧元兑美元或美元兑日元外汇期权上有大量交易的银行，都将欢迎通过伦敦清算所清算美元兑离岸人民币期权的能力。
+4月23日是世界读书日，一起重温总书记的读书故事、品悟总书记的“读后感”。
 
-数据印证：人民币期权交易量加速追赶日元 国际清算银行最新调查数据清晰呈现出人民币与日元之间收窄的差距。
+一生追求“精忠报国” 童年时，母亲带着习近平，到新华书店买《岳飞传》小人书。
 
-根据去年发布的调查报告，人民币外汇期权日均交易量为820亿美元，日元为1020亿美元，欧元则高达2360亿美元。
+回来之后，就给他讲精忠报国、岳母刺字的故事。
 
-从更宏观的维度看，人民币在涵盖即期、远期、掉期及期权的全球货币交易中占比已升至8.5%，较2022年的7%明显提升。
+“我说，把字刺上去，多疼啊！
 
-相比之下，美元占比89%，欧元28.9%，日元16.8%，英镑10.2%。
+我母亲说，是疼，但心里铭记住了。
 
 ## 相关推荐
 
-- 2026-06-30 04:48 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 04:39 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 04:34 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 04:37 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-30 04:27 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 04:50 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 04:33 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 04:31 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 04:28 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 04:48 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 04:24 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 04:55 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 04:53 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 04:39 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 04:30 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 04:37 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 04:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 04:32 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 04:52 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 04:50 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 04:56 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:51 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/05069128.shtml)
-- 2026-06-30 04:42 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/880858.shtml)
-- 2026-06-30 04:35 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/1290736.shtml)
-- 2026-06-30 04:34 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/584242567.shtml)
-- 2026-06-30 04:47 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/66557157.shtml)
-- 2026-06-30 04:53 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/605994.shtml)
-- 2026-06-30 04:25 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/5084569551.shtml)
-- 2026-06-30 04:53 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/37605553.shtml)
-- 2026-06-30 04:47 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/32942319.shtml)
-- 2026-06-30 04:30 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/719254769.shtml)
-- 2026-06-30 04:36 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/105692094.shtml)
-- 2026-06-30 04:34 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/222467513.shtml)
-- 2026-06-30 04:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/136555024220.shtml)
-- 2026-06-30 04:47 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/135801362778.shtml)
-- 2026-06-30 04:32 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/7177102629.shtml)
+- 2026-06-30 04:52 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/493961.shtml)
+- 2026-06-30 04:52 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/66269325894.shtml)
+- 2026-06-30 04:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/020352637.shtml)
+- 2026-06-30 04:49 - [日本 高位逼抢](https://www.share.minike.top/Article/details/43578555.shtml)
+- 2026-06-30 04:55 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/8255684.shtml)
+- 2026-06-30 04:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/8296138371.shtml)
+- 2026-06-30 04:55 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/72829340.shtml)
+- 2026-06-30 04:42 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/3762115105.shtml)
+- 2026-06-30 04:31 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/21232879273.shtml)
+- 2026-06-30 04:41 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/015468.shtml)
+- 2026-06-30 04:42 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/1230278.shtml)
+- 2026-06-30 04:35 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/9557475287.shtml)
+- 2026-06-30 04:37 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/51783.shtml)
+- 2026-06-30 04:49 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/8923932.shtml)
+- 2026-06-30 04:31 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/7287905109.shtml)

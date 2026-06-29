@@ -1,47 +1,58 @@
-# 英国海事贸易组织：一艘船在索马里附近海域遭劫持
+# 评论：AI艺人库为什么全网吵翻天？爱奇艺还是不懂
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-英国海事贸易组织25日发表声明说，索马里附近海域日前发生一起船只遭劫持事件。 (央视新闻客户端)
+新民晚报 赵玥 最近，AI艺人库的争议，让“爱奇艺疯了”冲上热搜榜一。 爱奇艺CEO龚宇连发三条博文回应，表示演员授权AI创作之后，一部戏的保底金可能少一点，但可以接更多戏，并表示：“科技以人为本，科技永远不是为了取代人。”逻辑严密，态度温和。可读完让观众更堵了。 全网吵翻天的核心争议分明是：观众不想看AI替代真人演戏。而龚宇回应的是另一件事——AI替代真人演戏这件事，该怎么操
 
 ## 正文
 
-英国海事贸易组织25日发表声明说，索马里附近海域日前发生一起船只遭劫持事件。
+新民晚报 赵玥 最近，AI艺人库的争议，让“爱奇艺疯了”冲上热搜榜一。
 
-(央视新闻客户端)
+爱奇艺CEO龚宇连发三条博文回应，表示演员授权AI创作之后，一部戏的保底金可能少一点，但可以接更多戏，并表示：“科技以人为本，科技永远不是为了取代人。
+
+”逻辑严密，态度温和。
+
+可读完让观众更堵了。
+
+全网吵翻天的核心争议分明是：观众不想看AI替代真人演戏。
+
+而龚宇回应的是另一件事——AI替代真人演戏这件事，该怎么操办。
+
+观众问的是“为什么非要替代”，他解释的是“怎么替代更丝滑”。
+
+观众恐惧的是“人被抹去”，他承诺的是“分账可以谈”。
 
 ## 相关推荐
 
-- 2026-06-30 04:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 04:25 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 04:33 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-30 04:51 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 04:31 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 04:28 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 04:51 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 04:30 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-30 04:49 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 04:52 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 04:34 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 04:31 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 04:38 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-30 04:45 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 04:31 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 04:42 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 04:32 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 04:33 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 04:59 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 04:34 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 04:45 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 04:45 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 04:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 04:30 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 04:45 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:42 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/1375477482.shtml)
-- 2026-06-30 04:40 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/7310740.shtml)
-- 2026-06-30 04:52 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/61971319.shtml)
-- 2026-06-30 04:25 - [我和我的家乡](http://www.share.minike.top/Article/details/1400485.shtml)
-- 2026-06-30 04:44 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/508168087.shtml)
-- 2026-06-30 04:52 - [请回答王牌2019](http://www.blog.minike.top/Article/details/963596384.shtml)
-- 2026-06-30 04:51 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/05472577526.shtml)
-- 2026-06-30 04:37 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/98153.shtml)
-- 2026-06-30 04:30 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/688380589.shtml)
-- 2026-06-30 04:42 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/864333.shtml)
-- 2026-06-30 04:40 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/11110370803.shtml)
-- 2026-06-30 04:27 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/06514864.shtml)
-- 2026-06-30 04:24 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/4551475.shtml)
-- 2026-06-30 04:35 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/46730696047.shtml)
-- 2026-06-30 04:33 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/202733515863.shtml)
+- 2026-06-30 04:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/001139.shtml)
+- 2026-06-30 04:42 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/444035867.shtml)
+- 2026-06-30 04:44 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/23418519766.shtml)
+- 2026-06-30 04:51 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/5573836.shtml)
+- 2026-06-30 04:48 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/491078433971.shtml)
+- 2026-06-30 04:45 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/6073539.shtml)
+- 2026-06-30 04:43 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/8563168.shtml)
+- 2026-06-30 04:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/9876686.shtml)
+- 2026-06-30 04:30 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/097672.shtml)
+- 2026-06-30 04:48 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/2906158527.shtml)
+- 2026-06-30 04:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/017276.shtml)
+- 2026-06-30 04:30 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/5409591349.shtml)
+- 2026-06-30 04:59 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/95933.shtml)
+- 2026-06-30 04:30 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/5368084819.shtml)
+- 2026-06-30 04:31 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/5174151.shtml)

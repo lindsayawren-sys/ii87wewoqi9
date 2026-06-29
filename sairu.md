@@ -1,56 +1,58 @@
-# 燃油成本飙升，美国航空腰斩2026年盈利预期
+# 三亚亚沙会：龙舟中国队5金创纪录 田径泰国队独占3金
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-据媒体4月23日报道，受中东冲突推高航空燃油成本影响，美国航空（American Airlines）周四大幅下调2026年全年盈利预期，直言利润空间正遭受严重侵蚀。 该公司最新指引显示，预计全年调整后每股收益将在亏损0.40美元至盈利1.10美元之间，远低于1月份预测的1.70至2.70美元。首席执行官罗伯特·艾索姆（Robert Isom）指出，自美以袭击伊朗事件发生以来，燃
+中新社三亚4月26日电 (记者 邢翀)第六届亚洲沙滩运动会26日进入开幕后的第四个比赛日。龙舟项目中国队5金收官，成为单届亚沙会龙舟项目夺得金牌数最多的队伍。泰国队则成为本届亚沙会沙滩田径项目的最大赢家，赢得了其中3枚金牌。 龙舟项目迎来收官日，中国队夺得12人龙舟400米直道赛男子、女子组2枚金牌，至此获得龙舟项目6枚金牌中的5枚，超越了印尼队此前单届亚沙会斩获4金的纪录。中
 
 ## 正文
 
-据媒体4月23日报道，受中东冲突推高航空燃油成本影响，美国航空（American Airlines）周四大幅下调2026年全年盈利预期，直言利润空间正遭受严重侵蚀。
+中新社三亚4月26日电 (记者 邢翀)第六届亚洲沙滩运动会26日进入开幕后的第四个比赛日。
 
-该公司最新指引显示，预计全年调整后每股收益将在亏损0.40美元至盈利1.10美元之间，远低于1月份预测的1.70至2.70美元。
+龙舟项目中国队5金收官，成为单届亚沙会龙舟项目夺得金牌数最多的队伍。
 
-首席执行官罗伯特·艾索姆（Robert Isom）指出，自美以袭击伊朗事件发生以来，燃油成本已增加约40亿美元，成为业绩下修的核心原因。
+泰国队则成为本届亚沙会沙滩田径项目的最大赢家，赢得了其中3枚金牌。
 
-为应对成本压力，美国航空正通过提高票价、燃油附加费和行李费来转嫁部分成本，并可能收紧运力增长计划。
+龙舟项目迎来收官日，中国队夺得12人龙舟400米直道赛男子、女子组2枚金牌，至此获得龙舟项目6枚金牌中的5枚，超越了印尼队此前单届亚沙会斩获4金的纪录。
 
-尽管面临挑战，公司预计第二季度营收仍将实现双位数增长。
+中国队唯一失手的项目是男子200米直道赛，该项冠军被泰国队摘得。
 
-目前，美国航空业正普遍受到高油价冲击。
+龙舟短距离项目胜负往往在毫厘之间，中国队、泰国队处于亚洲第一梯队。
 
-联合航空已下调全年盈利指引并计划削减运力，而精神航空等廉价航司更是面临破产风险。
+中国女队队长宋艳冰说，泰国队是一支实力强劲的队伍，每年中国队都会在赛场与她们有所交锋。
 
-分析指出，若地缘政治紧张局势持续，全球航空业的脆弱资产负债表将面临更大压力。
+中国男队队长邓志方说，队伍在400米比赛中没有受到200米失利影响，全程没有放松，靠意志力划到了最后。
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 04:25 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 04:53 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 04:52 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 04:39 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 04:33 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 04:37 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 04:41 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 04:50 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 04:36 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 04:45 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 04:39 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 04:42 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 04:34 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 04:39 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 04:39 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 04:58 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 04:35 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 04:48 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 04:51 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 04:45 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 04:44 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:36 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/15703.shtml)
-- 2026-06-30 04:46 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/647362.shtml)
-- 2026-06-30 04:52 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/83310389914.shtml)
-- 2026-06-30 04:48 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/7330846.shtml)
-- 2026-06-30 04:50 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/3452793001.shtml)
-- 2026-06-30 04:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/13332604214.shtml)
-- 2026-06-30 04:25 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/304598.shtml)
-- 2026-06-30 04:45 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/6380380.shtml)
-- 2026-06-30 04:39 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/2535872.shtml)
-- 2026-06-30 04:46 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/33195.shtml)
-- 2026-06-30 04:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/02038.shtml)
-- 2026-06-30 04:24 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/9855793458.shtml)
-- 2026-06-30 04:41 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/05856010.shtml)
-- 2026-06-30 04:24 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/71312.shtml)
-- 2026-06-30 04:26 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/16851025639.shtml)
+- 2026-06-30 04:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/06948456.shtml)
+- 2026-06-30 04:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/58163447.shtml)
+- 2026-06-30 04:57 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/965801.shtml)
+- 2026-06-30 04:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/985262.shtml)
+- 2026-06-30 04:52 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/80217977720.shtml)
+- 2026-06-30 04:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/8612963710.shtml)
+- 2026-06-30 04:30 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/48622.shtml)
+- 2026-06-30 04:59 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/2420192.shtml)
+- 2026-06-30 04:35 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/002872.shtml)
+- 2026-06-30 04:47 - [刘念回应](https://www.share.minike.top/Article/details/722628.shtml)
+- 2026-06-30 04:48 - [我们的少年时代2](https://www.blog.minike.top/Article/details/536762739868.shtml)
+- 2026-06-30 04:52 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/337021254.shtml)
+- 2026-06-30 04:50 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/83897509873.shtml)
+- 2026-06-30 04:40 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/854203290.shtml)
+- 2026-06-30 04:55 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/004003701113.shtml)

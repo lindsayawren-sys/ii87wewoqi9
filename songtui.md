@@ -1,58 +1,56 @@
-# 镁信健康二次递表港交所：去年前10月亏损3.89亿元 蚂蚁集团、创新工场等参股
+# 宇树科技赢了！最高法院认定其遭恶意诉讼
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-转自：新华财经 新华财经北京4月23日电 上海镁信健康科技集团股份有限公司（下称＂镁信健康＂）近期第二次向港交所递交主板上市申请，由高盛、中金公司、汇丰担任联席保荐人。这是该公司继2025年6月首次递表失效后第二次冲刺港股IPO。 镁信健康成立于2017年，是中国最大的医药多元支付平台。近年来，镁信健康实现营收较快增长，但仍面临盈利难题，公司2025年前10个月亏损3.89亿元
+4月27日，界面新闻从中国最高人民法院官网获悉，近日，高院就杭州露韦美日化有限公司（下称“露韦美公司”）起诉明星科技企业宇树科技相关专利侵权案件，作出判决：认定露韦美公司针对宇树公司旗下“A2机器狗”和“Go2机器狗”提起的系列专利侵权诉讼构成恶意诉讼，需向宇树公司赔偿合理开支8万元，同时承担案件受理费用共计3700元。 界面新闻从最高人民法院新闻局在官方微信号公布的信息了解到
 
 ## 正文
 
-转自：新华财经 新华财经北京4月23日电 上海镁信健康科技集团股份有限公司（下称＂镁信健康＂）近期第二次向港交所递交主板上市申请，由高盛、中金公司、汇丰担任联席保荐人。
+4月27日，界面新闻从中国最高人民法院官网获悉，近日，高院就杭州露韦美日化有限公司（下称“露韦美公司”）起诉明星科技企业宇树科技相关专利侵权案件，作出判决：认定露韦美公司针对宇树公司旗下“A2机器狗”和“Go2机器狗”提起的系列专利侵权诉讼构成恶意诉讼，需向宇树公司赔偿合理开支8万元，同时承担案件受理费用共计3700元。
 
-这是该公司继2025年6月首次递表失效后第二次冲刺港股IPO。
+界面新闻从最高人民法院新闻局在官方微信号公布的信息了解到，此前，该案于4月14日进行了公开开庭审理。
 
-镁信健康成立于2017年，是中国最大的医药多元支付平台。
+4月20日，最高法知识产权法庭副庭长郃中林也在发布会上回应了该案相关情况：涉宇某科技公司机器狗的专利案件，除了最高法今年年初二审维持认定宇某科技公司不构成专利侵权并对原告涉案不诚信诉讼行为予以谴责的案件外；近期，最高法知识产权法庭还受理了同一专利权人就同一专利起诉宇某科技公司另一款机器狗产品专利侵权和宇某科技公司反诉专利权人恶意诉讼的上诉案件，将争取尽快作出判决。
 
-近年来，镁信健康实现营收较快增长，但仍面临盈利难题，公司2025年前10个月亏损3.89亿元。
+据《财经》报道，最高法院在审判过程中，统筹考虑了露韦美公司一系列相关诉讼行为，经过综合判断，最终认定露韦美公司先后针对宇树旗下“A2机器狗”和“Go2机器狗”提起的两件专利侵权诉讼构成恶意诉讼。
 
-镁信健康赴港IPO：构建“智药+智保”双解决方案 招股书显示，根据咨询机构弗若斯特沙利文的资料，镁信健康是中国最大的医药多元支付平台。
+该案二审的审判长邓卓指出，本案重点考虑的因素包括：第一，权利人（露韦美公司）所提诉讼是否明显缺乏权利基础或事实根据；第二，权利人是否对此明知，存在主观过错；第三，是否造成他人损害；第四，诉讼与损害结果之间是否存在因果关系；尤其是，对于权利人依据同一专利针对被诉侵权人的多个型号类似产品提起多个专利侵权诉讼的，应当综合考虑权利人在各个诉讼中的具体行为。
 
-镁信健康为患者、保司及药企提供产品及服务。
+据悉，宇树公司主张的8万元赔偿实际仅为应对“A2机器狗”侵权诉讼及反诉案件一审的律师代理费用，包含对“一种电子狗”专利权提起无效宣告请求的费用，但不包含本案二审律师代理费用。
 
-公司已开发了两大行业解决方案：智药解决方案为药企提供了药品全生命周期的商业化方案，帮助药企整合医药多元支付；而智保解决方案整合自有人工智能技术、更优质的医疗健康资源，为保司提供端到端方案，推动健康险创新。
+2026年年初，最高人民法院在涉宇树科技机器狗案件二审判决书中，对明显有违诚信诉讼行为进行了严肃谴责，引起广泛关注。
 
-根据招股书披露，2025年1-10月，镁信健康62.7%的收入来自于智药解决方案、31.1%的收入来自于智保解决方案。
+2月，据央视新闻报道，针对露韦美公司起诉宇树科技专利侵权一案，最高法院作出终审判决，不仅驳回了原告的上诉，维持了宇树科技不构成侵权的判决，更在判决书中直接点名批评原告的行为“可谓既精心算计、又反复无常”。
 
 ## 相关推荐
 
-- 2026-06-30 04:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 04:34 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 04:39 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 04:34 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 04:43 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 04:40 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 04:40 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 04:25 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 04:36 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 04:39 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 04:31 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 04:46 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 04:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 04:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 04:38 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 04:38 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 04:30 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 04:32 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 04:47 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 04:36 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 04:34 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 04:56 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:45 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/51653372661.shtml)
-- 2026-06-30 04:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/0950392.shtml)
-- 2026-06-30 04:31 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/538296.shtml)
-- 2026-06-30 04:50 - [一生一世](https://www.blog.kurohicncr.top/Article/details/7499646717.shtml)
-- 2026-06-30 04:29 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/137035018120.shtml)
-- 2026-06-30 04:51 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/8599138024.shtml)
-- 2026-06-30 04:32 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/6500204.shtml)
-- 2026-06-30 04:33 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/784810.shtml)
-- 2026-06-30 04:45 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/458700063059.shtml)
-- 2026-06-30 04:52 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/2049124137.shtml)
-- 2026-06-30 04:50 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/364711831.shtml)
-- 2026-06-30 04:37 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/7789346.shtml)
-- 2026-06-30 04:39 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/039773557068.shtml)
-- 2026-06-30 04:32 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/556201022936.shtml)
-- 2026-06-30 04:42 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/273018063.shtml)
+- 2026-06-30 04:44 - [斛珠夫人](http://www.share.minike.top/Article/details/8378170319.shtml)
+- 2026-06-30 04:31 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/17123.shtml)
+- 2026-06-30 04:32 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/15463404.shtml)
+- 2026-06-30 04:41 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/11914.shtml)
+- 2026-06-30 04:36 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/5490635.shtml)
+- 2026-06-30 04:33 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/11540.shtml)
+- 2026-06-30 04:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/876099426816.shtml)
+- 2026-06-30 04:53 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/29486.shtml)
+- 2026-06-30 04:41 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/9699252077.shtml)
+- 2026-06-30 04:41 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/13623142.shtml)
+- 2026-06-30 04:33 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/29644829690.shtml)
+- 2026-06-30 04:31 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/65592.shtml)
+- 2026-06-30 04:41 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/314795010205.shtml)
+- 2026-06-30 04:44 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/963429622130.shtml)
+- 2026-06-30 04:50 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/7115667316.shtml)

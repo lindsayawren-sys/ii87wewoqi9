@@ -1,57 +1,57 @@
-# 中信证券：厄尔尼诺预期升温，或催化新一轮煤价表现
+# 吉林碳纤维产业加速布局高端制品新赛道
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中信证券研究 文|祖国鹏 赵柏霖 黄杰 厄尔尼诺现象发生概率增加，或带来夏季高温天数增加，利好国内电煤需求提振，也有可能带动印度动力煤需求增加，利好全球煤价预期。我们看好Q2煤价表现，即便中东冲突缓和，能源供应恢复也需要时间，叠加气候因素影响，国内外煤价在Q2中后期或形成共振，煤、化价格上涨的效应在Q2也有
+发布时间：2026年04月26日 14:28 来源：中国新闻网 4月26日，记者从吉林省吉林市官方获悉，当地碳纤维产销量均已位居全球首位。凭借原料供给与场景应用的双重优势，吉林市不断拓宽碳纤维这一“新材料之王”的应用边界。 吉林市官方数据显示，2025年该市碳纤维产能达7.4万吨、销量5.6万吨。总投资超20亿元人民币的吉林化纤集团年产2.5万吨碳纤维项目近日破土动工。 该项目
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月26日 14:28 来源：中国新闻网 4月26日，记者从吉林省吉林市官方获悉，当地碳纤维产销量均已位居全球首位。
 
-中信证券研究 文|祖国鹏 赵柏霖 黄杰 厄尔尼诺现象发生概率增加，或带来夏季高温天数增加，利好国内电煤需求提振，也有可能带动印度动力煤需求增加，利好全球煤价预期。
+凭借原料供给与场景应用的双重优势，吉林市不断拓宽碳纤维这一“新材料之王”的应用边界。
 
-我们看好Q2煤价表现，即便中东冲突缓和，能源供应恢复也需要时间，叠加气候因素影响，国内外煤价在Q2中后期或形成共振，煤、化价格上涨的效应在Q2也有望充分体现，我们认为，煤价预期新的催化剂正逐步形成，板块有望进入新一轮反弹行情。
+吉林市官方数据显示，2025年该市碳纤维产能达7.4万吨、销量5.6万吨。
 
-▍厄尔尼诺现象预期升温，夏季高温天数或增加。
+总投资超20亿元人民币的吉林化纤集团年产2.5万吨碳纤维项目近日破土动工。
 
-近期，市场对厄尔尼诺现象关注度提升。
+该项目投产后，将进一步巩固吉林碳纤维产销量全球领先的产业地位。
 
-根据央广网相关报道，国家气候中心预计，今年5月将进入厄尔尼诺状态，并于夏秋季形成一次中等及以上强度的厄尔尼诺事件。
+依托上游材料优势，当地企业开始推动下游制品向汽车、轨道交通等多领域延伸。
 
-按照历史经验，厄尔尼诺现象发生当年，国内北方大部分地区和华中东北部地区夏季高温天数或较往年增多。
+吉林市素有“中国碳谷”之称。
 
-▍近30年国内发生5次厄尔尼诺现象，多数情况下对火电耗煤需求都有提振。
+经过多年深耕培育，该市现已形成从丙烯腈原料到复合材料制品的全链条完整产业链，产业协同创新、成本管控等核心竞争力不断增强。
 
 ## 相关推荐
 
-- 2026-06-30 04:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 04:29 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 04:48 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 04:25 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 04:37 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 04:39 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 04:41 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 04:28 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 04:36 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 04:33 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 04:24 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 04:46 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 04:44 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 04:35 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 04:30 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 04:47 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 04:58 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 04:52 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-30 04:48 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 04:50 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 04:37 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 04:40 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:30 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/314670036405.shtml)
-- 2026-06-30 04:47 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/9404571592.shtml)
-- 2026-06-30 04:41 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/475836.shtml)
-- 2026-06-30 04:40 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/884965339.shtml)
-- 2026-06-30 04:46 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/7828658.shtml)
-- 2026-06-30 04:32 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/39074.shtml)
-- 2026-06-30 04:27 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/99652.shtml)
-- 2026-06-30 04:36 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/59390663171.shtml)
-- 2026-06-30 04:51 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/7785283.shtml)
-- 2026-06-30 04:30 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/415881.shtml)
-- 2026-06-30 04:48 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/22972.shtml)
-- 2026-06-30 04:41 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/97978120.shtml)
-- 2026-06-30 04:38 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/27968.shtml)
-- 2026-06-30 04:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/2672104.shtml)
-- 2026-06-30 04:39 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/482196715.shtml)
+- 2026-06-30 04:44 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/35196814397.shtml)
+- 2026-06-30 04:54 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/62483.shtml)
+- 2026-06-30 04:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/976293814016.shtml)
+- 2026-06-30 04:55 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/2818876246.shtml)
+- 2026-06-30 04:49 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/5620110.shtml)
+- 2026-06-30 04:54 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/60799140.shtml)
+- 2026-06-30 04:47 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/158122694554.shtml)
+- 2026-06-30 04:49 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/95956.shtml)
+- 2026-06-30 04:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/383052077525.shtml)
+- 2026-06-30 04:44 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/68987383.shtml)
+- 2026-06-30 04:33 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/290424245.shtml)
+- 2026-06-30 04:42 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/294052.shtml)
+- 2026-06-30 04:35 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/73062410999.shtml)
+- 2026-06-30 04:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/1575150.shtml)
+- 2026-06-30 04:58 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/1669840.shtml)

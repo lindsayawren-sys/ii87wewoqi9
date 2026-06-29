@@ -1,56 +1,61 @@
-# 小心“毒包裹”！这三类非法寄递正盯上你的快递
+# 3024个全国五一劳动奖将集中获表彰
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-守好这条“便民线” 一件件包裹联通千家万户，寄递行业如今已成为经济社会运转的“大动脉”。2026年一季度，我国邮政行业寄递业务量累计完成519亿件，同比增长4.5%。其中，快递业务量累计完成477.3亿件，同比增长5.8%。寄递行业已经成为名副其实的“便民线”，但这条“便民线”也被少数不法分子觊觎。他们企图将寄递渠道变成反宣渗透、窃取敏感物项的隐蔽通道，对国家安全构成威胁。 三
+中新网北京4月27日电 (记者 余湛奕)“五一”国际劳动节即将到来。记者27日从中华全国总工会获悉，全国总工会将于4月28日召开庆祝“五一”国际劳动节暨全国五一劳动奖表彰大会，届时将表彰全国五一劳动奖3024个，其中全国五一劳动奖状379个、全国五一劳动奖章1462名、全国工人先锋号1183个。今年1月，全国总工会修订《全国五一劳动奖评选表彰管理办法》，充分体现《国家功勋荣誉表
 
 ## 正文
 
-守好这条“便民线” 一件件包裹联通千家万户，寄递行业如今已成为经济社会运转的“大动脉”。
+中新网北京4月27日电 (记者 余湛奕)“五一”国际劳动节即将到来。
 
-2026年一季度，我国邮政行业寄递业务量累计完成519亿件，同比增长4.5%。
+记者27日从中华全国总工会获悉，全国总工会将于4月28日召开庆祝“五一”国际劳动节暨全国五一劳动奖表彰大会，届时将表彰全国五一劳动奖3024个，其中全国五一劳动奖状379个、全国五一劳动奖章1462名、全国工人先锋号1183个。
 
-其中，快递业务量累计完成477.3亿件，同比增长5.8%。
+今年1月，全国总工会修订《全国五一劳动奖评选表彰管理办法》，充分体现《国家功勋荣誉表彰条例》等有关规定的新要求，在名称表述上，将全国五一劳动奖状、奖章、先锋号统称为“全国五一劳动奖”。
 
-寄递行业已经成为名副其实的“便民线”，但这条“便民线”也被少数不法分子觊觎。
+此外，在名额比例上，对受表彰的女职工个人、集体分别授予全国五一劳动奖章(全国五一巾帼标兵)、全国工人先锋号(全国五一巾帼标兵岗)称号，数量要达到一定比例。
 
-他们企图将寄递渠道变成反宣渗透、窃取敏感物项的隐蔽通道，对国家安全构成威胁。
+据悉，今年受表彰的先进集体和个人，主要有三个方面的特点：一是面向基层一线。
 
-三类常见风险要警惕 ——警惕非法出版物流入。
+奖章表彰对象中，产业工人、其他一线职工和专业技术人员962名，占比近三分之二。
 
-境外反华敌对势力企图通过电商下单、包裹夹带、批量盲投等方式，让境外非法出版物搭乘“寄递便车”，非法进入境内传播。
+外卖配送员等新就业形态劳动者占一定比例；先锋号表彰对象中，班组(科室)922个，占比超过四分之三。
 
-这类邮寄行为，早已超出正常商品交易和文化传播的范畴，背后包藏的是破坏政治安全、煽动民族仇恨、宣扬邪教迷信、传播有害信息的“祸心”。
+二是突出重点领域。
 
 ## 相关推荐
 
-- 2026-06-30 04:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 04:31 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 04:28 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 04:49 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 04:48 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 04:32 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 04:27 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 04:29 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 04:53 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 04:43 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 04:30 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 04:54 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 04:34 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 04:59 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 04:39 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 04:56 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 04:41 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 04:56 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 04:44 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 04:45 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 04:43 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 04:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 04:49 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 04:39 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 04:54 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:28 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/11326860.shtml)
-- 2026-06-30 04:30 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/524440639292.shtml)
-- 2026-06-30 04:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/040110854223.shtml)
-- 2026-06-30 04:32 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/171769.shtml)
-- 2026-06-30 04:49 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/00626.shtml)
-- 2026-06-30 04:51 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/55293.shtml)
-- 2026-06-30 04:47 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/0928698235.shtml)
-- 2026-06-30 04:45 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/640895562352.shtml)
-- 2026-06-30 04:50 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/4548409.shtml)
-- 2026-06-30 04:42 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/98309145243.shtml)
-- 2026-06-30 04:37 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/638313899.shtml)
-- 2026-06-30 04:47 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/3316813.shtml)
-- 2026-06-30 04:49 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/79901.shtml)
-- 2026-06-30 04:42 - [沙丘](http://www.share.minike.top/Article/details/976579729966.shtml)
-- 2026-06-30 04:47 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/5793960372.shtml)
+- 2026-06-30 04:38 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/6868644.shtml)
+- 2026-06-30 04:42 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/99436573.shtml)
+- 2026-06-30 04:52 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/78392048110.shtml)
+- 2026-06-30 04:44 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/50573.shtml)
+- 2026-06-30 04:58 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/2578106.shtml)
+- 2026-06-30 04:45 - [巴西绝杀](https://www.share.minike.top/Article/details/03424759967.shtml)
+- 2026-06-30 04:48 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/80114.shtml)
+- 2026-06-30 04:54 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/888463005664.shtml)
+- 2026-06-30 04:33 - [房价什么时候能涨](http://www.share.minike.top/Article/details/0286195171.shtml)
+- 2026-06-30 04:50 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/999171373718.shtml)
+- 2026-06-30 04:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/192107072.shtml)
+- 2026-06-30 04:47 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/62346.shtml)
+- 2026-06-30 04:39 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/312583.shtml)
+- 2026-06-30 04:57 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/91920.shtml)
+- 2026-06-30 04:43 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/38011801.shtml)

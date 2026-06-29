@@ -1,55 +1,50 @@
-# 国民技术早盘涨超10% 发布N32H493主控芯片适配800G/1.6T光模块
+# 日本3月核心CPI同比上涨1.8%
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-国民技术（02701）早盘涨超10%，截至发稿，股价上涨10.25%，现报13.77港元，成交额3.78亿港元。 近日，国民技术通过官方公众号正式发布面向800G/1.6T光模块的专属主控芯片N32H493，该芯片为公司针对下一代高速光模块深度自研的专用主控产品，精准匹配数据中心、AI服务器、智算中心等对算力与传输有高要求的核心场景。 另外，国民技术此前宣布，拟于4月23日举行
+日本政府周五公布的数据显示，日本3月份核心消费者价格指数（CPI）同比上涨1.8%。 该指数包含石油产品价格，但不包括生鲜食品价格，与经济学家此前预测的1.8%的年涨幅中值基本一致。 剔除生鲜食品和能源价格的影响后，3月份“核心的核心”CPI同比上涨了2.4%。责任编辑：于健 SF069
 
 ## 正文
 
-国民技术（02701）早盘涨超10%，截至发稿，股价上涨10.25%，现报13.77港元，成交额3.78亿港元。
+日本政府周五公布的数据显示，日本3月份核心消费者价格指数（CPI）同比上涨1.8%。
 
-近日，国民技术通过官方公众号正式发布面向800G/1.6T光模块的专属主控芯片N32H493，该芯片为公司针对下一代高速光模块深度自研的专用主控产品，精准匹配数据中心、AI服务器、智算中心等对算力与传输有高要求的核心场景。
+该指数包含石油产品价格，但不包括生鲜食品价格，与经济学家此前预测的1.8%的年涨幅中值基本一致。
 
-另外，国民技术此前宣布，拟于4月23日举行董事会会议审批第一季度业绩。
+剔除生鲜食品和能源价格的影响后，3月份“核心的核心”CPI同比上涨了2.4%。
 
-根据最新曝光的涨价函显示，国产芯片厂商国民技术已于3月26日向客户发出了价格调整通知函，宣布将自2026年4月7日起，对部分产品价格进行15%-20%的上调。
-
-责任编辑：卢昱君
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 04:26 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 04:35 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 04:40 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 04:33 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 04:24 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 04:34 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 04:47 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 04:32 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 04:43 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 04:49 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 04:31 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 04:32 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 04:36 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 04:32 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 04:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 04:52 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 04:39 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 04:41 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 04:42 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 04:34 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 04:32 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 04:58 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 04:58 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 04:39 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 04:33 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-30 04:30 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 04:44 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/974690.shtml)
-- 2026-06-30 04:39 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/85287.shtml)
-- 2026-06-30 04:27 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/00871951.shtml)
-- 2026-06-30 04:40 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/84964398.shtml)
-- 2026-06-30 04:34 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/647190298.shtml)
-- 2026-06-30 04:44 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/17172849166.shtml)
-- 2026-06-30 04:53 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/38438.shtml)
-- 2026-06-30 04:39 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/4268938.shtml)
-- 2026-06-30 04:33 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/659700678.shtml)
-- 2026-06-30 04:50 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/92372201657.shtml)
-- 2026-06-30 04:37 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/8235936.shtml)
-- 2026-06-30 04:43 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/026355.shtml)
-- 2026-06-30 04:46 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/4621755.shtml)
-- 2026-06-30 04:45 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/7255950.shtml)
-- 2026-06-30 04:44 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/5312406591.shtml)
+- 2026-06-30 04:41 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/044794546722.shtml)
+- 2026-06-30 04:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/8306154.shtml)
+- 2026-06-30 04:35 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/288076.shtml)
+- 2026-06-30 04:32 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/9023352914.shtml)
+- 2026-06-30 04:50 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/6124549.shtml)
+- 2026-06-30 04:43 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/75346099.shtml)
+- 2026-06-30 04:32 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/2305715.shtml)
+- 2026-06-30 04:53 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/307006204765.shtml)
+- 2026-06-30 04:52 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/5216187194.shtml)
+- 2026-06-30 04:56 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/969143.shtml)
+- 2026-06-30 04:54 - [恋与深空 日服](https://www.share.minike.top/Article/details/758237965640.shtml)
+- 2026-06-30 04:50 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/1352815862.shtml)
+- 2026-06-30 04:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/86598464.shtml)
+- 2026-06-30 04:39 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/1584340.shtml)
+- 2026-06-30 04:56 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/8702035799.shtml)

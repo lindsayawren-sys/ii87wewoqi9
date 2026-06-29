@@ -1,54 +1,58 @@
-# 中柬外长、防长“2+2”战略对话首次会议达成六点共识
+# 可致烫伤、中毒！玩拼豆千万警惕这些安全隐患
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-当地时间2026年4月23日，中共中央政治局委员、外交部长王毅向媒体介绍了中柬外长、防长“2+2”战略对话首次会议达成的六点共识： 一是双方同意坚定相互支持，重在支持对方维护好核心利益。中方赞赏柬方重申坚定恪守一个中国原则，支持中国统一大业，支持习近平主席提出的重大全球倡议。 二是双方同意深化互利合作，重在帮助柬加快提高自主发展能力，特别是聚焦“工业发展走廊”“鱼米走廊”建设，
+每周质量报告丨可致烫伤、中毒！玩拼豆千万警惕这些安全隐患 五彩斑斓的塑料小豆，经过简单拼摆、高温熨烫，就能变身成为精美的卡通挂件或立体摆件。近期，一种名为“拼豆”的手作玩具火遍了朋友圈，不仅孩子们爱不释手，很多成年人也将其视为“解压神器”。然而，这种看似治愈系的新兴玩具真的安全吗？ 今年3月，在山西运城，一名小女孩家中的摄像头就记录了拼豆玩具配套熨斗起火的过程。监控画面显示，事
 
 ## 正文
 
-当地时间2026年4月23日，中共中央政治局委员、外交部长王毅向媒体介绍了中柬外长、防长“2+2”战略对话首次会议达成的六点共识： 一是双方同意坚定相互支持，重在支持对方维护好核心利益。
+每周质量报告丨可致烫伤、中毒！
 
-中方赞赏柬方重申坚定恪守一个中国原则，支持中国统一大业，支持习近平主席提出的重大全球倡议。
+玩拼豆千万警惕这些安全隐患 五彩斑斓的塑料小豆，经过简单拼摆、高温熨烫，就能变身成为精美的卡通挂件或立体摆件。
 
-二是双方同意深化互利合作，重在帮助柬加快提高自主发展能力，特别是聚焦“工业发展走廊”“鱼米走廊”建设，推进扶南德佐综合水利项目这一战略性工程。
+近期，一种名为“拼豆”的手作玩具火遍了朋友圈，不仅孩子们爱不释手，很多成年人也将其视为“解压神器”。
 
-三是双方同意加强政治安全合作，重在维护各自政权安全和制度安全，携手抵御外部渗透，防范“颜色革命”。
+然而，这种看似治愈系的新兴玩具真的安全吗？
 
-四是双方同意加强执法合作，重在坚决彻底打击网赌电诈，维护人民群众生命和财产安全，为中柬合作营造良好外部环境。
+今年3月，在山西运城，一名小女孩家中的摄像头就记录了拼豆玩具配套熨斗起火的过程。
 
-五是双方同意加强防务合作，重在协助柬加快国防能力建设，维护好自身主权、安全和发展利益。
+监控画面显示，事发时，小女孩正在将拼好的图案进行熨烫。
 
-六是双方同意加强在国际和地区事务中协调配合，重在反对强权政治和霸凌行径，维护全球自由贸易，支持联合国发挥应有作用。
+突然，熨斗起火，火花四溅，小女孩虽然及时拔了电源，手仍然被烫伤了。
+
+记者近日随机网购了两款拼豆玩具，价格在30元以下，送往试验室进行检测。
 
 ## 相关推荐
 
-- 2026-06-30 04:49 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 04:48 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 04:49 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 04:34 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 04:49 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 04:47 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 04:27 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 04:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 04:37 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 04:48 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 04:33 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 04:47 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 04:34 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 04:46 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 04:46 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 04:33 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 04:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 04:41 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 04:38 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 04:54 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 04:50 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 04:40 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:48 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/94656271.shtml)
-- 2026-06-30 04:37 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/4695193.shtml)
-- 2026-06-30 04:26 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/19526810.shtml)
-- 2026-06-30 04:41 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/212522628.shtml)
-- 2026-06-30 04:34 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/916428606345.shtml)
-- 2026-06-30 04:53 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/690539312954.shtml)
-- 2026-06-30 04:51 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/83416873587.shtml)
-- 2026-06-30 04:48 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/0503750380.shtml)
-- 2026-06-30 04:52 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/62098.shtml)
-- 2026-06-30 04:40 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/9305438313.shtml)
-- 2026-06-30 04:36 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/9918354.shtml)
-- 2026-06-30 04:32 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/693365629475.shtml)
-- 2026-06-30 04:49 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/9128742903.shtml)
-- 2026-06-30 04:50 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/0888818966.shtml)
-- 2026-06-30 04:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/95661.shtml)
+- 2026-06-30 04:37 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/18251605255.shtml)
+- 2026-06-30 04:52 - [点菜也要教吗](https://www.blog.minike.top/Article/details/633473769212.shtml)
+- 2026-06-30 04:52 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/200519.shtml)
+- 2026-06-30 04:39 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/1202990552.shtml)
+- 2026-06-30 04:57 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/5362586712.shtml)
+- 2026-06-30 04:31 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/29859980096.shtml)
+- 2026-06-30 04:36 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/544855.shtml)
+- 2026-06-30 04:58 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/06185054.shtml)
+- 2026-06-30 04:56 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/71239.shtml)
+- 2026-06-30 04:52 - [巴西扳平比分](http://www.share.minike.top/Article/details/868299.shtml)
+- 2026-06-30 04:57 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/29230.shtml)
+- 2026-06-30 04:41 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/15692.shtml)
+- 2026-06-30 04:42 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/284018210.shtml)
+- 2026-06-30 04:31 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/97977785.shtml)
+- 2026-06-30 04:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/032849646639.shtml)

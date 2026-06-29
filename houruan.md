@@ -1,61 +1,55 @@
-# 长江有色：美伊和谈生变及AI 半导体狂欢提振 23日锡价或上涨
+# 小摩：ASMPT给予“增持”评级 目标价上升至175港元
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-期货市场：美股全线走强AI 半导体狂欢引爆 “算力金属”，隔夜伦锡收涨2%；最新收盘报50595美元/吨，上涨990美元，涨幅为2%，成交量为282手，持仓量21187万手；国内方面，夜盘沪期锡高位震荡运行，尾盘小幅收涨。主力合约沪锡2605收报394040元/吨，上涨2410元，涨幅报0.62%。 伦敦金属交易所（LME）4月22日伦锡库存量8840吨，较前一交易日库存量增加
+摩根大通发布研报称，ASMPT（00522）今年首季业绩及次季指引，均远高于市场预期，主要受惠于半导体及表面贴装技术（SMT）收入强劲，以及半导体毛利率改善。小摩预计，ASMPT今年收入增长约30%至40%，因其先进封装持续扩张，以及AI服务器电路板及电源管理IC带动主流半导体和SMT解决方案强劲复苏。故上调今明两年每股盈利预测35%及21%，目标价由130港元升至175港元，
 
 ## 正文
 
-期货市场：美股全线走强AI 半导体狂欢引爆 “算力金属”，隔夜伦锡收涨2%；最新收盘报50595美元/吨，上涨990美元，涨幅为2%，成交量为282手，持仓量21187万手；国内方面，夜盘沪期锡高位震荡运行，尾盘小幅收涨。
+摩根大通发布研报称，ASMPT（00522）今年首季业绩及次季指引，均远高于市场预期，主要受惠于半导体及表面贴装技术（SMT）收入强劲，以及半导体毛利率改善。
 
-主力合约沪锡2605收报394040元/吨，上涨2410元，涨幅报0.62%。
+小摩预计，ASMPT今年收入增长约30%至40%，因其先进封装持续扩张，以及AI服务器电路板及电源管理IC带动主流半导体和SMT解决方案强劲复苏。
 
-伦敦金属交易所（LME）4月22日伦锡库存量8840吨，较前一交易日库存量增加580吨。
+故上调今明两年每股盈利预测35%及21%，目标价由130港元升至175港元，给予“增持”评级。
 
-长江锡业网讯：今日沪锡期货全线高开，主力月2605合约开盘报392060元/吨涨430元/吨，9：15分沪锡主力2605合约报393530元/吨，上涨1900元，涨幅为0.49%，沪期锡高开后呈现高位震荡运行；宏观面：隔夜伦锡收涨 2% 领涨工业金属，核心驱动来自四重利好叠加。
+该行认为，公司未来几季有数个催化剂推动股价上涨包括积压的HBM4订单，可能在SK海力士解决其Rubin芯片的逻辑基板挑战后，于今年下半年获得释放； 同时，公司正与所有DRAM制造商就HBM4E TCB的认证合作进行广泛磋商等。
 
-一是特朗普宣布将美伊停火延长至 4 月 25 日，地缘冲突升级担忧大幅缓解，全球风险偏好显著回升，LME 金属全线普涨。
-
-二是今日美欧英德法多国 4 月制造业 PMI 密集发布，市场提前交易制造业边际复苏预期。
-
-三是布伦特原油重回 100 美元 / 桶上方，能源价格飙升直接推高锡冶炼及运输成本，形成刚性支撑。
-
-四是费城半导体指数连涨 16 个交易日创历史纪录，AI 光模块、服务器焊料需求爆发，引爆 “算力金属” 锡的估值修复，叠加 COMEX 铜库存创历史新高，资金加速轮动至估值偏低的锡市。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:37 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 04:31 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 04:43 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 04:45 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 04:47 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 04:28 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 04:44 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 04:49 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 04:39 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 04:25 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 04:43 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 04:28 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 04:36 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 04:28 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 04:29 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 04:57 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 04:48 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 04:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 04:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 04:50 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 04:37 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 04:41 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 04:31 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 04:34 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 04:40 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 04:44 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 04:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 04:34 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 04:39 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 04:39 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:49 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/968141.shtml)
-- 2026-06-30 04:47 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/4801489.shtml)
-- 2026-06-30 04:49 - [时光音乐会](https://www.blog.minike.top/Article/details/62829975.shtml)
-- 2026-06-30 04:49 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/210467245881.shtml)
-- 2026-06-30 04:31 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/96740.shtml)
-- 2026-06-30 04:47 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/990996673778.shtml)
-- 2026-06-30 04:42 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/5110868.shtml)
-- 2026-06-30 04:27 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/40680.shtml)
-- 2026-06-30 04:26 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/619369514476.shtml)
-- 2026-06-30 04:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/31717107.shtml)
-- 2026-06-30 04:49 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/6744251.shtml)
-- 2026-06-30 04:33 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/116095207.shtml)
-- 2026-06-30 04:34 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/945100401.shtml)
-- 2026-06-30 04:26 - [一生一世](http://www.share.kurohicncr.top/Article/details/387550.shtml)
-- 2026-06-30 04:34 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/8961560.shtml)
+- 2026-06-30 04:33 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/157058842.shtml)
+- 2026-06-30 04:42 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/901174.shtml)
+- 2026-06-30 04:48 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/25241.shtml)
+- 2026-06-30 04:43 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/04568316974.shtml)
+- 2026-06-30 04:48 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/7349360.shtml)
+- 2026-06-30 04:31 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/53552762.shtml)
+- 2026-06-30 04:51 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/395085104.shtml)
+- 2026-06-30 04:56 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/63593958410.shtml)
+- 2026-06-30 04:43 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/20861157.shtml)
+- 2026-06-30 04:48 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/29645.shtml)
+- 2026-06-30 04:46 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/64345102.shtml)
+- 2026-06-30 04:56 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/07857.shtml)
+- 2026-06-30 04:48 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/5968287653.shtml)
+- 2026-06-30 04:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/2706207558.shtml)
+- 2026-06-30 04:57 - [日本进球](http://www.blog.minike.top/Article/details/60424159184.shtml)

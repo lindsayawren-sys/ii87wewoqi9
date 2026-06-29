@@ -1,58 +1,54 @@
-# 涨价拉动快递公司业绩，燃油成本仍成隐忧
+# 浙江杭州：捷克学员拜师国医大师 助力中医文化“出海”
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-除了行业普涨，快递公司也积极通过技术进行降本。 快递行业涨价的影响逐步体现在快递公司财报业绩中。 去年7月以来，多地陆续宣布快递调价。近期多家快递公司发布的2025年年报显示，受去年下半年行业涨价影响，快递价格得到理性回升，行业竞争环境持续向好。 涨价且增效 4月23日，圆通速递发布了2025年年报和2026年一季度财报。 圆通年报显示，公司全年实现营业收入752.8亿元，同比
+发布时间：2026年04月26日 12:25 来源：中国新闻网 4月24日，浙江省杭州中西医结合医院举行国医大师施杞先生收徒拜师仪式暨国医大师施杞传承工作室揭牌仪式。作为第四届国医大师、国家级非物质文化遗产“中医正骨疗法”项目代表性传承人、石氏伤科联盟主席，施杞教授已深耕中医骨伤六十载。此次收徒仪式中，捷克Wuxing中医学院创始人Petr正式成为国医大师施杞的入室弟子。据了解
 
 ## 正文
 
-除了行业普涨，快递公司也积极通过技术进行降本。
+发布时间：2026年04月26日 12:25 来源：中国新闻网 4月24日，浙江省杭州中西医结合医院举行国医大师施杞先生收徒拜师仪式暨国医大师施杞传承工作室揭牌仪式。
 
-快递行业涨价的影响逐步体现在快递公司财报业绩中。
+作为第四届国医大师、国家级非物质文化遗产“中医正骨疗法”项目代表性传承人、石氏伤科联盟主席，施杞教授已深耕中医骨伤六十载。
 
-去年7月以来，多地陆续宣布快递调价。
+此次收徒仪式中，捷克Wuxing中医学院创始人Petr正式成为国医大师施杞的入室弟子。
 
-近期多家快递公司发布的2025年年报显示，受去年下半年行业涨价影响，快递价格得到理性回升，行业竞争环境持续向好。
+据了解，Petr多年前在上海学医后回国创立Wuxing中医学院，将中医文化带回家乡，并于近年邀请家乡的中医爱好者来杭州交流学习。
 
-涨价且增效 4月23日，圆通速递发布了2025年年报和2026年一季度财报。
+如今Petr又在杭州拜师，成为中医文化“走出去”的桥梁。
 
-圆通年报显示，公司全年实现营业收入752.8亿元，同比增长9.05%；归母净利润43.2亿元，同比增长7.73%。
-
-一季度营收为187.7亿元，同比增长10.01%。
-
-归属于上市公司股东的净利润为13.8亿元，同比增长60.76%。
+(王刚） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-30 04:43 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 04:32 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 04:46 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 04:34 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 04:31 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 04:30 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 04:29 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 04:45 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 04:48 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 04:36 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 04:26 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 04:52 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 04:32 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 04:57 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 04:54 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 04:35 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-30 04:41 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 04:37 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 04:31 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 04:48 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 04:49 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 04:50 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 04:50 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 04:32 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/175756865.shtml)
-- 2026-06-30 04:32 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/38684891.shtml)
-- 2026-06-30 04:50 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/567918735.shtml)
-- 2026-06-30 04:47 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/05354.shtml)
-- 2026-06-30 04:46 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/030044519.shtml)
-- 2026-06-30 04:28 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/1320755345.shtml)
-- 2026-06-30 04:40 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/216700641370.shtml)
-- 2026-06-30 04:34 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/78828.shtml)
-- 2026-06-30 04:45 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/74444733.shtml)
-- 2026-06-30 04:30 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/3372654.shtml)
-- 2026-06-30 04:33 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/5564590891.shtml)
-- 2026-06-30 04:27 - [起风了](https://www.blog.kurohicncr.top/Article/details/49701.shtml)
-- 2026-06-30 04:35 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/352958752449.shtml)
-- 2026-06-30 04:49 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/53898551603.shtml)
-- 2026-06-30 04:36 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/33646.shtml)
+- 2026-06-30 04:30 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/0178633886.shtml)
+- 2026-06-30 04:51 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/761847715.shtml)
+- 2026-06-30 04:31 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/2551173.shtml)
+- 2026-06-30 04:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/4019972692.shtml)
+- 2026-06-30 04:59 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/673673171.shtml)
+- 2026-06-30 04:55 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/790431782.shtml)
+- 2026-06-30 04:48 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/26534765380.shtml)
+- 2026-06-30 04:43 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/8232883820.shtml)
+- 2026-06-30 04:45 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/37716759.shtml)
+- 2026-06-30 04:32 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/454066568597.shtml)
+- 2026-06-30 04:56 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/16249406.shtml)
+- 2026-06-30 04:55 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/196561.shtml)
+- 2026-06-30 04:46 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/81113724.shtml)
+- 2026-06-30 04:48 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/84468225332.shtml)
+- 2026-06-30 04:44 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/4360321.shtml)

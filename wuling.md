@@ -1,61 +1,61 @@
-# 美国海军部长费伦据悉因与五角大楼高层发生冲突而被解职
+# 我国拟修订农业法 增加建立粮食安全监测预警制度等内容
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-据知情人士称，美国海军部长约翰·费伦在与五角大楼高层发生冲突后被解职，争执焦点包括特朗普政府重振美国造船业的计划。 因涉及未公开谈话而要求匿名的知情人士透露，费伦与美国国防部长海格塞斯以及国防部副部长史蒂芬·费恩伯格发生争执，涉及特朗普推动的新一代美国“黄金舰队”。一位白宫官员表示，特朗普和海格塞斯都认为，海军需要新的领导层。 五角大楼发言人Sean Parnell在社交媒体平
+中新网北京4月27日电(记者 郭超凯 黄钰钦)农业法修订草案27日提请十四届全国人大常委会首次审议。为保障粮食安全和重要农产品供给，草案明确国家粮食安全战略，增加建立粮食安全监测预警制度、建立政府粮食储备体系、完善粮食应急管理体制等内容。全国人大农业与农村委员会主任委员杜家毫27日受委托对草案作说明。杜家毫表示，此次修订旨在进一步巩固和加强农业在国民经济中的基础地位，坚持大农业
 
 ## 正文
 
-据知情人士称，美国海军部长约翰·费伦在与五角大楼高层发生冲突后被解职，争执焦点包括特朗普政府重振美国造船业的计划。
+中新网北京4月27日电(记者 郭超凯 黄钰钦)农业法修订草案27日提请十四届全国人大常委会首次审议。
 
-因涉及未公开谈话而要求匿名的知情人士透露，费伦与美国国防部长海格塞斯以及国防部副部长史蒂芬·费恩伯格发生争执，涉及特朗普推动的新一代美国“黄金舰队”。
+为保障粮食安全和重要农产品供给，草案明确国家粮食安全战略，增加建立粮食安全监测预警制度、建立政府粮食储备体系、完善粮食应急管理体制等内容。
 
-一位白宫官员表示，特朗普和海格塞斯都认为，海军需要新的领导层。
+全国人大农业与农村委员会主任委员杜家毫27日受委托对草案作说明。
 
-五角大楼发言人Sean Parnell在社交媒体平台X上发帖称，费伦卸任“即刻生效”，但未说明原因。
+杜家毫表示，此次修订旨在进一步巩固和加强农业在国民经济中的基础地位，坚持大农业观、大食物观，推动农业高质量发展，推进乡村全面振兴，加快建设农业强国，为实现农业农村现代化提供有力法治保障。
 
-Parnell表示，海军副部长Hung Cao将担任代理部长。
+为保障粮食安全和重要农产品供给，草案明确国家粮食安全战略，健全粮食主产区利益补偿机制和粮食生产者收益保障机制，增加建立粮食安全监测预警制度、建立政府粮食储备体系、完善粮食应急管理体制等内容。
 
-自伊朗战事爆发以来，费伦只是五角大楼近期离职的最新一位高官。
+草案明确落实大食物观，构建多元化食物供给体系，将“林业”修改为“林草业”，增加发展粮食和棉、油、糖、蔬菜等农产品及饲草饲料生产，发展经济林和林下经济、保障畜禽养殖用地、发展草原畜牧业、发展食物产业等内容。
 
-本月早些时候，海格塞斯要求陆军参谋长Randy George卸任。
+草案还规定强化农业气象综合监测、农业防灾减灾、动植物疫情监测预警等措施。
 
-作为海军文职负责人，费伦并不直接负责海军在霍尔木兹海峡的行动，预计其离职不会影响相关军事行动。
+加强耕地保护和质量提升，加强高标准农田建设，保护黑土地，治理和利用盐碱地。
 
 ## 相关推荐
 
-- 2026-06-30 04:27 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 04:39 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 04:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 04:39 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 04:28 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 04:42 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 04:30 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 04:49 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 04:41 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 04:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 04:28 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 04:25 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 04:43 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 04:47 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 04:47 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 04:48 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 04:42 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 04:37 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 04:47 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 04:46 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 04:30 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 04:52 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 04:34 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 04:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 04:39 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 04:31 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 04:31 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 04:45 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 04:32 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 04:45 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:52 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/234538.shtml)
-- 2026-06-30 04:49 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/092367998.shtml)
-- 2026-06-30 04:45 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/22844.shtml)
-- 2026-06-30 04:25 - [85花告别古偶](https://www.blog.minike.top/Article/details/3608023690.shtml)
-- 2026-06-30 04:53 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/787625333.shtml)
-- 2026-06-30 04:28 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/30552111357.shtml)
-- 2026-06-30 04:46 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/79345.shtml)
-- 2026-06-30 04:43 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/335188087833.shtml)
-- 2026-06-30 04:43 - [小娘惹](https://www.share.minike.top/Article/details/0827031.shtml)
-- 2026-06-30 04:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/509573.shtml)
-- 2026-06-30 04:51 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/87197.shtml)
-- 2026-06-30 04:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/769664316.shtml)
-- 2026-06-30 04:30 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/84212.shtml)
-- 2026-06-30 04:38 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/523933.shtml)
-- 2026-06-30 04:42 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/59936242058.shtml)
+- 2026-06-30 04:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/9409033064.shtml)
+- 2026-06-30 04:49 - [这一刀 会很帅](https://www.share.minike.top/Article/details/001056392.shtml)
+- 2026-06-30 04:39 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/622827.shtml)
+- 2026-06-30 04:45 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/32237863354.shtml)
+- 2026-06-30 04:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/9833623.shtml)
+- 2026-06-30 04:31 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/293467161727.shtml)
+- 2026-06-30 04:50 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/47964962870.shtml)
+- 2026-06-30 04:56 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/27499.shtml)
+- 2026-06-30 04:31 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/59379072.shtml)
+- 2026-06-30 04:46 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/53247.shtml)
+- 2026-06-30 04:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/242055440056.shtml)
+- 2026-06-30 04:50 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/197843112.shtml)
+- 2026-06-30 04:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/04500.shtml)
+- 2026-06-30 04:42 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/4346384.shtml)
+- 2026-06-30 04:38 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/05883777982.shtml)

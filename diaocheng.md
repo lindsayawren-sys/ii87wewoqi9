@@ -1,60 +1,56 @@
-# 美国海军部长约翰·费伦被解职
+# “不是打穿天山容易，而是天山那头有人民。”——天山胜利隧道，为何让台湾网友“眼热”？
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-中新社华盛顿4月23日电 (记者 陈孟统)美国国防部发言人肖恩·帕内尔22日发表声明称，美国海军部长约翰·费伦(John Phelan)将离职，“立即生效”。海军部副部长高雄(越南裔)将任代理海军部长。 这是美国对伊朗发起军事行动以来，再次调整军方高层人事。4月初，美国陆军参谋长兰迪·乔治(Randy A. George)被宣布“立即退休”。 和兰迪·乔治的离任一样，五角大楼也
+“不是打穿天山容易，而是天山那头有人民。”3月的一天，新疆导游迪丽努尔带着3位台湾游客走南疆环线，途经世界最长的高速公路隧道——天山胜利隧道时，她像往常一样向游客介绍这座“超级工程”。4月12日，她把这段视频发到网上后，引发广泛共鸣。一个普通导游的肺腑之言，为什么能打动那么多人？答案其实很简单，因为她说出了“人民需要什么，工程就该解决什么”。天山胜利隧道之所以让人震撼，不仅在于
 
 ## 正文
 
-中新社华盛顿4月23日电 (记者 陈孟统)美国国防部发言人肖恩·帕内尔22日发表声明称，美国海军部长约翰·费伦(John Phelan)将离职，“立即生效”。
+“不是打穿天山容易，而是天山那头有人民。
 
-海军部副部长高雄(越南裔)将任代理海军部长。
+”3月的一天，新疆导游迪丽努尔带着3位台湾游客走南疆环线，途经世界最长的高速公路隧道——天山胜利隧道时，她像往常一样向游客介绍这座“超级工程”。
 
-这是美国对伊朗发起军事行动以来，再次调整军方高层人事。
+4月12日，她把这段视频发到网上后，引发广泛共鸣。
 
-4月初，美国陆军参谋长兰迪·乔治(Randy A. George)被宣布“立即退休”。
+一个普通导游的肺腑之言，为什么能打动那么多人？
 
-和兰迪·乔治的离任一样，五角大楼也没有给出费伦离职的具体原因。
+答案其实很简单，因为她说出了“人民需要什么，工程就该解决什么”。
 
-对于五角大楼在一个月内两度调整军队高层，美国国会参议院军事委员会资深成员、民主党人杰克·里德表示，五角大楼此举“令人不安”，这表明军方处于“不稳定和失灵”状态，向美国的对手发出了错误的信号。
+天山胜利隧道之所以让人震撼，不仅在于长度，还在于施工难度。
 
-美国防长赫格塞思就任后，推动国防部大规模改革，多名美军高级将领被解职或提前退休，其中包括时任美军参谋长联席会议主席查尔斯·布朗、国家安全局局长兼网络司令部司令蒂莫西·霍、海军作战部长莉萨·弗兰凯蒂以及海岸警卫队司令琳达·费根等。
+单洞长22.13公里，穿越十余条断裂带，施工中要面对高寒、低氧、塌方、岩爆、软岩大变形、突涌水等一连串世界级难题。
 
-(完)
+建设者们用了52个月，把看似不可能的事变成了现实；又通过“三洞+四竖井”的创新模式，把“长隧短打”变成了可能。
 
 ## 相关推荐
 
-- 2026-06-30 04:52 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 04:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 04:30 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 04:53 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 04:49 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 04:50 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 04:37 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 04:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 04:29 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-30 04:38 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 04:30 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 04:34 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 04:35 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 04:44 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 04:38 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 04:30 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 04:55 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 04:40 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 04:46 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 04:34 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 04:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 04:41 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 04:46 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 04:38 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:44 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/38811667463.shtml)
-- 2026-06-30 04:34 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/4135583.shtml)
-- 2026-06-30 04:41 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/02766.shtml)
-- 2026-06-30 04:45 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/09990772987.shtml)
-- 2026-06-30 04:28 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/844649277521.shtml)
-- 2026-06-30 04:25 - [《共患难》](http://www.share.kurohicncr.top/Article/details/447847139883.shtml)
-- 2026-06-30 04:51 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/5163816228.shtml)
-- 2026-06-30 04:32 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/898196099242.shtml)
-- 2026-06-30 04:41 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/926030702.shtml)
-- 2026-06-30 04:40 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/3333833.shtml)
-- 2026-06-30 04:45 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/207084.shtml)
-- 2026-06-30 04:46 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/92906083.shtml)
-- 2026-06-30 04:52 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/82000043024.shtml)
-- 2026-06-30 04:42 - [《共患难》](http://www.share.minike.top/Article/details/20437698916.shtml)
-- 2026-06-30 04:48 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/174023.shtml)
+- 2026-06-30 04:58 - [蔚来车主罚站](https://www.share.minike.top/Article/details/9659821.shtml)
+- 2026-06-30 04:34 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/699249348.shtml)
+- 2026-06-30 04:59 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/170803.shtml)
+- 2026-06-30 04:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/11807939547.shtml)
+- 2026-06-30 04:45 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/686006402595.shtml)
+- 2026-06-30 04:30 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/8678949360.shtml)
+- 2026-06-30 04:53 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/168846982577.shtml)
+- 2026-06-30 04:54 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/5796765.shtml)
+- 2026-06-30 04:36 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/82990438.shtml)
+- 2026-06-30 04:53 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/554009108.shtml)
+- 2026-06-30 04:59 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/828940.shtml)
+- 2026-06-30 04:30 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/01822715.shtml)
+- 2026-06-30 04:43 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/48138286.shtml)
+- 2026-06-30 04:47 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/35581573.shtml)
+- 2026-06-30 04:47 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/3321110966.shtml)

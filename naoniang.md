@@ -1,47 +1,59 @@
-# 常熟银行发布2025年度利润分配方案 拟10派1.2元
+# 原油：伊朗局势升级迹象推动油价上涨
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-4月23日金融一线消息，常熟银行发布2025 年年度利润分配及公积金转增股本方案，拟以实施权益分派股权登记日登记的总股本为基数，每股派发现金红利0.12元（含税），以资本公积每股转增0.1股，连同2025年中期已按每股派发现金红利0.15元（含税），2025年全年共计每股派发现金红利0.27元（含税），以资本公积每股转增0.1股。 责任编辑：李琳琳
+由于伊朗战争出现新的升级迹象，令霍尔木兹海峡近期恢复通航的前景变得更加黯淡，原油价格周四上涨。 纽约市场WTI原油期货上涨3.1%，收于每桶96美元附近，盘中一度上涨5.8%。布伦特原油期货收于每桶105美元上方。 油价在全天大部分时间都走势震荡，但在尾盘大幅走高；和平谈判陷入僵局、双方言辞激烈以及军事威胁加剧都给市场注入了更高的地缘政治风险溢价。 伊朗媒体报道称，德黑兰部分地
 
 ## 正文
 
-4月23日金融一线消息，常熟银行发布2025 年年度利润分配及公积金转增股本方案，拟以实施权益分派股权登记日登记的总股本为基数，每股派发现金红利0.12元（含税），以资本公积每股转增0.1股，连同2025年中期已按每股派发现金红利0.15元（含税），2025年全年共计每股派发现金红利0.27元（含税），以资本公积每股转增0.1股。
+由于伊朗战争出现新的升级迹象，令霍尔木兹海峡近期恢复通航的前景变得更加黯淡，原油价格周四上涨。
 
-责任编辑：李琳琳
+纽约市场WTI原油期货上涨3.1%，收于每桶96美元附近，盘中一度上涨5.8%。
+
+布伦特原油期货收于每桶105美元上方。
+
+油价在全天大部分时间都走势震荡，但在尾盘大幅走高；和平谈判陷入僵局、双方言辞激烈以及军事威胁加剧都给市场注入了更高的地缘政治风险溢价。
+
+伊朗媒体报道称，德黑兰部分地区已启动防空系统，以应对“敌对目标”，但未具体说明这些目标是什么。
+
+投资者一直对该地区能源基础设施可能再次遭到袭击的前景感到不安，此前以色列在周四表示准备恢复对伊朗的攻击。
+
+由于美国和伊朗双方都在封锁霍尔木兹海峡，船东们也看到越来越多的证据表明穿越这条重要的水道并不安全。
+
+周四早些时候，美国总统特朗普在社交媒体上发帖称，他已下令美国海军“射杀”在霍尔木兹海峡布雷的船只。
 
 ## 相关推荐
 
-- 2026-06-30 04:32 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 04:30 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 04:52 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-30 04:29 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 04:54 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 04:45 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 04:45 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 04:43 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 04:26 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 04:24 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 04:53 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 04:32 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 04:34 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 04:39 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 04:37 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 04:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 04:56 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 04:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 04:58 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 04:48 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 04:32 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 04:59 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 04:33 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 04:55 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 04:46 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 04:51 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:26 - [沙丘](https://www.share.kurohicncr.top/Article/details/12527042410.shtml)
-- 2026-06-30 04:49 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/0962139.shtml)
-- 2026-06-30 04:24 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/48276.shtml)
-- 2026-06-30 04:52 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/743504745.shtml)
-- 2026-06-30 04:34 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/52737584114.shtml)
-- 2026-06-30 04:35 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/8514657768.shtml)
-- 2026-06-30 04:39 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/42837.shtml)
-- 2026-06-30 04:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/53686.shtml)
-- 2026-06-30 04:48 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/21455853842.shtml)
-- 2026-06-30 04:46 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/2979778.shtml)
-- 2026-06-30 04:24 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/16380623.shtml)
-- 2026-06-30 04:28 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/096121002051.shtml)
-- 2026-06-30 04:38 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/425117.shtml)
-- 2026-06-30 04:35 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/715861282375.shtml)
-- 2026-06-30 04:27 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/9314866005.shtml)
+- 2026-06-30 04:35 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/551696843677.shtml)
+- 2026-06-30 04:37 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/48161055.shtml)
+- 2026-06-30 04:47 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/37634165496.shtml)
+- 2026-06-30 04:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/0830709007.shtml)
+- 2026-06-30 04:52 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/3795391743.shtml)
+- 2026-06-30 04:54 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/321326.shtml)
+- 2026-06-30 04:40 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/72553070.shtml)
+- 2026-06-30 04:38 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/431569.shtml)
+- 2026-06-30 04:56 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/58906609.shtml)
+- 2026-06-30 04:31 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/7116997854.shtml)
+- 2026-06-30 04:46 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/24371417.shtml)
+- 2026-06-30 04:39 - [一生一世](http://www.share.kurohicncr.top/Article/details/620574277.shtml)
+- 2026-06-30 04:42 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/328039521.shtml)
+- 2026-06-30 04:54 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/5510317.shtml)
+- 2026-06-30 04:42 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/31709.shtml)

@@ -1,56 +1,57 @@
-# 一季度ETF规模增长榜：海富通涨306亿领跑，国泰167亿、永赢146亿紧随，华安、天弘均超70亿
+# 特朗普取消维特科夫与库什纳前往巴基斯坦开展和平谈判的行程
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！张坤、葛兰等最新布局出炉 2026年一季度，ETF市场冷热不均。一面是宽基ETF遭遇资金大撤退，一面是黄金、短融、电网设备等赛道被抢筹。与此同时，新发ETF市场同步降温，与去年同期相比更是“断崖式”下滑，“冰火两重天”贯穿了存量与发行两端。 一、存量端：宽基失血，黄金与主题产品成避风港 宽基ETF是一季
+特朗普总统于周六突然取消其两名首席谈判代表前往巴基斯坦伊斯兰堡的行程，这一举动进一步表明，伊朗与美国在达成停战协议方面仍存在巨大分歧。 美国总统特朗普表示，他在代表团航班即将起飞前紧急叫停此行，并告知伊朗方面，双方可改为通过电话展开谈判。 据伊朗官方媒体报道，伊朗总统在与巴基斯坦总理通电话时表示，只要美国持续对往返伊朗港口的船只实施海上封锁，伊朗就不会重启和平谈判。此次通话发生
 
 ## 正文
 
-专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！
+特朗普总统于周六突然取消其两名首席谈判代表前往巴基斯坦伊斯兰堡的行程，这一举动进一步表明，伊朗与美国在达成停战协议方面仍存在巨大分歧。
 
-张坤、葛兰等最新布局出炉 2026年一季度，ETF市场冷热不均。
+美国总统特朗普表示，他在代表团航班即将起飞前紧急叫停此行，并告知伊朗方面，双方可改为通过电话展开谈判。
 
-一面是宽基ETF遭遇资金大撤退，一面是黄金、短融、电网设备等赛道被抢筹。
+据伊朗官方媒体报道，伊朗总统在与巴基斯坦总理通电话时表示，只要美国持续对往返伊朗港口的船只实施海上封锁，伊朗就不会重启和平谈判。
 
-与此同时，新发ETF市场同步降温，与去年同期相比更是“断崖式”下滑，“冰火两重天”贯穿了存量与发行两端。
+此次通话发生在特朗普取消两名高级谈判代表前往巴基斯坦、计划与伊朗外长会晤的行程之后，这也首次表明，本轮谈判或已被伊朗单方面搁置。
 
-一、存量端：宽基失血，黄金与主题产品成避风港 宽基ETF是一季度资金流出的“重灾区”。
+伊朗官媒报道称，伊朗总统马苏德・佩泽希扬向巴基斯坦领导人表示，伊朗绝不会在施压、威胁与封锁的环境下参与谈判。
 
-华泰柏瑞、易方达、华夏、嘉实旗下的四只沪深300ETF合计缩水近6300亿元，其中华泰柏瑞沪深300ETF单只就缩水2223亿元，易方达沪深300ETF缩水1631亿元，华夏沪深300ETF缩水1384亿元。
+他补充指出，美国的海上封锁加剧了伊朗领导层内部的猜忌与不信任，也与其口头上声称的外交谈判意愿完全相悖。
 
-此外，华泰柏瑞中证A500ETF、南方中证500ETF、华夏中证1000ETF等同样遭遇数百亿元的赎回。
+伊朗官方媒体称，伊朗外交部长阿巴斯・阿拉克齐结束阿曼之行后将返回伊斯兰堡。
 
-与宽基形成鲜明对比的是黄金ETF。
+伊朗代表团其他成员此前已从伊斯兰堡返回德黑兰，围绕 “结束战事” 展开进一步磋商，这批人员将于周日抵达巴基斯坦，与阿拉克齐会合。
 
 ## 相关推荐
 
-- 2026-06-30 04:42 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 04:30 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 04:38 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 04:46 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 04:52 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 04:48 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 04:45 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 04:36 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 04:36 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 04:45 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 04:32 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 04:42 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 04:34 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 04:56 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 04:34 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-30 04:37 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 04:34 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 04:47 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 04:30 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 04:56 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 04:49 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:33 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/2961452460.shtml)
-- 2026-06-30 04:40 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/53291785141.shtml)
-- 2026-06-30 04:29 - [天道](https://www.share.kurohicncr.top/Article/details/9965551.shtml)
-- 2026-06-30 04:39 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/05889585715.shtml)
-- 2026-06-30 04:27 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/54236.shtml)
-- 2026-06-30 04:31 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/87115425.shtml)
-- 2026-06-30 04:47 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/66459779.shtml)
-- 2026-06-30 04:32 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/3101149.shtml)
-- 2026-06-30 04:29 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/47976833.shtml)
-- 2026-06-30 04:38 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/099733.shtml)
-- 2026-06-30 04:35 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/8805513040.shtml)
-- 2026-06-30 04:30 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/8527901.shtml)
-- 2026-06-30 04:39 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/31924346945.shtml)
-- 2026-06-30 04:44 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/981839976113.shtml)
-- 2026-06-30 04:41 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/0893666.shtml)
+- 2026-06-30 04:31 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/820488219563.shtml)
+- 2026-06-30 04:47 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/6273977572.shtml)
+- 2026-06-30 04:43 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/491610830174.shtml)
+- 2026-06-30 04:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/656666585849.shtml)
+- 2026-06-30 04:46 - [明星大侦探第四季](http://www.share.minike.top/Article/details/98762184778.shtml)
+- 2026-06-30 04:50 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/606829.shtml)
+- 2026-06-30 04:39 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/29975966534.shtml)
+- 2026-06-30 04:52 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/46438.shtml)
+- 2026-06-30 04:43 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/300291037229.shtml)
+- 2026-06-30 04:53 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/553747571163.shtml)
+- 2026-06-30 04:45 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/64936.shtml)
+- 2026-06-30 04:31 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/994573.shtml)
+- 2026-06-30 04:36 - [青春环游记第三季](http://www.blog.minike.top/Article/details/14411415586.shtml)
+- 2026-06-30 04:55 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/499368.shtml)
+- 2026-06-30 04:42 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/88639189.shtml)

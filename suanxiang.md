@@ -1,57 +1,51 @@
-# 突发！吃喝板块直线拉升，白酒股集体狂欢！华宝基金食品饮料ETF（515710）上探1.66%，机构继续看好
+# 今年首批旅游市场严重失信主体典型名单公布
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-吃喝板块突发拉升！反映吃喝板块整体走势的食品饮料ETF华宝（515710）开盘短暂低位震荡后突然拉升，盘中场内价格最高涨幅达到1.66%，截至发稿，涨1.29%。 成份股方面，白酒集体大涨。截至发稿，迎驾贡酒强势涨停，老白干酒飙涨超7%，山西汾酒大涨超5%，金种子酒、古井贡酒、今世缘等亦涨幅居前。 消息面上，4月22日晚间，山西汾酒发布2025年年度报告。报告期内，公司实现营业
+旅游市场秩序集中整治工作开展以来，各地依法查办了一批重大案件，并依法依规开展失信主体认定，截至2026年3月底，全国文化和旅游市场共认定失信主体1655个。为落实《国务院办公厅关于进一步加强旅游市场综合监管的通知》有关要求，提升信用监管效能，营造诚信、公平、有序的旅游市场环境，现对旅游市场秩序集中整治严重失信主体典型名单(2026年第一批)予以公布。 (总台央视记者 曹岩 郑玮
 
 ## 正文
 
-吃喝板块突发拉升！
+旅游市场秩序集中整治工作开展以来，各地依法查办了一批重大案件，并依法依规开展失信主体认定，截至2026年3月底，全国文化和旅游市场共认定失信主体1655个。
 
-反映吃喝板块整体走势的食品饮料ETF华宝（515710）开盘短暂低位震荡后突然拉升，盘中场内价格最高涨幅达到1.66%，截至发稿，涨1.29%。
+为落实《国务院办公厅关于进一步加强旅游市场综合监管的通知》有关要求，提升信用监管效能，营造诚信、公平、有序的旅游市场环境，现对旅游市场秩序集中整治严重失信主体典型名单(2026年第一批)予以公布。
 
-成份股方面，白酒集体大涨。
-
-截至发稿，迎驾贡酒强势涨停，老白干酒飙涨超7%，山西汾酒大涨超5%，金种子酒、古井贡酒、今世缘等亦涨幅居前。
-
-消息面上，4月22日晚间，山西汾酒发布2025年年度报告。
-
-报告期内，公司实现营业收入387.18亿元，同比增长7.52%；归属于上市公司股东的净利润为122.46亿元，同比增长0.03%。
-
-公司拟向全体股东每10股派发现金红利65.60元（含税）。
-
-有分析指出，汾酒营收稳增且净利实现正增长，在行业深度调整期尽显龙头的经营韧性，有效巩固了其中长期估值中枢。
+(总台央视记者 曹岩 郑玮玮)
 
 ## 相关推荐
 
-- 2026-06-30 04:28 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 04:26 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 04:31 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 04:38 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 04:26 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 04:26 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 04:40 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 04:32 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 04:54 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 04:39 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 04:50 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 04:55 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 04:34 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 04:55 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 04:42 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 04:37 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 04:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 04:39 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 04:41 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 04:39 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 04:48 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 04:44 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 04:42 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 04:41 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 04:53 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 04:47 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:25 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/411779.shtml)
-- 2026-06-30 04:33 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/191132126.shtml)
-- 2026-06-30 04:31 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/762552045.shtml)
-- 2026-06-30 04:26 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/76739537.shtml)
-- 2026-06-30 04:24 - [时光音乐会](https://www.blog.minike.top/Article/details/6146657748.shtml)
-- 2026-06-30 04:46 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/56710.shtml)
-- 2026-06-30 04:38 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/47921.shtml)
-- 2026-06-30 04:46 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/0115967.shtml)
-- 2026-06-30 04:38 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/2708973723.shtml)
-- 2026-06-30 04:40 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/0998487091.shtml)
-- 2026-06-30 04:35 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/20374200.shtml)
-- 2026-06-30 04:35 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/511013831949.shtml)
-- 2026-06-30 04:33 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/348287555.shtml)
-- 2026-06-30 04:32 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/144203.shtml)
-- 2026-06-30 04:37 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/147482796852.shtml)
+- 2026-06-30 04:54 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/266157.shtml)
+- 2026-06-30 04:44 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/85595.shtml)
+- 2026-06-30 04:35 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/188847549.shtml)
+- 2026-06-30 04:43 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/88556857439.shtml)
+- 2026-06-30 04:41 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/524893.shtml)
+- 2026-06-30 04:44 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/065237061.shtml)
+- 2026-06-30 04:31 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/936449438.shtml)
+- 2026-06-30 04:43 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/1617155.shtml)
+- 2026-06-30 04:49 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/550419931833.shtml)
+- 2026-06-30 04:46 - [速度与激情9](https://www.share.minike.top/Article/details/5313872.shtml)
+- 2026-06-30 04:57 - [月亮](https://www.share.kurohicncr.top/Article/details/94488711106.shtml)
+- 2026-06-30 04:36 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/01629034.shtml)
+- 2026-06-30 04:34 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/768560.shtml)
+- 2026-06-30 04:43 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/547133367.shtml)
+- 2026-06-30 04:44 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/028695706.shtml)

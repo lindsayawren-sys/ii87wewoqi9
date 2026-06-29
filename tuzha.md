@@ -1,57 +1,60 @@
-# 宁银理财成功获配盛合晶微新股 以金融活水助力芯片强国
+# 生态园竟变豪华“住宅式”墓地，售价200万元！总台记者调查
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-先进制程半导体领域的重要公司盛合晶微2026年4月21日上市，首日涨幅289%。宁银理财成功获配盛合晶微新股，旗下8只产品入围，入围产品数量与获配金额在银行理财公司中位列第1。 盛合晶微为国内先进制程封装领军者，国产高端芯片的“重要拼图”。公司由中芯国际与长电科技联合孵化，是国内极少数能为最尖端AI芯片提供封测的企业。如果把芯片制造比作盖房子，盛合晶微就是负责“地基加固”与“楼
+“长春南”“上风上水”“新中式水景艺术园林”……这是位于吉林省四平市伊通满族自治县(以下简称伊通县)的长庚生态园，对外公开销售墓地的营销卖点。 该公墓与周围村屯仅一墙之隔。村民们反映，项目征地之初，对外宣称要开发生态旅游项目。然而时隔近8年，园区却只见墓地，当时承诺的其他生态项目却不见踪影。 长庚生态园宣称占地2300亩，总台记者实地走访调查发现，这里不仅涉嫌违规大面积建设超标
 
 ## 正文
 
-先进制程半导体领域的重要公司盛合晶微2026年4月21日上市，首日涨幅289%。
+“长春南”“上风上水”“新中式水景艺术园林”……这是位于吉林省四平市伊通满族自治县(以下简称伊通县)的长庚生态园，对外公开销售墓地的营销卖点。
 
-宁银理财成功获配盛合晶微新股，旗下8只产品入围，入围产品数量与获配金额在银行理财公司中位列第1。
+该公墓与周围村屯仅一墙之隔。
 
-盛合晶微为国内先进制程封装领军者，国产高端芯片的“重要拼图”。
+村民们反映，项目征地之初，对外宣称要开发生态旅游项目。
 
-公司由中芯国际与长电科技联合孵化，是国内极少数能为最尖端AI芯片提供封测的企业。
+然而时隔近8年，园区却只见墓地，当时承诺的其他生态项目却不见踪影。
 
-如果把芯片制造比作盖房子，盛合晶微就是负责“地基加固”与“楼层连接”的顶级专家。
+长庚生态园宣称占地2300亩，总台记者实地走访调查发现，这里不仅涉嫌违规大面积建设超标豪华墓地，还涉嫌占用部分耕地和林地建墓地。
 
-盛合晶微公司亮点众多：根据招股书，公司是国内首家实现14nm先进制程凸块加工(Bumping)量产的企业；根据第三方研究机构Gartner数据，2024年，盛合晶微位列全球第十大、境内第四大封测企业，在AI等先进制程领域，2024年公司在中国大陆12英寸WLCSP市场占有率为31%，排名第一(信息源：灼识咨询)，在2.5D封装市场的占有率达85%，位居首位，行业地位显著(信息源：灼识咨询)；此外，受益于AI等高性能计算需求的快速增长，公司业务规模持续扩大。
+本该是生态园的地块，为何会变成营利性墓地？
 
-根据招股书，2025年公司实现营收65.21亿元，同比增长38.59%；归母净利润9.23亿元，同比增长331.80%，经营基本面扎实。
+35座建而不售的“祠堂墓”上下两层超30平方米 售价约200万元 长庚生态园距离吉林省长春市不到一小时车程，与其一墙之隔的是四平市伊通县景台镇永久村大成号屯。
 
-宁银理财率先布局打新业务，积极践行金融“五篇大文章”。
+长庚生态园接待人员告诉总台记者，公墓有如意苑、吉祥苑、揽胜苑、泰和苑、锦绣苑5处墓区在售，价格在2万多元到10万元不等，其中，锦绣苑是今年新开的园区。
 
 ## 相关推荐
 
-- 2026-06-30 04:30 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 04:45 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 04:50 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 04:44 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 04:52 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 04:47 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 04:33 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 04:44 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 04:35 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 04:33 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 04:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 04:34 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 04:48 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 04:54 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 04:30 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 04:59 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 04:32 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 04:43 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 04:49 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 04:41 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 04:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 04:53 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 04:44 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 04:35 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 04:39 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:37 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/4057865139.shtml)
-- 2026-06-30 04:43 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/32189.shtml)
-- 2026-06-30 04:35 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/4444427829.shtml)
-- 2026-06-30 04:49 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/39425763459.shtml)
-- 2026-06-30 04:46 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/165945446750.shtml)
-- 2026-06-30 04:32 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/802209849284.shtml)
-- 2026-06-30 04:45 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/96909.shtml)
-- 2026-06-30 04:33 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/610924741.shtml)
-- 2026-06-30 04:36 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/287823362.shtml)
-- 2026-06-30 04:29 - [千香](https://www.blog.minike.top/Article/details/145057934997.shtml)
-- 2026-06-30 04:32 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/61869177657.shtml)
-- 2026-06-30 04:29 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/197582353.shtml)
-- 2026-06-30 04:52 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/9989382282.shtml)
-- 2026-06-30 04:44 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/12833853307.shtml)
-- 2026-06-30 04:36 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/28537.shtml)
+- 2026-06-30 04:37 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/6081440.shtml)
+- 2026-06-30 04:33 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/07214348583.shtml)
+- 2026-06-30 04:54 - [月亮](http://www.share.kurohicncr.top/Article/details/62918454588.shtml)
+- 2026-06-30 04:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/039721342.shtml)
+- 2026-06-30 04:31 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/03818052.shtml)
+- 2026-06-30 04:51 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/270133.shtml)
+- 2026-06-30 04:58 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/56823768.shtml)
+- 2026-06-30 04:57 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/7385925302.shtml)
+- 2026-06-30 04:43 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/53656054.shtml)
+- 2026-06-30 04:35 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/4451300.shtml)
+- 2026-06-30 04:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/85735148.shtml)
+- 2026-06-30 04:55 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/14573163.shtml)
+- 2026-06-30 04:53 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/1806278.shtml)
+- 2026-06-30 04:38 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/879890.shtml)
+- 2026-06-30 04:46 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/31166.shtml)

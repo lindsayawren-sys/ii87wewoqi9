@@ -1,54 +1,58 @@
-# 美中嘉和与妙佑医疗国际正式签署新合作协议
+# 从丹炉传说到海外货架 安徽八公山“磨”出千年豆腐发展新路
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-美中嘉和（02453）发布公告，近期，公司与妙佑医学教育和研究基金会（Mayo Foundation for Medical Education and Research）（妙佑医疗国际）正式签署新合作协议，据此，公司于妙佑医疗国际的合作范围将从肿瘤诊疗的国际化、标准化，进一步拓展至涵盖疾病预防、筛查、康复及长期健康管理的全生命周期健康服务领域。 双方基于既往在质子治疗人才培养
+中新网淮南4月25日电 (谢梦茹 徐梦雨 刘维思)托掌修方、沉刀片薄、叠压细切……近日，走进安徽省淮南市八公山区一家酒店后厨，豆腐制作手艺人申树生正在教“00后”学徒张贝贝制作当地豆腐宴名菜清汤白玉饺和鸡汤菊花盅。 八公山位于淮河之畔，是豆腐的发祥地。这里至今仍流传着淮南王刘安在炼丹中无意间发明豆腐的传说。 “八公山泉水清冽甘甜，富含多种矿物质，用其制作的豆腐质地细腻、豆香浓郁
 
 ## 正文
 
-美中嘉和（02453）发布公告，近期，公司与妙佑医学教育和研究基金会（Mayo Foundation for Medical Education and Research）（妙佑医疗国际）正式签署新合作协议，据此，公司于妙佑医疗国际的合作范围将从肿瘤诊疗的国际化、标准化，进一步拓展至涵盖疾病预防、筛查、康复及长期健康管理的全生命周期健康服务领域。
+中新网淮南4月25日电 (谢梦茹 徐梦雨 刘维思)托掌修方、沉刀片薄、叠压细切……近日，走进安徽省淮南市八公山区一家酒店后厨，豆腐制作手艺人申树生正在教“00后”学徒张贝贝制作当地豆腐宴名菜清汤白玉饺和鸡汤菊花盅。
 
-双方基于既往在质子治疗人才培养、跨境会诊、转诊、医院管理及国际化质控等合作基础，将合作由肿瘤诊疗，拓展至疾病预防、筛查、康复及全生命周期健康管理领域。
+八公山位于淮河之畔，是豆腐的发祥地。
 
-妙佑医疗国际将以远程规划、辅导、现场评估及持续优化等方式，向公司导入其健康管理服务体系、运营标准及临床经验。
+这里至今仍流传着淮南王刘安在炼丹中无意间发明豆腐的传说。
 
-本次合作有助于公司完善前端预防筛查、中端精准诊疗、后端康复管理的全周期服务闭环，提升医疗服务能力、运营效率及患者体验，强化集团核心竞争力，符合公司及全体股东整体利益。
+“八公山泉水清冽甘甜，富含多种矿物质，用其制作的豆腐质地细腻、豆香浓郁，这是制作淮南豆腐宴的先天优势。
 
-责任编辑：卢昱君
+”申树生早已将选豆、泡豆、磨浆等十余道豆腐制作的传统工序烂熟于心。
+
+申树生说，从古代宫廷佳肴到如今百姓餐桌美味，淮南豆腐宴历经千年演变，已形成400多道特色菜品。
+
+其中，清汤白玉饺入选安徽省十大旅游名小吃，凤尾琵琶豆腐虾等菜品更是造型精巧、口感独特。
+
+申树生并不止步于古法，他将豆腐与虾肉融合，用西米包裹馅料，推出低脂低糖的创新料理。
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 04:32 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 04:43 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 04:40 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 04:25 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 04:42 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 04:26 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 04:41 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 04:35 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 04:29 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 04:38 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 04:48 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 04:51 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 04:25 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 04:50 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 04:37 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 04:36 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 04:32 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 04:45 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 04:58 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 04:52 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 04:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 04:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 04:37 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 04:38 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 04:33 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:47 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/48353.shtml)
-- 2026-06-30 04:31 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/446769.shtml)
-- 2026-06-30 04:34 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/45384.shtml)
-- 2026-06-30 04:47 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/1214549368.shtml)
-- 2026-06-30 04:32 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/748731185.shtml)
-- 2026-06-30 04:50 - [张凌赫 客串](https://www.blog.minike.top/Article/details/071275.shtml)
-- 2026-06-30 04:41 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/73974.shtml)
-- 2026-06-30 04:24 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/41902003.shtml)
-- 2026-06-30 04:34 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/4933965128.shtml)
-- 2026-06-30 04:47 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/84196.shtml)
-- 2026-06-30 04:24 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/1590603032.shtml)
-- 2026-06-30 04:40 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/926077495.shtml)
-- 2026-06-30 04:46 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/84580912499.shtml)
-- 2026-06-30 04:26 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/48885.shtml)
-- 2026-06-30 04:24 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/3906710.shtml)
+- 2026-06-30 04:45 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/16818461451.shtml)
+- 2026-06-30 04:38 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/08686399.shtml)
+- 2026-06-30 04:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/898894595923.shtml)
+- 2026-06-30 04:46 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/211167137.shtml)
+- 2026-06-30 04:47 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/42168260.shtml)
+- 2026-06-30 04:36 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/061962.shtml)
+- 2026-06-30 04:41 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/910313900.shtml)
+- 2026-06-30 04:56 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/56045818.shtml)
+- 2026-06-30 04:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/1884234390.shtml)
+- 2026-06-30 04:57 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/6636384594.shtml)
+- 2026-06-30 04:59 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/561118.shtml)
+- 2026-06-30 04:55 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/734301730.shtml)
+- 2026-06-30 04:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/0584152.shtml)
+- 2026-06-30 04:57 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/746834.shtml)
+- 2026-06-30 04:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/9308127.shtml)

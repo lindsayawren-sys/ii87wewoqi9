@@ -1,57 +1,58 @@
-# 光大期货：4月24日能源化工日报
+# 《中国打击侵权假冒工作年度报告(2025)》发布
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周四油价重心上移，其中WTI 6月合约收盘上涨2.89美元至95.85美元/桶，涨幅3.11%。布伦特6月合约收盘上涨3.16美元至105.07美元/桶，涨幅3.10%。SC2606以647.8元/桶收盘，上涨11.7元/桶，涨幅1.84%。美伊双方在霍尔木兹海峡的对峙态势持续加剧，两国均对这条
+中新网4月24日电 国务院新闻办公室24日上午举行新闻发布会，介绍《中国打击侵权假冒工作年度报告(2025)》有关情况，并答记者问。会上，市场监管总局副局长白清元介绍，在第26个世界知识产权日到来之际，国家质量强国建设协调推进领导小组办公室今天发布了《中国打击侵权假冒工作年度报告(2025)》。《报告》梳理了“十四五”时期和2025年中国政府打击侵权假冒工作的新举措、新成效。白
 
 ## 正文
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周四油价重心上移，其中WTI 6月合约收盘上涨2.89美元至95.85美元/桶，涨幅3.11%。
+中新网4月24日电 国务院新闻办公室24日上午举行新闻发布会，介绍《中国打击侵权假冒工作年度报告(2025)》有关情况，并答记者问。
 
-布伦特6月合约收盘上涨3.16美元至105.07美元/桶，涨幅3.10%。
+会上，市场监管总局副局长白清元介绍，在第26个世界知识产权日到来之际，国家质量强国建设协调推进领导小组办公室今天发布了《中国打击侵权假冒工作年度报告(2025)》。
 
-SC2606以647.8元/桶收盘，上涨11.7元/桶，涨幅1.84%。
+《报告》梳理了“十四五”时期和2025年中国政府打击侵权假冒工作的新举措、新成效。
 
-美伊双方在霍尔木兹海峡的对峙态势持续加剧，两国均对这条全球关键航运水道实施封锁，陷入紧张僵持局面，和平谈判短期内毫无重启迹象。
+白清元指出，“十四五”期间，中国政府将打击侵权假冒工作摆在更加突出的位置，制度机制不断完善，执法司法持续强化。
 
-据伊朗方面消息，针对国内多地出现小型无人机，伊朗当晚启动防空系统。
+五年来，行政执法、刑事司法部门持续开展了“铁拳”“清朗”“昆仑”等一系列专项行动，严厉打击侵权假冒违法行为。
 
-据悉，伊朗首都德黑兰及其他几座城市之所以传出防空系统启动的声响，是因为探测到小型无人机，包括以色列“轨道器”型侦察无人机。
+全国版权部门共查处实体市场侵权盗版案件1.28万件，海关共查扣进出口侵权嫌疑货物28.2万批次4亿件，市场监管部门共查处商标侵权、假冒专利案件21.89万件，连续五年举办侵权假冒伪劣商品全国统一销毁行动，涵盖了30大类200多个品种，货值达到27.9亿元。
 
-此外，美国总统特朗普在其社交媒体发文表示，他已下令美国海军，对于任何在霍尔木兹海峡水域布设水雷的船只一律予以开火击沉，绝不容许有丝毫犹豫。
+全国公安机关立案侦办侵权假冒伪劣犯罪案件17万起、抓获犯罪嫌疑人24.7万名；检察机关起诉涉嫌生产、销售伪劣商品犯罪案件4.8万件9.2万人；人民法院共审结知识产权民事、刑事、行政案件277万件。
 
-中东局势再度升级，霍尔木兹海峡形势严峻。
+打击侵权假冒和保护知识产权的社会影响力持续扩大，对违法犯罪行为的震慑力不断强化。
 
 ## 相关推荐
 
-- 2026-06-30 04:27 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 04:28 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 04:50 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 04:24 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 04:26 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 04:46 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 04:27 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 04:46 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 04:32 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 04:46 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 04:51 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 04:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 04:54 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 04:52 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 04:50 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 04:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 04:49 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 04:54 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 04:36 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 04:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 04:35 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 04:37 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 04:57 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:30 - [急先锋](https://www.share.minike.top/Article/details/2350529289.shtml)
-- 2026-06-30 04:28 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/33636173147.shtml)
-- 2026-06-30 04:47 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/291931.shtml)
-- 2026-06-30 04:24 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/52885.shtml)
-- 2026-06-30 04:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/67624.shtml)
-- 2026-06-30 04:47 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/105983656272.shtml)
-- 2026-06-30 04:24 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/3368294.shtml)
-- 2026-06-30 04:27 - [扫黑风暴](https://www.share.minike.top/Article/details/31431476.shtml)
-- 2026-06-30 04:51 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/370498404406.shtml)
-- 2026-06-30 04:40 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/896539292917.shtml)
-- 2026-06-30 04:44 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/435053.shtml)
-- 2026-06-30 04:40 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/2573985.shtml)
-- 2026-06-30 04:42 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/249293.shtml)
-- 2026-06-30 04:33 - [内马尔替补](https://www.blog.minike.top/Article/details/72011230356.shtml)
-- 2026-06-30 04:33 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/533923619562.shtml)
+- 2026-06-30 04:35 - [美人鱼](https://www.share.minike.top/Article/details/3515411.shtml)
+- 2026-06-30 04:48 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/39191033215.shtml)
+- 2026-06-30 04:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/65852160.shtml)
+- 2026-06-30 04:49 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/418540092342.shtml)
+- 2026-06-30 04:44 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/6168506984.shtml)
+- 2026-06-30 04:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/55164114254.shtml)
+- 2026-06-30 04:44 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/55877.shtml)
+- 2026-06-30 04:34 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/99567705604.shtml)
+- 2026-06-30 04:48 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/9238278986.shtml)
+- 2026-06-30 04:54 - [毒液2](http://www.blog.minike.top/Article/details/326467.shtml)
+- 2026-06-30 04:44 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/97833.shtml)
+- 2026-06-30 04:54 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/7675894456.shtml)
+- 2026-06-30 04:35 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/83555071.shtml)
+- 2026-06-30 04:43 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/2065500729.shtml)
+- 2026-06-30 04:41 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/74321.shtml)

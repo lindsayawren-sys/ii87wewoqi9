@@ -1,60 +1,49 @@
-# 香港追责！13 亿港元天价罚单，普华永道为恒大财务造假担责！
+# 北京车展上的老板“串门” 你看懂了吗？
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月23日，香港证监会与香港会财局同步发布处置结果，针对普华永道在中国恒大2019—2020财年审计中的严重失职行为，作出股东赔偿、高额罚款、执业限制、个人追责的组合式处罚。 普华永道同意预留10亿港元专项赔偿恒大独立少数股东，同时被会财局处以3亿港元罚款、6个月执业限制，两名前合伙人合计被罚1000万港元
+发布时间：2026年04月25日 22:07 来源：三里河 雷军、曾毓群、李想、李斌、何小鹏……2026北京车展上，这些平时在发布会上坐C位的企业家不约而同玩“失踪”，跑去了其他展台“串门”互动。你来看我的车，我去看你的电池，生意场上是对手，台下也可以是朋友。车企老板们离开自家展台出去“串门”，不是“摸鱼”而是换了个地方“搞事业”，这也让外界也看到了一个更自信、开放、团结的中国
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月25日 22:07 来源：三里河 雷军、曾毓群、李想、李斌、何小鹏……2026北京车展上，这些平时在发布会上坐C位的企业家不约而同玩“失踪”，跑去了其他展台“串门”互动。
 
-4月23日，香港证监会与香港会财局同步发布处置结果，针对普华永道在中国恒大2019—2020财年审计中的严重失职行为，作出股东赔偿、高额罚款、执业限制、个人追责的组合式处罚。
+你来看我的车，我去看你的电池，生意场上是对手，台下也可以是朋友。
 
-普华永道同意预留10亿港元专项赔偿恒大独立少数股东，同时被会财局处以3亿港元罚款、6个月执业限制，两名前合伙人合计被罚1000万港元。
+车企老板们离开自家展台出去“串门”，不是“摸鱼”而是换了个地方“搞事业”，这也让外界也看到了一个更自信、开放、团结的中国汽车圈。
 
-一、香港证监会：10亿港元专项赔偿，恒大财报造假数据曝光 普华永道为中国恒大2019、2020财年的审计机构，香港证监会调查确认，恒大这两个年度财报存在重大虚假及误导性信息，违规提前确认物业销售收入，大幅夸大收入与利润。
-
-经核实，恒大2019财年经审核收入被夸大2139亿元，虚增44.79%；2020财年被夸大收入3502亿元，虚增69.03%。
-
-对应利润由原本披露的盈利335亿元、314亿元，转为实际亏损71.2亿元、199亿元。
-
-依据协议，普华永道在不承认法律责任前提下，预留10亿港元由独立管理人监督，专项赔付恒大的合资格独立少数股东，履行完毕后证监会不再采取进一步行动。
-
-二、香港会财局：3亿罚款+6个月执业限制，个人同遭追责 香港会财局认定，普华永道在恒大集团、恒大物业、恒大汽车2019—2020年度审计中存在系统性严重缺失：未保持专业怀疑、审计独立性失守、缺乏充分证据仍出具无保留意见、内部管控存在重大缺陷，间接助长恒大财务造假。
+(三里河) 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-30 04:27 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 04:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 04:24 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 04:42 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 04:45 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 04:31 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 04:39 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 04:27 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 04:29 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 04:40 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 04:49 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 04:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 04:46 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 04:50 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 04:39 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 04:59 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 04:51 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 04:35 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 04:59 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 04:41 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 04:38 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 04:42 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 04:55 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 04:39 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 04:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:41 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/7907395951.shtml)
-- 2026-06-30 04:38 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/9309466.shtml)
-- 2026-06-30 04:52 - [刘念回应](http://www.share.kurohicncr.top/Article/details/523896272203.shtml)
-- 2026-06-30 04:43 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/817319.shtml)
-- 2026-06-30 04:44 - [美股](https://www.blog.kurohicncr.top/Article/details/40668323.shtml)
-- 2026-06-30 04:37 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/17995453.shtml)
-- 2026-06-30 04:34 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/2362722.shtml)
-- 2026-06-30 04:39 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/851257022308.shtml)
-- 2026-06-30 04:29 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/44036010.shtml)
-- 2026-06-30 04:30 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/19703474142.shtml)
-- 2026-06-30 04:24 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/48647.shtml)
-- 2026-06-30 04:46 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/47000933.shtml)
-- 2026-06-30 04:42 - [月亮](https://www.blog.kurohicncr.top/Article/details/3714075.shtml)
-- 2026-06-30 04:48 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/459790108.shtml)
-- 2026-06-30 04:44 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/90802480970.shtml)
+- 2026-06-30 04:46 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/22140119908.shtml)
+- 2026-06-30 04:39 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/76648391.shtml)
+- 2026-06-30 04:48 - [日本反击率先破门](https://www.share.minike.top/Article/details/92976868.shtml)
+- 2026-06-30 04:39 - [巴西扳平比分](http://www.blog.minike.top/Article/details/758197587961.shtml)
+- 2026-06-30 04:36 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/8284994.shtml)
+- 2026-06-30 04:44 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/28257346.shtml)
+- 2026-06-30 04:34 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/6794358.shtml)
+- 2026-06-30 04:39 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/098458464960.shtml)
+- 2026-06-30 04:31 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/757005583.shtml)
+- 2026-06-30 04:53 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/86308394.shtml)
+- 2026-06-30 04:33 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/540110.shtml)
+- 2026-06-30 04:36 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/01722816.shtml)
+- 2026-06-30 04:36 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/39431557195.shtml)
+- 2026-06-30 04:42 - [急先锋](https://www.share.kurohicncr.top/Article/details/96322.shtml)
+- 2026-06-30 04:43 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/406743265885.shtml)

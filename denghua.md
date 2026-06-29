@@ -1,59 +1,60 @@
-# ServiceNow因利润率展望不佳股价下跌
+# 中办国办印发《关于加强新就业群体服务管理的意见》 系统性护航新就业形态
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-尽管第一季度销售增长强劲，但ServiceNow由于利润率展望不及预期，股价大幅下挫。 分析师预计这家企业软件公司调整后每股利润为0.97美元。营收同比增长22%，达到37.7亿美元，超出分析师预期。剩余履约义务增长25%，达到277亿美元，表明需求强劲。 投资者关注利润表现。ServiceNow预计全年订阅毛利率为81.5%，低于此前的82.1%。该公司表示，近期的收购导致了
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中共中央办公厅、国务院办公厅近期印发《关于加强新就业群体服务管理的意见》（以下简称《意见》），系统部署新就业群体服务管理工作，从算法规范、社保体系完善、关爱服务与社会融入、制度保障等方面作出系统性制度安排，为全国新就业群体筑牢权益保障底线。 作为数字经济时代的“城市奔跑者”，快递员、外卖骑手、网约车司机等新
 
 ## 正文
 
-尽管第一季度销售增长强劲，但ServiceNow由于利润率展望不及预期，股价大幅下挫。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-分析师预计这家企业软件公司调整后每股利润为0.97美元。
+中共中央办公厅、国务院办公厅近期印发《关于加强新就业群体服务管理的意见》（以下简称《意见》），系统部署新就业群体服务管理工作，从算法规范、社保体系完善、关爱服务与社会融入、制度保障等方面作出系统性制度安排，为全国新就业群体筑牢权益保障底线。
 
-营收同比增长22%，达到37.7亿美元，超出分析师预期。
+作为数字经济时代的“城市奔跑者”，快递员、外卖骑手、网约车司机等新就业群体，是社会主义劳动者的重要组成部分，更是经济社会发展不可或缺的重要力量。
 
-剩余履约义务增长25%，达到277亿美元，表明需求强劲。
+近年来，平台经济蓬勃兴起，新就业形态供需两端持续扩张。
 
-投资者关注利润表现。
+暨南大学经济与社会研究院和智联招聘联合发布的《2025中国新就业形态报告》显示，2025年招聘职位数与求职人数同比分别增长15.1%和11.0%。
 
-ServiceNow预计全年订阅毛利率为81.5%，低于此前的82.1%。
+但快速发展背后，用工不规范、算法不透明、社保覆盖不足、职业认同偏低等痛点日益凸显，成为制约新业态健康发展的瓶颈。
 
-该公司表示，近期的收购导致了这一差距，预计到2027年该差距将缩小。
+“《意见》的出台，是中央为新就业群体量身打造的重要制度安排。
 
-尽管销售仍在增长，但投资者对利润率感到担忧，股价盘后下跌14%。
+”北京社会科学院副研究员王鹏接受证券时报记者采访时表示，新就业群体流动性强、组织化程度低，《意见》既解决了他们最关心的权益保障难题，也为新业态健康发展划定了清晰方向。
 
 ## 相关推荐
 
-- 2026-06-30 04:24 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 04:52 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 04:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 04:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 04:48 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 04:47 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 04:47 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-30 04:53 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 04:33 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 04:48 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 04:43 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 04:45 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 04:52 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 04:45 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 04:30 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 04:45 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 04:38 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 04:55 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 04:38 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 04:33 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 04:34 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 04:52 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 04:32 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 04:59 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 04:42 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 04:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 04:32 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:35 - [逃狱兄弟](https://www.share.minike.top/Article/details/5423353.shtml)
-- 2026-06-30 04:49 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/143529543.shtml)
-- 2026-06-30 04:50 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/3846629713.shtml)
-- 2026-06-30 04:29 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/530218633827.shtml)
-- 2026-06-30 04:24 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/4833100.shtml)
-- 2026-06-30 04:31 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/47024115774.shtml)
-- 2026-06-30 04:43 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/76148.shtml)
-- 2026-06-30 04:24 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/61064976.shtml)
-- 2026-06-30 04:53 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/16862.shtml)
-- 2026-06-30 04:52 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/370888.shtml)
-- 2026-06-30 04:36 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/555077631296.shtml)
-- 2026-06-30 04:50 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/17781981.shtml)
-- 2026-06-30 04:40 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/394281.shtml)
-- 2026-06-30 04:35 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/23300754712.shtml)
-- 2026-06-30 04:40 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/7297856.shtml)
+- 2026-06-30 04:44 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/999953370.shtml)
+- 2026-06-30 04:40 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/0881299661.shtml)
+- 2026-06-30 04:52 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/67131106.shtml)
+- 2026-06-30 04:32 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/322728947.shtml)
+- 2026-06-30 04:47 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/85683589461.shtml)
+- 2026-06-30 04:30 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/456721.shtml)
+- 2026-06-30 04:50 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/315607073315.shtml)
+- 2026-06-30 04:54 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/2968123153.shtml)
+- 2026-06-30 04:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/32449.shtml)
+- 2026-06-30 04:53 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/5720108567.shtml)
+- 2026-06-30 04:35 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/33583.shtml)
+- 2026-06-30 04:42 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/365700.shtml)
+- 2026-06-30 04:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/992329.shtml)
+- 2026-06-30 04:54 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/9458782837.shtml)
+- 2026-06-30 04:51 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/687280.shtml)

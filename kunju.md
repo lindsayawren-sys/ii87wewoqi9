@@ -1,57 +1,54 @@
-# 2026年全国硬地滚球锦标赛在北京开赛
+# 中芯国际，市值冲击6000亿元
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-中新网北京4月25日电 4月24日上午，2026年全国硬地滚球锦标赛在中国残疾人体育运动管理中心开赛。 本次锦标赛由中国残疾人联合会、中国残奥委员会主办，共设6个比赛日，将于4月30日落下帷幕。赛事设置了个人赛、双人赛、团体赛共11个小项，吸引了来自全国9个省、自治区、直辖市的68名运动员、53名工作人员参与，赛事总规模超过200人，是国内硬地滚球项目的高水平竞技与交流平台。
+4月27日午后，中芯国际维持强势，截至发稿，中芯国际A股涨幅达5.33%，报116.87元/股，成交额近百亿，最新总市值达5959亿元。 港股中芯国际此前一度大涨超8%，现涨7%，报68.8港元/股。 今日A股、港股市场上，半导体、芯片板块均大涨。A股方面，芯源微20%涨停，富创精密涨超14%，长川科技（维权）、北方华创、中微公司等均走强。 港股方面，普达特科技大涨超24%，澜
 
 ## 正文
 
-中新网北京4月25日电 4月24日上午，2026年全国硬地滚球锦标赛在中国残疾人体育运动管理中心开赛。
+4月27日午后，中芯国际维持强势，截至发稿，中芯国际A股涨幅达5.33%，报116.87元/股，成交额近百亿，最新总市值达5959亿元。
 
-本次锦标赛由中国残疾人联合会、中国残奥委员会主办，共设6个比赛日，将于4月30日落下帷幕。
+港股中芯国际此前一度大涨超8%，现涨7%，报68.8港元/股。
 
-赛事设置了个人赛、双人赛、团体赛共11个小项，吸引了来自全国9个省、自治区、直辖市的68名运动员、53名工作人员参与，赛事总规模超过200人，是国内硬地滚球项目的高水平竞技与交流平台。
+今日A股、港股市场上，半导体、芯片板块均大涨。
 
-硬地滚球是一项源远流长的体育项目，其起源可追溯至古希腊时期。
+A股方面，芯源微20%涨停，富创精密涨超14%，长川科技（维权）、北方华创、中微公司等均走强。
 
-在1984年残奥会上，它首次成为正式比赛项目。
+港股方面，普达特科技大涨超24%，澜起科技涨超15%。
 
-该项目专为患有严重躯体功能障碍的运动员设计，是一项策略性与观赏性俱佳的体育竞技。
-
-比赛中，运动员们坐在轮椅上，通过直接用手投掷、滚球或借助辅助坡道，精心布局，力求将自己投出的球尽可能靠近白色的目标球。
-
-最终，依据各球距离目标球的远近计算得分，累计得分最高者获胜。
+、
 
 ## 相关推荐
 
-- 2026-06-30 04:30 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 04:37 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 04:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 04:30 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 04:47 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-30 04:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 04:46 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 04:30 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 04:47 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 04:52 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 04:36 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 04:47 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-30 04:52 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 04:52 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 04:52 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 04:30 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 04:49 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 04:56 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 04:46 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 04:43 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 04:35 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 04:37 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 04:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/52199518.shtml)
-- 2026-06-30 04:25 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/586596289923.shtml)
-- 2026-06-30 04:24 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/6477396229.shtml)
-- 2026-06-30 04:39 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/940736.shtml)
-- 2026-06-30 04:28 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/8859267.shtml)
-- 2026-06-30 04:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/6378594.shtml)
-- 2026-06-30 04:35 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/848511.shtml)
-- 2026-06-30 04:31 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/1557573.shtml)
-- 2026-06-30 04:33 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/93588182690.shtml)
-- 2026-06-30 04:36 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/520691578.shtml)
-- 2026-06-30 04:26 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/8457654.shtml)
-- 2026-06-30 04:48 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/4921036.shtml)
-- 2026-06-30 04:40 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/22222860.shtml)
-- 2026-06-30 04:29 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/94070786.shtml)
-- 2026-06-30 04:41 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/26552807.shtml)
+- 2026-06-30 04:37 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/650712.shtml)
+- 2026-06-30 04:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/259397882.shtml)
+- 2026-06-30 04:41 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/183779.shtml)
+- 2026-06-30 04:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/963687066.shtml)
+- 2026-06-30 04:44 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/6847209.shtml)
+- 2026-06-30 04:57 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/854187.shtml)
+- 2026-06-30 04:59 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/0918031263.shtml)
+- 2026-06-30 04:43 - [扫黑风暴](https://www.blog.minike.top/Article/details/535844997753.shtml)
+- 2026-06-30 04:32 - [扬名立万](https://www.share.minike.top/Article/details/33261205394.shtml)
+- 2026-06-30 04:59 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/69349.shtml)
+- 2026-06-30 04:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/658701000764.shtml)
+- 2026-06-30 04:58 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/72329084.shtml)
+- 2026-06-30 04:38 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/803079.shtml)
+- 2026-06-30 04:35 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/046367794567.shtml)
+- 2026-06-30 04:42 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/691525.shtml)

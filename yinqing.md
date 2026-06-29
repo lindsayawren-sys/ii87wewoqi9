@@ -1,54 +1,56 @@
-# 伊朗议员：已从霍尔木兹海峡通行费中获得首笔收入
+# 广西举办残疾人读书日活动 作家现场分享阅读力量
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-伊朗一名议员表示，伊朗已对霍尔木兹海峡征收通行费并获得首笔收入。据伊朗半官方媒体报道，伊朗议会副议长称，从过往该水道的船只收取的款项已存入国库账户。 伊朗尚未公布此次征收通行费的具体金额，此举违反了一项联合国海洋法公约，而伊朗并未批准该公约。 伊朗议会国家安全与外交政策委员会成员透露，伊朗议会及最高安全机构正审议一项方案，以将伊朗对该海峡的管控正式化。责任编辑：何云
+中新网南宁4月23日电(张广权 李卓恒)4月23日，“书香逐梦，桂在阅读”2026年广西残疾人读书日活动在南宁举行。 本次活动由广西壮族自治区残疾人联合会(以下简称“广西残联”)主办，南宁市残疾人联合会承办。 广西残联宣文部主任张朝志在致辞中表示，广西残联始终重视残疾人文化建设，着力补齐阅读资源短板，保障残疾人平等享有阅读权利。他希望残疾人朋友养成良好阅读习惯，在阅读中成长，并
 
 ## 正文
 
-伊朗一名议员表示，伊朗已对霍尔木兹海峡征收通行费并获得首笔收入。
+中新网南宁4月23日电(张广权 李卓恒)4月23日，“书香逐梦，桂在阅读”2026年广西残疾人读书日活动在南宁举行。
 
-据伊朗半官方媒体报道，伊朗议会副议长称，从过往该水道的船只收取的款项已存入国库账户。
+本次活动由广西壮族自治区残疾人联合会(以下简称“广西残联”)主办，南宁市残疾人联合会承办。
 
-伊朗尚未公布此次征收通行费的具体金额，此举违反了一项联合国海洋法公约，而伊朗并未批准该公约。
+广西残联宣文部主任张朝志在致辞中表示，广西残联始终重视残疾人文化建设，着力补齐阅读资源短板，保障残疾人平等享有阅读权利。
 
-伊朗议会国家安全与外交政策委员会成员透露，伊朗议会及最高安全机构正审议一项方案，以将伊朗对该海峡的管控正式化。
+他希望残疾人朋友养成良好阅读习惯，在阅读中成长，并呼吁全社会关注残疾人文化需求，营造残健融合良好氛围。
 
-责任编辑：何云
+随后，图书捐赠仪式举行。
+
+针对南宁市残疾人活动中心盲文书籍短缺的情况，广西残联向该中心捐赠了一批盲文书籍。
+
+阅读分享环节中，视力障碍作家李莹讲述失明后通过阅读重拾信心的经历，如何克服困难开始创作之路；残疾人作家林竹结合自身创作经历，鼓励残疾人用文字表达自我。
+
+对于怀揣文学梦的残疾人朋友，广西作家鬼子建议残疾人朋友从自身出发，不必局限于现实生活，可尝试玄幻等想象类题材。
 
 ## 相关推荐
 
-- 2026-06-30 04:52 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 04:41 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 04:37 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 04:48 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 04:53 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 04:30 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 04:39 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 04:50 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 04:45 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 04:41 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 04:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 04:26 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 04:52 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 04:37 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 04:39 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 04:30 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-30 04:42 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 04:53 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 04:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 04:42 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 04:52 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 04:44 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 04:30 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 04:31 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:50 - [我和我的家乡](https://www.share.minike.top/Article/details/48002.shtml)
-- 2026-06-30 04:44 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/8043755.shtml)
-- 2026-06-30 04:51 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/5462902.shtml)
-- 2026-06-30 04:26 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/5053411935.shtml)
-- 2026-06-30 04:24 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/908218925.shtml)
-- 2026-06-30 04:34 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/1145443634.shtml)
-- 2026-06-30 04:40 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/633398393.shtml)
-- 2026-06-30 04:34 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/7056518954.shtml)
-- 2026-06-30 04:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/1679277572.shtml)
-- 2026-06-30 04:41 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/850299839.shtml)
-- 2026-06-30 04:43 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/9073522.shtml)
-- 2026-06-30 04:46 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/83793.shtml)
-- 2026-06-30 04:53 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/578760253531.shtml)
-- 2026-06-30 04:25 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/82471.shtml)
-- 2026-06-30 04:31 - [世界杯](https://www.share.kurohicncr.top/Article/details/1470097551.shtml)
+- 2026-06-30 04:31 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/2420398.shtml)
+- 2026-06-30 04:30 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/230483704.shtml)
+- 2026-06-30 04:54 - [恋与深空 巧合](https://www.share.minike.top/Article/details/6155966110.shtml)
+- 2026-06-30 04:55 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/3977060.shtml)
+- 2026-06-30 04:46 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/9635110071.shtml)
+- 2026-06-30 04:34 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/18160521.shtml)
+- 2026-06-30 04:31 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/47506668.shtml)
+- 2026-06-30 04:32 - [孙兴慜道歉](http://www.share.minike.top/Article/details/0011566433.shtml)
+- 2026-06-30 04:54 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/685439.shtml)
+- 2026-06-30 04:42 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/57004359561.shtml)
+- 2026-06-30 04:47 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/66192.shtml)
+- 2026-06-30 04:34 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/891850467803.shtml)
+- 2026-06-30 04:36 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/581022.shtml)
+- 2026-06-30 04:43 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/21150457.shtml)
+- 2026-06-30 04:36 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/330315015.shtml)

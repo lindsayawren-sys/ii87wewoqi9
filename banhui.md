@@ -1,58 +1,61 @@
-# 屏山君｜《摆脱贫困》中的读书之道
+# 法治浙江的衢州实践：“小快灵”立法“枝叶总关情”
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-本周一(4月20日)，全国首个“全民阅读活动周”和第五届全民阅读大会同步开启，八闽大地书香氤氲。 “我爱好挺多，最大的爱好是读书，读书已成为我的一种生活方式。”习近平总书记多次在不同场合谈领导干部读书问题。在宁德工作期间，他就对党员干部应当读什么书、如何读书、读书为了什么等关键问题，进行了深邃思考与系统阐释，留下了弥足珍贵的思想财富。 一段时间以来，各地各部门陆续举办了树立和践
+中新网衢州4月27日电 (张斌)2026年4月底，浙江省衢州市人大常委会法工委的工作人员驱车前往该市山区，走访多个乡镇，为该市正在制定的《衢州市气象灾害预警与响应条例(草案修改稿)》听取基层干部和村社意见建议。 “这部地方立法很有意义和特色，一方面直接关系山区老百姓的生命财产安全，一方面制定过程很特别，是跟衢州周边三个省的城市开展区域协同立法。”衢州市人大常委会副秘书长、法工委
 
 ## 正文
 
-本周一(4月20日)，全国首个“全民阅读活动周”和第五届全民阅读大会同步开启，八闽大地书香氤氲。
+中新网衢州4月27日电 (张斌)2026年4月底，浙江省衢州市人大常委会法工委的工作人员驱车前往该市山区，走访多个乡镇，为该市正在制定的《衢州市气象灾害预警与响应条例(草案修改稿)》听取基层干部和村社意见建议。
 
-“我爱好挺多，最大的爱好是读书，读书已成为我的一种生活方式。
+“这部地方立法很有意义和特色，一方面直接关系山区老百姓的生命财产安全，一方面制定过程很特别，是跟衢州周边三个省的城市开展区域协同立法。
 
-”习近平总书记多次在不同场合谈领导干部读书问题。
+”衢州市人大常委会副秘书长、法工委主任张群英近日受访时说。
 
-在宁德工作期间，他就对党员干部应当读什么书、如何读书、读书为了什么等关键问题，进行了深邃思考与系统阐释，留下了弥足珍贵的思想财富。
+衢州地处浙江最西部，地形以山区为主，毗邻的安徽黄山、福建南平、江西上饶亦是如此。
 
-一段时间以来，各地各部门陆续举办了树立和践行正确政绩观学习教育读书班。
+上述立法的意义和背景就在于此——四市地貌相似、上下游关联，突发一场暴雨就可能牵动多地、带来损失。
 
-《摆脱贫困》中关于读书学习的深刻论述，为党员干部治学修身提供了明确方向，对树立和践行正确政绩观具有重要启发。
+通过地方立法，四市将在气象灾害预警标准、响应措施、信息共享、应急联动等方面更加协同。
 
-第31个世界读书日到来之际，让我们再次翻开《摆脱贫困》，一起品读这部光辉著作，感悟蕴藏其中的读书之道。
+去年11月，四市区域协同立法座谈会在衢州举行，同步将相关条例列入四市的2026年立法计划。
 
-学经典原著要 “反复琢磨、深刻领会” 1990年，习近平同志即将离开闽东前往新的工作岗位，临别之际，与宁德地直机关领导干部共勉：“我们一定要反复学习马克思列宁主义的经典原著，反复琢磨、深刻领会。
+最近，《衢州市气象灾害预警与响应条例(草案修改稿)》已进入广泛征求意见环节。
 
 ## 相关推荐
 
-- 2026-06-30 04:35 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 04:45 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 04:46 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-30 04:50 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 04:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 04:54 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 04:42 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 04:25 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 04:29 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 04:45 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 04:43 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 04:38 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 04:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 04:37 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 04:44 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 04:41 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 04:37 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 04:58 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 04:49 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 04:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 04:59 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 04:55 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 04:38 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 04:57 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 04:32 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 04:46 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 04:43 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:42 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/108155002962.shtml)
-- 2026-06-30 04:47 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/819718711432.shtml)
-- 2026-06-30 04:32 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/810180.shtml)
-- 2026-06-30 04:38 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/97765995090.shtml)
-- 2026-06-30 04:53 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/1817132.shtml)
-- 2026-06-30 04:29 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/71102752.shtml)
-- 2026-06-30 04:35 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/437434578243.shtml)
-- 2026-06-30 04:36 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/10803894318.shtml)
-- 2026-06-30 04:45 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/0895574.shtml)
-- 2026-06-30 04:40 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/047147991.shtml)
-- 2026-06-30 04:47 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/39937144.shtml)
-- 2026-06-30 04:46 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/30834.shtml)
-- 2026-06-30 04:36 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/11055.shtml)
-- 2026-06-30 04:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/88378282.shtml)
-- 2026-06-30 04:43 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/73709061.shtml)
+- 2026-06-30 04:53 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/39350623.shtml)
+- 2026-06-30 04:40 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/124139144119.shtml)
+- 2026-06-30 04:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/428315325786.shtml)
+- 2026-06-30 04:34 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/84460122.shtml)
+- 2026-06-30 04:55 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/08784494426.shtml)
+- 2026-06-30 04:56 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/0021229559.shtml)
+- 2026-06-30 04:58 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/87843348.shtml)
+- 2026-06-30 04:58 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/74660.shtml)
+- 2026-06-30 04:33 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/09553347.shtml)
+- 2026-06-30 04:45 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/8270422513.shtml)
+- 2026-06-30 04:35 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/681394.shtml)
+- 2026-06-30 04:30 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/581365817211.shtml)
+- 2026-06-30 04:37 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/2146779.shtml)
+- 2026-06-30 04:38 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/0047638.shtml)
+- 2026-06-30 04:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/453629717367.shtml)

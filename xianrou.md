@@ -1,57 +1,57 @@
-# 欧元区私营部门商业活动意外萎缩 服务业大幅下滑
+# 鲍威尔的“最后一舞”：为“更久不降息”铺路？
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-欧元区商业活动2024年底以来首次意外萎缩，伊朗战争给消费者带来压力，导致服务业大幅下滑。 标普全球编制的综合采购经理人指数（PMI） 4月份降至48.6，跌破50的荣枯分界线。上月数据为50.7，分析师此前预测跌至50.1。 这一趋势与德国类似，该国工业保持稳定，而服务业则大幅下滑。法国制造业表现超出预期，创下2022年以来最佳，但服务业也下滑。整个地区的物价压力持续上升。
+华尔街见闻 本周四，4月FOMC会议降息悬念已无，博弈全在措辞毫厘之间——鹰派表述能否落地、鲍威尔是否迎来“谢幕发布会”、接班人沃什能否在6月前宣誓就任，三重变局叠加核心PCE触近三年新高与油价破百的“烈焰”，美联储政策天平正向“无限期按兵不动”倾斜，降息时间表或彻底消失。 本周四，4月FOMC会议在即，市场不必等待降息悬念揭晓——政策维持不变已是板上钉钉——真正的博弈全然聚焦
 
 ## 正文
 
-欧元区商业活动2024年底以来首次意外萎缩，伊朗战争给消费者带来压力，导致服务业大幅下滑。
+华尔街见闻 本周四，4月FOMC会议降息悬念已无，博弈全在措辞毫厘之间——鹰派表述能否落地、鲍威尔是否迎来“谢幕发布会”、接班人沃什能否在6月前宣誓就任，三重变局叠加核心PCE触近三年新高与油价破百的“烈焰”，美联储政策天平正向“无限期按兵不动”倾斜，降息时间表或彻底消失。
 
-标普全球编制的综合采购经理人指数（PMI） 4月份降至48.6，跌破50的荣枯分界线。
+本周四，4月FOMC会议在即，市场不必等待降息悬念揭晓——政策维持不变已是板上钉钉——真正的博弈全然聚焦于措辞的毫厘之差。
 
-上月数据为50.7，分析师此前预测跌至50.1。
+德银与瑞银在各自的最新研报中均指出，本次会议的核心问题在于：委员会是否会正式采纳“双向”风险表述，或鲍威尔是否会在发布会上发出更为均衡的风险评估信号，为“更久不降息”的前景正式铺路。
 
-这一趋势与德国类似，该国工业保持稳定，而服务业则大幅下滑。
+德意志银行的基准判断是，实质性指引调整将推迟至6月，但风险明显偏向鹰派。
 
-法国制造业表现超出预期，创下2022年以来最佳，但服务业也下滑。
+对投资者而言，这一微妙转向意味着降息时间表或被进一步压缩乃至彻底消失，利率中枢将在中性水平无限期停留，债券久期风险不可低估。
 
-整个地区的物价压力持续上升。
+更具历史意味的背景是，本次4月会议极有可能是鲍威尔作为美联储主席的“谢幕舞台”。
 
-“欧元区正面临中东战争带来的日益严重的经济困境，这给政策制定者带来了巨大难题，”S&P Global Market Intelligence首席商业经济学家Chris Williamson周四在一份声明中表示。
+美国司法部本周宣布终止对鲍威尔就联储大楼翻新工程监管问题的调查，此前横亘于凯文·沃什提名路上的最大政治障碍随之消除。
 
-“与此同时，日益普遍的供应短缺可能会进一步抑制经济增长，并在未来几周内给价格带来更大的上行压力。
+瑞银预计，沃什将顺利通过参议院银行委员会表决，并于6月16日至17日FOMC会议前宣誓就任美联储理事会主席。
 
 ## 相关推荐
 
-- 2026-06-30 04:48 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 04:51 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 04:38 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 04:39 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 04:49 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 04:36 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 04:46 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 04:53 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 04:43 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 04:36 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 04:45 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 04:31 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 04:44 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 04:32 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 04:59 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 04:30 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 04:49 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 04:35 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 04:31 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 04:33 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 04:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 04:31 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:36 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/587670.shtml)
-- 2026-06-30 04:38 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/40340855353.shtml)
-- 2026-06-30 04:24 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/2403026.shtml)
-- 2026-06-30 04:44 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/44681.shtml)
-- 2026-06-30 04:30 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/6553508539.shtml)
-- 2026-06-30 04:37 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/28169167674.shtml)
-- 2026-06-30 04:52 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/891556082741.shtml)
-- 2026-06-30 04:40 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/31166833304.shtml)
-- 2026-06-30 04:27 - [日本进球](http://www.share.minike.top/Article/details/656030.shtml)
-- 2026-06-30 04:29 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/9439212628.shtml)
-- 2026-06-30 04:27 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/28446918934.shtml)
-- 2026-06-30 04:28 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/2062585892.shtml)
-- 2026-06-30 04:25 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/476053375210.shtml)
-- 2026-06-30 04:45 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/72901322728.shtml)
-- 2026-06-30 04:30 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/204529439512.shtml)
+- 2026-06-30 04:48 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/122573937882.shtml)
+- 2026-06-30 04:57 - [第一炉香](http://www.share.minike.top/Article/details/27826.shtml)
+- 2026-06-30 04:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/191303883.shtml)
+- 2026-06-30 04:33 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/75022423.shtml)
+- 2026-06-30 04:43 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/32572242.shtml)
+- 2026-06-30 04:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/93250.shtml)
+- 2026-06-30 04:32 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/6417118.shtml)
+- 2026-06-30 04:30 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/268682530907.shtml)
+- 2026-06-30 04:58 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/721986.shtml)
+- 2026-06-30 04:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/4745327.shtml)
+- 2026-06-30 04:57 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/026816431.shtml)
+- 2026-06-30 04:41 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/658580.shtml)
+- 2026-06-30 04:51 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/26293307639.shtml)
+- 2026-06-30 04:42 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/05772.shtml)
+- 2026-06-30 04:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/55409687.shtml)

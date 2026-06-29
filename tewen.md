@@ -1,55 +1,56 @@
-# 【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票
+# 高盛称波斯湾原油供应将需“数月”才能恢复
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月23日 13:24 来源：中国新闻网 一幅幅精巧的画作，印在方寸纸间，再贴在书籍扉页——这就是藏书票。藏书票起源于15世纪欧洲，是书籍主人为书所做的“个人标记”，为方便拓印，常以版画形式呈现。在世界各地，许多藏书票的“发烧友”都会收集、自制藏书票，香港画家熊美仪也是其中一员。1989年，她的丈夫、已故画家余元康创建了香港藏书票协会，熊美仪及同为画家的妹
+高盛集团表示，假设霍尔木兹海峡全面重开且不再发生新的袭击事件，受伊朗冲突影响而中断的波斯湾原油生产将需“数月”才能基本恢复。 Daan Struyven等分析师在4月23日的一份报告中写道，4月原油产量预估已减少约1，450万桶/日，降幅达57%。 在上述数字中，沙特阿拉伯的供应量预计减少400万桶/日 ；伊拉克减少300万桶/日；伊朗减少250万桶/日；阿联酋减少270万桶/
 
 ## 正文
 
-发布时间：2026年04月23日 13:24 来源：中国新闻网 一幅幅精巧的画作，印在方寸纸间，再贴在书籍扉页——这就是藏书票。
+高盛集团表示，假设霍尔木兹海峡全面重开且不再发生新的袭击事件，受伊朗冲突影响而中断的波斯湾原油生产将需“数月”才能基本恢复。
 
-藏书票起源于15世纪欧洲，是书籍主人为书所做的“个人标记”，为方便拓印，常以版画形式呈现。
+Daan Struyven等分析师在4月23日的一份报告中写道，4月原油产量预估已减少约1，450万桶/日，降幅达57%。
 
-在世界各地，许多藏书票的“发烧友”都会收集、自制藏书票，香港画家熊美仪也是其中一员。
+在上述数字中，沙特阿拉伯的供应量预计减少400万桶/日 ；伊拉克减少300万桶/日；伊朗减少250万桶/日；阿联酋减少270万桶/日；科威特减少120万桶/日；卡塔尔减少100万桶/日 他们表示：“海峡实际封锁的时间越长，减产持续的时间就越久，生产恢复的速度可能就越慢”。
 
-1989年，她的丈夫、已故画家余元康创建了香港藏书票协会，熊美仪及同为画家的妹妹也参与其中，积极创作、收藏藏书票。
+这一展望反映了油井可能需要更多维修工作、管道等耗材采购放缓，以及运输受限等因素。
 
-藏书票到底有什么魅力？
+尽管如此，实现“稳健复苏”在于油田的物理损坏程度有限、沙特阿美预测其能相对迅速地增产，以及沙特阿拉伯和阿联酋可能启用闲置产能。
 
-在世界读书日，一起来听一听熊美仪的讲述。
+在产能爬坡阶段，运输和油井流量将是关键制约因素，这取决于管道容量、材料和劳动力的可用性，以及油藏的复杂程度。
 
-(记者 温孟馨） 责任编辑：【曲克】
+如果该海峡长期关闭，复苏的最后阶段“将耗时显著更长，甚至可能无法完全实现”。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 04:35 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 04:39 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 04:32 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 04:33 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 04:40 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 04:38 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 04:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 04:25 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 04:51 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 04:25 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 04:28 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 04:32 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 04:49 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 04:55 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 04:41 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 04:46 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-30 04:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 04:40 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 04:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 04:53 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 04:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/02453443.shtml)
-- 2026-06-30 04:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/24382698468.shtml)
-- 2026-06-30 04:52 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/6616045729.shtml)
-- 2026-06-30 04:40 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/864900.shtml)
-- 2026-06-30 04:47 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/8685141.shtml)
-- 2026-06-30 04:45 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/6944216987.shtml)
-- 2026-06-30 04:45 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/70650977.shtml)
-- 2026-06-30 04:31 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/720420878938.shtml)
-- 2026-06-30 04:49 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/51437.shtml)
-- 2026-06-30 04:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/4278800366.shtml)
-- 2026-06-30 04:52 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/910080447428.shtml)
-- 2026-06-30 04:40 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/49874469.shtml)
-- 2026-06-30 04:24 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/4757847.shtml)
-- 2026-06-30 04:43 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/52658898715.shtml)
-- 2026-06-30 04:34 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/005418975952.shtml)
+- 2026-06-30 04:34 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/088063.shtml)
+- 2026-06-30 04:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/246945.shtml)
+- 2026-06-30 04:46 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/4674749142.shtml)
+- 2026-06-30 04:36 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/32219.shtml)
+- 2026-06-30 04:59 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/561534513.shtml)
+- 2026-06-30 04:49 - [斗破苍穹](http://www.share.minike.top/Article/details/83380322.shtml)
+- 2026-06-30 04:53 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/529478159160.shtml)
+- 2026-06-30 04:51 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/43684114.shtml)
+- 2026-06-30 04:36 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/573142915.shtml)
+- 2026-06-30 04:30 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/547510718216.shtml)
+- 2026-06-30 04:48 - [一生一世](http://www.share.kurohicncr.top/Article/details/3779344.shtml)
+- 2026-06-30 04:34 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/95486295495.shtml)
+- 2026-06-30 04:33 - [巴西绝杀日本](https://www.share.minike.top/Article/details/115114736.shtml)
+- 2026-06-30 04:30 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/82050805244.shtml)
+- 2026-06-30 04:43 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/90222559169.shtml)

@@ -1,59 +1,60 @@
-# *ST数源退市压力叠加立案，经营困境持续加深
+# 克隆牦牛+10 我国首次实现批量克隆10头牦牛
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、风险重重再添立案 2026年4月22日晚，*ST数源（维权）公告称，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。立案通知书公告中未披露具体立案缘由，仅表示将配合调查并履行信披义务。对于这家本已面临退市风险的公司而言，此次立案是雪上加霜。 公司于2023
+今天(27日)，西藏牦牛全基因组选择与体细胞克隆复合育种技术成果在拉萨市当雄县发布。成果由浙江大学、西藏自治区高原生物研究所、西藏自治区动物疫病预防控制中心(区畜牧总站)、拉萨市当雄县人民政府联合发布。这意味着经过3年不懈努力，由中国科研团队自主研发创建的牦牛“全基因组选择+体细胞克隆复合技术”取得成功，在牦牛育种领域居国内领先并达到国际先进水平。 来自中国科学院动物研究所、中
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、风险重重再添立案 2026年4月22日晚，*ST数源（维权）公告称，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。
+今天(27日)，西藏牦牛全基因组选择与体细胞克隆复合育种技术成果在拉萨市当雄县发布。
 
-立案通知书公告中未披露具体立案缘由，仅表示将配合调查并履行信披义务。
+成果由浙江大学、西藏自治区高原生物研究所、西藏自治区动物疫病预防控制中心(区畜牧总站)、拉萨市当雄县人民政府联合发布。
 
-对于这家本已面临退市风险的公司而言，此次立案是雪上加霜。
+这意味着经过3年不懈努力，由中国科研团队自主研发创建的牦牛“全基因组选择+体细胞克隆复合技术”取得成功，在牦牛育种领域居国内领先并达到国际先进水平。
 
-公司于2023年5月因内控审计报告被出具否定意见、财务报告被出具保留意见而首次被实施其他风险警示。
+来自中国科学院动物研究所、中国野生动物保护协会、中国大熊猫保护研究中心、四川农业大学、甘南州农林牧草科学院、西北大学、东北师范大学、东北林业大学、成都动物园和西藏大学等单位的专家对成果进行了评审，并通过成果鉴定。
 
-二、公司经营困境持续加深 公司的2025年年报数据显示，公司全年营业收入为2.70亿元，同比下降16.28%；归母净利润亏损4.37亿元，同比下降562.09%；扣非归母净利润亏损3.27亿元，每股收益为-1.00元。
+今天，拉萨市牦牛种质保护与繁育技术创新中心同步在海拔4300米的当雄县羊八井牦牛良种扩繁基地成立，这里也是西藏(当雄)金丝野牦牛繁育研究基地。
 
-财务指标触及退市风险警示条件，公司股票因此于2026年4月1日披星戴帽。
+记者在基地看到，11头通过全基因组体细胞克隆技术出生的小牦牛，身体健壮、活泼健康。
 
-在监管记录方面，该公司并非首次遭遇证监会立案调查。
+浙江大学生命科学学院教授、国家濒危野生动植物种质基因保护中心主任方盛国告诉记者：从2023年开始，在西藏自治区科学技术厅、区林业和草原局、拉萨市科学技术局的支持下，浙江大学生命科学学院与西藏自治区高原生物研究所、西藏自治区动物疫病预防控制中心(区畜牧总站)、当雄县牦牛冻精站等组成联合攻关团队，对拉萨市、那曲市、日喀则市、阿里地区等地的8971头牦牛进行采样，通过全基因组测序，成功构建了全基因组性状筛选的西藏种子牦牛的体细胞克隆胚胎，构建起西藏牦牛的体细胞系。
 
-近年来，公司曾多次因财务数据核算不准确、关联交易未及时披露、资金往来信息披露不合规、内控失效等问题，被地方证监局采取行政监管措施，多名时任核心管理人员也一并受到监管警示。
+从0—1！
 
 ## 相关推荐
 
-- 2026-06-30 04:53 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 04:39 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 04:24 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 04:47 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 04:39 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 04:44 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 04:33 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 04:33 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 04:27 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-30 04:46 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 04:42 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-30 04:46 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-30 04:54 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 04:48 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 04:41 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 04:43 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 04:57 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 04:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 04:54 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 04:51 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 04:35 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 04:37 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 04:59 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 04:42 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 04:57 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 04:34 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 04:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/552266.shtml)
-- 2026-06-30 04:38 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/11900329.shtml)
-- 2026-06-30 04:53 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/98956425200.shtml)
-- 2026-06-30 04:45 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/2230216.shtml)
-- 2026-06-30 04:52 - [张凌赫 客串](http://www.share.minike.top/Article/details/628336332680.shtml)
-- 2026-06-30 04:35 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/823735960390.shtml)
-- 2026-06-30 04:26 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/59722.shtml)
-- 2026-06-30 04:52 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/3965073082.shtml)
-- 2026-06-30 04:24 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/54849.shtml)
-- 2026-06-30 04:27 - [时光音乐会](https://www.share.minike.top/Article/details/8542011.shtml)
-- 2026-06-30 04:38 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/644611955444.shtml)
-- 2026-06-30 04:47 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/9244507980.shtml)
-- 2026-06-30 04:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/58576602.shtml)
-- 2026-06-30 04:35 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/480708.shtml)
-- 2026-06-30 04:53 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/927754927956.shtml)
+- 2026-06-30 04:36 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/6586502.shtml)
+- 2026-06-30 04:38 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/33019681.shtml)
+- 2026-06-30 04:43 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/65151.shtml)
+- 2026-06-30 04:45 - [送你一朵小红花](http://www.blog.minike.top/Article/details/7878786.shtml)
+- 2026-06-30 04:48 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/621658399198.shtml)
+- 2026-06-30 04:56 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/0818217.shtml)
+- 2026-06-30 04:31 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/42885784844.shtml)
+- 2026-06-30 04:59 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/2927119.shtml)
+- 2026-06-30 04:50 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/141586523.shtml)
+- 2026-06-30 04:52 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/96017140.shtml)
+- 2026-06-30 04:59 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/17091.shtml)
+- 2026-06-30 04:31 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/95703984.shtml)
+- 2026-06-30 04:32 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/3697356.shtml)
+- 2026-06-30 04:47 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/731804935.shtml)
+- 2026-06-30 04:56 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/1052389272.shtml)

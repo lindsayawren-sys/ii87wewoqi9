@@ -1,44 +1,54 @@
-# 特朗普：任何船只未经美国批准都无法通过霍尔木兹海峡
+# 越南胡志明市至中国黄山国际包机航线开通
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-新华社华盛顿4月23日电 美国总统特朗普23日在社交媒体上称，美国“已完全控制了霍尔木兹海峡”。他说，在美国和伊朗达成协议之前，霍尔木兹海峡都会被“严密封锁”，任何船只未经美国批准都将无法通过霍尔木兹海峡。
+中新社安徽黄山4月25日电 (记者 赵强)一架满载230名旅客的A321型客机25日平稳降落在安徽黄山屯溪国际机场，标志着越南胡志明市至中国黄山国际包机航线正式开通。 据介绍，该航线由越南越捷航空执飞，每两周3班。单程飞行时长约4小时。 4月15日，越捷航空在北京举行投资合作会议，宣布开通包含胡志明市至黄山、河内至黄山在内的五条越中新航线。4月28日，越捷航空将开通河内至黄山航
 
 ## 正文
 
-新华社华盛顿4月23日电 美国总统特朗普23日在社交媒体上称，美国“已完全控制了霍尔木兹海峡”。
+中新社安徽黄山4月25日电 (记者 赵强)一架满载230名旅客的A321型客机25日平稳降落在安徽黄山屯溪国际机场，标志着越南胡志明市至中国黄山国际包机航线正式开通。
 
-他说，在美国和伊朗达成协议之前，霍尔木兹海峡都会被“严密封锁”，任何船只未经美国批准都将无法通过霍尔木兹海峡。
+据介绍，该航线由越南越捷航空执飞，每两周3班。
+
+单程飞行时长约4小时。
+
+4月15日，越捷航空在北京举行投资合作会议，宣布开通包含胡志明市至黄山、河内至黄山在内的五条越中新航线。
+
+4月28日，越捷航空将开通河内至黄山航线。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:43 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 04:43 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 04:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 04:39 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 04:48 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 04:47 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 04:44 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 04:29 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-30 04:44 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 04:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 04:51 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 04:36 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 04:37 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 04:40 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 04:51 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 04:39 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 04:54 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 04:45 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 04:35 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 04:31 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 04:37 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 04:42 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:36 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/52126430.shtml)
-- 2026-06-30 04:47 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/68780.shtml)
-- 2026-06-30 04:33 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/839192531169.shtml)
-- 2026-06-30 04:38 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/57584000870.shtml)
-- 2026-06-30 04:44 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/6413341.shtml)
-- 2026-06-30 04:52 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/1247315.shtml)
-- 2026-06-30 04:28 - [天道](https://www.blog.kurohicncr.top/Article/details/64144914600.shtml)
-- 2026-06-30 04:47 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/7697790850.shtml)
-- 2026-06-30 04:45 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/45847.shtml)
-- 2026-06-30 04:34 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/056390725318.shtml)
-- 2026-06-30 04:48 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/74807.shtml)
-- 2026-06-30 04:34 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/68624865.shtml)
-- 2026-06-30 04:52 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/848781839418.shtml)
-- 2026-06-30 04:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/5710277.shtml)
-- 2026-06-30 04:36 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/4816045.shtml)
+- 2026-06-30 04:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/8274256400.shtml)
+- 2026-06-30 04:34 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/643594177199.shtml)
+- 2026-06-30 04:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/910038757935.shtml)
+- 2026-06-30 04:30 - [巴西2比1日本](http://www.share.minike.top/Article/details/833794075548.shtml)
+- 2026-06-30 04:36 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/8877762.shtml)
+- 2026-06-30 04:48 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/952309036342.shtml)
+- 2026-06-30 04:43 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/147529662.shtml)
+- 2026-06-30 04:53 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/218905117855.shtml)
+- 2026-06-30 04:40 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/78186.shtml)
+- 2026-06-30 04:32 - [美人鱼](https://www.share.kurohicncr.top/Article/details/69194368691.shtml)
+- 2026-06-30 04:49 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/56268655.shtml)
+- 2026-06-30 04:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/817822153.shtml)
+- 2026-06-30 04:48 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/1945815321.shtml)
+- 2026-06-30 04:34 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/584102.shtml)
+- 2026-06-30 04:41 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/5597831.shtml)

@@ -1,54 +1,61 @@
-# 国内首套殷墟考古启蒙绘本发布：让3300多年商文明在纸上“活起来”
+# 中信建投期货：4月24日能化早报
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月25日 14:34 来源：中国新闻网 4月24日，“跟着考古队长探秘殷墟”系列绘本首发仪式在河南安阳举行。绘本目前出版五种：《和商王并肩的女战神》《大邑商博物馆奇幻夜》《大邑商“第一萌宠”诞生记》《子商上学记》《商王的宴请：吃在大邑商》，这是国内首套面向青少年的殷墟考古启蒙绘本。 距今3300多年的殷墟，是中国历史上第一个有文献可考、并被考古发掘所证实
+橡胶：扰动仍未结束，短期偏强震荡 周四，国产全乳胶16900/吨，环比上日下跌100元/吨；泰国20号混合胶16180元/吨，环比上日下跌40元/吨。 原料端：泰国胶水报收78.4泰铢/公斤，环比上日上涨0.1泰铢/公斤；泰国杯胶报收61.5 泰铢/公斤，环比上日上涨0.7泰铢/公斤；云南胶水报收16.2元/公斤，环比上日上涨0.2 元/公斤；海南胶水报收15.8元/公斤，环比
 
 ## 正文
 
-发布时间：2026年04月25日 14:34 来源：中国新闻网 4月24日，“跟着考古队长探秘殷墟”系列绘本首发仪式在河南安阳举行。
+橡胶：扰动仍未结束，短期偏强震荡 周四，国产全乳胶16900/吨，环比上日下跌100元/吨；泰国20号混合胶16180元/吨，环比上日下跌40元/吨。
 
-绘本目前出版五种：《和商王并肩的女战神》《大邑商博物馆奇幻夜》《大邑商“第一萌宠”诞生记》《子商上学记》《商王的宴请：吃在大邑商》，这是国内首套面向青少年的殷墟考古启蒙绘本。
+原料端：泰国胶水报收78.4泰铢/公斤，环比上日上涨0.1泰铢/公斤；泰国杯胶报收61.5 泰铢/公斤，环比上日上涨0.7泰铢/公斤；云南胶水报收16.2元/公斤，环比上日上涨0.2 元/公斤；海南胶水报收15.8元/公斤，环比上日持平。
 
-距今3300多年的殷墟，是中国历史上第一个有文献可考、并被考古发掘所证实的商代晚期都城遗址。
+截至2026年4月19日，中国天然橡胶社会库存133.4万吨，环比下降1.7万吨，降幅1.3%。
 
-中国社会科学院考古研究所安阳工作站站长何毓灵在受访时表示，长期以来，考古报告因专业术语艰涩、发行量有限，犹如“老中医开的药方”，难以被大众理解。
+中国深色胶社会总库存为91.9万吨，下降1.15%。
 
-如何让殷墟文物与商文明真正“活起来”，实现从学术语言向公众表达的转换，正是此次主创团队推出该绘本的初衷。
+其中青岛现货库存降0.8%；云南降2.4%；越南10降5.5%；NR库存小计降1.8%。
 
-他希望，该绘本能够成为孩子们打开殷墟的一把“钥匙”，也成为沟通古今的一座“桥梁”，更好地传播中华文化与中华文明。
+中国浅色胶社会总库存为41.5万吨，环比降1.5%。
 
-(记者 李超庆) 责任编辑：【叶攀】
+其中老全乳胶环比降1.4%，3L环比降5.3%，RU库存小计降0.09%。
+
+观点：近期，在国内云南海南与越南产区出现了明显的高温少雨天气，而从目前的气象数据来看，泰国、印尼、科特迪瓦等全球主产区（三者合计占比65%）尽管同样出现高温天气，但是降雨量并未出现显著异常，降雨量目前仍未低于2024年同期，均温也未高于2024年同期（2024年的天气条件相对极端），故目前的天气条件或至少优于2024年同期，因此预计天气问题对供应端的冲击弱于2024年。
 
 ## 相关推荐
 
-- 2026-06-30 04:25 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-30 04:48 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 04:33 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 04:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 04:34 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 04:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 04:41 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 04:43 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 04:33 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 04:32 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 04:46 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-30 04:48 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 04:51 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 04:54 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 04:58 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 04:47 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 04:38 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 04:43 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 04:33 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 04:46 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 04:52 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 04:36 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 04:42 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-30 04:44 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 04:40 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:31 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/3254934936.shtml)
-- 2026-06-30 04:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/80342960.shtml)
-- 2026-06-30 04:24 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/61924419943.shtml)
-- 2026-06-30 04:53 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/3083011.shtml)
-- 2026-06-30 04:45 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/434029986.shtml)
-- 2026-06-30 04:47 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/448490.shtml)
-- 2026-06-30 04:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/06022909823.shtml)
-- 2026-06-30 04:36 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/360549.shtml)
-- 2026-06-30 04:49 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/1122369.shtml)
-- 2026-06-30 04:29 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/19718396034.shtml)
-- 2026-06-30 04:49 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/92453438.shtml)
-- 2026-06-30 04:31 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/8635237772.shtml)
-- 2026-06-30 04:28 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/3402530587.shtml)
-- 2026-06-30 04:45 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/7277633.shtml)
-- 2026-06-30 04:41 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/907624717787.shtml)
+- 2026-06-30 04:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/31154.shtml)
+- 2026-06-30 04:52 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/24319599.shtml)
+- 2026-06-30 04:42 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/949577732708.shtml)
+- 2026-06-30 04:47 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/10733.shtml)
+- 2026-06-30 04:50 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/79808.shtml)
+- 2026-06-30 04:57 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/4286043530.shtml)
+- 2026-06-30 04:54 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/75732586807.shtml)
+- 2026-06-30 04:39 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/467562932267.shtml)
+- 2026-06-30 04:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/36804559842.shtml)
+- 2026-06-30 04:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/013242.shtml)
+- 2026-06-30 04:52 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/83566933.shtml)
+- 2026-06-30 04:46 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/2133252.shtml)
+- 2026-06-30 04:50 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/5428555362.shtml)
+- 2026-06-30 04:58 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/640933.shtml)
+- 2026-06-30 04:30 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/59224489.shtml)

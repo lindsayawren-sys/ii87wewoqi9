@@ -1,54 +1,58 @@
-# 中银国际：五矿资源重申“买入”评级 目标价升至10.71港元
+# 上海银行副行长俞敏华谈对公信贷：去年“由降到稳”，下一阶段争取“从增到优”
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-中银国际发布研报称，上调五矿资源（01208）目标价至10.71港元，重申“买入”评级。 该行表示，五矿资源2026年第一季铜产量同比增9%，主要得益于金塞维尔矿区的强劲增长和拉斯班巴斯矿区的稳健增长。更重要的是，其黄金和白银产量分别同比增长24%和27%，拉斯班巴斯矿区和罗斯伯里矿区均实现了强劲增长。贵金属产量的大幅增长也使得相关矿山的C1成本降低。 该行表示，尽管贵金属产量
+4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，上海银行副行长俞敏华回顾了上海银行2025年上海银行对公信贷业务的情况，他表示去年一年经历了调整，总体是“由降到稳”的过程。到了今年，因为去年下半年和四季度做了调整，也为今年的信贷投放做了一些项目储备，储备规模超过了1000亿。 他给出了今年一季度的情况，一季度整体信贷投放、对公信贷投放的增量达
 
 ## 正文
 
-中银国际发布研报称，上调五矿资源（01208）目标价至10.71港元，重申“买入”评级。
+4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，上海银行副行长俞敏华回顾了上海银行2025年上海银行对公信贷业务的情况，他表示去年一年经历了调整，总体是“由降到稳”的过程。
 
-该行表示，五矿资源2026年第一季铜产量同比增9%，主要得益于金塞维尔矿区的强劲增长和拉斯班巴斯矿区的稳健增长。
+到了今年，因为去年下半年和四季度做了调整，也为今年的信贷投放做了一些项目储备，储备规模超过了1000亿。
 
-更重要的是，其黄金和白银产量分别同比增长24%和27%，拉斯班巴斯矿区和罗斯伯里矿区均实现了强劲增长。
+他给出了今年一季度的情况，一季度整体信贷投放、对公信贷投放的增量达到了976亿，对公信贷余额超过了1000亿。
 
-贵金属产量的大幅增长也使得相关矿山的C1成本降低。
+976亿是对公人民币贷款，如果再加上外币贷款，整个对公贷款的增量也将近1000亿，整体增幅超过10%。
 
-该行表示，尽管贵金属产量的强劲增长势头可能无法持续全年，但仍将2026-2028年的盈利预测上调1%-2%。
+在这个过程中，我们信贷投放主要聚焦的领域包括：国资国企重大项目、民营企业、制造业科技普惠等等。
 
-责任编辑：卢昱君
+展望未来，俞敏华表示，从二季度开始：在一季度总量增长和夯实的基础上，我们要优化信贷结构。
+
+我们计划在二季度乃至全年的对公信贷增长中，让“五篇大文章”转型业务的增量占比达到70%。
+
+这是我们下一阶段“从增到优”的策略。
 
 ## 相关推荐
 
-- 2026-06-30 04:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 04:50 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 04:32 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 04:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 04:46 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 04:28 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 04:31 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 04:25 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 04:26 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 04:44 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 04:27 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 04:43 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 04:45 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 04:49 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 04:54 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 04:31 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 04:30 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 04:50 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 04:55 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 04:55 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 04:52 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 04:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 04:50 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 04:40 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:42 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/929521.shtml)
-- 2026-06-30 04:30 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/9074364.shtml)
-- 2026-06-30 04:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/2201131.shtml)
-- 2026-06-30 04:26 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/503053169.shtml)
-- 2026-06-30 04:29 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/3289855.shtml)
-- 2026-06-30 04:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/858375889.shtml)
-- 2026-06-30 04:32 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/1901195613.shtml)
-- 2026-06-30 04:33 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/74455473.shtml)
-- 2026-06-30 04:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/221982744.shtml)
-- 2026-06-30 04:34 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/541811407076.shtml)
-- 2026-06-30 04:44 - [逃狱兄弟](http://www.share.minike.top/Article/details/7956966.shtml)
-- 2026-06-30 04:38 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/570882867193.shtml)
-- 2026-06-30 04:30 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/2616412.shtml)
-- 2026-06-30 04:41 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/471328656292.shtml)
-- 2026-06-30 04:24 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/08440347.shtml)
+- 2026-06-30 04:46 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/369824069.shtml)
+- 2026-06-30 04:38 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/98783878983.shtml)
+- 2026-06-30 04:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/27906140.shtml)
+- 2026-06-30 04:36 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/6182828.shtml)
+- 2026-06-30 04:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/66910831.shtml)
+- 2026-06-30 04:43 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/148679180.shtml)
+- 2026-06-30 04:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/902261480.shtml)
+- 2026-06-30 04:35 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/84483.shtml)
+- 2026-06-30 04:57 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/474186390.shtml)
+- 2026-06-30 04:47 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/725781434.shtml)
+- 2026-06-30 04:46 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/206520394.shtml)
+- 2026-06-30 04:58 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/493859773735.shtml)
+- 2026-06-30 04:32 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/498682659.shtml)
+- 2026-06-30 04:36 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/09563829197.shtml)
+- 2026-06-30 04:36 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/862120.shtml)

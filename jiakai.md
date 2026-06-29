@@ -1,44 +1,59 @@
-# 中天期货:原油震荡回落 碳酸锂高位震荡偏强
+# 菲律宾多地遭热浪袭击 炎热指数达“危险”级别
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-热点品种分析 一、商品指数 二、股指 中国上证综指4月23日（周四）收盘下跌13.01点，跌幅0.32%，报4093.25点； 中国深证成指4月23日（周四）收盘下跌133.84点，跌幅0.88%，报15043.45点； 中国沪深300指4月23日（周四）收盘下跌31.63点，跌幅0.66%，报4786.33点； 中国创业板指4月23日（周四）收盘下跌63.82点，跌幅1.73
+中新社马尼拉4月26日电 (记者 张兴龙)菲律宾国家气象局26日通报，该国多地当天遭遇热浪袭击，炎热指数达到“危险”级别。 通报说，当天，该国北部班诗兰省达古潘市、中部北萨马省卡塔曼市以及南部巴拉望省普林塞萨港等18个地区炎热指数达到或超过42摄氏度；预计27日菲全国仍将有14个地区炎热指数达到“危险”级别。 炎热指数是指相对湿度与空气温度相结合时人体感受到的温度。菲律宾国家气
 
 ## 正文
 
-热点品种分析 一、商品指数 二、股指 中国上证综指4月23日（周四）收盘下跌13.01点，跌幅0.32%，报4093.25点； 中国深证成指4月23日（周四）收盘下跌133.84点，跌幅0.88%，报15043.45点； 中国沪深300指4月23日（周四）收盘下跌31.63点，跌幅0.66%，报4786.33点； 中国创业板指4月23日（周四）收盘下跌63.82点，跌幅1.73%，报3720.25点； 中国科创50 4月23日（周四）收盘下跌24.46点，跌幅1.71%，报1432.59点。
+中新社马尼拉4月26日电 (记者 张兴龙)菲律宾国家气象局26日通报，该国多地当天遭遇热浪袭击，炎热指数达到“危险”级别。
 
-三、原油2606 四、白银2606 五、碳酸锂 2609 六、螺纹 2610 七、焦煤2609 八、 PTA 2609 九、棉花2609 十、白糖 2609 十一、橡胶 2609 十二、PVC 2609 十三、棕榈2609 十四、纯碱2609 十五、玻璃2609 十六、豆粕2609 十七、生猪2609 十八、红枣2609 责任编辑：陈平
+通报说，当天，该国北部班诗兰省达古潘市、中部北萨马省卡塔曼市以及南部巴拉望省普林塞萨港等18个地区炎热指数达到或超过42摄氏度；预计27日菲全国仍将有14个地区炎热指数达到“危险”级别。
+
+炎热指数是指相对湿度与空气温度相结合时人体感受到的温度。
+
+菲律宾国家气象局根据危险程度将炎热指数分为“小心”(27℃-32℃)、“极其小心”(33℃-41℃)、“危险”(42℃-51℃)和“极其危险”(52℃及以上)四个等级。
+
+每年3月至5月通常是菲律宾最酷热、最干燥的时节。
+
+菲律宾国家气象局警告，当炎热指数达到“危险”及以上级别时，人们发生热痉挛和热衰竭等热相关疾病的风险将显著增加。
+
+菲律宾民防办公室提醒民众注意补水，避免在高温时段进行户外活动。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:43 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 04:24 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 04:35 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 04:53 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-30 04:49 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 04:39 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 04:46 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 04:25 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 04:36 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 04:24 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 04:34 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 04:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 04:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 04:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 04:49 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 04:52 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 04:47 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 04:42 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 04:40 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 04:59 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 04:59 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 04:47 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 04:37 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/51820113.shtml)
-- 2026-06-30 04:41 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/957007603246.shtml)
-- 2026-06-30 04:36 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/62018708270.shtml)
-- 2026-06-30 04:44 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/74900235.shtml)
-- 2026-06-30 04:53 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/5389182.shtml)
-- 2026-06-30 04:30 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/23975.shtml)
-- 2026-06-30 04:53 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/8335715.shtml)
-- 2026-06-30 04:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/238317500.shtml)
-- 2026-06-30 04:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/945456185.shtml)
-- 2026-06-30 04:38 - [苗族银饰](http://www.blog.minike.top/Article/details/89450609.shtml)
-- 2026-06-30 04:37 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/73244754700.shtml)
-- 2026-06-30 04:38 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/5395533.shtml)
-- 2026-06-30 04:48 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/0785639.shtml)
-- 2026-06-30 04:29 - [日本反击率先破门](https://www.share.minike.top/Article/details/9417421438.shtml)
-- 2026-06-30 04:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/121026036976.shtml)
+- 2026-06-30 04:53 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/90968.shtml)
+- 2026-06-30 04:56 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/6656417.shtml)
+- 2026-06-30 04:53 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/82538443.shtml)
+- 2026-06-30 04:51 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/00019661023.shtml)
+- 2026-06-30 04:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/04578721.shtml)
+- 2026-06-30 04:59 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/266876836300.shtml)
+- 2026-06-30 04:49 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/210379.shtml)
+- 2026-06-30 04:53 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/0356452864.shtml)
+- 2026-06-30 04:31 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/37523227131.shtml)
+- 2026-06-30 04:44 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/8799802.shtml)
+- 2026-06-30 04:40 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/859320.shtml)
+- 2026-06-30 04:48 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/3441104446.shtml)
+- 2026-06-30 04:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/478893046.shtml)
+- 2026-06-30 04:52 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/68153993.shtml)
+- 2026-06-30 04:35 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/2239784.shtml)

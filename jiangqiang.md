@@ -1,61 +1,57 @@
-# 苹果供应商意法半导体季度业绩强劲，股价大涨10%
+# 【“十五五”开好局起好步】奋力书写中国式现代化内蒙古新篇章 山东加快建设绿色低碳高质量发展先行区
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 营收增长 23%，受消费电子、计算机及其他设备业务拉动 意法半导体这家欧洲芯片厂商公布了强劲的一季度销售额，并表示随着科技巨头向数据中心投入数十亿美元资金，未来数月来自人工智能领域的营收增速将进一步加快，受此影响，公司股价大幅走高。 这家欧洲芯片制造商的主要客户包括苹果，以及埃隆・马斯克旗下的特斯拉和 SpaceX。数据机构 Visible
+央视网消息(新闻联播)：近日，内蒙古、山东分别举行“开局起步‘十五五’”专题新闻发布会，围绕当地“十五五”规划纲要，全面解读《纲要》编制背景、总体思路、发展目标和重点任务。 奋力书写中国式现代化内蒙古新篇章 锚定“在中国式现代化建设中闯出新路”的战略目标，内蒙古从经济发展、创新驱动、民生福祉等5方面提出20项主要指标，并部署了13个方面重大任务举措。聚焦新能源、绿色算力、稀土新
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 营收增长 23%，受消费电子、计算机及其他设备业务拉动 意法半导体这家欧洲芯片厂商公布了强劲的一季度销售额，并表示随着科技巨头向数据中心投入数十亿美元资金，未来数月来自人工智能领域的营收增速将进一步加快，受此影响，公司股价大幅走高。
+央视网消息(新闻联播)：近日，内蒙古、山东分别举行“开局起步‘十五五’”专题新闻发布会，围绕当地“十五五”规划纲要，全面解读《纲要》编制背景、总体思路、发展目标和重点任务。
 
-这家欧洲芯片制造商的主要客户包括苹果，以及埃隆・马斯克旗下的特斯拉和 SpaceX。
+奋力书写中国式现代化内蒙古新篇章 锚定“在中国式现代化建设中闯出新路”的战略目标，内蒙古从经济发展、创新驱动、民生福祉等5方面提出20项主要指标，并部署了13个方面重大任务举措。
 
-数据机构 Visible Alpha 显示，公司一季度营收同比增长 23%，至 31.0 亿美元，高于公司自身约 30.4 亿美元的指引，也超出分析师 30.6 亿美元的预期。
+聚焦新能源、绿色算力、稀土新材料、自贸试验区等重点领域明确主攻方向，主动融入、精准服务国家发展大局。
 
-公司首席执行官让 - 马克・谢里表示，本季度增长由消费电子及其他设备业务引领，尽管宏观经济存在不确定性，但需求持续改善、订单量强劲，库存也已回归正常水平。
+“十五五”时期，内蒙古将落地通用大模型和行业垂直大模型50个左右，实施“人工智能+”行动，促进实体经济和数字经济深度融合。
 
-公司预计二季度营收约为 34.5 亿美元，高于 Visible Alpha 给出的 31.8 亿美元预期。
+持续提高新能源供给比重，到“十五五”末，内蒙古新能源装机规模达到3.25亿千瓦，筑牢国家西电东送能源战略通道。
 
-周四早盘，意法半导体在巴黎上市的股价一度大涨 10%。
+前瞻布局氢能产业，打造全国重要的绿氢生产应用基地。
 
-过去 12 个月里，其股价已实现翻倍。
+努力把内蒙古自贸试验区建成投资贸易便利、创新生态良好、优势产业集聚、国际交往活跃的高水平自由贸易试验区。
 
-人工智能持续推动整个半导体行业的需求，企业需要性能不断提升的芯片来支撑相关技术，行业内多位高管指出，目前芯片需求已超过供给。
+提升口岸能级，建设安全高效开放通道，打造联通内外的向北开放重要桥头堡。
 
 ## 相关推荐
 
-- 2026-06-30 04:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 04:34 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 04:37 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 04:46 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 04:35 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 04:42 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 04:51 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 04:46 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 04:25 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 04:52 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 04:50 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 04:32 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 04:51 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 04:37 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 04:43 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 04:43 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 04:33 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 04:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 04:40 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 04:49 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 04:59 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 04:34 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 04:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 04:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 04:52 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 04:44 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:31 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/79677939596.shtml)
-- 2026-06-30 04:42 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/33233445132.shtml)
-- 2026-06-30 04:28 - [这一刀 会很帅](https://www.share.minike.top/Article/details/010841226.shtml)
-- 2026-06-30 04:48 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/27505.shtml)
-- 2026-06-30 04:35 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/62556919056.shtml)
-- 2026-06-30 04:45 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/44619175.shtml)
-- 2026-06-30 04:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/19593658467.shtml)
-- 2026-06-30 04:40 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/004645.shtml)
-- 2026-06-30 04:26 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/557987669.shtml)
-- 2026-06-30 04:41 - [速度与激情9](http://www.share.minike.top/Article/details/620033882584.shtml)
-- 2026-06-30 04:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/514990.shtml)
-- 2026-06-30 04:26 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/34471.shtml)
-- 2026-06-30 04:28 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/5241349.shtml)
-- 2026-06-30 04:42 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/507969.shtml)
-- 2026-06-30 04:33 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/3428219857.shtml)
+- 2026-06-30 04:52 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/8667964.shtml)
+- 2026-06-30 04:52 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/36777373533.shtml)
+- 2026-06-30 04:54 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/53685778.shtml)
+- 2026-06-30 04:41 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/67502612.shtml)
+- 2026-06-30 04:42 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/97842.shtml)
+- 2026-06-30 04:56 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/587711927.shtml)
+- 2026-06-30 04:57 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/5269558690.shtml)
+- 2026-06-30 04:45 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/4277771146.shtml)
+- 2026-06-30 04:43 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/84739.shtml)
+- 2026-06-30 04:49 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/714664.shtml)
+- 2026-06-30 04:35 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/178588.shtml)
+- 2026-06-30 04:49 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/60366359.shtml)
+- 2026-06-30 04:32 - [一生一世](https://www.blog.minike.top/Article/details/1663591573.shtml)
+- 2026-06-30 04:40 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/96209636.shtml)
+- 2026-06-30 04:37 - [天道](http://www.share.minike.top/Article/details/67429.shtml)

@@ -1,58 +1,58 @@
-# 易方达参与建设的两大智能体开源项目登顶GitHub趋势榜单
+# （经济观察）中国推动算力普惠 解中小企业“算力之渴”
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-4月16日至17日，由易方达金融科技团队参与技术贡献的AI智能体开源项目——轻量化自主智能体框架GenericAgent，连续两日登上全球最大开源平台GitHub的趋势榜单（GitHub trending）榜首，在Python项目中排名（Python Ranking）第一。此前3月24日，易方达金融科技团队参与建设的另一个项目——超级智能体框架 DeerFlow也登顶该榜单。
+中新社北京4月26日电 (记者 刘亮)中国工业和信息化部近日印发通知，组织开展普惠算力赋能中小企业发展专项行动。受访专家称，此举将进一步降低中小企业使用算力的成本，更好支撑企业数字化转型和智能化发展。算力即对数据的处理能力，包括信息计算力、网络运载力、数据存储力。中国信息通信研究院云计算与数字化研究所总工程师郭亮近日接受中新社记者专访时说，“算力正成为数字经济时代中小企业数字化
 
 ## 正文
 
-4月16日至17日，由易方达金融科技团队参与技术贡献的AI智能体开源项目——轻量化自主智能体框架GenericAgent，连续两日登上全球最大开源平台GitHub的趋势榜单（GitHub trending）榜首，在Python项目中排名（Python Ranking）第一。
+中新社北京4月26日电 (记者 刘亮)中国工业和信息化部近日印发通知，组织开展普惠算力赋能中小企业发展专项行动。
 
-此前3月24日，易方达金融科技团队参与建设的另一个项目——超级智能体框架 DeerFlow也登顶该榜单。
+受访专家称，此举将进一步降低中小企业使用算力的成本，更好支撑企业数字化转型和智能化发展。
 
-GitHub 作为全球领先的开源代码托管与协作平台，汇聚超 1 亿开发者，开发者可自主提交代码优化申请，为平台进行技术贡献。
+算力即对数据的处理能力，包括信息计算力、网络运载力、数据存储力。
 
-GitHub官方每天会从代码提交活跃度、开发者协作质量、项目增长速度等多维度进行指标加权，形成趋势榜单。
+中国信息通信研究院云计算与数字化研究所总工程师郭亮近日接受中新社记者专访时说，“算力正成为数字经济时代中小企业数字化转型的重要引擎，决定企业的创新能力与市场竞争力。
 
-该榜单是业内重要的技术风向标，项目登上榜首不仅是技术实力的有力证明，更是全球热度、开源影响力与行业价值的集中体现。
+” 然而，大部分中小企业在获取算力时面临着获取难、用不起、不会用的“三难”问题。
 
-易方达金融科技团队参与建设并先后登顶榜单的两大开源项目，均为新一代自主智能体开源代码框架，可覆盖不同场景下的智能体应用需求。
+郭亮指出，高性能算力资源稀缺，中小企业难以稳定获取适配AI(人工智能)研发、智能制造等场景的算力；随着AI应用快速发展，算力调用成本攀升；缺乏专业技术团队，难以将算力有效转化为生产力。
 
-其中，超级智能体框架 DeerFlow侧重多智能体协同统筹，能够一站式处理复杂任务、提升运行效率；轻量化自主智能体框架 GenericAgent架构简洁、资源占用较低，具备自主学习进化能力，适配性可随使用持续优化提升。
+此次专项行动提出探索“算力银行”“算力超市”等创新业务，加强对中小企业算力应用的公共服务力度。
 
-针对这两个项目的技术实现细节，易方达金融科技团队结合实践经验梳理方向，所提交的优化代码经项目主导方审核验收，成功并入项目主分支，体现了其对易方达金融科技团队技术优化方案的认可，展现了公司在AI智能体领域坚实的底层技术储备。
+郭亮介绍，“算力银行”就像一个可存储和支取算力的存钱罐，以往企业买了算力设备，业务低谷期存在大量算力闲置浪费，而“算力银行”模式允许中小企业将闲置算力资源“存”入平台，当算力不足时又可通过平台“取”出使用，平台通过跨区域、跨周期智能调度统一调配算力资源，大幅提升整体算力利用率。
 
 ## 相关推荐
 
-- 2026-06-30 04:47 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 04:30 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 04:28 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 04:39 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-30 04:30 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 04:29 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 04:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-30 04:36 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 04:47 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 04:30 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 04:29 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 04:24 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 04:54 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 04:30 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 04:31 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 04:52 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 04:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 04:30 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 04:50 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 04:38 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 04:31 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 04:33 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 04:48 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 04:47 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:50 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/99217490.shtml)
-- 2026-06-30 04:33 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/63732346652.shtml)
-- 2026-06-30 04:45 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/408345821383.shtml)
-- 2026-06-30 04:35 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/0464859.shtml)
-- 2026-06-30 04:35 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/21332.shtml)
-- 2026-06-30 04:45 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/82848404708.shtml)
-- 2026-06-30 04:47 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/8116686.shtml)
-- 2026-06-30 04:38 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/731248041145.shtml)
-- 2026-06-30 04:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/479088471.shtml)
-- 2026-06-30 04:51 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/968894993731.shtml)
-- 2026-06-30 04:29 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/436575437553.shtml)
-- 2026-06-30 04:34 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/7340649.shtml)
-- 2026-06-30 04:41 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/22332.shtml)
-- 2026-06-30 04:24 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/617490.shtml)
-- 2026-06-30 04:40 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/590316961.shtml)
+- 2026-06-30 04:55 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/03314.shtml)
+- 2026-06-30 04:49 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/6723626307.shtml)
+- 2026-06-30 04:47 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/8731253.shtml)
+- 2026-06-30 04:51 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/71021.shtml)
+- 2026-06-30 04:34 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/31722648.shtml)
+- 2026-06-30 04:54 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/7105398.shtml)
+- 2026-06-30 04:54 - [极限挑战第一季](http://www.share.minike.top/Article/details/052163564.shtml)
+- 2026-06-30 04:52 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/377250740.shtml)
+- 2026-06-30 04:42 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/468612338.shtml)
+- 2026-06-30 04:54 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/7871091207.shtml)
+- 2026-06-30 04:54 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/188397509800.shtml)
+- 2026-06-30 04:38 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/765184.shtml)
+- 2026-06-30 04:40 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/361442806378.shtml)
+- 2026-06-30 04:57 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/159010658.shtml)
+- 2026-06-30 04:45 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/5495912.shtml)

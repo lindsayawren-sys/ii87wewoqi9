@@ -1,58 +1,59 @@
-# 中央气象台：广东广西等地有较强降水
+# 中欧基金总经理刘建平：上海75家基金公司合计资产管理规模18.39万亿元，同比增长18%
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-中新网4月23日电 据中央气象台网站消息，预计23日至24日，华南等地部分地区仍有较强降雨，局地并伴有强对流天气，关注较强降水和局地强对流天气对交通运输、农业生产等的不利影响；未来三天，内蒙古东北部、东北地区等地有降水天气，关注对设施农业、畜牧业等的影响。 广东广西等地有较强降水 23日至24日，广东、广西东部、海南岛等地将有较强降雨，局地暴雨或大暴雨，并伴有强对流天气；内蒙古
+4月24日，晨星（中国）2026年度投资峰会在上海丽思卡尔顿酒店正式举办。本次峰会聚焦提升投资者服务水平、推动行业高质量发展，汇聚众多行业机构、业内大咖及主流媒体共同参与。上海市基金同业公会会长、中欧基金总经理刘建平受邀出席大会并发表开幕致辞。 刘建平指出，国内公募基金行业正迎来深刻变革，行业发展逻辑已从过往的“重规模”全面转向“重回报”。依托费率改革、业绩比较基准规范、中长期
 
 ## 正文
 
-中新网4月23日电 据中央气象台网站消息，预计23日至24日，华南等地部分地区仍有较强降雨，局地并伴有强对流天气，关注较强降水和局地强对流天气对交通运输、农业生产等的不利影响；未来三天，内蒙古东北部、东北地区等地有降水天气，关注对设施农业、畜牧业等的影响。
+4月24日，晨星（中国）2026年度投资峰会在上海丽思卡尔顿酒店正式举办。
 
-广东广西等地有较强降水 23日至24日，广东、广西东部、海南岛等地将有较强降雨，局地暴雨或大暴雨，并伴有强对流天气；内蒙古东北部、黑龙江北部等地部分地区有小到中雨(雪)或雨夹雪，局地大雪或暴雪。
+本次峰会聚焦提升投资者服务水平、推动行业高质量发展，汇聚众多行业机构、业内大咖及主流媒体共同参与。
 
-预计，4月23日08时至24日08时，广西东南部、广东南部、福建东南部等地部分地区有大到暴雨，其中，广东西南部等地部分地区有大暴雨(100～130毫米)。
+上海市基金同业公会会长、中欧基金总经理刘建平受邀出席大会并发表开幕致辞。
 
-上述部分地区伴有短时强降水(最大小时降雨量20～40毫米，局地可超过50毫米)，局地有雷暴大风等强对流天气。
+刘建平指出，国内公募基金行业正迎来深刻变革，行业发展逻辑已从过往的“重规模”全面转向“重回报”。
 
-中央气象台4月23日06时继续发布暴雨蓝色预警。
+依托费率改革、业绩比较基准规范、中长期考核优化等一系列制度完善，行业始终以投资者利益为核心，稳步推进高质量转型发展。
 
-国内未来三天具体预报 4月23日08时至24日08时，内蒙古东北部、黑龙江北部、新疆北疆北部和南疆西部山区、青海南部等地部分地区有小雪或雨夹雪，其中，内蒙古东北部、黑龙江西北部等地部分地区有中到大雪；福建东南部、广东中南部、广西东南部、台湾岛北部等地部分地区有中到大雨，其中，福建东南部、广东西南部等地部分地区有暴雨或大暴雨(100～130毫米)。
+作为全国资管行业发展核心高地，上海基金业发展成果亮眼。
 
-青海中西部、甘肃河西、川西高原北部等地部分地区有4～6级风。
+截至去年底，上海75家基金公司合计资产管理规模达18.39万亿元，同比增长18%；其中公募基金规模14.27万亿元，权益类基金规模3.55万亿元，同比增幅29%，指数基金规模1.64万亿元，同比增长43%，多项核心业务规模领跑全国。
 
-4月24日08时至25日08时，内蒙古东北部、黑龙江北部和东部、新疆沿天山地区和南疆西部山区等地部分地区有小雪或雨夹雪，其中，内蒙古东北部、黑龙江西北部等地部分地区有中到大雪；华南南部、福建东南部、海南岛、台湾岛等地部分地区有中到大雨，其中，广东南部、海南岛东北部等地部分地区有暴雨。
+在创新实践层面，上海基金行业多点发力、成果显著。
 
 ## 相关推荐
 
-- 2026-06-30 04:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 04:32 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 04:27 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 04:40 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 04:28 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 04:47 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 04:35 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 04:37 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 04:48 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 04:24 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 04:34 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-30 04:36 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 04:54 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 04:30 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 04:44 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 04:31 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 04:37 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 04:34 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 04:43 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 04:54 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 04:36 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 04:54 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 04:52 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 04:55 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 04:49 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:37 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/7378894.shtml)
-- 2026-06-30 04:24 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/8461678.shtml)
-- 2026-06-30 04:45 - [沉睡花园](https://www.blog.minike.top/Article/details/99360523.shtml)
-- 2026-06-30 04:31 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/91474785019.shtml)
-- 2026-06-30 04:53 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/1568818.shtml)
-- 2026-06-30 04:24 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/98729070814.shtml)
-- 2026-06-30 04:41 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/39810.shtml)
-- 2026-06-30 04:30 - [日本进球](https://www.share.minike.top/Article/details/779220211327.shtml)
-- 2026-06-30 04:24 - [日本进球](https://www.blog.kurohicncr.top/Article/details/77295.shtml)
-- 2026-06-30 04:49 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/7030153.shtml)
-- 2026-06-30 04:50 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/9727195.shtml)
-- 2026-06-30 04:38 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/992170494280.shtml)
-- 2026-06-30 04:29 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/19701.shtml)
-- 2026-06-30 04:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/190471306.shtml)
-- 2026-06-30 04:36 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/70602299078.shtml)
+- 2026-06-30 04:45 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/5420311.shtml)
+- 2026-06-30 04:33 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/40178477.shtml)
+- 2026-06-30 04:43 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/947514.shtml)
+- 2026-06-30 04:57 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/182333543428.shtml)
+- 2026-06-30 04:40 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/4728776325.shtml)
+- 2026-06-30 04:38 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/587072.shtml)
+- 2026-06-30 04:37 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/4620443.shtml)
+- 2026-06-30 04:44 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/761369511.shtml)
+- 2026-06-30 04:41 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/132899314662.shtml)
+- 2026-06-30 04:53 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/44513278.shtml)
+- 2026-06-30 04:35 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/07501896780.shtml)
+- 2026-06-30 04:32 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/71398.shtml)
+- 2026-06-30 04:56 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/252650389360.shtml)
+- 2026-06-30 04:40 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/95693581288.shtml)
+- 2026-06-30 04:56 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/24928382768.shtml)

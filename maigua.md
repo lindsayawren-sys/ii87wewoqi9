@@ -1,57 +1,53 @@
-# 私募巨头Thoma Bravo拟将Medallia移交债权人，数十亿股权恐归零
+# 十四届全国人大常委会第二十二次会议4月27日至30日举行
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-2026年4月22日——据知情人士透露，全球知名私募股权公司Thoma Bravo即将达成协议，将其持有的软件企业Medallia移交给债权人。这一债务重组举措意味着Thoma Bravo在Medallia投入的数十亿美元股权价值将化为乌有。 这一事件被视为私募信贷行业面临压力的最新信号。此前，摩根大通已下调了部分私募信贷基金所持软件公司贷款的抵押估值，并收紧了融资规模，主要原
+今天，全国人大常委会法工委举行记者会。记者会上发言人介绍，十四届全国人大常委会第六十五次委员长会议决定，十四届全国人大常委会第二十二次会议4月27日至30日在北京举行。 委员长会议建议，十四届全国人大常委会第二十二次会议： 审议监狱法修订草案、社会救助法草案、医疗保障法草案、耕地保护和质量提升法草案； 审议全国人大财政经济委员会关于提请审议企业国有资产法修订草案的议案；审议全国
 
 ## 正文
 
-2026年4月22日——据知情人士透露，全球知名私募股权公司Thoma Bravo即将达成协议，将其持有的软件企业Medallia移交给债权人。
+今天，全国人大常委会法工委举行记者会。
 
-这一债务重组举措意味着Thoma Bravo在Medallia投入的数十亿美元股权价值将化为乌有。
+记者会上发言人介绍，十四届全国人大常委会第六十五次委员长会议决定，十四届全国人大常委会第二十二次会议4月27日至30日在北京举行。
 
-这一事件被视为私募信贷行业面临压力的最新信号。
+委员长会议建议，十四届全国人大常委会第二十二次会议： 审议监狱法修订草案、社会救助法草案、医疗保障法草案、耕地保护和质量提升法草案； 审议全国人大财政经济委员会关于提请审议企业国有资产法修订草案的议案；审议全国人大农业与农村委员会关于提请审议农业法修订草案的议案； 审议国务院、中央军事委员会关于提请审议国防动员法修订草案的议案； 审议国务院关于提请审议水法修订草案的议案。
 
-此前，摩根大通已下调了部分私募信贷基金所持软件公司贷款的抵押估值，并收紧了融资规模，主要原因是市场担忧人工智能技术的快速发展可能对传统软件行业带来冲击。
-
-Medallia的债务问题可追溯至居家办公热潮时期。
-
-当时，Thoma Bravo与Hellman & Friedman等机构在软件行业高估值时期完成了多笔杠杆收购，相关债务将在未来数年内集中到期。
-
-随着市场环境变化，这些高估值资产的偿债能力正受到严峻考验。
-
-目前，私募信贷行业正接连遭遇大额赎回，承销标准也受到市场审视。
+(总台央视记者 武兵 周琨)
 
 ## 相关推荐
 
-- 2026-06-30 04:29 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 04:38 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 04:29 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 04:35 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 04:52 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 04:24 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 04:45 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 04:46 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 04:47 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 04:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 04:36 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 04:56 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 04:45 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 04:34 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 04:40 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 04:54 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 04:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 04:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 04:38 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-30 04:41 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 04:35 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 04:43 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 04:44 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 04:58 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 04:55 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 04:33 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:30 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/57345040.shtml)
-- 2026-06-30 04:43 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/400608665.shtml)
-- 2026-06-30 04:44 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/334492205.shtml)
-- 2026-06-30 04:34 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/2991208755.shtml)
-- 2026-06-30 04:45 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/64813930.shtml)
-- 2026-06-30 04:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/18398649829.shtml)
-- 2026-06-30 04:35 - [巴西绝杀](http://www.share.minike.top/Article/details/78645631471.shtml)
-- 2026-06-30 04:39 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/690101.shtml)
-- 2026-06-30 04:24 - [第一炉香](http://www.blog.minike.top/Article/details/226832191917.shtml)
-- 2026-06-30 04:47 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/752815.shtml)
-- 2026-06-30 04:33 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/29665946619.shtml)
-- 2026-06-30 04:48 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/66894770335.shtml)
-- 2026-06-30 04:45 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/214622.shtml)
-- 2026-06-30 04:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/31762.shtml)
-- 2026-06-30 04:25 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/43454233319.shtml)
+- 2026-06-30 04:49 - [TOP Prada](https://www.blog.minike.top/Article/details/512865.shtml)
+- 2026-06-30 04:55 - [苗族银饰](http://www.blog.minike.top/Article/details/3552777844.shtml)
+- 2026-06-30 04:50 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/487545780.shtml)
+- 2026-06-30 04:31 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/67918.shtml)
+- 2026-06-30 04:43 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/829338716884.shtml)
+- 2026-06-30 04:55 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/97961382633.shtml)
+- 2026-06-30 04:31 - [千与千寻](https://www.blog.minike.top/Article/details/918124.shtml)
+- 2026-06-30 04:47 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/9340662.shtml)
+- 2026-06-30 04:55 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/8771694925.shtml)
+- 2026-06-30 04:41 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/109415.shtml)
+- 2026-06-30 04:57 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/135918741541.shtml)
+- 2026-06-30 04:39 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/767743.shtml)
+- 2026-06-30 04:32 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/1556946245.shtml)
+- 2026-06-30 04:39 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/84526195688.shtml)
+- 2026-06-30 04:33 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/6501602.shtml)

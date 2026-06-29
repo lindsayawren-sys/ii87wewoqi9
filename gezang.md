@@ -1,58 +1,57 @@
-# 今年3月新生仔猪数量17个月后首次同比下降，生猪价格企稳
+# 广西最大工业城市产才融合促发展 推动制造业向“新”转型
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 张倩楠 界面新闻编辑 | 刘海川 “全国能繁母猪存栏量已连续9个月下降，今年3月份新生仔猪数量17个月后首次同比下降，生猪供求关系逐步改善，价格企稳。”2026年4月23日，国新办就2026年一季度农业农村经济运行情况举行新闻发布会，农业农村部副部长麦尔丹·木盖提介绍。 近期，生猪价格持续下行，受供需失衡影响，2025年生猪价格年均价触及近五年来的最低水平。进
+中新网柳州4月26日电(陈梅)4月26日，2026年“柳州企业日”“柳州工匠日”活动暨柳州市第八届“龙城人才周”启动仪式在广西柳州工业博物馆举行。当前，该市聚力以产才融合推动新型工业化、发展新质生产力，加快建设制造强市。 柳州是广西最大工业城市，在制造业人才引育、产才融合创新等方面成效显著。柳州市委书记张壮在致辞中指出，举办“企业日”“工匠日”和“龙城人才周”活动，就是向全社会
 
 ## 正文
 
-界面新闻记者 | 张倩楠 界面新闻编辑 | 刘海川 “全国能繁母猪存栏量已连续9个月下降，今年3月份新生仔猪数量17个月后首次同比下降，生猪供求关系逐步改善，价格企稳。
+中新网柳州4月26日电(陈梅)4月26日，2026年“柳州企业日”“柳州工匠日”活动暨柳州市第八届“龙城人才周”启动仪式在广西柳州工业博物馆举行。
 
-”2026年4月23日，国新办就2026年一季度农业农村经济运行情况举行新闻发布会，农业农村部副部长麦尔丹·木盖提介绍。
+当前，该市聚力以产才融合推动新型工业化、发展新质生产力，加快建设制造强市。
 
-近期，生猪价格持续下行，受供需失衡影响，2025年生猪价格年均价触及近五年来的最低水平。
+柳州是广西最大工业城市，在制造业人才引育、产才融合创新等方面成效显著。
 
-进入2026年，“余震”尚存，根据国家生猪市场披露的数据，全国生猪成交均价自2026年2月以来出现单边下滑，自3月底生猪成交均价下探至10元/公斤以下，4月初跌至8.88元/公斤，创下近十年新低纪录。
+柳州市委书记张壮在致辞中指出，举办“企业日”“工匠日”和“龙城人才周”活动，就是向全社会传递企业最光荣、工匠最可敬、人才最宝贵的鲜明导向。
 
-面对生猪价格深度下探，近期政策推出产能调控“组合拳”。
+他希望，各方齐心协力推动柳州加快从工业城市向新型工业化示范区转变，从传统“老三样”产业向构建全新现代化工业体系跨越。
 
-3月初，农业农村部曾联合国家发展改革委召集大型生猪养殖企业召开专题会议，提出将能繁母猪存栏量调控目标下调至3650万头，较2025年12月末的3961万头下降约7.8%。
+广西飓芯科技有限责任公司聚焦氮化镓激光芯片这一光电子领域核心技术，核心团队历经二十余年技术攻关，成功打破国外长期垄断，成为柳州培育新质生产力的标杆企业。
 
-3月19日，相关部门召集国内多家重点生猪养殖企业召开生猪行业专题会议，明确产能调控、禁止二次育肥等要求，同时通过涉农贷款政策限制养殖规模扩张。
+该公司副总经理蒋盛翔是土生土长的柳州人。
 
-中国农业科学院农业经济与发展研究所研究员王祖力此前接受媒体采访时表示，2025年能繁母猪存栏量持续处于高位，按10个月生长周期推算，2026年上半年生猪供应量处于高位。
+他介绍，团队被柳州重实业、重创新、重人才的浓厚氛围所吸引，选择扎根柳州发展。
 
 ## 相关推荐
 
-- 2026-06-30 04:25 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 04:51 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 04:45 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 04:49 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-30 04:39 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 04:28 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 04:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 04:33 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 04:36 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 04:34 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 04:48 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 04:51 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 04:57 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 04:59 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 04:45 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 04:47 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 04:57 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 04:51 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 04:59 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 04:55 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 04:47 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 04:37 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 04:30 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:38 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/59561329667.shtml)
-- 2026-06-30 04:26 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/55871.shtml)
-- 2026-06-30 04:40 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/02285.shtml)
-- 2026-06-30 04:26 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/26216740.shtml)
-- 2026-06-30 04:31 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/6349531967.shtml)
-- 2026-06-30 04:42 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/904105.shtml)
-- 2026-06-30 04:43 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/078973.shtml)
-- 2026-06-30 04:34 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/82999463090.shtml)
-- 2026-06-30 04:48 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/045765538.shtml)
-- 2026-06-30 04:39 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/3603427.shtml)
-- 2026-06-30 04:31 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/18344814.shtml)
-- 2026-06-30 04:36 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/0910063905.shtml)
-- 2026-06-30 04:26 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/4404682619.shtml)
-- 2026-06-30 04:43 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/893474049495.shtml)
-- 2026-06-30 04:49 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/174808034.shtml)
+- 2026-06-30 04:31 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/3853137.shtml)
+- 2026-06-30 04:36 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/0531009.shtml)
+- 2026-06-30 04:37 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/06386758643.shtml)
+- 2026-06-30 04:56 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/836110078.shtml)
+- 2026-06-30 04:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/16101246.shtml)
+- 2026-06-30 04:48 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/2391079936.shtml)
+- 2026-06-30 04:44 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/92454445.shtml)
+- 2026-06-30 04:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/10982452.shtml)
+- 2026-06-30 04:55 - [美股](https://www.blog.kurohicncr.top/Article/details/053460473959.shtml)
+- 2026-06-30 04:40 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/2105516851.shtml)
+- 2026-06-30 04:31 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/9948260.shtml)
+- 2026-06-30 04:51 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/355385.shtml)
+- 2026-06-30 04:57 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/2226363459.shtml)
+- 2026-06-30 04:48 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/032403.shtml)
+- 2026-06-30 04:54 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/424832.shtml)

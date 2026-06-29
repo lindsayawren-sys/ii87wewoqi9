@@ -1,61 +1,58 @@
-# A股三大股指集体收跌，煤炭、油气、电力逆势走强
+# 广西崇左举办跨国阅读大会
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月23日，A股三大股指集体高开。早盘两市震荡下行，跌幅扩大。午后略有回暖，但个股依旧呈现大面积下跌态势。 从盘面上看，算力硬件产业链走低，CPO、存储器、PCB方向领跌；稀土永磁、能源金属、创新药、金融科技、商业航天、AI应用概念股跌幅靠前。大消费反弹，煤炭、油气、电力逆势走强。 至收盘，上证综指跌0.3
+中新网崇左4月25日电(黄令妍)4月25日，“边域书香 跨国共读”2026年崇左市跨国阅读大会举行，中越知名作家、文学爱好者、学生代表等800余人共同开启一场跨越国界的文学之旅。 活动在作家访谈环节中拉开帷幕。鲁迅文学奖获得者肖江虹、廖润柏(笔名：鬼子)，越南作家范文当、丁氏如翠，广西网络文学作家姚李福(笔名：浮梦流年)、文学桂军人才培养“1+2”工程学员黄鼎雄(笔名：顾骨)，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网崇左4月25日电(黄令妍)4月25日，“边域书香 跨国共读”2026年崇左市跨国阅读大会举行，中越知名作家、文学爱好者、学生代表等800余人共同开启一场跨越国界的文学之旅。
 
-4月23日，A股三大股指集体高开。
+活动在作家访谈环节中拉开帷幕。
 
-早盘两市震荡下行，跌幅扩大。
+鲁迅文学奖获得者肖江虹、廖润柏(笔名：鬼子)，越南作家范文当、丁氏如翠，广西网络文学作家姚李福(笔名：浮梦流年)、文学桂军人才培养“1+2”工程学员黄鼎雄(笔名：顾骨)，分别分享了他们的创作心得、阅读感悟，让在场观众深切感受到文字创作的力量。
 
-午后略有回暖，但个股依旧呈现大面积下跌态势。
+进入中越青年文学经典共读环节，两国青年代表深情共读中越作家优秀文学作品节选，在文字里交流互鉴，增进友谊。
 
-从盘面上看，算力硬件产业链走低，CPO、存储器、PCB方向领跌；稀土永磁、能源金属、创新药、金融科技、商业航天、AI应用概念股跌幅靠前。
+随后，全场观众齐声诵读中国古代经典诗作。
 
-大消费反弹，煤炭、油气、电力逆势走强。
+现场还举行了书籍签售、文化市集等活动，作家们与读者亲切互动，分享阅读乐趣。
 
-至收盘，上证综指跌0.32%，报4093.25点；深证成指跌0.88%，报15043.45点；创业板指跌0.87%，报3720.25点。
+据介绍，今年崇左市跨国阅读大会首次走出室内，以山水为幕、以自然为舞台，打造沉浸式阅读新体验。
 
-Wind统计显示，两市及北交所共1329家上涨，4068家下跌，平盘有100家。
+活动现场创新设置科技互动打卡区，VR阅读设备让读者“走进”书中世界，智能机器人互动吸引青少年驻足体验，科技与人文的融合为传统阅读注入新活力。
 
 ## 相关推荐
 
-- 2026-06-30 04:40 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 04:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 04:41 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 04:27 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 04:46 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 04:34 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 04:53 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 04:52 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 04:38 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 04:36 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 04:39 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 04:35 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 04:44 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 04:48 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 04:36 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 04:46 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 04:49 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 04:33 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 04:53 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 04:40 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 04:43 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 04:54 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 04:30 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 04:32 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 04:55 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 04:58 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 04:54 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:27 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/134081719145.shtml)
-- 2026-06-30 04:26 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/6767069.shtml)
-- 2026-06-30 04:48 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/14466798.shtml)
-- 2026-06-30 04:36 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/769431264639.shtml)
-- 2026-06-30 04:50 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/9535291484.shtml)
-- 2026-06-30 04:53 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/82967969893.shtml)
-- 2026-06-30 04:37 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/196309447.shtml)
-- 2026-06-30 04:48 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/062832.shtml)
-- 2026-06-30 04:46 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/2024259087.shtml)
-- 2026-06-30 04:53 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/57278.shtml)
-- 2026-06-30 04:44 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/404205.shtml)
-- 2026-06-30 04:31 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/36410820.shtml)
-- 2026-06-30 04:27 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/528664538.shtml)
-- 2026-06-30 04:33 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/7471573.shtml)
-- 2026-06-30 04:34 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/04836819.shtml)
+- 2026-06-30 04:48 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/13187748.shtml)
+- 2026-06-30 04:46 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/4020992.shtml)
+- 2026-06-30 04:55 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/337744673883.shtml)
+- 2026-06-30 04:52 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/0820971625.shtml)
+- 2026-06-30 04:49 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/99620843.shtml)
+- 2026-06-30 04:52 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/05007199878.shtml)
+- 2026-06-30 04:40 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/08029.shtml)
+- 2026-06-30 04:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/101429644982.shtml)
+- 2026-06-30 04:57 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/372463764.shtml)
+- 2026-06-30 04:51 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/42568934220.shtml)
+- 2026-06-30 04:39 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/64805.shtml)
+- 2026-06-30 04:46 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/2569591.shtml)
+- 2026-06-30 04:57 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/827690.shtml)
+- 2026-06-30 04:39 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/1160771.shtml)
+- 2026-06-30 04:30 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/695173380.shtml)

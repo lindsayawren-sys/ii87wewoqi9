@@ -1,61 +1,57 @@
-# 傲农生物摘帽不满一年再度被立案，受损投资者维权通道现已开启
+# 广合科技盘中涨超15% 预计第一季度净利润同比增长58%至66%
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、立案调查叠加业绩大幅下滑 2026年4月22日晚，傲农生物（维权）公告称，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。公司在披露《立案通知书》的同日披露了2025年年度财报，财报显示，公司全年实现营业收入84.75亿元，同比下降3.29%，这已是连续第
+广合科技盘中涨超15%，月内累计涨幅已超80%。截至发稿，涨7.37%，报163.10港元，成交额4.11亿港元。 广合科技拟于4月29日举行董事会会议考虑及通过一季度业绩。公司此前发布盈喜，预计2026年第一季度归属于上市公司股东的净利润为3.8亿元-4亿元，比上年同期增长58.09%-66.41%。主要得益于算力PCB市场爆发、泰国工厂产能释放及黄石子公司成本优化三大引擎驱
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、立案调查叠加业绩大幅下滑 2026年4月22日晚，傲农生物（维权）公告称，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。
+广合科技盘中涨超15%，月内累计涨幅已超80%。
 
-公司在披露《立案通知书》的同日披露了2025年年度财报，财报显示，公司全年实现营业收入84.75亿元，同比下降3.29%，这已是连续第三年出现营收下滑。
+截至发稿，涨7.37%，报163.10港元，成交额4.11亿港元。
 
-全年归母净利润为7762.16万元，同比大幅下滑86.60%，扣非归母净利润仍处于亏损状态，达-4.74亿元。
+广合科技拟于4月29日举行董事会会议考虑及通过一季度业绩。
 
-业绩大幅下滑的利空与立案调查的合规风险叠加，让这家刚摆脱退市危机、摘帽未满一年的农牧企业，再次引发市场关注。
+公司此前发布盈喜，预计2026年第一季度归属于上市公司股东的净利润为3.8亿元-4亿元，比上年同期增长58.09%-66.41%。
 
-目前暂定于符合以下任意区间的投资者即可参与索赔：于2026年4月22日（含当日）之前买入，并在2026年4月23日之后卖出或仍持有而亏损。
+主要得益于算力PCB市场爆发、泰国工厂产能释放及黄石子公司成本优化三大引擎驱动。
 
-二、过去曾有多次信披违规 此次立案并非该公司首次触碰监管红线。
+浙商证券指出，广合科技是全球服务器PCB领域的重要头部厂商之一。
 
-2024年3月，上交所已对公司及控股股东、实际控制人出具监管警示；同年9月，福建证监局再发警示函，明确指出公司存在未及时披露诉讼仲裁、到期债务违约、对外担保及控股股东股权质押等多项违规行为。
+公司是少数真正深度受益于AI服务器PCB升级周期的纯正标的。
 
-回溯审计与内控记录可见，公司的合规问题早有端倪。
+“三地四厂”布局逐步成型，产能、交付与全球化能力进入新阶段。
 
 ## 相关推荐
 
-- 2026-06-30 04:27 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 04:32 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 04:24 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 04:34 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 04:40 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 04:44 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 04:40 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 04:53 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 04:37 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 04:28 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 04:39 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 04:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-30 04:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 04:28 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 04:28 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 04:37 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 04:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 04:54 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 04:42 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 04:33 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 04:48 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 04:42 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 04:40 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 04:44 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 04:41 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 04:43 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:39 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/083095.shtml)
-- 2026-06-30 04:50 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/582650790395.shtml)
-- 2026-06-30 04:36 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/444836546170.shtml)
-- 2026-06-30 04:26 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/110301352.shtml)
-- 2026-06-30 04:49 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/089622315952.shtml)
-- 2026-06-30 04:32 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/02774240488.shtml)
-- 2026-06-30 04:28 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/1743525589.shtml)
-- 2026-06-30 04:42 - [明星大侦探第四季](https://www.share.minike.top/Article/details/45199203.shtml)
-- 2026-06-30 04:43 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/77707024.shtml)
-- 2026-06-30 04:38 - [苗族银饰](http://www.blog.minike.top/Article/details/534554.shtml)
-- 2026-06-30 04:32 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/576497.shtml)
-- 2026-06-30 04:34 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/68611190324.shtml)
-- 2026-06-30 04:33 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/29105.shtml)
-- 2026-06-30 04:36 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/412130077.shtml)
-- 2026-06-30 04:32 - [请回答王牌2019](http://www.share.minike.top/Article/details/88901449.shtml)
+- 2026-06-30 04:35 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/97222370932.shtml)
+- 2026-06-30 04:37 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/021484808758.shtml)
+- 2026-06-30 04:59 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/1628409.shtml)
+- 2026-06-30 04:44 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/19320.shtml)
+- 2026-06-30 04:30 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/58032220067.shtml)
+- 2026-06-30 04:45 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/94982631.shtml)
+- 2026-06-30 04:37 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/15073256134.shtml)
+- 2026-06-30 04:43 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/05546930940.shtml)
+- 2026-06-30 04:40 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/85918627811.shtml)
+- 2026-06-30 04:36 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/410229039346.shtml)
+- 2026-06-30 04:59 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/66289426388.shtml)
+- 2026-06-30 04:51 - [沙丘](https://www.share.minike.top/Article/details/69431770001.shtml)
+- 2026-06-30 04:57 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/76604002.shtml)
+- 2026-06-30 04:44 - [田曦薇没招了](https://www.share.minike.top/Article/details/5746562.shtml)
+- 2026-06-30 04:31 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/9739773857.shtml)

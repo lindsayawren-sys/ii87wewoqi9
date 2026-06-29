@@ -1,61 +1,58 @@
-# （经济观察）中国春耕生产“蹄疾步稳” 筑牢全年粮食丰收底盘
+# 西藏那曲发布35卷格萨尔说唱丛书 逾千万字留存英雄史诗
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-中新社北京4月23日电 (记者 陈溯)当下，中国各地春耕自南向北陆续展开。在23日举行的国新办新闻发布会上，中国农业农村部称，春耕生产进展顺利，各地紧盯粮食安全这一“国之大者”，抢抓农时，筑牢全年粮食丰收底盘。“春播粮食面积占全年粮食面积的一半以上，产量占六成以上，目前春播进度正常，意向面积总体稳定。”农业农村部种植业管理司负责人吕修涛在发布会上说，当前正值谷雨时节，全国春耕春
+中新社拉萨4月23日电 (记者 江飞波)4月23日是世界读书日，《那曲本土格萨尔说唱艺人说唱丛书》新书发布会当日在西藏自治区那曲市图书馆举行。该套丛书共35卷、总字数逾1080万字，系统收录了24个不同的格萨尔故事，是那曲市“十四五”期间在格萨尔文化保护领域取得的标志性成果。格萨尔说唱是藏族民间曲艺品种，以口头说唱形式演绎英雄史诗《格萨尔王》。2006年，《格萨尔王》列入第一批
 
 ## 正文
 
-中新社北京4月23日电 (记者 陈溯)当下，中国各地春耕自南向北陆续展开。
+中新社拉萨4月23日电 (记者 江飞波)4月23日是世界读书日，《那曲本土格萨尔说唱艺人说唱丛书》新书发布会当日在西藏自治区那曲市图书馆举行。
 
-在23日举行的国新办新闻发布会上，中国农业农村部称，春耕生产进展顺利，各地紧盯粮食安全这一“国之大者”，抢抓农时，筑牢全年粮食丰收底盘。
+该套丛书共35卷、总字数逾1080万字，系统收录了24个不同的格萨尔故事，是那曲市“十四五”期间在格萨尔文化保护领域取得的标志性成果。
 
-“春播粮食面积占全年粮食面积的一半以上，产量占六成以上，目前春播进度正常，意向面积总体稳定。
+格萨尔说唱是藏族民间曲艺品种，以口头说唱形式演绎英雄史诗《格萨尔王》。
 
-”农业农村部种植业管理司负责人吕修涛在发布会上说，当前正值谷雨时节，全国春耕春播全面展开，春季农业生产顺利推进。
+2006年，《格萨尔王》列入第一批国家级非物质文化遗产名录，2009年列入联合国教科文组织人类非物质文化遗产代表作名录。
 
-据最新农情调度，春播粮食进度已经过两成、同比持平略快；其中，早稻播栽已经过八成，春玉米播种过一成，春大豆播种陆续展开。
+那曲市文联作家民间文艺家协会主席、该系列丛书执行主编嘎玛贡加介绍，该丛书填补了那曲无系统整理出版大规模格萨尔文化典籍的历史空白。
 
-夏粮是全年粮食生产的第一季，产量占全年粮食产量两成多。
+项目自2020年由民间文化人发起，2021年纳入那曲市政协文史资料编纂计划，并于2022年获批专项资金353万元(人民币)。
 
-春管对筑牢夏粮丰收根基具有关键作用。
+丛书的说唱艺人均为那曲人士，收录内容多为首次整理的全新素材，深度融合了当地游牧文化与山水文化元素，实现了从“口头传承”向“文字记录”与“科技赋能”相结合的复合型传承转变。
 
-吕修涛表示，去年秋季农业部门全力以赴应对黄淮海连阴雨影响，稳住了冬小麦面积。
+那曲市文化和旅游局相关负责人介绍，该丛书借助现代出版方式，将草原深处的史诗声音转化为可阅读、可传播的文本，不仅是对古老口头艺术的珍贵保存，也是中华优秀传统文化创造性转化与创新性发展的生动实践，为学术界提供了第一手资料。
 
 ## 相关推荐
 
-- 2026-06-30 04:37 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 04:26 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 04:33 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 04:50 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 04:39 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 04:28 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 04:37 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 04:37 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 04:51 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 04:26 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 04:52 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 04:25 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 04:44 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-30 04:49 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 04:38 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-30 04:53 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 04:50 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 04:30 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 04:44 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 04:30 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 04:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 04:36 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 04:52 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 04:45 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 04:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 04:35 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 04:55 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:48 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/694786626.shtml)
-- 2026-06-30 04:25 - [我和我的家乡](https://www.share.minike.top/Article/details/25083159.shtml)
-- 2026-06-30 04:40 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/587093676.shtml)
-- 2026-06-30 04:40 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/7599620963.shtml)
-- 2026-06-30 04:33 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/010084984526.shtml)
-- 2026-06-30 04:38 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/421944935.shtml)
-- 2026-06-30 04:36 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/997937079424.shtml)
-- 2026-06-30 04:52 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/8933464.shtml)
-- 2026-06-30 04:41 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/52664.shtml)
-- 2026-06-30 04:25 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/76054268634.shtml)
-- 2026-06-30 04:45 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/3372996.shtml)
-- 2026-06-30 04:46 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/9461530.shtml)
-- 2026-06-30 04:52 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/74223743518.shtml)
-- 2026-06-30 04:40 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/3036944370.shtml)
-- 2026-06-30 04:47 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/748277831190.shtml)
+- 2026-06-30 04:38 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/59297820260.shtml)
+- 2026-06-30 04:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/49300.shtml)
+- 2026-06-30 04:31 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/9343482.shtml)
+- 2026-06-30 04:41 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/001014535.shtml)
+- 2026-06-30 04:42 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/717163.shtml)
+- 2026-06-30 04:42 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/89213.shtml)
+- 2026-06-30 04:51 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/1092438728.shtml)
+- 2026-06-30 04:50 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/883510177884.shtml)
+- 2026-06-30 04:43 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/65729041.shtml)
+- 2026-06-30 04:31 - [明星大侦探第四季](https://www.share.minike.top/Article/details/54126.shtml)
+- 2026-06-30 04:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/90953625072.shtml)
+- 2026-06-30 04:44 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/13242719672.shtml)
+- 2026-06-30 04:38 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/7443735586.shtml)
+- 2026-06-30 04:57 - [巴西vs日本](http://www.share.minike.top/Article/details/4964929.shtml)
+- 2026-06-30 04:54 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/480463295199.shtml)

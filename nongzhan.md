@@ -1,58 +1,49 @@
-# ASMPT盘中涨超7% 首季盈利及第二季展望均超预期
+# 中新健康｜日常做好这些事，可有效降低肿瘤发生风险
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-ASMPT（00522）盘中涨超7%，截至发稿，股价上涨5.06%，现报159.90港元，成交额3.19亿港元。 ASMPT近日公布一季度财报，持续经营业务销售收入达39.7亿港元，同比增长32.0%。值得关注的是，公司新增订单总额达56.7亿港元，按季大幅增长46.0%，远超市场预期。报告显示，ASMPT首季盈利约3.24亿港元，同比增长达192.9%。 花旗发表研究报告指，
+发布时间：2026年04月23日 22:17 来源：中国新闻网 4月23日，国家卫生健康委举行“介绍肿瘤预防及早筛相关健康知识”新闻发布会。国家癌症中心研究员魏文强在会上表示，预防肿瘤可从几方面入手：养成健康生活方式，不吸烟、控制饮酒、规律运动；坚持科学饮食，充足摄入蔬果全谷物，避开霉变、过烫等食物；注意个人卫生，用公勺公筷，按规接种乙肝疫苗和HPV疫苗。许多肿瘤可通过健康生活
 
 ## 正文
 
-ASMPT（00522）盘中涨超7%，截至发稿，股价上涨5.06%，现报159.90港元，成交额3.19亿港元。
+发布时间：2026年04月23日 22:17 来源：中国新闻网 4月23日，国家卫生健康委举行“介绍肿瘤预防及早筛相关健康知识”新闻发布会。
 
-ASMPT近日公布一季度财报，持续经营业务销售收入达39.7亿港元，同比增长32.0%。
+国家癌症中心研究员魏文强在会上表示，预防肿瘤可从几方面入手：养成健康生活方式，不吸烟、控制饮酒、规律运动；坚持科学饮食，充足摄入蔬果全谷物，避开霉变、过烫等食物；注意个人卫生，用公勺公筷，按规接种乙肝疫苗和HPV疫苗。
 
-值得关注的是，公司新增订单总额达56.7亿港元，按季大幅增长46.0%，远超市场预期。
+许多肿瘤可通过健康生活方式预防。
 
-报告显示，ASMPT首季盈利约3.24亿港元，同比增长达192.9%。
-
-花旗发表研究报告指，ASMPT首季业绩远超预期，受惠于半导体及SMT业务均表现强劲。
-
-第二季收入指引亦超出预期，集团预计收入介乎5.4亿至6亿美元，其下限已高于市场预期的4.16亿美元。
-
-集团的订单出货比更升至1.43，为五年来最高，主要受惠于半导体及SMT业务均录得强劲订单，其中SMT订单更创下纪录新高。
-
-责任编辑：卢昱君
+(张静) 责任编辑：【宋宇晟】
 
 ## 相关推荐
 
-- 2026-06-30 04:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 04:33 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 04:31 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 04:51 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 04:29 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 04:38 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 04:52 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 04:33 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 04:25 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 04:45 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 04:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 04:26 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 04:47 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 04:46 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 04:32 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 04:40 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 04:33 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 04:32 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 04:34 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 04:41 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 04:39 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 04:52 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 04:53 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:45 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/59982.shtml)
-- 2026-06-30 04:31 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/9077546626.shtml)
-- 2026-06-30 04:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/578188.shtml)
-- 2026-06-30 04:30 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/2763271.shtml)
-- 2026-06-30 04:33 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/51958.shtml)
-- 2026-06-30 04:25 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/00139.shtml)
-- 2026-06-30 04:27 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/611973353.shtml)
-- 2026-06-30 04:40 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/9629998.shtml)
-- 2026-06-30 04:48 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/02812.shtml)
-- 2026-06-30 04:36 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/58359711537.shtml)
-- 2026-06-30 04:27 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/6456059751.shtml)
-- 2026-06-30 04:45 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/90194.shtml)
-- 2026-06-30 04:33 - [斛珠夫人](https://www.blog.minike.top/Article/details/1909349139.shtml)
-- 2026-06-30 04:48 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/234802.shtml)
-- 2026-06-30 04:33 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/95476899640.shtml)
+- 2026-06-30 04:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/38680994.shtml)
+- 2026-06-30 04:46 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/92739305204.shtml)
+- 2026-06-30 04:56 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/897528263.shtml)
+- 2026-06-30 04:34 - [斗破苍穹](http://www.blog.minike.top/Article/details/562811.shtml)
+- 2026-06-30 04:54 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/7729002.shtml)
+- 2026-06-30 04:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/361256320153.shtml)
+- 2026-06-30 04:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/20676.shtml)
+- 2026-06-30 04:38 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/30515931.shtml)
+- 2026-06-30 04:30 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/324869.shtml)
+- 2026-06-30 04:54 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/75880.shtml)
+- 2026-06-30 04:40 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/6785242940.shtml)
+- 2026-06-30 04:33 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/716572.shtml)
+- 2026-06-30 04:53 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/601867698.shtml)
+- 2026-06-30 04:53 - [我和我的家乡](https://www.share.minike.top/Article/details/657662.shtml)
+- 2026-06-30 04:39 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/50998172221.shtml)

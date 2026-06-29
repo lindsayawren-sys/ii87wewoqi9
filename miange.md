@@ -1,57 +1,61 @@
-# 黑石CEO：基金设计已考量信贷周期
+# 湖南在渝举办专场招聘 以硬核举措揽才纳贤
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-据4月23日报道，全球最大另类资产管理公司黑石集团（Blackstone）今日公布季度业绩。面对私募信贷募资放缓和散户投资者加速赎回的压力，黑石集团首席执行官苏世民（Stephen Schwarzman）回应称，公司的基金在设计之初就已将信贷周期考虑在内，以应对市场波动。 当前，华尔街另类资管行业正面临一场投资者信任考验。私募信贷募资增速陷入停滞，散户赎回规模攀升，市场对私募信
+中新网重庆4月26日电 (记者 钟旖)“好的平台，能让青春更有方向、更有奔头。只要你有能力、肯奋斗，就能被看见。”26日，在“智汇潇湘 才聚湖南”重庆站专场招聘活动上，湖南科技企业拓维信息品牌与市场营销专家周奕欣谈及职业选择，向求职学子分享道。 当天，湖南省147家用人单位走进重庆大学揽才纳贤，为求职者带来5395个岗位。 湖南省人力资源和社会保障厅相关负责人介绍，赴渝引才，湖
 
 ## 正文
 
-据4月23日报道，全球最大另类资产管理公司黑石集团（Blackstone）今日公布季度业绩。
+中新网重庆4月26日电 (记者 钟旖)“好的平台，能让青春更有方向、更有奔头。
 
-面对私募信贷募资放缓和散户投资者加速赎回的压力，黑石集团首席执行官苏世民（Stephen Schwarzman）回应称，公司的基金在设计之初就已将信贷周期考虑在内，以应对市场波动。
+只要你有能力、肯奋斗，就能被看见。
 
-当前，华尔街另类资管行业正面临一场投资者信任考验。
+”26日，在“智汇潇湘 才聚湖南”重庆站专场招聘活动上，湖南科技企业拓维信息品牌与市场营销专家周奕欣谈及职业选择，向求职学子分享道。
 
-私募信贷募资增速陷入停滞，散户赎回规模攀升，市场对私募信贷模式的结构性风险担忧加剧。
+当天，湖南省147家用人单位走进重庆大学揽才纳贤，为求职者带来5395个岗位。
 
-黑石的旗舰私募信贷基金BCRED甚至在2月份录得逾三年来首次月度亏损。
+湖南省人力资源和社会保障厅相关负责人介绍，赴渝引才，湖南具有就业岗位好、政策服务好、创业环境好等优势。
 
-苏世民强调，黑石在每一次经济周期中都比以前更加强大。
+比如，本轮线下招聘，湖南26家事业单位提供岗位1370个，9家博士后站点提供岗位213个，49家央国企提供岗位1295个，63家民营企业提供岗位2517个，覆盖湖南工程机械、轨道交通等优势产业，涉及人工智能、量子科技等新兴和未来产业。
 
-他指出，随着美联储开启降息周期，较低的利率意味着更好的交易环境即将到来。
+政策方面，湖南省委、省政府出台了高质量充分就业27条措施，提出了支持高校毕业生等青年在湖南发展的“五有”硬核举措，为到湖南求职的大学生提供住宿、租房、购房等一系列服务，并开通情侣就业绿色服务通道。
 
-黑石预计，2025年将是IPO和交易活动更为活跃的一年，并已为新一轮投资周期做好了准备。
+线上服务方面，该省特别打造“留湘来湘高校毕业生就业服务平台”，集政策发布、岗位匹配、预约面试、信息推送、补贴兑现于一体，求职者可实现查政策、找岗位、领补贴、办业务“一网通办”。
 
 ## 相关推荐
 
-- 2026-06-30 04:25 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 04:41 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 04:53 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-30 04:37 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 04:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 04:25 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 04:34 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 04:47 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-30 04:40 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 04:34 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 04:48 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 04:41 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 04:44 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 04:41 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 04:32 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 04:58 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 04:42 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 04:33 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 04:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 04:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 04:57 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 04:52 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 04:48 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 04:30 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 04:33 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 04:39 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:42 - [日本16强魔咒](http://www.share.minike.top/Article/details/755064817519.shtml)
-- 2026-06-30 04:28 - [85花告别古偶](http://www.blog.minike.top/Article/details/38696142127.shtml)
-- 2026-06-30 04:26 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/47044063.shtml)
-- 2026-06-30 04:48 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/89180010735.shtml)
-- 2026-06-30 04:33 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/04767709607.shtml)
-- 2026-06-30 04:43 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/34313998203.shtml)
-- 2026-06-30 04:28 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/6381637.shtml)
-- 2026-06-30 04:35 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/8721543.shtml)
-- 2026-06-30 04:52 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/895841.shtml)
-- 2026-06-30 04:41 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/3479118.shtml)
-- 2026-06-30 04:47 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/43400825.shtml)
-- 2026-06-30 04:53 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/6836516892.shtml)
-- 2026-06-30 04:24 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/808924.shtml)
-- 2026-06-30 04:46 - [《共患难》](https://www.blog.minike.top/Article/details/196121048.shtml)
-- 2026-06-30 04:35 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/33810345451.shtml)
+- 2026-06-30 04:36 - [天道](https://www.blog.minike.top/Article/details/850406378325.shtml)
+- 2026-06-30 04:30 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/8538891559.shtml)
+- 2026-06-30 04:35 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/19132246.shtml)
+- 2026-06-30 04:50 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/4278060.shtml)
+- 2026-06-30 04:56 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/0866253948.shtml)
+- 2026-06-30 04:51 - [沙丘](http://www.share.kurohicncr.top/Article/details/987767965458.shtml)
+- 2026-06-30 04:41 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/47400.shtml)
+- 2026-06-30 04:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/525477672356.shtml)
+- 2026-06-30 04:45 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/93494512.shtml)
+- 2026-06-30 04:42 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/21545752.shtml)
+- 2026-06-30 04:58 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/35085040051.shtml)
+- 2026-06-30 04:46 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/887194834277.shtml)
+- 2026-06-30 04:33 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/928989.shtml)
+- 2026-06-30 04:30 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/6433244491.shtml)
+- 2026-06-30 04:43 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/51344677135.shtml)

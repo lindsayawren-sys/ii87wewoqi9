@@ -1,59 +1,57 @@
-# “疯王”特朗普、“疯狂的战争”与“癫狂的市场”
+# 威邦运动再闯IPO：换报告期“藏”下滑，分完5800万募2亿“补流”
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：华尔街见闻 4月23日，美伊战争进入第八周。 就在几天前，局势一度出现转机：以黎停火落地，伊朗宣布重开霍尔木兹海峡，伊斯兰堡谈判似乎近在眼前。但随后，特朗普宣布美国海上封锁不会解除，并下令登检驶往伊朗的船只——伊朗随即宣布重新关闭海峡，并强硬拒绝第二轮谈判。 这种反复无常已经不是第一次了。 从开战到现
+来源：尺度商业 文 | 张佳儒 编辑 | 杨万里 4月15日，威邦运动科技集团股份公司（以下称“威邦运动”）招股书在证监会官网更新披露，公司再次向沪市主板“户外泳池装备第一股”发起冲刺。 早在2023年5月，威邦运动首次递交招股书，历经一轮问询、2024年底更新材料，却在2025年2月主动撤回申请。 在威邦运动首次闯关IPO历程中，外界对其“突击分红8亿又大手笔补流”、“大客户
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：尺度商业 文 | 张佳儒 编辑 | 杨万里 4月15日，威邦运动科技集团股份公司（以下称“威邦运动”）招股书在证监会官网更新披露，公司再次向沪市主板“户外泳池装备第一股”发起冲刺。
 
-来源：华尔街见闻 4月23日，美伊战争进入第八周。
+早在2023年5月，威邦运动首次递交招股书，历经一轮问询、2024年底更新材料，却在2025年2月主动撤回申请。
 
-就在几天前，局势一度出现转机：以黎停火落地，伊朗宣布重开霍尔木兹海峡，伊斯兰堡谈判似乎近在眼前。
+在威邦运动首次闯关IPO历程中，外界对其“突击分红8亿又大手笔补流”、“大客户依赖”、“实控人占用资金”等问题广泛关注，监管也对此针对性问询。
 
-但随后，特朗普宣布美国海上封锁不会解除，并下令登检驶往伊朗的船只——伊朗随即宣布重新关闭海峡，并强硬拒绝第二轮谈判。
+时隔一年多，威邦运动再闯IPO，针对此前的质疑做了一些整改，但外界仍有质疑。
 
-这种反复无常已经不是第一次了。
+比如，换报告期“藏”下滑后业绩能否突破前高？
 
-从开战到现在，这场冲突始终可以用同一个词来描述：疯狂。
+公司仅25名销售人员，如何撑起年入20亿的营收？
 
-一个被幕僚请出战情室的“疯王”总统，打了一场以小时反转的无解战争，制造出连主流媒体都看不懂的失控市场。
+更关键的是，两次冲刺IPO的报告期不一样，威邦运动分红金额也从8亿降到了5800万，但“前脚分红、后脚补流”的剧情依旧，此次拟募10.85亿元，其中2亿元“补充流动资金”。
 
-而最新披露的内幕，让我们真正看清楚，这种“疯狂与失控”究竟从何而来，又会把局势导向何方。
+这一次，威邦运动能敲开A股大门吗？
 
 ## 相关推荐
 
-- 2026-06-30 04:35 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 04:33 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 04:34 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 04:35 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 04:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 04:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 04:29 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 04:48 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 04:29 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 04:36 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 04:24 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 04:30 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-30 04:28 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 04:30 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 04:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 04:31 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 04:50 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 04:52 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 04:44 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 04:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 04:49 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 04:55 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 04:33 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 04:46 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:28 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/479185251.shtml)
-- 2026-06-30 04:48 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/8670253968.shtml)
-- 2026-06-30 04:38 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/103908906150.shtml)
-- 2026-06-30 04:41 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/27201718.shtml)
-- 2026-06-30 04:30 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/766667.shtml)
-- 2026-06-30 04:34 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/9788955.shtml)
-- 2026-06-30 04:43 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/142228505.shtml)
-- 2026-06-30 04:33 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/680522.shtml)
-- 2026-06-30 04:36 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/36973660586.shtml)
-- 2026-06-30 04:36 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/368476.shtml)
-- 2026-06-30 04:35 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/320545643033.shtml)
-- 2026-06-30 04:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/25020.shtml)
-- 2026-06-30 04:46 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/91052518239.shtml)
-- 2026-06-30 04:33 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/6650970779.shtml)
-- 2026-06-30 04:42 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/84422898402.shtml)
+- 2026-06-30 04:59 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/688976299.shtml)
+- 2026-06-30 04:55 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/509190.shtml)
+- 2026-06-30 04:50 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/823439142331.shtml)
+- 2026-06-30 04:50 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/3055034.shtml)
+- 2026-06-30 04:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/231170168978.shtml)
+- 2026-06-30 04:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/4117039340.shtml)
+- 2026-06-30 04:53 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/900612.shtml)
+- 2026-06-30 04:59 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/54514429.shtml)
+- 2026-06-30 04:49 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/78593273.shtml)
+- 2026-06-30 04:52 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/001128.shtml)
+- 2026-06-30 04:43 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/374329682.shtml)
+- 2026-06-30 04:41 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/082423318434.shtml)
+- 2026-06-30 04:37 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/57364644960.shtml)
+- 2026-06-30 04:48 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/947864.shtml)
+- 2026-06-30 04:48 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/075150.shtml)

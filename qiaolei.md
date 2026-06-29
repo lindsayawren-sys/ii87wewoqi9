@@ -1,61 +1,60 @@
-# 全文|特斯拉Q1业绩会实录：Optimus将集成本地智能 H3不支持无监督FSD
+# 香港廉政公署举办专题讲座解码“十五五”规划
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 特斯拉一季度实现营收224亿美元，同比增长16%；汽车业务营收同样同比上涨16%。 详见：特斯拉一季度实现营收224亿美元 同比增长16% 财报发布后，特斯拉CEO埃隆·马斯克、CFO瓦伊巴夫·塔尼亚、供应链副总裁卡恩·布迪拉吉、汽车工程副总裁拉斯·莫拉维、自动驾驶软件总监阿肖克·埃卢斯瓦米，以及投资者关系主管特拉维斯·阿克塞尔罗德等高管对
+中新社香港4月27日电 (记者 刘玥晴)香港廉政公署(简称“廉署”)近日举办“解码‘十五五’规划——对香港和廉署的启示”专题讲座，邀请复旦大学中国研究院院长张维为和清华大学公共管理学院教授鄢一龙主讲，让廉署上下深入了解国家“十五五”规划内容，并思考如何将反贪工作与国家发展大局紧密结合。 “十五五”规划纲要提出，支持港澳深度参与高质量共建“一带一路”。张维为认为，共建“一带一路”
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 特斯拉一季度实现营收224亿美元，同比增长16%；汽车业务营收同样同比上涨16%。
+中新社香港4月27日电 (记者 刘玥晴)香港廉政公署(简称“廉署”)近日举办“解码‘十五五’规划——对香港和廉署的启示”专题讲座，邀请复旦大学中国研究院院长张维为和清华大学公共管理学院教授鄢一龙主讲，让廉署上下深入了解国家“十五五”规划内容，并思考如何将反贪工作与国家发展大局紧密结合。
 
-详见：特斯拉一季度实现营收224亿美元 同比增长16% 财报发布后，特斯拉CEO埃隆·马斯克、CFO瓦伊巴夫·塔尼亚、供应链副总裁卡恩·布迪拉吉、汽车工程副总裁拉斯·莫拉维、自动驾驶软件总监阿肖克·埃卢斯瓦米，以及投资者关系主管特拉维斯·阿克塞尔罗德等高管对财报进行了解读，并回答了分析师提问。
+“十五五”规划纲要提出，支持港澳深度参与高质量共建“一带一路”。
 
-以下为本次电话会议分析师问答环节主要内容： 个人投资者：第一个问题是，我们什么时候会发布 Optimus 3，这个话题之前我们略有探讨。
+张维为认为，共建“一带一路”正朝着数字化、绿色化方向发展，海量项目与资金加速流转，新型、跨境腐败风险防控的重要性愈发凸显。
 
-但剩下的问题是，既然我们今年早些时候（年中）结束了 Model X 和 S 的生产，那么Optimus的生产何时开始？
+廉署辖下香港国际廉政学院曾为共建“一带一路”国家和地区举办反贪培训，未来可继续参与“一带一路”廉洁建设，分享香港经验。
 
-今年Optimus的预期产量是多少？
+鄢一龙结合廉署“一九七四”咖啡厅的文化设计阐释廉洁内涵：咖啡提神醒脑，时刻警示公职人员和市场主体保持清醒，摒弃侥幸心理，杜绝隐性贪腐、利益输送等行为。
 
-最初的目标技能又是什么？
+他说，名为“清廉”“保密”“‘诚’果”的咖啡也让香港市民和各地游客更加了解廉署的工作、清廉的观念。
 
-马斯克：正如我所说的，我们发现，当我们推出各种Optimus版本时，竞争对手会逐帧分析并复制我们所做的一切。
+“香港将反贪倡廉与优化营商环境紧密结合的成熟经验十分宝贵，可为国家扩大高水平对外开放、完善社会主义市场经济体制提供务实参考与支撑。
 
-所以我认为，我们希望将Optimus 3的发布时间更接近生产阶段。
+”鄢一龙指出，香港应不断发挥软实力，宣传清廉文化，讲好国家与香港的反腐败故事，提升全球廉洁治理水平。
 
 ## 相关推荐
 
-- 2026-06-30 04:37 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 04:38 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 04:27 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 04:48 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 04:46 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 04:46 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 04:40 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 04:43 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 04:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 04:53 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 04:42 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 04:53 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 04:33 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 04:40 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 04:41 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 04:39 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-30 04:58 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 04:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 04:36 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 04:38 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 04:32 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 04:45 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 04:50 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 04:51 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 04:59 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 04:34 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 04:51 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 04:51 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 04:48 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:35 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/1447079518.shtml)
-- 2026-06-30 04:31 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/131775833.shtml)
-- 2026-06-30 04:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/58827125.shtml)
-- 2026-06-30 04:32 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/6921148.shtml)
-- 2026-06-30 04:43 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/556624.shtml)
-- 2026-06-30 04:32 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/124866.shtml)
-- 2026-06-30 04:38 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/66729312.shtml)
-- 2026-06-30 04:37 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/45724541627.shtml)
-- 2026-06-30 04:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/14689.shtml)
-- 2026-06-30 04:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/6972155.shtml)
-- 2026-06-30 04:42 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/116251790.shtml)
-- 2026-06-30 04:46 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/4165143980.shtml)
-- 2026-06-30 04:53 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/2854997800.shtml)
-- 2026-06-30 04:50 - [巴西扳平比分](https://www.blog.minike.top/Article/details/94173248.shtml)
-- 2026-06-30 04:38 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/81834886623.shtml)
+- 2026-06-30 04:44 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/23587399.shtml)
+- 2026-06-30 04:55 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/45567.shtml)
+- 2026-06-30 04:50 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/22872417.shtml)
+- 2026-06-30 04:30 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/022390569.shtml)
+- 2026-06-30 04:30 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/85690840.shtml)
+- 2026-06-30 04:47 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/21148.shtml)
+- 2026-06-30 04:51 - [刘念回应](http://www.blog.minike.top/Article/details/142327939642.shtml)
+- 2026-06-30 04:50 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/67620297345.shtml)
+- 2026-06-30 04:37 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/528706997473.shtml)
+- 2026-06-30 04:39 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/198777560914.shtml)
+- 2026-06-30 04:40 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/538194985.shtml)
+- 2026-06-30 04:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/708820086.shtml)
+- 2026-06-30 04:58 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/8984814809.shtml)
+- 2026-06-30 04:41 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/071700172.shtml)
+- 2026-06-30 04:57 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/5672203.shtml)

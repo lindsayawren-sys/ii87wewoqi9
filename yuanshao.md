@@ -1,60 +1,59 @@
-# 黄仁勋要求英伟达所有员工使用OpeiAI的Codex编程工具
+# 广东举办民营企业参与共建“一带一路”培训班
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-OpeiAI首席执行官萨姆·奥特曼在社交平台上分享了英伟达CEO黄仁勋发给他的一封电邮。黄仁勋在邮件中附上了他给英伟达全体员工的一封电邮，要求他们使用OpenAI的Codex编程工具。 黄仁勋在邮件中写道：“亲爱的英伟达员工们，基于GPT-5.5的OpenAI Codex现已正式发布，面向所有英伟达员工开放！我们10000名员工——涵盖工程、产品、法务、市场营销、财务、销售、人
+中新网佛山4月27日电 (记者 许青青)由广东省工商联与中国银行广东省分行共同主办的2026“护企扬帆 商拓四海”交流活动暨广东民营企业参与共建“一带一路”培训班(东南亚专场)27日在佛山市举行。会上，广东省工商联牵头成立的“广东省民营企业出海服务团”(下称“服务团”)正式成立。 据介绍，该服务团旨在整合内地、港澳及海外出海服务资源，依托智库、专业服务平台、金融保险机构、法律等
 
 ## 正文
 
-OpeiAI首席执行官萨姆·奥特曼在社交平台上分享了英伟达CEO黄仁勋发给他的一封电邮。
+中新网佛山4月27日电 (记者 许青青)由广东省工商联与中国银行广东省分行共同主办的2026“护企扬帆 商拓四海”交流活动暨广东民营企业参与共建“一带一路”培训班(东南亚专场)27日在佛山市举行。
 
-黄仁勋在邮件中附上了他给英伟达全体员工的一封电邮，要求他们使用OpenAI的Codex编程工具。
+会上，广东省工商联牵头成立的“广东省民营企业出海服务团”(下称“服务团”)正式成立。
 
-黄仁勋在邮件中写道：“亲爱的英伟达员工们，基于GPT-5.5的OpenAI Codex现已正式发布，面向所有英伟达员工开放！
+据介绍，该服务团旨在整合内地、港澳及海外出海服务资源，依托智库、专业服务平台、金融保险机构、法律等专业力量，涵盖线上与线下平台、高校智库、金融保险机构、法律会计咨询机构、港澳及海内外商协会、重点企业、境外园区等七大领域，首批已有110余家单位加入。
 
-我们10000名员工——涵盖工程、产品、法务、市场营销、财务、销售、人力资源、运营和开发者项目等各个部门——都已提前体验，并已用它创造了许多令人惊叹的成果。
+服务团的具体工作内容包括：信息共享与线上服务、政策宣讲与线下服务、货物通关及人员出海便利、投融资服务与风险管理、涉外法律援助及合规建设、资源对接与协同网络构建、典型案例推广等，将为出海民营企业提供智力支持、调查研究、宣传培训及企业服务。
 
-一位英伟达员工表示：‘这真的改变了我的生活。
+培训期间，服务团代表包括中国人民银行广东省分行、中国出口信用保险公司广东分公司、海关总署广东分署、涉外律师事务所、香港贸发局、广东省民营企业海外贸易促进会、佛山市南商出海基地等单位分别就相关主题作了分享。
 
-’另一位员工则说：‘这简直太不可思议了。
+广东省委统战部副部长、省工商联党组书记陈志清表示，希望广东民营企业坚定信心，大力参与国际竞争；立足自身产业特色，深耕主业创新，从“产品走出去”向“品牌走出去、技术走出去、标准走出去”跨越升级；合理布局，统筹安全与发展，将保障产业链供应链安全摆在突出位置；抢抓数字贸易发展风口，以“人工智能+外贸”深度融合为抓手，推动传统优势产业迭代升级；健全海外合规管理、风险预警与知识产权保护体系，审慎开展海外投资与产能合作。
 
-’ Codex运行于英伟达平台！
+广东省工商联副主席、广东省民营经济国际合作商会会长、福达集团董事局主席王福亮表示，将借助服务团的力量，加强与海内外商会与企业间的联系、互动、交流和合作，拓宽视野、拓展市场。
 
-GPT-5.5在英伟达Blackwell架构上训练，并在英伟达AI基础设施上进行推理——这绝对是下一个级别的技术。
+据悉，下一步，广东省工商联将携手各方力量，持续深化服务，推动各项工作落地见效。
 
 ## 相关推荐
 
-- 2026-06-30 04:51 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 04:44 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 04:34 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-30 04:31 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 04:28 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 04:25 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 04:27 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 04:25 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 04:52 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 04:41 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 04:46 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 04:31 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 04:41 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 04:53 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 04:31 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 04:54 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 04:45 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 04:32 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 04:36 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 04:59 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 04:58 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 04:58 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 04:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 04:33 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 04:34 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 04:48 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 04:46 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:38 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/57203354.shtml)
-- 2026-06-30 04:25 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/4392757.shtml)
-- 2026-06-30 04:52 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/28146.shtml)
-- 2026-06-30 04:30 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/910545037833.shtml)
-- 2026-06-30 04:46 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/87141602772.shtml)
-- 2026-06-30 04:37 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/02005615670.shtml)
-- 2026-06-30 04:40 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/05282045540.shtml)
-- 2026-06-30 04:30 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/59269836.shtml)
-- 2026-06-30 04:42 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/043191128.shtml)
-- 2026-06-30 04:30 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/1185959.shtml)
-- 2026-06-30 04:46 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/686183005.shtml)
-- 2026-06-30 04:45 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/34650046368.shtml)
-- 2026-06-30 04:26 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/19628217783.shtml)
-- 2026-06-30 04:53 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/20245.shtml)
-- 2026-06-30 04:36 - [流金岁月](https://www.blog.minike.top/Article/details/10722821322.shtml)
+- 2026-06-30 04:34 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/3368371.shtml)
+- 2026-06-30 04:32 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/96730673.shtml)
+- 2026-06-30 04:49 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/86406.shtml)
+- 2026-06-30 04:52 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/293505029846.shtml)
+- 2026-06-30 04:53 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/27742807.shtml)
+- 2026-06-30 04:53 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/5548691376.shtml)
+- 2026-06-30 04:56 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/074556.shtml)
+- 2026-06-30 04:39 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/01933138.shtml)
+- 2026-06-30 04:40 - [极限挑战第一季](https://www.share.minike.top/Article/details/19354737.shtml)
+- 2026-06-30 04:58 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/788110.shtml)
+- 2026-06-30 04:40 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/912304636470.shtml)
+- 2026-06-30 04:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/02814314.shtml)
+- 2026-06-30 04:31 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/7336138675.shtml)
+- 2026-06-30 04:49 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/89299.shtml)
+- 2026-06-30 04:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/53582961.shtml)

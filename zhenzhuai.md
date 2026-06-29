@@ -1,57 +1,60 @@
-# SK海力士第一季度营业利润同比飙升逾四倍，创历史新高
+# 深圳名厨谭子滔：从烟火气里见证湾区融合
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-韩国存储芯片巨头SK海力士公司周四表示，受高带宽内存（HBM）及其他内存产品强劲需求的推动，其第一季度营收和利润均创历史新高。 根据该公司提交的监管文件，第一季度净利润达40.34万亿韩元（约合273亿美元），同比增长397.6%。 营业利润同比增长405.5%，达到37.61万亿韩元。销售额飙升198.1%，达到52.57万亿韩元。 SK海力士将业绩的强劲增长归功于动态随机存
+发布时间：2026年04月25日 11:55 来源：中国新闻网 【同期】谭厨中山传家菜创始人、广东省四星级“粤菜师傅” 谭子滔 40年大师传承，我做餐饮行业40年了。我从15岁到今天干了40年了，不容易。 【解说】在深圳平安金融中心旁的谭厨中山传家菜店里，15岁入行、2000年就带着中山菜闯荡深圳的谭子滔，谈起这些年来他从烟火气里见证的湾区融合。 【同期】谭厨中山传家菜创始人、
 
 ## 正文
 
-韩国存储芯片巨头SK海力士公司周四表示，受高带宽内存（HBM）及其他内存产品强劲需求的推动，其第一季度营收和利润均创历史新高。
+发布时间：2026年04月25日 11:55 来源：中国新闻网 【同期】谭厨中山传家菜创始人、广东省四星级“粤菜师傅” 谭子滔 40年大师传承，我做餐饮行业40年了。
 
-根据该公司提交的监管文件，第一季度净利润达40.34万亿韩元（约合273亿美元），同比增长397.6%。
+我从15岁到今天干了40年了，不容易。
 
-营业利润同比增长405.5%，达到37.61万亿韩元。
+【解说】在深圳平安金融中心旁的谭厨中山传家菜店里，15岁入行、2000年就带着中山菜闯荡深圳的谭子滔，谈起这些年来他从烟火气里见证的湾区融合。
 
-销售额飙升198.1%，达到52.57万亿韩元。
+【同期】谭厨中山传家菜创始人、广东省四星级“粤菜师傅” 谭子滔 深中通道通车之后，我认为对餐饮业是很大的帮助。
 
-SK海力士将业绩的强劲增长归功于动态随机存取存储器（DRAM）全球价格的上涨，以及人工智能服务器行业对高端产品的强劲需求。
+比如我们的食材：鸽子、脆皖鱼、菊花、菠萝，以前是两个半小时到三个小时才能来到深圳，现在基本上一小时十五分钟就到店。
 
-责任编辑：于健 SF069
+农户、供应商既省了时间也省了加油费，对我们餐厅来说，食材新鲜度更好了。
+
+【解说】2009年，他另立炉灶开了一间“谭厨小菜”，店里的熟客都叫他“谭厨”，这让他感到既亲切又好听。
+
+【同期】谭厨中山传家菜创始人、广东省四星级“粤菜师傅” 谭子滔 做菜难不了我，但做(餐饮)店是另一个事情，是经营了。
 
 ## 相关推荐
 
-- 2026-06-30 04:39 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 04:29 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 04:37 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 04:37 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 04:36 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 04:34 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 04:29 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 04:53 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 04:50 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 04:40 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 04:38 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 04:50 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 04:42 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 04:31 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 04:39 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 04:54 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 04:36 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 04:48 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 04:36 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 04:48 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-30 04:57 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 04:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 04:52 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 04:57 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 04:43 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 04:40 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 04:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 04:53 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-30 04:54 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:27 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/453888.shtml)
-- 2026-06-30 04:49 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/09731605165.shtml)
-- 2026-06-30 04:41 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/1769622.shtml)
-- 2026-06-30 04:50 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/4576657.shtml)
-- 2026-06-30 04:30 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/5508841.shtml)
-- 2026-06-30 04:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/94379211.shtml)
-- 2026-06-30 04:50 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/453375531437.shtml)
-- 2026-06-30 04:41 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/77120146.shtml)
-- 2026-06-30 04:49 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/568012753.shtml)
-- 2026-06-30 04:52 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/87008.shtml)
-- 2026-06-30 04:40 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/20091.shtml)
-- 2026-06-30 04:52 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/84410814549.shtml)
-- 2026-06-30 04:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/24126925673.shtml)
-- 2026-06-30 04:31 - [女心理师](https://www.share.minike.top/Article/details/600209346064.shtml)
-- 2026-06-30 04:46 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/5698554.shtml)
+- 2026-06-30 04:55 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/859861913266.shtml)
+- 2026-06-30 04:35 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/708693424.shtml)
+- 2026-06-30 04:45 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/4450230.shtml)
+- 2026-06-30 04:42 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/9806642705.shtml)
+- 2026-06-30 04:48 - [毒液2](http://www.share.minike.top/Article/details/33299922.shtml)
+- 2026-06-30 04:37 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/87343085543.shtml)
+- 2026-06-30 04:45 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/338475538.shtml)
+- 2026-06-30 04:56 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/7979949193.shtml)
+- 2026-06-30 04:46 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/0791623978.shtml)
+- 2026-06-30 04:38 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/196849.shtml)
+- 2026-06-30 04:33 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/552727.shtml)
+- 2026-06-30 04:50 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/351334.shtml)
+- 2026-06-30 04:40 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/94234494705.shtml)
+- 2026-06-30 04:54 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/3439112.shtml)
+- 2026-06-30 04:33 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/073886290656.shtml)

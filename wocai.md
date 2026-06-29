@@ -1,60 +1,49 @@
-# 银行理财资金入市步伐持续加快，深交所打新报价一个半月激增87%，定增、基石协同发力
+# 河北：从“一人来雄安”变为“全家来雄安”
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-财联社4月22日讯（记者 郭子硕）理财资金入市再迎亮眼收益兑现，先进制程半导体领域新股盛合晶微上市首日大涨289%，宁银理财凭借 8 只产品入围、获配金额居理财子榜首。 深交所数据显示，短短一个半月内，理财子在深交所打新报价量已激增 87%，打新热情持续升温。2025年3月，银行理财产品正式被纳入IPO网下A类优先配售对象，与公募基金、社保基金享有同等待遇；沪深交易所同步落地配
+发布时间：2026年04月27日 18:04 来源：中国新闻网 4月27日，河北省委副书记、省长王正谱在“开局起步‘十五五’”河北专场新闻发布会上表示，河北省将牢牢把握雄安新区功能定位，举全省之力建设新时代创新高地和推动高质量发展样板。 王正谱说，打造北京非首都功能疏解集中承载地，将围绕承接疏解、服务疏解、配套疏解、支撑疏解谋划做好工作，稳妥推进首批、第二批疏解项目建设，有序推
 
 ## 正文
 
-财联社4月22日讯（记者 郭子硕）理财资金入市再迎亮眼收益兑现，先进制程半导体领域新股盛合晶微上市首日大涨289%，宁银理财凭借 8 只产品入围、获配金额居理财子榜首。
+发布时间：2026年04月27日 18:04 来源：中国新闻网 4月27日，河北省委副书记、省长王正谱在“开局起步‘十五五’”河北专场新闻发布会上表示，河北省将牢牢把握雄安新区功能定位，举全省之力建设新时代创新高地和推动高质量发展样板。
 
-深交所数据显示，短短一个半月内，理财子在深交所打新报价量已激增 87%，打新热情持续升温。
+王正谱说，打造北京非首都功能疏解集中承载地，将围绕承接疏解、服务疏解、配套疏解、支撑疏解谋划做好工作，稳妥推进首批、第二批疏解项目建设，有序推进第三批疏解项目落地，形成压茬推进的良好态势。
 
-2025年3月，银行理财产品正式被纳入IPO网下A类优先配售对象，与公募基金、社保基金享有同等待遇；沪深交易所同步落地配套细则，明确理财公司可直接参与询价，配售比例不低于其他机构投资者。
+进一步优化完善雄安新区的疏解政策，深化拓展京雄“同城化”事项，确保疏解对象的创业条件、居住条件、福利待遇不低于留在北京时的水平，从“一人来雄安”变为“全家来雄安”，以雄安为家、在新区扎根。
 
-政策红利持续释放下，理财资金入市步伐持续提速，除网下打新外，定增、基石投资等权益布局同步发力。
-
-背后有哪些驱动因素，又将面临哪些现实挑战？
-
-深交所报价规模接近翻倍扩容，宁银理财增量领跑 深交所数据显示，截至2026年3月6日，宁银理财、兴银理财、光大理财三家理财公司累计报价100次；短短一个半月后，截至4月22日，合计报价次数骤增至187次。
-
-分机构来看，宁银理财的增长势头最为迅猛，报价次数由61次攀升至114次，增幅达87%；其申购次数与获配售次数均维持114次，实现申购全获配，累计获配股份数量32.86万股。
-
-除宁银理财外，光大理财、兴银理财的报价参与度也同步提升，兴银理财52次报价全部高于发行价，51次有效申购全部获配；光大理财报价21次，18次申购实现全获配。
+(赵安源 陈林 赵丹媚 制作 徐妙巧） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-30 04:25 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 04:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 04:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 04:30 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 04:28 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 04:36 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 04:34 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 04:52 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 04:25 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 04:52 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 04:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 04:35 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 04:40 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 04:48 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 04:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 04:33 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 04:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 04:59 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 04:30 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 04:59 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 04:41 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 04:38 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 04:46 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 04:37 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 04:53 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:47 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/7777826084.shtml)
-- 2026-06-30 04:38 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/07192.shtml)
-- 2026-06-30 04:41 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/228581607.shtml)
-- 2026-06-30 04:52 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/21057956428.shtml)
-- 2026-06-30 04:50 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/86880.shtml)
-- 2026-06-30 04:40 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/4314122592.shtml)
-- 2026-06-30 04:27 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/3314882.shtml)
-- 2026-06-30 04:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/30778219.shtml)
-- 2026-06-30 04:34 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/94011195.shtml)
-- 2026-06-30 04:47 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/61118308.shtml)
-- 2026-06-30 04:52 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/75758598507.shtml)
-- 2026-06-30 04:44 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/256812874.shtml)
-- 2026-06-30 04:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/513238852.shtml)
-- 2026-06-30 04:37 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/234263956.shtml)
-- 2026-06-30 04:34 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/368045158837.shtml)
+- 2026-06-30 04:36 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/35517770704.shtml)
+- 2026-06-30 04:39 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/114342.shtml)
+- 2026-06-30 04:35 - [刘念回应](http://www.share.kurohicncr.top/Article/details/37555.shtml)
+- 2026-06-30 04:33 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/104861816707.shtml)
+- 2026-06-30 04:56 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/397727.shtml)
+- 2026-06-30 04:37 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/73842506.shtml)
+- 2026-06-30 04:44 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/592589096825.shtml)
+- 2026-06-30 04:34 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/8695270896.shtml)
+- 2026-06-30 04:39 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/7541012513.shtml)
+- 2026-06-30 04:54 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/276714028.shtml)
+- 2026-06-30 04:32 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/762956663.shtml)
+- 2026-06-30 04:56 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/4528990174.shtml)
+- 2026-06-30 04:54 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/915943240142.shtml)
+- 2026-06-30 04:34 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/5829001.shtml)
+- 2026-06-30 04:50 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/34414229.shtml)

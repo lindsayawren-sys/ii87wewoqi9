@@ -1,50 +1,61 @@
-# 新一波宝藏展商来袭！2026金融街智绘春光嘉年华就在明天！
+# 第十二届鼓浪屿诗会在厦门举办
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-专题：2026金融街智绘春光嘉年华 📣#2026金融街智绘春光嘉年华 【新一波宝藏展商来袭！】 一站式逛吃玩，体验赛博春日美好~ 📍地点：北京市西城区金城坊街区域 ⏰时间：4/24-4/26（周五-周日10：00-21：00）明天见~ 新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。 责任编辑：李思
+中新网厦门4月26日电 (吴冠标)4月25日至5月1日，第十二届鼓浪屿诗会在厦门举办。25日晚，随着一曲五弦琵琶演奏的《诗经·玄鸟》在鼓浪屿八卦楼前响起，诗会正式拉开帷幕。 本届诗会以“世遗生活 诗意琴岛”为主题，吸引了国内外众多诗人与艺术家的参与，包括法国诗人索尼娅·布雷斯勒、意大利诗人弗拉米尼娅·克鲁恰尼、西班牙诗人伊丽莎·鲁埃达等国际诗人代表，以及中国诗人舒婷、中国诗歌学
 
 ## 正文
 
-专题：2026金融街智绘春光嘉年华 📣#2026金融街智绘春光嘉年华 【新一波宝藏展商来袭！
+中新网厦门4月26日电 (吴冠标)4月25日至5月1日，第十二届鼓浪屿诗会在厦门举办。
 
-】 一站式逛吃玩，体验赛博春日美好~ 📍地点：北京市西城区金城坊街区域 ⏰时间：4/24-4/26（周五-周日10：00-21：00）明天见~ 新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+25日晚，随着一曲五弦琵琶演奏的《诗经·玄鸟》在鼓浪屿八卦楼前响起，诗会正式拉开帷幕。
 
-责任编辑：李思阳
+本届诗会以“世遗生活 诗意琴岛”为主题，吸引了国内外众多诗人与艺术家的参与，包括法国诗人索尼娅·布雷斯勒、意大利诗人弗拉米尼娅·克鲁恰尼、西班牙诗人伊丽莎·鲁埃达等国际诗人代表，以及中国诗人舒婷、中国诗歌学会会长王山等嘉宾。
+
+诗会期间，多场高水准诗歌沙龙与对话活动陆续展开。
+
+4月26日至28日，“屿上言诗”诗歌沙龙举办，邀请国内外诗人、学者围绕新时代新语境下中国诗歌的机遇与挑战、诗歌如何让世界遗产的故事流向世界、在碎片化时代如何重建深度阅读等前沿议题展开对话。
+
+鼓浪屿有“音乐之岛”之称，音乐与诗歌的交融将贯穿诗会始终。
+
+4月26日晚，男中音歌唱家廖昌永将与上海音乐学院少年合唱团在管风琴艺术中心联袂演出；4月27日晚，“素月弦歌”庭院音乐会在八卦楼举行，胡德夫、隔壁老樊、左立、莫西子诗、杨宗南、南音新势力等音乐人及团体将带来弹唱演出。
+
+此外，俄罗斯管风琴演奏家沃洛斯特诺夫也将于4月28日至29日连续举办两场独奏音乐会。
 
 ## 相关推荐
 
-- 2026-06-30 04:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 04:38 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 04:30 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 04:31 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 04:29 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 04:30 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 04:50 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 04:29 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 04:49 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-30 04:39 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 04:47 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 04:31 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 04:42 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 04:37 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 04:50 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 04:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 04:58 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 04:39 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 04:47 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 04:53 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 04:30 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 04:56 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 04:51 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 04:38 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 04:38 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-30 04:31 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 04:59 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 04:51 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 04:46 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:35 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/773363689.shtml)
-- 2026-06-30 04:47 - [内马尔替补](http://www.blog.minike.top/Article/details/43211577.shtml)
-- 2026-06-30 04:42 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/4673028.shtml)
-- 2026-06-30 04:31 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/04985468989.shtml)
-- 2026-06-30 04:51 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/01049.shtml)
-- 2026-06-30 04:36 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/92104729928.shtml)
-- 2026-06-30 04:45 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/010217334.shtml)
-- 2026-06-30 04:53 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/86128870.shtml)
-- 2026-06-30 04:37 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/791998592.shtml)
-- 2026-06-30 04:33 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/86830832.shtml)
-- 2026-06-30 04:51 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/508967519614.shtml)
-- 2026-06-30 04:29 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/5609864.shtml)
-- 2026-06-30 04:46 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/3101988038.shtml)
-- 2026-06-30 04:34 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/736473.shtml)
-- 2026-06-30 04:31 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/2250154.shtml)
+- 2026-06-30 04:49 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/37861837.shtml)
+- 2026-06-30 04:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/633332470.shtml)
+- 2026-06-30 04:35 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/68872.shtml)
+- 2026-06-30 04:48 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/77372425371.shtml)
+- 2026-06-30 04:55 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/127072514894.shtml)
+- 2026-06-30 04:41 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/37540429.shtml)
+- 2026-06-30 04:37 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/2117059321.shtml)
+- 2026-06-30 04:57 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/064874697.shtml)
+- 2026-06-30 04:52 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/85514700.shtml)
+- 2026-06-30 04:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/78391891.shtml)
+- 2026-06-30 04:40 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/4324697091.shtml)
+- 2026-06-30 04:41 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/52229092.shtml)
+- 2026-06-30 04:44 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/05101295830.shtml)
+- 2026-06-30 04:47 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/09350.shtml)
+- 2026-06-30 04:45 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/8339609.shtml)

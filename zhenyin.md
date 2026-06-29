@@ -1,52 +1,57 @@
-# 国家卫生健康委：超40%癌症可通过保持健康生活方式等措施有效预防
+# 泛林集团发布强劲Q3业绩，AI需求持续推动增长
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-中新网4月23日电 国家卫生健康委23日下午召开新闻发布会，介绍肿瘤预防及早筛相关健康知识有关情况。今年4月15日至21日是第32个全国肿瘤防治宣传周，本次宣传周的主题是“早防早筛早治 同心携手抗癌”。 国家卫生健康委新闻发言人、宣传司司长谢杨介绍，研究显示，超过40%的癌症可以通过保持健康生活方式、减少接触致癌物等措施进行有效预防。近日，国家卫生健康委发布了《中国防癌健康生活
+泛林集团公布了令人印象深刻的季度业绩，尽管表现强劲且对第四季度（6月）给出了乐观预测，其股价仍出现小幅下跌。这家半导体行业晶圆制造设备的领先供应商实现调整后每股收益1.47美元，同比增长41%。营收也同比增长24%，达到58.4亿美元。对于第四季度（6月），公司预计每股收益在1.50至1.80美元之间，营收预计在62亿至70亿美元之间。 AI需求驱动成功 对AI的持续需求是泛林
 
 ## 正文
 
-中新网4月23日电 国家卫生健康委23日下午召开新闻发布会，介绍肿瘤预防及早筛相关健康知识有关情况。
+泛林集团公布了令人印象深刻的季度业绩，尽管表现强劲且对第四季度（6月）给出了乐观预测，其股价仍出现小幅下跌。
 
-今年4月15日至21日是第32个全国肿瘤防治宣传周，本次宣传周的主题是“早防早筛早治 同心携手抗癌”。
+这家半导体行业晶圆制造设备的领先供应商实现调整后每股收益1.47美元，同比增长41%。
 
-国家卫生健康委新闻发言人、宣传司司长谢杨介绍，研究显示，超过40%的癌症可以通过保持健康生活方式、减少接触致癌物等措施进行有效预防。
+营收也同比增长24%，达到58.4亿美元。
 
-近日，国家卫生健康委发布了《中国防癌健康生活方式守则》，提出了饮食、运动、卫生习惯、科学防护相关的15条防癌建议。
+对于第四季度（6月），公司预计每股收益在1.50至1.80美元之间，营收预计在62亿至70亿美元之间。
 
-这些建议简单易行、方便实用，大家在日常生活中直接实践就可以有效降低癌症发生风险。
+AI需求驱动成功 对AI的持续需求是泛林集团成功的驱动力，因为AI计算的需求增加了所有主要器件领域的沉积和蚀刻工艺强度。
+
+对AI数据中心存储的需求推动了NAND闪存需求的加强，促使技术升级。
+
+DRAM内存也受益于高带宽内存需求以及向更注重能效的先进制程的转变。
+
+代工和逻辑芯片领域依然强劲，先进封装收入预计在2026年增长超过50%。
 
 ## 相关推荐
 
-- 2026-06-30 04:29 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 04:26 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 04:51 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 04:24 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 04:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 04:46 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 04:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 04:25 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 04:53 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 04:25 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 04:30 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 04:44 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 04:36 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 04:35 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 04:58 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 04:42 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 04:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 04:39 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 04:45 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 04:59 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 04:49 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 04:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 04:39 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:41 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/42734.shtml)
-- 2026-06-30 04:24 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/1773989069.shtml)
-- 2026-06-30 04:48 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/202289863128.shtml)
-- 2026-06-30 04:40 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/64458272.shtml)
-- 2026-06-30 04:49 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/9293002770.shtml)
-- 2026-06-30 04:44 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/149871.shtml)
-- 2026-06-30 04:41 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/88038973.shtml)
-- 2026-06-30 04:52 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/349835118925.shtml)
-- 2026-06-30 04:49 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/469854028.shtml)
-- 2026-06-30 04:43 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/39547275.shtml)
-- 2026-06-30 04:30 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/3763088.shtml)
-- 2026-06-30 04:36 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/039187.shtml)
-- 2026-06-30 04:49 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/2006162964.shtml)
-- 2026-06-30 04:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/3973061639.shtml)
-- 2026-06-30 04:42 - [青春环游记第三季](https://www.blog.minike.top/Article/details/6094904905.shtml)
+- 2026-06-30 04:57 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/136281219.shtml)
+- 2026-06-30 04:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/065621.shtml)
+- 2026-06-30 04:35 - [月亮](https://www.share.minike.top/Article/details/64071784.shtml)
+- 2026-06-30 04:39 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/55653144.shtml)
+- 2026-06-30 04:38 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/3439479.shtml)
+- 2026-06-30 04:34 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/82263551781.shtml)
+- 2026-06-30 04:39 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/01670003957.shtml)
+- 2026-06-30 04:36 - [我觉得你是在无中生友](https://www.share.minike.top/Article/details/546491059.shtml)
+- 2026-06-30 04:51 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/51758.shtml)
+- 2026-06-30 04:49 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/08936404.shtml)
+- 2026-06-30 04:51 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/92524.shtml)
+- 2026-06-30 04:58 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/078813665567.shtml)
+- 2026-06-30 04:49 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/50618.shtml)
+- 2026-06-30 04:59 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/3880829.shtml)
+- 2026-06-30 04:59 - [第一炉香](http://www.share.kurohicncr.top/Article/details/065348471546.shtml)

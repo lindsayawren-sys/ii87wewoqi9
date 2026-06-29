@@ -1,60 +1,59 @@
-# 欧洲股市持稳 交易员密切关注伊朗相关新闻和企业财报
+# 上海银行业务总监武俊：2026年债券市场区间震荡 中长期限波动加大
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-欧洲股市在连续三日下跌后出现震荡，交易员们一方面关注油价上涨以及关于伊朗停火的矛盾消息，另一方面则关注欧莱雅和雀巢发布的积极财报。 斯托克欧洲600指数收盘基本持平。阿斯麦控股股价下跌2.1%，此前台积电称将推迟至2029年后再将阿斯麦最先进的光刻机用于芯片生产。 本周以来，市场对伊朗与美国停火以及船只能否获准通过霍尔木兹海峡的担忧，一直令欧洲交易员感到不安。周四，美国总统唐纳
+4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会。谈及2025年债券市场表现，业务总监武俊指出，2025年债券市场经历了明显调整，收益率曲线上升且波动显著增强，调整后的收益率曲线形态与经济基本面基本吻合。对于2026年债券市场，他强调需重点关注两个方面：一是2025年曲线波动的状态记忆将延续至2026年，二是地缘政治冲突升级会对全球市场及国内债
 
 ## 正文
 
-欧洲股市在连续三日下跌后出现震荡，交易员们一方面关注油价上涨以及关于伊朗停火的矛盾消息，另一方面则关注欧莱雅和雀巢发布的积极财报。
+4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会。
 
-斯托克欧洲600指数收盘基本持平。
+谈及2025年债券市场表现，业务总监武俊指出，2025年债券市场经历了明显调整，收益率曲线上升且波动显著增强，调整后的收益率曲线形态与经济基本面基本吻合。
 
-阿斯麦控股股价下跌2.1%，此前台积电称将推迟至2029年后再将阿斯麦最先进的光刻机用于芯片生产。
+对于2026年债券市场，他强调需重点关注两个方面：一是2025年曲线波动的状态记忆将延续至2026年，二是地缘政治冲突升级会对全球市场及国内债券市场产生影响。
 
-本周以来，市场对伊朗与美国停火以及船只能否获准通过霍尔木兹海峡的担忧，一直令欧洲交易员感到不安。
+不过总体而言，2026年资金利率仍将维持较低水平，债券市场将呈现区间震荡态势，其中中长期限债券波动会明显加大。
 
-周四，美国总统唐纳德·特朗普下令美国海军开火击沉任何在该水道布雷的船只，这表明两国间的紧张局势依然较高。
+在行业投资策略方面，武俊表示2025年至2026年上海银行将聚焦四个核心方向。
 
-与此同时，受服务业急剧下滑影响，欧元区商业活动意外萎缩，这是自2024年底以来的首次。
+首先是加大企业债投资力度，围绕行业战略重点，着重布局科创债、绿色债和先进制造业领域，优化债券投资结构。
 
-在财报季繁忙的一周里，投资者也在密切关注公司业绩表现。
+其次，把握人民币国际化推进趋势，拓展离岸人民币资产，挖掘利差空间。
 
-巴克莱欧洲股票策略主管Emmanuel Cau表示，“美伊谈判缺乏进展，可能在股市强劲反弹后给市场带来现实考验。
+第三，提升核心交易能力，加强市场联动，保持价差在收益中的贡献。
 
 ## 相关推荐
 
-- 2026-06-30 04:30 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 04:34 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 04:35 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 04:52 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 04:32 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 04:25 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 04:43 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 04:27 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 04:49 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 04:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 04:41 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 04:36 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 04:25 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 04:37 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 04:36 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 04:39 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 04:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 04:48 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 04:42 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 04:53 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 04:31 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 04:51 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 04:37 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 04:40 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 04:36 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 04:50 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 04:48 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:33 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/0243735.shtml)
-- 2026-06-30 04:25 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/3365933650.shtml)
-- 2026-06-30 04:45 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/135538734558.shtml)
-- 2026-06-30 04:32 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/36039.shtml)
-- 2026-06-30 04:51 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/01396819.shtml)
-- 2026-06-30 04:28 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/95979.shtml)
-- 2026-06-30 04:48 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/6952923388.shtml)
-- 2026-06-30 04:45 - [美人鱼](http://www.share.minike.top/Article/details/761204.shtml)
-- 2026-06-30 04:32 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/58183058.shtml)
-- 2026-06-30 04:34 - [恋与深空制作组回应近期争议](https://www.blog.kurohicncr.top/Article/details/133608199327.shtml)
-- 2026-06-30 04:49 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/95188718806.shtml)
-- 2026-06-30 04:47 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/662188726.shtml)
-- 2026-06-30 04:40 - [金刚川](http://www.share.minike.top/Article/details/867433244868.shtml)
-- 2026-06-30 04:45 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/41771259.shtml)
-- 2026-06-30 04:36 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/31299.shtml)
+- 2026-06-30 04:41 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/53019.shtml)
+- 2026-06-30 04:36 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/2425767922.shtml)
+- 2026-06-30 04:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/19864.shtml)
+- 2026-06-30 04:49 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/77347365430.shtml)
+- 2026-06-30 04:46 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/410605.shtml)
+- 2026-06-30 04:48 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/3619767.shtml)
+- 2026-06-30 04:40 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/34043.shtml)
+- 2026-06-30 04:43 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/467014056753.shtml)
+- 2026-06-30 04:58 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/201912309.shtml)
+- 2026-06-30 04:57 - [人类...完蛋了...](https://www.share.minike.top/Article/details/368871.shtml)
+- 2026-06-30 04:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/980192.shtml)
+- 2026-06-30 04:40 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/94942785.shtml)
+- 2026-06-30 04:43 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/058290366.shtml)
+- 2026-06-30 04:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/0607969534.shtml)
+- 2026-06-30 04:55 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/313002428610.shtml)

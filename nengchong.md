@@ -1,58 +1,56 @@
-# 武铁三条铁路干线同时启动今年第一阶段集中修
+# 20支队伍角逐国科大第三届弘扬“两弹一星”精神话剧大赛决赛
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-中新网武汉4月23日电(孟硕 于海龙 余哲)2026年“五一”假期临近，铁路客流即将迎来高峰。为提升线路设备质量、保障旅客出行安全舒适，中国铁路武汉局集团有限公司(以下简称“武铁”)于4月19日起，对管内京广线、孟宝线、宁西线三条普速铁路干线的固定设备同时启动今年第一阶段集中修施工。 铁路集中修施工通常在每年春运、暑运结束后分两个阶段开展，是对铁路固定设备进行大规模、高强度整修
+中新网北京4月26日电 (记者 孙自法)中国科学院大学(国科大)第三届弘扬“两弹一星”精神话剧大赛决赛4月25日晚在雁栖湖校区举办，共有来自20个培养单位及院系的20支队伍参赛。 决赛现场还特别展演AI短片《跨越时空的薪火》，通过跨时空对话形式，让“两弹一星”元勋与当代国科大青年相遇，生动传承科技报国的薪火。 本次决赛邀请北京人民艺术剧院、中国国家话剧院、中央戏剧学院、中国科学
 
 ## 正文
 
-中新网武汉4月23日电(孟硕 于海龙 余哲)2026年“五一”假期临近，铁路客流即将迎来高峰。
+中新网北京4月26日电 (记者 孙自法)中国科学院大学(国科大)第三届弘扬“两弹一星”精神话剧大赛决赛4月25日晚在雁栖湖校区举办，共有来自20个培养单位及院系的20支队伍参赛。
 
-为提升线路设备质量、保障旅客出行安全舒适，中国铁路武汉局集团有限公司(以下简称“武铁”)于4月19日起，对管内京广线、孟宝线、宁西线三条普速铁路干线的固定设备同时启动今年第一阶段集中修施工。
+决赛现场还特别展演AI短片《跨越时空的薪火》，通过跨时空对话形式，让“两弹一星”元勋与当代国科大青年相遇，生动传承科技报国的薪火。
 
-铁路集中修施工通常在每年春运、暑运结束后分两个阶段开展，是对铁路固定设备进行大规模、高强度整修的关键手段。
+本次决赛邀请北京人民艺术剧院、中国国家话剧院、中央戏剧学院、中国科学院科学家精神宣讲团等单位专家担任评委。
 
-根据施工计划，第一阶段集中修期间，将完成29项线桥施工维修任务，具体包括：更换道岔25组，线路大机清筛21.651公里，隧道大机清筛7.158公里，道岔大机清筛10组，线路大机捣固320.5公里，道岔大机捣固265组，线路大机打磨206.9公里，道岔大机打磨189组等。
+通过激烈角逐，大赛一二三等奖及最佳剧本、最佳导演等单项奖评选揭晓。
 
-承担集中修主要任务的武铁信阳工务段第一阶段施工从4月19日持续至5月25日，除“五一”假期运输期间暂停施工外，共在京广、孟宝、宁西三条线路上安排了87个“天窗”作业点。
+其中，中国科学院西安光学精密机械研究所《光与希望》、国科大玉泉书院《昆仑山上的一棵草》获一等奖；国科大集成电路学院《无声的坚守》、马克思主义学院《我与我同行》、国际学院《半页图纸》获二等奖；中国科学院空天信息创新研究院《追梦863》、大连化学物理研究所《重水十年》、上海微系统与信息技术研究所《自助者天助》获三等奖。
 
-在此期间，工务段将集中人力、物力，对线路路基、桥涵隧道及重点地段运输设备进行全面整修，更换磨损钢轨和老化配件，全面提升线路设备质量。
+《光与希望》获最佳剧本奖；《昆仑山上的一棵草》摘得最佳舞台美术奖、最佳导演奖，剧中陈能宽院士饰演者王翊帆获最佳男演员奖；《我与我同行》青年王承书和中年王承书饰演者拥忠初、解筱冰获最佳女演员奖。
 
-由于本次集中修是三条干线同时启动施工，武铁信阳工务段严格执行施工安全管理措施等制度。
+此外，优秀组织奖也同步揭晓并颁奖。
 
-在施工组织、作业方式上，该段采取“大天窗、多项目、集人员、同施工”的生产组织模式，综合运用大型养路机械设备及人员技术优势，确保各项任务安全、优质、高效、按期完成，让旅客在“五一”假期和后续暑运期间出行更加安全、舒适。
+决赛现场，国科大校长周琪，“两弹一星”元勋陈芳允院士、“两弹一星”攻关科学家张存浩院士、国科大外语系教授李佩等人的亲属代表，以及中国科学院、怀柔区、培养单位、国科大师生代表等参加活动。
 
 ## 相关推荐
 
-- 2026-06-30 04:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 04:34 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 04:41 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 04:36 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 04:49 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 04:53 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 04:52 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 04:45 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 04:46 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 04:41 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 04:47 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 04:52 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 04:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 04:42 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 04:33 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 04:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 04:50 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 04:30 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 04:34 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 04:31 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 04:45 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 04:49 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:35 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/30518188413.shtml)
-- 2026-06-30 04:49 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/849086676121.shtml)
-- 2026-06-30 04:29 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/693751.shtml)
-- 2026-06-30 04:49 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/662348967.shtml)
-- 2026-06-30 04:51 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/917782592.shtml)
-- 2026-06-30 04:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/02020967036.shtml)
-- 2026-06-30 04:42 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/37252376.shtml)
-- 2026-06-30 04:50 - [斗破苍穹](https://www.blog.minike.top/Article/details/91763371.shtml)
-- 2026-06-30 04:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/9670634638.shtml)
-- 2026-06-30 04:50 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/75731859799.shtml)
-- 2026-06-30 04:44 - [我们的少年时代2](https://www.blog.minike.top/Article/details/61867449858.shtml)
-- 2026-06-30 04:27 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/0582839223.shtml)
-- 2026-06-30 04:45 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/143884.shtml)
-- 2026-06-30 04:41 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/6212786273.shtml)
-- 2026-06-30 04:45 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/88816.shtml)
+- 2026-06-30 04:42 - [千香](http://www.blog.kurohicncr.top/Article/details/20306.shtml)
+- 2026-06-30 04:42 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/1892008.shtml)
+- 2026-06-30 04:42 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/611295709017.shtml)
+- 2026-06-30 04:59 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/56746698.shtml)
+- 2026-06-30 04:32 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/49704948.shtml)
+- 2026-06-30 04:49 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/657336918720.shtml)
+- 2026-06-30 04:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/12145782524.shtml)
+- 2026-06-30 04:34 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/605197062871.shtml)
+- 2026-06-30 04:55 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/01643623.shtml)
+- 2026-06-30 04:51 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/27736.shtml)
+- 2026-06-30 04:31 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/850861954277.shtml)
+- 2026-06-30 04:45 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/407576316097.shtml)
+- 2026-06-30 04:44 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/46616311.shtml)
+- 2026-06-30 04:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/863751297.shtml)
+- 2026-06-30 04:30 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/865892.shtml)

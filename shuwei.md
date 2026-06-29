@@ -1,56 +1,58 @@
-# 自然堂二次冲刺港股IPO： 收入较为依赖单一品牌 销售费用率超50%
+# 英国大型企业普遍不清楚自身数据在海外被人工智能如何使用
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-转自：新华财经 新华财经北京4月24日电 自然堂全球控股有限公司（以下简称“自然堂”或“公司”）近期再次递交招股书，拟冲击港股IPO。 作为中国第三大国货化妆品集团，自然堂超过八成收入来自护肤产品且较为依赖单一主品牌。2023年至2025年，公司营收增长稳健但净利润波动较大。期间，公司销售及营销成本占营收的比例均超过50%。 逾八成收入来自护肤产品，净利润波动较大 招股书显示，
+一项研究显示，英国多数大型企业并不清楚自身敏感数据在海外被人工智能系统处理时的具体用途，凸显出这一快速发展技术带来的风险。 该研究针对英国营收超 1 亿英镑企业的高级技术与数据负责人展开调查，结果显示 61%的受访者无法全面掌握数据在海外的处理方式，报告指出这一问题主要困扰企业董事会。 研究机构 Harbr Data 的调查显示，近四分之三的受访者表示，数据通过人工智能系统流出
 
 ## 正文
 
-转自：新华财经 新华财经北京4月24日电 自然堂全球控股有限公司（以下简称“自然堂”或“公司”）近期再次递交招股书，拟冲击港股IPO。
+一项研究显示，英国多数大型企业并不清楚自身敏感数据在海外被人工智能系统处理时的具体用途，凸显出这一快速发展技术带来的风险。
 
-作为中国第三大国货化妆品集团，自然堂超过八成收入来自护肤产品且较为依赖单一主品牌。
+该研究针对英国营收超 1 亿英镑企业的高级技术与数据负责人展开调查，结果显示 61%的受访者无法全面掌握数据在海外的处理方式，报告指出这一问题主要困扰企业董事会。
 
-2023年至2025年，公司营收增长稳健但净利润波动较大。
+研究机构 Harbr Data 的调查显示，近四分之三的受访者表示，数据通过人工智能系统流出英国的频率至少为每周一次，其中三分之一称每日都有数据外流。
 
-期间，公司销售及营销成本占营收的比例均超过50%。
+情况较轻时，数据处理地点与方式不透明可能带来监管合规风险，尤其涉及数据隐私、存储地规定及安全问题。
 
-逾八成收入来自护肤产品，净利润波动较大 招股书显示，自然堂是中国一家多品牌化妆品企业。
+情况严重时，则可能导致数据泄露或被恶意利用。
 
-根据弗若斯特沙利文的资料，以2024年零售额计，自然堂在中国整体化妆品市场（包括国际品牌）中排名第十，市场份额为0.8%，是中国第三大国货化妆品集团，市场份额为1.7%。
+英国安全通信平台 Element 首席执行官兼联合创始人马修・霍奇森表示：“人们似乎对数据治理机制知之甚少。
 
-2025年，自然堂约86%的收入来自护肤产品。
+” “现实风险在于，人们随意复制粘贴文档或机密信息，这些信息随后被用于训练模型，可能出现在他人的信息中。
 
-其次为个人护理、彩妆产品。
+此类事件已造成过严重后果。
 
 ## 相关推荐
 
-- 2026-06-30 04:25 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 04:50 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 04:31 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 04:39 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 04:30 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 04:40 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-30 04:53 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 04:27 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-30 04:38 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 04:34 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 04:38 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 04:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 04:44 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 04:35 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 04:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 04:53 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 04:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 04:57 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 04:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 04:51 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 04:41 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 04:46 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:30 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/7556627326.shtml)
-- 2026-06-30 04:53 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/0921289.shtml)
-- 2026-06-30 04:36 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/23852236327.shtml)
-- 2026-06-30 04:32 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/228081900947.shtml)
-- 2026-06-30 04:43 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/61573706.shtml)
-- 2026-06-30 04:53 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/5288490.shtml)
-- 2026-06-30 04:32 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/602457864392.shtml)
-- 2026-06-30 04:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/8717559462.shtml)
-- 2026-06-30 04:33 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/89452776303.shtml)
-- 2026-06-30 04:30 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/30408.shtml)
-- 2026-06-30 04:38 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/106695310395.shtml)
-- 2026-06-30 04:52 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/7725512.shtml)
-- 2026-06-30 04:34 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/19561113737.shtml)
-- 2026-06-30 04:44 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/497024.shtml)
-- 2026-06-30 04:43 - [日本领先巴西](http://www.share.minike.top/Article/details/22474.shtml)
+- 2026-06-30 04:39 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/8509455175.shtml)
+- 2026-06-30 04:33 - [扫黑风暴](http://www.share.minike.top/Article/details/111520333367.shtml)
+- 2026-06-30 04:43 - [起风了](http://www.share.kurohicncr.top/Article/details/9470362028.shtml)
+- 2026-06-30 04:31 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/463642499052.shtml)
+- 2026-06-30 04:34 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/578105411.shtml)
+- 2026-06-30 04:36 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/4925350.shtml)
+- 2026-06-30 04:50 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/7377242.shtml)
+- 2026-06-30 04:42 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/22111.shtml)
+- 2026-06-30 04:40 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/56159943.shtml)
+- 2026-06-30 04:31 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/93776.shtml)
+- 2026-06-30 04:39 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/74141705.shtml)
+- 2026-06-30 04:35 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/81931.shtml)
+- 2026-06-30 04:34 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/74915618575.shtml)
+- 2026-06-30 04:44 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/36524887947.shtml)
+- 2026-06-30 04:31 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/74234.shtml)

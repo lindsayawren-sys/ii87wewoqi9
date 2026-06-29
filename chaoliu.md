@@ -1,61 +1,49 @@
-# 雄安交出绿色发展成绩单 “九大典范”建设全面提能级
+# 2026年度中国青年五四奖章暨新时代青年先锋奖评选结果揭晓
 
-> 更新时间：2026-06-30 04:54:02 UTC+8
+> 更新时间：2026-06-30 05:00:02 UTC+8
 
 ## 摘要
 
-中新网雄安4月22日电 (王夏菲 韩冰)河北雄安新区22日召开新闻发布会通报雄安新区绿色发展城市典范建设情况，“强化绿色技术研发推广”“构建低碳智能交通网络”等“九大典范”建设全面提能级。 绿色技术方面，城市智慧化水平持续提升，雄安新区新建片区基础设施智慧化水平达到100%。打造“15分钟政务服务圈”，“互联网+”政务、公安等领域全面接入DeepSeek大模型，部署AI智能助手
+新华社北京4月27日电(记者王明玉)为表彰先进、树立典型，集中展示新时代中国青年的精神品格和价值追求，共青团中央、全国青联决定，授予支德源等29名同志中国青年五四奖章，授予上海“模速空间”大模型创新生态社区青年团队等30个青年集体中国青年五四奖章集体，授予刁新宇等749名同志新时代青年先锋。 荣获2026年度中国青年五四奖章的分别是：首都医科大学附属北京友谊医院医务处处长、重症
 
 ## 正文
 
-中新网雄安4月22日电 (王夏菲 韩冰)河北雄安新区22日召开新闻发布会通报雄安新区绿色发展城市典范建设情况，“强化绿色技术研发推广”“构建低碳智能交通网络”等“九大典范”建设全面提能级。
+新华社北京4月27日电(记者王明玉)为表彰先进、树立典型，集中展示新时代中国青年的精神品格和价值追求，共青团中央、全国青联决定，授予支德源等29名同志中国青年五四奖章，授予上海“模速空间”大模型创新生态社区青年团队等30个青年集体中国青年五四奖章集体，授予刁新宇等749名同志新时代青年先锋。
 
-绿色技术方面，城市智慧化水平持续提升，雄安新区新建片区基础设施智慧化水平达到100%。
+荣获2026年度中国青年五四奖章的分别是：首都医科大学附属北京友谊医院医务处处长、重症医学科主任医师支德源，新疆生产建设兵团第三师图木舒克市叶城二牧场三连党支部副书记古再丽努尔·阿布拉(女)，江西中发天信航空发动机科技有限公司首席技术专家刘臣，天津市公安局治安管理总队攻坚狙击支队战力支援大队副大队长刘琳(女)，武警部队湖南省总队训练基地教研室孙江涛，中国科学院深海科学与工程研究所研究员杜梦然(女)，河北省唐山市乐亭县庞各庄乡阚田各庄村党支部书记兼村委会主任李瑶，山东农业大学园艺科学与工程学院教授李宏博，云南出入境边防检查总站清水河出入境边防检查站勐捧分站执勤一队副队长李金精，沈阳飞机工业(集团)有限公司钳工杨国心，江铃汽车股份有限公司智能装备中心工程车间工程1组班组长杨准正，一汽解放汽车有限公司商用车开发院数控机床特级技能师时敬龙，中国地质大学(北京
 
-打造“15分钟政务服务圈”，“互联网+”政务、公安等领域全面接入DeepSeek大模型，部署AI智能助手“雄小智”。
+荣获2026年度中国青年五四奖章集体的分别是：上海“模速空间”大模型创新生态社区青年团队，75220部队42分队，中国铁路西安局集团有限公司西安铁路物流中心国际港营业部“丝路青锋”青年团队，北京首都机场航空安保有限公司综合安检部特检科青年先锋队，极地考察站青年突击队，中国农业银行西藏分行“格桑花”金融服务队，中船江南造船福建舰建造管理青年团队，国家税务总局平潭综合实验区税务局第一税务所(办税服务厅)青年集体，中国载人航天工程长征二号F运载火箭应急发射任务攻关团队，中国科学院天津工业生物技术研究所糖生物合成与绿色制造攻关团队，河北省沧州市消防救援支队浮阳北大道特勤站，北方农牧交错区保护性农业创新团队，特高压套管国产化应用青年集体，吉林碳谷“中国质量”35K碳纤维核心技术攻关青年团队，哈尔滨工业大学超精密仪器技术创新团队，“川藏青光明行”眼健康志愿服务队
 
-绿色交通方面，雄安新区着力打造地下空间风雨无阻、地上交通便捷高效、空中走廊低空飞行的立体化综合交通网络。
-
-东西轴线铁路工程基本完工，京雄快线全线主体完工，新建片区公共交通站点500米覆盖率超95%，47条主干路双向绿波协调，主要路段早晚高峰时长缩短15分钟，无人驾驶出租车上路投用。
-
-绿色产业方面，以中国星网为龙头发展空天信息和卫星互联网产业，集聚企业67家、创新平台9家，首颗“雄安造”卫星下线。
-
-以人工智能研究院为基础发展人工智能，人工智能产业园、AI科技大厦等平台建设运营，建设“城市”“行业”“企业”三个领域可信数据空间，“极数”数据大模型(LimiX)等在雄安新区首发，集聚企业90家。
-
-(完)
+共青团中央、全国青联号召广大团员青年向模范学习、向先进看齐，深刻领悟“两个确立”的决定性意义，增强“四个意识”、坚定“四个自信”、做到“两个维护”，更加紧密地团结在以习近平同志为核心的党中央周围，坚定不移听党话、跟党走，锚定“十五五”目标任务坚定信心、乘势而上，以昂扬向上的精神风貌和强国有我的责任担当，践行“请党放心、强国有我”的青春誓言，为全面推进强国建设、民族复兴伟业奋力书写新的青春篇章。
 
 ## 相关推荐
 
-- 2026-06-30 04:32 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 04:40 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 04:26 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 04:34 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 04:50 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 04:27 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 04:32 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 04:31 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 04:52 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 04:30 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 04:45 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 04:43 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 04:38 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 04:51 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 04:41 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 04:35 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 04:37 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 04:46 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 04:56 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 04:53 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 04:41 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 04:31 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 04:42 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 04:56 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 04:45 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 04:36 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:34 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/8335196.shtml)
-- 2026-06-30 04:27 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/455425.shtml)
-- 2026-06-30 04:49 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/3499804.shtml)
-- 2026-06-30 04:41 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/397511592984.shtml)
-- 2026-06-30 04:40 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/02104474.shtml)
-- 2026-06-30 04:30 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/54828.shtml)
-- 2026-06-30 04:29 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/93494030759.shtml)
-- 2026-06-30 04:44 - [斗破苍穹](http://www.share.minike.top/Article/details/998211735482.shtml)
-- 2026-06-30 04:49 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/85457966.shtml)
-- 2026-06-30 04:31 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/2148702407.shtml)
-- 2026-06-30 04:39 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/55989074.shtml)
-- 2026-06-30 04:43 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/76820.shtml)
-- 2026-06-30 04:36 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/251857287582.shtml)
-- 2026-06-30 04:45 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/716663.shtml)
-- 2026-06-30 04:30 - [沉睡花园](http://www.share.minike.top/Article/details/7768621378.shtml)
+- 2026-06-30 04:55 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/093288.shtml)
+- 2026-06-30 04:54 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/72238388836.shtml)
+- 2026-06-30 04:52 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/596790461.shtml)
+- 2026-06-30 04:42 - [周生如故](https://www.share.kurohicncr.top/Article/details/6909843.shtml)
+- 2026-06-30 04:50 - [《共患难》](https://www.blog.minike.top/Article/details/2141732670.shtml)
+- 2026-06-30 04:32 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/16364.shtml)
+- 2026-06-30 04:51 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/8408890.shtml)
+- 2026-06-30 04:49 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/160014836.shtml)
+- 2026-06-30 04:36 - [日本进球](https://www.share.kurohicncr.top/Article/details/8350131083.shtml)
+- 2026-06-30 04:34 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/7778999.shtml)
+- 2026-06-30 04:59 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/66278810.shtml)
+- 2026-06-30 04:41 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/53485125683.shtml)
+- 2026-06-30 04:50 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/22413.shtml)
+- 2026-06-30 04:35 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/76233986057.shtml)
+- 2026-06-30 04:46 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/19407146.shtml)
