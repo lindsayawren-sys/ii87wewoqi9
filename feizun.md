@@ -1,57 +1,48 @@
-# 广东去年仲裁标的额突破3100亿元居全国首位
+# 浏阳烟花厂爆炸事故发布会：集中最优医疗资源做好伤员救治
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新网广州6月17日电 (记者 方伟彬)广东省高级人民法院、广东省司法厅16日至17日在广州联合举办全省首期仲裁员与仲裁司法审查法官同堂培训。 记者获悉，近年来广东仲裁与司法审查协同持续提速。数据显示，2025年全省仲裁机构受理仲裁案件10万余件，标的额3100多亿元，均居全国首位；其中涉外及涉港澳台案件标的额636亿元，占全国30%，当事人覆盖140多个国家和地区。近三年，全
+今天(5月5日)，湖南长沙召开新闻发布会，介绍浏阳烟花厂爆炸事故最新救援进展。 相关负责人介绍，将集中最优医疗资源，对伤员逐一会诊评估，密切监测伤情变化，动态调整完善救治措施，精心做好伤员救治。已组建善后处置专项工作组，采取“一人(户)一专班”，主动联系对接伤亡人员家属，建立诉求收集、解决的闭环工作机制。
 
 ## 正文
 
-中新网广州6月17日电 (记者 方伟彬)广东省高级人民法院、广东省司法厅16日至17日在广州联合举办全省首期仲裁员与仲裁司法审查法官同堂培训。
+今天(5月5日)，湖南长沙召开新闻发布会，介绍浏阳烟花厂爆炸事故最新救援进展。
 
-记者获悉，近年来广东仲裁与司法审查协同持续提速。
+相关负责人介绍，将集中最优医疗资源，对伤员逐一会诊评估，密切监测伤情变化，动态调整完善救治措施，精心做好伤员救治。
 
-数据显示，2025年全省仲裁机构受理仲裁案件10万余件，标的额3100多亿元，均居全国首位；其中涉外及涉港澳台案件标的额636亿元，占全国30%，当事人覆盖140多个国家和地区。
-
-近三年，全省法院累计审结仲裁司法审查案件9749件，办理仲裁保全案件32591件，仲裁支持率稳定保持在97%以上。
-
-连续两天的培训紧扣新修订的《中华人民共和国仲裁法》实施背景，邀请最高人民法院民四庭、司法部公共法律服务管理局有关负责同志及中国政法大学、中国人民大学等高校知名专家学者授课，课程涵盖新仲裁法重点条文解读、国际商事仲裁理论实践及加快国际商事仲裁中心建设路径等专题。
-
-据悉，广东在推动大湾区仲裁融合上形成一批标志性成果：推动省人大就大湾区法律服务工作出台决定，联合出台大湾区仲裁工作实施意见及仲裁协议效力认定规则提示；建设推广裁审对接平台和大湾区跨境商事一站式解纷平台，实现仲裁保全与司法审查案件全流程线上办理；出台仲裁调查令办法，发出全国首份涉澳商事仲裁调查令；深圳中院审理全国首宗"港资港仲裁"司法审查案件，东莞仲裁委办结内地仲裁机构首宗"港资港仲裁"案件；联合港澳法律部门发布首批143名大湾区仲裁员名册。
-
-主办方表示，将以此次同堂培训为契机，进一步推动仲裁与司法审查工作协同提质、同向发力，以坚实法治保障赋能粤港澳大湾区建设。
-
-(完)
+已组建善后处置专项工作组，采取“一人(户)一专班”，主动联系对接伤亡人员家属，建立诉求收集、解决的闭环工作机制。
 
 ## 相关推荐
 
-- 2026-06-30 05:37 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 06:03 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 05:53 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 05:42 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-30 05:44 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 05:39 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 05:58 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 05:36 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 05:54 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 05:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 05:59 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 06:10 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 05:49 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 06:03 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 05:57 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 05:43 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 05:58 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 05:48 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 05:55 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 06:08 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 05:57 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 06:03 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 05:55 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:52 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/5118791.shtml)
-- 2026-06-30 06:05 - [《贺子珍》](https://www.blog.minike.top/Article/details/77577283249.shtml)
-- 2026-06-30 05:55 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/78973224.shtml)
-- 2026-06-30 05:45 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/57629258938.shtml)
-- 2026-06-30 06:05 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/13959.shtml)
-- 2026-06-30 05:47 - [扫黑风暴](http://www.blog.minike.top/Article/details/956782460638.shtml)
-- 2026-06-30 05:54 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/293856199.shtml)
-- 2026-06-30 06:03 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/4915273832.shtml)
-- 2026-06-30 05:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/43769474186.shtml)
-- 2026-06-30 06:02 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/5249570877.shtml)
-- 2026-06-30 06:05 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/3630752072.shtml)
-- 2026-06-30 05:51 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/5924677.shtml)
-- 2026-06-30 05:59 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/4728042048.shtml)
-- 2026-06-30 05:39 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/221313830.shtml)
-- 2026-06-30 05:37 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/588450040406.shtml)
+- 2026-06-30 06:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/45223.shtml)
+- 2026-06-30 05:44 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/197459272.shtml)
+- 2026-06-30 05:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/514971878174.shtml)
+- 2026-06-30 05:48 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/7193702263.shtml)
+- 2026-06-30 05:43 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/860788804863.shtml)
+- 2026-06-30 05:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/342084177.shtml)
+- 2026-06-30 05:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/5413397440.shtml)
+- 2026-06-30 06:05 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/66014.shtml)
+- 2026-06-30 06:07 - [乔家的儿女](http://www.blog.minike.top/Article/details/4883898.shtml)
+- 2026-06-30 06:02 - [爱很美味](https://www.share.kurohicncr.top/Article/details/34324437.shtml)
+- 2026-06-30 05:56 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/416635626.shtml)
+- 2026-06-30 05:45 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/87370108884.shtml)
+- 2026-06-30 05:50 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/070862186.shtml)
+- 2026-06-30 06:06 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/8952592010.shtml)
+- 2026-06-30 05:59 - [美人鱼](https://www.share.kurohicncr.top/Article/details/945244321.shtml)

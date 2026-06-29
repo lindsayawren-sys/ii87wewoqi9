@@ -1,59 +1,58 @@
-# 光大期货：6月18日金融日报
+# 马斯克就推特持股披露案与SEC达成和解 支付150万美元罚款
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，A股市场继续偏强震荡，Wind全A上涨0.87%，成交额3.11万亿元。中证1000指数上涨0.67%，中证500指数上涨1.4%，沪深300指数上涨0.97%，上证50指数下跌上涨0.7%。陆家嘴论坛召开，推出多项金融领域政策措施，致力于“全球经济变局中的金融开放合作与高质量发展”。短
+埃隆·马斯克已就美国证券交易委员会提起的民事诉讼达成和解，同意支付150万美元罚款，了结关于其2022年收购推特期间未能及时披露持股的指控。 根据5月4日提交给华盛顿特区联邦法院的和解协议，马斯克名下的一个信托将支付这笔民事罚款。马斯克既未承认存在不当行为，也无需退还其因延迟披露而声称节约的1.5亿美元资金。此前曾要求马斯克退还该笔款项并支付额外罚款，据悉该机构在早期和解提议中
 
 ## 正文
 
-股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，A股市场继续偏强震荡，Wind全A上涨0.87%，成交额3.11万亿元。
+埃隆·马斯克已就美国证券交易委员会提起的民事诉讼达成和解，同意支付150万美元罚款，了结关于其2022年收购推特期间未能及时披露持股的指控。
 
-中证1000指数上涨0.67%，中证500指数上涨1.4%，沪深300指数上涨0.97%，上证50指数下跌上涨0.7%。
+根据5月4日提交给华盛顿特区联邦法院的和解协议，马斯克名下的一个信托将支付这笔民事罚款。
 
-陆家嘴论坛召开，推出多项金融领域政策措施，致力于“全球经济变局中的金融开放合作与高质量发展”。
+马斯克既未承认存在不当行为，也无需退还其因延迟披露而声称节约的1.5亿美元资金。
 
-短期来看，美伊协议达成，霍尔木兹海峡开放，美国通胀阶段性压力得到缓释，市场对于流动性紧缩的担忧显著降低。
+此前曾要求马斯克退还该笔款项并支付额外罚款，据悉该机构在早期和解提议中一度要求2亿美元。
 
-因此，全球权益市场走强，黄金上涨，原油回落。
+在2025年1月提起的诉讼中指出，马斯克在2022年3月14日持有推特股份超过5%的门槛，但直至4月4日才披露其持股已达9.2%，延迟了11天。
 
-中长期看，美伊冲突只是全球贸易格局重构的一个缩影，在新的全球性秩序建立以前，国际竞争的局面仍会持续。
+这期间，马斯克得以以较低价格购买了价值超过5亿美元的股票，而推特股价在他披露持股当天大涨27%。
 
-同时，考虑到美联储降息缩表的长期政策构想，资本市场流动性很难回到较为宽松的水平。
+马斯克律师亚历克斯·斯皮罗发表声明称：“马斯克先生现在已经了结了与推特收购案中迟交表格相关的所有问题，正如我们从一开始所说的那样。
 
-综上，科技行情短期可能仍然存在向上的脉冲，但长期建议有限选择对冲策略。
+” 此次和解正值在特朗普政府领导下调整执法优先事项之际。
 
 ## 相关推荐
 
-- 2026-06-30 05:53 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 05:52 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 06:04 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 06:03 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 05:50 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 05:52 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 05:44 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 05:49 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 05:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 05:47 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 06:05 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 05:56 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 05:43 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 06:07 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 05:57 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 05:49 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 05:42 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 05:58 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 05:46 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 06:05 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 06:04 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 06:09 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 05:58 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 05:47 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 05:58 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/366785397940.shtml)
-- 2026-06-30 06:04 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/310876717.shtml)
-- 2026-06-30 05:41 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/537707887604.shtml)
-- 2026-06-30 05:39 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/954965.shtml)
-- 2026-06-30 05:42 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/300520.shtml)
-- 2026-06-30 05:48 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/7444216175.shtml)
-- 2026-06-30 05:56 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/5183606.shtml)
-- 2026-06-30 05:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/71651.shtml)
-- 2026-06-30 05:49 - [巴西2比1日本](http://www.share.minike.top/Article/details/87959.shtml)
-- 2026-06-30 05:40 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/0160520333.shtml)
-- 2026-06-30 06:04 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/69546.shtml)
-- 2026-06-30 05:57 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/779646439252.shtml)
-- 2026-06-30 05:39 - [85花告别古偶](http://www.blog.minike.top/Article/details/342383703.shtml)
-- 2026-06-30 06:03 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/282513151.shtml)
-- 2026-06-30 05:53 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/4640533.shtml)
+- 2026-06-30 06:01 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/752950.shtml)
+- 2026-06-30 06:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/375588.shtml)
+- 2026-06-30 05:55 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/8177973283.shtml)
+- 2026-06-30 06:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/3081273.shtml)
+- 2026-06-30 05:43 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/9729374284.shtml)
+- 2026-06-30 05:56 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/7707057908.shtml)
+- 2026-06-30 05:42 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/40059123.shtml)
+- 2026-06-30 06:01 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/01013843.shtml)
+- 2026-06-30 05:51 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/59496591023.shtml)
+- 2026-06-30 05:46 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/12038427.shtml)
+- 2026-06-30 05:49 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/801895.shtml)
+- 2026-06-30 05:49 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/5160330270.shtml)
+- 2026-06-30 06:11 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/070434417.shtml)
+- 2026-06-30 05:49 - [沙丘](http://www.blog.minike.top/Article/details/70086.shtml)
+- 2026-06-30 06:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/885201.shtml)

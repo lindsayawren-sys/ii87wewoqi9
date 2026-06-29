@@ -1,60 +1,59 @@
-# 159瓶茅台被跨省查扣，3年后多瓶茅台缺失，警方回应
+# 中国铁路“五一”假期运输旅客发送量突破1亿人次
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 据大风新闻报道，四川宜宾珙县警方2023年赴沈阳查假五粮液（维权），扣走159瓶茅台酒，酒商今年查验发现被扣押的茅台酒多瓶缺失或出现空瓶。6月17日，宜宾市公安局督审支队回应澎湃新闻，正内部调查。 6月16日，辽宁沈阳的酒商何先生夫妻反映，2023年四川宜宾珙县警方前往沈阳查假五粮液，扣走其159瓶茅台，此后警方以何先生
+中新社北京5月5日电 (记者 刘文文)记者从中国国家铁路集团有限公司获悉，5月4日，全国铁路发送旅客2038.3万人次，4月29日“五一”假期运输启动以来全国铁路累计发送旅客1.17亿人次，运输安全平稳有序。5月5日，铁路返程客流继续攀升，全国铁路预计发送旅客2300万人次，计划加开旅客列车2225列。 各地铁路部门积极应对返程客流高峰，统筹利用运力资源，在热门方向和时段加开列
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 据大风新闻报道，四川宜宾珙县警方2023年赴沈阳查假五粮液（维权），扣走159瓶茅台酒，酒商今年查验发现被扣押的茅台酒多瓶缺失或出现空瓶。
+中新社北京5月5日电 (记者 刘文文)记者从中国国家铁路集团有限公司获悉，5月4日，全国铁路发送旅客2038.3万人次，4月29日“五一”假期运输启动以来全国铁路累计发送旅客1.17亿人次，运输安全平稳有序。
 
-6月17日，宜宾市公安局督审支队回应澎湃新闻，正内部调查。
+5月5日，铁路返程客流继续攀升，全国铁路预计发送旅客2300万人次，计划加开旅客列车2225列。
 
-6月16日，辽宁沈阳的酒商何先生夫妻反映，2023年四川宜宾珙县警方前往沈阳查假五粮液，扣走其159瓶茅台，此后警方以何先生涉嫌销售假酒移送检方起诉。
+各地铁路部门积极应对返程客流高峰，统筹利用运力资源，在热门方向和时段加开列车，全力保障旅客平安有序返程。
 
-今年5月20日，何先生夫妻二人在代理律师的陪同下，前往珙县公安局食药环侦大队查验发现，多瓶高价茅台酒缺失，部分茅台酒已被开启变成空瓶。
+郑州局集团公司在京津冀、长三角、粤港澳大湾区等热门方向加开旅客列车134列，其中夜间高铁38列。
 
-对于这一情况，现场民警未能给出合理解释。
+武汉局集团公司在京津冀、长三角、珠三角、成渝等热门方向加开旅客列车377列，其中京广高铁、汉宜铁路、汉十高铁等热门线路加开夜间高铁109列。
 
-对于珙县警方行为是否存在违规违纪情况，6月17日，宜宾市公安局督审支队工作人员回应澎湃新闻“正进行内部调查”。
+南昌局集团公司在南昌至杭州、九江至广州等热门方向加开旅客列车381列，其中夜间高铁12列。
 
-澎湃新闻记者拨打珙县公安局政工室电话，工作人员称“采访需经过省厅批准”。
+广州局集团公司在广深地区往返潮州、汕头、湛江、长沙、怀化等热门方向加开旅客列车707列。
 
-据大风新闻报道，该案历经8次庭审，目前仍在审理过程中，由于作为物证的茅台酒存在大量缺失，何先生曾申请对其真伪进行鉴定。
+乌鲁木齐局集团公司在成都、兰州、和田、喀什、阿克苏、库尔勒、哈密等热门方向加开旅客列车66列，安排36列动车组列车重联运行。
 
 ## 相关推荐
 
-- 2026-06-30 06:05 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 05:56 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 05:45 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 05:52 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 05:41 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 05:36 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 05:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 05:36 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 05:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 05:50 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 05:50 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 05:54 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-30 05:44 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 05:45 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 05:50 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 05:58 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-30 06:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-30 05:48 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 05:53 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 05:47 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 05:43 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 06:11 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 05:43 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 06:07 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 06:03 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 06:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 05:52 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/0218202355.shtml)
-- 2026-06-30 06:03 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/314311.shtml)
-- 2026-06-30 05:53 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/362983251.shtml)
-- 2026-06-30 05:46 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/955649639.shtml)
-- 2026-06-30 05:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/729352100505.shtml)
-- 2026-06-30 05:39 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/674071193756.shtml)
-- 2026-06-30 06:00 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/24819503767.shtml)
-- 2026-06-30 05:40 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/216202.shtml)
-- 2026-06-30 05:55 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/8531137085.shtml)
-- 2026-06-30 05:41 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/749173.shtml)
-- 2026-06-30 05:57 - [天道](https://www.blog.kurohicncr.top/Article/details/7992589299.shtml)
-- 2026-06-30 05:51 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/0810311555.shtml)
-- 2026-06-30 05:41 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/186535773524.shtml)
-- 2026-06-30 05:40 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/0277041.shtml)
-- 2026-06-30 05:47 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/552920899714.shtml)
+- 2026-06-30 05:56 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/404149.shtml)
+- 2026-06-30 06:11 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/4675123.shtml)
+- 2026-06-30 06:11 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/5306285494.shtml)
+- 2026-06-30 06:10 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/062553545763.shtml)
+- 2026-06-30 06:03 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/3694239.shtml)
+- 2026-06-30 05:57 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/844530232.shtml)
+- 2026-06-30 06:05 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/53609577.shtml)
+- 2026-06-30 05:49 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/985587106623.shtml)
+- 2026-06-30 06:04 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/857372526.shtml)
+- 2026-06-30 06:05 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/155884330.shtml)
+- 2026-06-30 06:02 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/0719145534.shtml)
+- 2026-06-30 06:09 - [房价什么时候能涨](https://www.share.minike.top/Article/details/4559014888.shtml)
+- 2026-06-30 05:52 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/04812.shtml)
+- 2026-06-30 05:52 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/4793911.shtml)
+- 2026-06-30 06:09 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/658694.shtml)

@@ -1,46 +1,60 @@
-# 6月18日央行开展2480亿元7天期逆回购操作
+# 福建省实施中小学春秋假制度 假期时长各为2-4天
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据央行网站消息，6月18日中国人民银行以固定利率、数量招标方式开展了2480亿元7天期逆回购操作，全额满足了一级交易商需求。具体情况如下：
+中新网5月7日电 据福建省教育厅网站消息，福建省教育厅等十四部门发布关于实施中小学春秋假的指导意见。为全面贯彻党的教育方针，落实立德树人根本任务，深入实施素质教育，优化教育教学时序安排，拓展学生实践成长空间，促进学生德智体美劳全面发展，经研究，决定在全省实施中小学春秋假制度。现结合福建省实际，提出如下指导意见。一、基本原则 (一)立足省情，因地制宜。春秋假安排应充分考虑我省各地
 
 ## 正文
 
-中新网6月18日电 据央行网站消息，6月18日中国人民银行以固定利率、数量招标方式开展了2480亿元7天期逆回购操作，全额满足了一级交易商需求。
+中新网5月7日电 据福建省教育厅网站消息，福建省教育厅等十四部门发布关于实施中小学春秋假的指导意见。
 
-具体情况如下：
+为全面贯彻党的教育方针，落实立德树人根本任务，深入实施素质教育，优化教育教学时序安排，拓展学生实践成长空间，促进学生德智体美劳全面发展，经研究，决定在全省实施中小学春秋假制度。
+
+现结合福建省实际，提出如下指导意见。
+
+一、基本原则 (一)立足省情，因地制宜。
+
+春秋假安排应充分考虑我省各地区地理气候、教学进度及社会生产生活的差异性，不做统一硬性安排，不统一规定具体放假时间，支持各地市、县(区)科学论证，自主确定实施方案，鼓励学段间、区域间错峰安排。
+
+(二)统筹规划，保障教学。
+
+假期安排要严格遵循国家课程方案，确保学年教学总时长和教学任务全面完成。
+
+在保证教育教学质量的前提下，通过对学期机动时间、寒暑假的统筹优化，合理设置春秋假时长与时段。
 
 ## 相关推荐
 
-- 2026-06-30 05:36 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 05:38 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 05:49 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 05:48 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 05:44 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 06:04 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 06:04 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 05:55 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-30 05:47 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 05:40 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 05:56 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 05:45 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 05:48 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 05:51 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 05:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 05:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 05:52 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 05:47 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 05:48 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 06:02 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 05:59 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 06:00 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 06:08 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 05:55 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 05:46 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 06:06 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:48 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/61163714878.shtml)
-- 2026-06-30 06:02 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.kurohicncr.top/Article/details/412782399568.shtml)
-- 2026-06-30 05:50 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/2262332.shtml)
-- 2026-06-30 05:39 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/350344892.shtml)
-- 2026-06-30 05:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/08827995328.shtml)
-- 2026-06-30 05:54 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/22956068.shtml)
-- 2026-06-30 06:00 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/971272.shtml)
-- 2026-06-30 05:41 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/774021.shtml)
-- 2026-06-30 05:43 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/41598203046.shtml)
-- 2026-06-30 05:36 - [一生一世](http://www.share.kurohicncr.top/Article/details/13169684.shtml)
-- 2026-06-30 05:47 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/1999228927.shtml)
-- 2026-06-30 05:45 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/71199294118.shtml)
-- 2026-06-30 05:38 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/4290492.shtml)
-- 2026-06-30 05:36 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/82824.shtml)
-- 2026-06-30 06:03 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/0404431.shtml)
+- 2026-06-30 06:03 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/94316.shtml)
+- 2026-06-30 05:51 - [极限挑战第一季](http://www.share.minike.top/Article/details/73034.shtml)
+- 2026-06-30 06:08 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/700252608.shtml)
+- 2026-06-30 05:42 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/59414219785.shtml)
+- 2026-06-30 05:51 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/274637166247.shtml)
+- 2026-06-30 06:01 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/7303816341.shtml)
+- 2026-06-30 05:42 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/2505603023.shtml)
+- 2026-06-30 05:48 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/51784252.shtml)
+- 2026-06-30 05:50 - [我和我的家乡](https://www.blog.minike.top/Article/details/730595.shtml)
+- 2026-06-30 05:43 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/366027.shtml)
+- 2026-06-30 05:59 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/8742898105.shtml)
+- 2026-06-30 05:46 - [金牌调解](https://www.share.minike.top/Article/details/175762353.shtml)
+- 2026-06-30 05:53 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/989224.shtml)
+- 2026-06-30 05:46 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/597124.shtml)
+- 2026-06-30 05:51 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/8672137.shtml)

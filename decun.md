@@ -1,56 +1,61 @@
-# 国务院印发《实施就业优先战略“十五五”规划》
+# CVS业绩大幅超预期并上调全年指引 保险业务强势回暖
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-新华社北京6月17日电 日前，国务院印发《实施就业优先战略“十五五”规划》(以下简称《规划》)，明确了“十五五”时期深入实施就业优先战略、促进高质量充分就业的思路目标、重点任务和政策举措。 《规划》强调，坚持以习近平新时代中国特色社会主义思想为指导，聚焦促进高质量充分就业目标，围绕就业领域人力资源供需不匹配的主要矛盾，坚持投资于物和投资于人紧密结合，以推动高质量发展为基础，以实
+专题：聚焦美股2026年第一季度财报 核心要点 CVS 健康盘前涨5.7%。 CVS 健康周三公布一季度财报，盈利与营收大幅超出分析师预期，并上调 2026 全年业绩展望；公司此前承压的保险业务实现明显改善。 作为美国最大连锁药房运营商，CVS 上调全年盈利预期： 全年每股收益从此前7.00–7.20 美元，上调至7.30–7.50 美元。2026 年营收预期从此前至少 400
 
 ## 正文
 
-新华社北京6月17日电 日前，国务院印发《实施就业优先战略“十五五”规划》(以下简称《规划》)，明确了“十五五”时期深入实施就业优先战略、促进高质量充分就业的思路目标、重点任务和政策举措。
+专题：聚焦美股2026年第一季度财报 核心要点 CVS 健康盘前涨5.7%。
 
-《规划》强调，坚持以习近平新时代中国特色社会主义思想为指导，聚焦促进高质量充分就业目标，围绕就业领域人力资源供需不匹配的主要矛盾，坚持投资于物和投资于人紧密结合，以推动高质量发展为基础，以实施就业优先战略为引领，以强化就业优先政策为抓手，以破解结构性就业矛盾为着力点，以深化就业体制机制改革为动力，以不发生规模性失业风险为底线，健全就业促进机制，构建就业友好型发展方式，加强人力资源开发利用，强化择业和用人观念引导，持续促进就业质的有效提升和量的合理增长，不断增强广大劳动者获得感幸福感安全感。
+CVS 健康周三公布一季度财报，盈利与营收大幅超出分析师预期，并上调 2026 全年业绩展望；公司此前承压的保险业务实现明显改善。
 
-《规划》提出，“十五五”时期，就业保持总体稳定，就业机会更加充分，就业环境更加公平，就业结构更加优化，人岗匹配更加高效，劳动关系更加和谐，高质量充分就业取得新进展。
+作为美国最大连锁药房运营商，CVS 上调全年盈利预期： 全年每股收益从此前7.00–7.20 美元，上调至7.30–7.50 美元。
 
-《规划》部署了9方面重点任务。
+2026 年营收预期从此前至少 4000 亿美元，上调至至少 4050 亿美元。
 
-一是强化宏观调控就业优先导向，增强宏观政策就业协同性，实施稳岗扩容提质行动，适应人工智能发展促进就业创业。
+CVS 首席财务官布莱恩・纽曼在接受 CNBC 采访时表示，营收预期上调的 500 亿美元增量中，绝大部分源于保险子公司安泰（Aetna） 带来的顺风利好。
 
-二是加强产业和就业协同，稳定劳动密集型行业就业规模，扩大服务业就业容量，挖掘新兴领域吸纳就业潜能。
+这家医疗巨头旗下保险、零售药房、健康服务三大板块营收均超越华尔街预期。
 
-三是加快塑造现代化人力资源，提高教育供给与人才需求匹配度，大规模开展职业技能培训。
+近两年高昂医疗赔付成本持续压制大型健康险公司业绩，因此安泰的经营表现最受投资者关注。
 
-四是拓展高校毕业生等青年就业成才渠道，健全政策激励、服务保障、困难兜底、权益维护等全链条就业支持体系。
+本次财报标志着 CVS 整体转型计划稳步推进： 包括削减 20 亿美元开支、关停低效门店、管理层人事调整，以及在私营联邦医保优势计划（Medicare Advantage）板块压降运营成本。
 
 ## 相关推荐
 
-- 2026-06-30 06:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 05:57 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 05:45 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 05:39 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 05:41 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 06:02 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 05:36 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 05:50 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 06:04 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 05:41 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 05:43 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 06:07 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 06:02 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 06:03 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 06:11 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 06:06 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 05:55 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 05:42 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 05:44 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-30 05:46 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 06:09 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 06:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 05:43 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 05:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 05:59 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:57 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/732275.shtml)
-- 2026-06-30 06:01 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/75029743122.shtml)
-- 2026-06-30 05:52 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/100181116494.shtml)
-- 2026-06-30 05:39 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/715565341610.shtml)
-- 2026-06-30 06:05 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/63597024.shtml)
-- 2026-06-30 05:58 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/38613060.shtml)
-- 2026-06-30 05:45 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/2867970.shtml)
-- 2026-06-30 05:59 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/79956346016.shtml)
-- 2026-06-30 05:41 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/42553433.shtml)
-- 2026-06-30 05:41 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/1123151612.shtml)
-- 2026-06-30 06:05 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/9145610129.shtml)
-- 2026-06-30 06:03 - [巴西vs日本](https://www.share.minike.top/Article/details/7267366.shtml)
-- 2026-06-30 05:36 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/186603925316.shtml)
-- 2026-06-30 05:55 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/755298231.shtml)
-- 2026-06-30 05:47 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/53414918711.shtml)
+- 2026-06-30 06:01 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/5935625953.shtml)
+- 2026-06-30 05:44 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/50399493.shtml)
+- 2026-06-30 05:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/52592943.shtml)
+- 2026-06-30 05:45 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/4021396419.shtml)
+- 2026-06-30 06:08 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/999703695122.shtml)
+- 2026-06-30 05:55 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/44825.shtml)
+- 2026-06-30 05:47 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/2531194.shtml)
+- 2026-06-30 05:57 - [斗破苍穹](http://www.blog.minike.top/Article/details/6712107534.shtml)
+- 2026-06-30 05:55 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/8626865.shtml)
+- 2026-06-30 05:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/5556535541.shtml)
+- 2026-06-30 06:09 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/454771.shtml)
+- 2026-06-30 06:10 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/1127030562.shtml)
+- 2026-06-30 05:52 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/003598.shtml)
+- 2026-06-30 05:58 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/593434875971.shtml)
+- 2026-06-30 06:03 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/752303857.shtml)

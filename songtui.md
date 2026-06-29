@@ -1,57 +1,61 @@
-# 中国科学家发现恐龙新物种 命名“中华常州龙”
+# 香江观澜：“三驾马车”齐发力 香港经济跑出“加速度”
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新网常州6月17日电(唐娟 史瑛)中国科学院古脊椎动物与古人类研究所徐星院士团队近日在《古脊椎动物学报》上发表研究成果，确认了一种距今约1.2亿年的带羽毛恐龙新物种。常州中华恐龙园17日对外发布，该新物种已被正式命名为“中华常州龙”。 据介绍，这具化石发现于辽宁，保存极为完整，骨架周围清晰保留了大面积羽毛印痕。研究显示，“中华常州龙”是目前已知唯一同时发育大型足部羽毛和极长扇
+中新社香港5月6日电 题：“三驾马车”齐发力 香港经济跑出“加速度” 中新社记者 香卢平 香港特区政府统计处5日公布的预估数据显示，今年第一季度香港本地生产总值同比实质上升5.9%，季度增速创近5年新高。亮眼答卷背后，是拉动经济增长的“三驾马车”——投资、出口、消费齐头并进，展现出香港经济的强劲韧性与活力。 政策的保驾护航、营商环境的持续优化，让香港成为全球投资的“安全港”。整
 
 ## 正文
 
-中新网常州6月17日电(唐娟 史瑛)中国科学院古脊椎动物与古人类研究所徐星院士团队近日在《古脊椎动物学报》上发表研究成果，确认了一种距今约1.2亿年的带羽毛恐龙新物种。
+中新社香港5月6日电 题：“三驾马车”齐发力 香港经济跑出“加速度” 中新社记者 香卢平 香港特区政府统计处5日公布的预估数据显示，今年第一季度香港本地生产总值同比实质上升5.9%，季度增速创近5年新高。
 
-常州中华恐龙园17日对外发布，该新物种已被正式命名为“中华常州龙”。
+亮眼答卷背后，是拉动经济增长的“三驾马车”——投资、出口、消费齐头并进，展现出香港经济的强劲韧性与活力。
 
-据介绍，这具化石发现于辽宁，保存极为完整，骨架周围清晰保留了大面积羽毛印痕。
+政策的保驾护航、营商环境的持续优化，让香港成为全球投资的“安全港”。
 
-研究显示，“中华常州龙”是目前已知唯一同时发育大型足部羽毛和极长扇形尾羽的廓羽盗龙类恐龙，其尾羽数量约16枚，形态与孔雀尾羽相近。
+整体投资方面，根据香港交易所公布的数据，2026年首季共有40宗新股上市，总集资额达1104亿元(港元，下同)，同比增近6倍，列全球新股市场首位。
 
-在分类上，它属于兽脚类恐龙中的驰龙科，与伶盗龙、小盗龙同属一个家族。
+私人财富管理亦正成为新的投资增长点。
 
-科研人员认为，这种“前肢翼羽面积大、足羽和尾羽同时高度发育”的形态组合在此前发现的恐龙中从未出现，为理解恐龙飞行行为的演化路径提供了新的实物材料。
+截至2025年底，香港单一家族办公室增至3384家，创造逾1万个全职专业岗位，营运开支每年为香港经济带来约126亿元收益。
 
-徐星现任中国科学院古脊椎动物与古人类研究所所长，由他命名或参与命名的恐龙新物种已超过80种，是当前国际上命名恐龙有效属种数量最多的学者之一。
+招商引资方面，截至今年4月底，香港已引进逾120家重点企业落户香港，预计未来数年将带来约730亿元投资。
 
-其科普著作《飞向蓝天的恐龙》曾被收录于小学语文教材。
+香港中文大学经济学系副教授庄太量表示，今年首季外部资金对香港投资增加，包括中东资本寻求“安全港”，加上家族办公室和实体投资增加，推动本地固定资本形成总额增加。
 
 ## 相关推荐
 
-- 2026-06-30 05:55 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 05:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 06:02 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 05:44 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 05:57 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 05:42 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 05:42 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 05:41 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 05:51 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 05:37 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 05:56 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 06:06 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 06:00 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 05:51 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 06:11 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 06:01 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 06:03 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 05:51 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 05:53 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 05:57 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 05:44 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 06:02 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 06:07 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 06:06 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 05:55 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 06:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:59 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/8045771909.shtml)
-- 2026-06-30 06:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/66347.shtml)
-- 2026-06-30 06:03 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/12315132774.shtml)
-- 2026-06-30 06:04 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/650066.shtml)
-- 2026-06-30 06:05 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/91208.shtml)
-- 2026-06-30 05:52 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/34466513381.shtml)
-- 2026-06-30 05:37 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/631246.shtml)
-- 2026-06-30 05:45 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/4138912263.shtml)
-- 2026-06-30 05:50 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/5062621.shtml)
-- 2026-06-30 06:03 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/20517571470.shtml)
-- 2026-06-30 05:45 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/745008040815.shtml)
-- 2026-06-30 05:53 - [日本进球](https://www.blog.kurohicncr.top/Article/details/015994.shtml)
-- 2026-06-30 05:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/905960289157.shtml)
-- 2026-06-30 05:57 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/1374029822.shtml)
-- 2026-06-30 05:57 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/66364941.shtml)
+- 2026-06-30 06:10 - [刘念回应](https://www.share.kurohicncr.top/Article/details/0812631409.shtml)
+- 2026-06-30 05:46 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/749688.shtml)
+- 2026-06-30 06:06 - [请回答王牌2019](http://www.blog.minike.top/Article/details/41305868.shtml)
+- 2026-06-30 06:01 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/2742550955.shtml)
+- 2026-06-30 06:01 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/43677.shtml)
+- 2026-06-30 06:07 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/59314.shtml)
+- 2026-06-30 05:43 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/396218.shtml)
+- 2026-06-30 06:06 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/09273.shtml)
+- 2026-06-30 05:46 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/10903133.shtml)
+- 2026-06-30 05:46 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/80228310893.shtml)
+- 2026-06-30 06:12 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/770591.shtml)
+- 2026-06-30 06:11 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/507874091122.shtml)
+- 2026-06-30 05:48 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/032824.shtml)
+- 2026-06-30 06:03 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/25072435504.shtml)
+- 2026-06-30 05:48 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/67866487.shtml)

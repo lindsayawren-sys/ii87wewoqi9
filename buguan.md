@@ -1,61 +1,60 @@
-# 第10届南博会闭幕 实际签约金额逾277亿元
+# 股指期货全线收涨，中小盘“更胜一筹”
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-6月16日，第10届中国—南亚博览会圆满落幕。本届南博会实际签约金额逾277亿元，其中，内外贸项目102.51亿元、投资合作项目174.89亿元，分别比上届增长20.9%和28.5%。展期为期6天，进馆人数达50万人次。 本届博览会共有68个国家、地区和国际组织参展参会，实现南亚东南亚及RCEP成员国全覆盖。112家世界500强、中国500强及行业龙头企业集中亮相，2301家境
+来源：期货日报 “五一”假期后首个交易日，国内股指期货表现强劲，股指期货合约全线上涨。具体来看，中证500股指期货主力合约领涨，涨幅近3%，至8497.6点。从资金流向看，中证500股指期货当日资金净流入73.64亿元。股市方面，沪深两市全天成交额为3.23万亿元，较前一交易日放量近5000亿元。市场人士认为，这表明市场风险偏好有所回升。 格林大华期货副总经理、首席专家王骏分析
 
 ## 正文
 
-6月16日，第10届中国—南亚博览会圆满落幕。
+来源：期货日报 “五一”假期后首个交易日，国内股指期货表现强劲，股指期货合约全线上涨。
 
-本届南博会实际签约金额逾277亿元，其中，内外贸项目102.51亿元、投资合作项目174.89亿元，分别比上届增长20.9%和28.5%。
+具体来看，中证500股指期货主力合约领涨，涨幅近3%，至8497.6点。
 
-展期为期6天，进馆人数达50万人次。
+从资金流向看，中证500股指期货当日资金净流入73.64亿元。
 
-本届博览会共有68个国家、地区和国际组织参展参会，实现南亚东南亚及RCEP成员国全覆盖。
+股市方面，沪深两市全天成交额为3.23万亿元，较前一交易日放量近5000亿元。
 
-112家世界500强、中国500强及行业龙头企业集中亮相，2301家境内外企业齐聚展会。
+市场人士认为，这表明市场风险偏好有所回升。
 
-意大利、乌拉圭等7国驻华使领馆首次以国家展团形式组团参展，德国、巴西、埃及等45个国家企业首次参与采购环节，国际合作版图持续扩大。
+格林大华期货副总经理、首席专家王骏分析称，一方面，“五一”假期期间海外地缘风险整体可控，全球大部分地区的股票市场录得一定涨幅。
 
-历经十届打磨，南博会已从单一展会升级为集经贸、产业、人文、外交于一体的综合开放平台，“国际化、专业化、市场化、品牌化”的水平显著提升。
+另一方面，A股今年一季报表现亮眼，呈现出总量回暖、结构分化的特点，其中人工智能、算力、新质生产力相关产业成为增长的核心引擎。
 
-(总台记者 杨子硕 赵鹏)
+创元期货股指期货研究员刘钇含认为，未来A股将延续偏强震荡走势，市场资金将聚焦盈利和景气度向上的行业，指数层面可继续关注沪深300和中证500，板块层面可关注上游周期板块和科技板块。
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-30 05:43 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 05:52 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 05:52 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 05:47 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 05:53 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 05:44 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 05:52 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 05:55 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 05:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 05:57 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 06:01 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 05:55 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 05:47 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 05:37 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 05:44 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 06:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 05:50 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 05:49 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 05:51 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 05:51 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 05:58 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 05:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 05:48 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 05:56 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 05:56 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 05:44 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 05:42 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 06:03 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/04819181185.shtml)
-- 2026-06-30 06:03 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/719330.shtml)
-- 2026-06-30 05:53 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/515328309.shtml)
-- 2026-06-30 05:45 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/451962071666.shtml)
-- 2026-06-30 05:44 - [金牌调解](http://www.share.minike.top/Article/details/400095.shtml)
-- 2026-06-30 05:51 - [我和我的家乡](http://www.share.minike.top/Article/details/65161081.shtml)
-- 2026-06-30 05:36 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/09607323787.shtml)
-- 2026-06-30 05:57 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/37892.shtml)
-- 2026-06-30 05:58 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/3748720503.shtml)
-- 2026-06-30 05:53 - [一见倾心](http://www.share.kurohicncr.top/Article/details/0185739.shtml)
-- 2026-06-30 05:39 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/978365817452.shtml)
-- 2026-06-30 05:59 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/95318752133.shtml)
-- 2026-06-30 06:02 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/33822.shtml)
-- 2026-06-30 05:36 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/9145048.shtml)
-- 2026-06-30 06:02 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/4466364.shtml)
+- 2026-06-30 05:56 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/6753862.shtml)
+- 2026-06-30 05:43 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/202134255.shtml)
+- 2026-06-30 06:06 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/38341.shtml)
+- 2026-06-30 06:10 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/522761360.shtml)
+- 2026-06-30 05:55 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/77491.shtml)
+- 2026-06-30 05:50 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/19301425.shtml)
+- 2026-06-30 05:50 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/534054437746.shtml)
+- 2026-06-30 05:46 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/587583.shtml)
+- 2026-06-30 06:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/8662760.shtml)
+- 2026-06-30 06:11 - [千香](https://www.share.minike.top/Article/details/274200707667.shtml)
+- 2026-06-30 05:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/773985047.shtml)
+- 2026-06-30 05:46 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/19214704678.shtml)
+- 2026-06-30 05:42 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/97379255.shtml)
+- 2026-06-30 05:52 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/6037597515.shtml)
+- 2026-06-30 06:04 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/901351273672.shtml)

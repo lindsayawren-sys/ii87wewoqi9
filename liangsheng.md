@@ -1,58 +1,49 @@
-# 0.63折甩卖！3.7万亿广发银行陷“折价”困局
+# 蓝思科技午前涨逾7% 近日实际控制人获接《贷款承诺函》 拟增持公司A股股份
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！wumiancaijing.com //// 广发银行“打骨折”处置不良资产，其股权也频繁流拍，广发银行的上市预期，似乎下降了。 本文由无冕财经（wumiancaijing）原创发布 作者：杨一轩 编辑：陈涧 广发银行正在加速“割肉”。 6月15日，广发银行南京分行价值18.27亿元的不良资产包，在资产拍卖
+蓝思科技（06613）午前股价上涨6.99%，现报18.22港元，成交额3.16亿港元。 蓝思科技发布公告，公司于2026年4月17日收到实际控制人周群飞女士、郑俊龙先生所控制的群欣公司书面通知，基于对公司未来发展前景的信心和对公司股票价值的合理判断，为切实维护中小投资者利益，提振投资者信心，群欣公司拟通过集中竞价方式增持上市公司A股股份，增持金额不低于人民币10，000万元，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+蓝思科技（06613）午前股价上涨6.99%，现报18.22港元，成交额3.16亿港元。
 
-wumiancaijing.com //// 广发银行“打骨折”处置不良资产，其股权也频繁流拍，广发银行的上市预期，似乎下降了。
+蓝思科技发布公告，公司于2026年4月17日收到实际控制人周群飞女士、郑俊龙先生所控制的群欣公司书面通知，基于对公司未来发展前景的信心和对公司股票价值的合理判断，为切实维护中小投资者利益，提振投资者信心，群欣公司拟通过集中竞价方式增持上市公司A股股份，增持金额不低于人民币10，000万元，资金来源为自有或自筹资金。
 
-本文由无冕财经（wumiancaijing）原创发布 作者：杨一轩 编辑：陈涧 广发银行正在加速“割肉”。
+近日，群欣公司收到中信银行长沙分行出具的《贷款承诺函》，中信银行长沙分行拟为群欣公司提供增持上市公司A股股票的融资支持，贷款额度为不超过人民币9，000万元，贷款期限不超过3年，专项用于支持群欣公司增持上市公司A股股票。
 
-6月15日，广发银行南京分行价值18.27亿元的不良资产包，在资产拍卖平台上挂牌半月后结束招募。
-
-在下架前，这笔资产围观人次不足百人，但由于其中七成资产来自雨润肉类集团，引发外界关注。
-
-雨润系破产重整已4年，广发银行才将这笔资产拿出来甩卖，资产质量恶化风险何时消除令人疑虑。
-
-怀疑不无道理。
-
-2025年，广发银行通过银登中心累计挂牌转让不良资产319亿元，其中，前11期完成交易的资产为296亿元，但平均回收率仅6.3%，相当于0.63折出售。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 05:52 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-30 05:55 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 05:56 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 05:36 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 05:59 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 05:51 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 06:05 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 05:42 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 05:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 05:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-30 05:55 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 06:06 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 05:52 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 06:08 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 05:56 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 05:45 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 05:57 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 05:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 05:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 06:07 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 05:54 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 06:04 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:59 - [第一炉香](http://www.share.kurohicncr.top/Article/details/24279273666.shtml)
-- 2026-06-30 06:01 - [斛珠夫人](http://www.share.minike.top/Article/details/422626275173.shtml)
-- 2026-06-30 05:54 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/243316488526.shtml)
-- 2026-06-30 05:38 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/15793.shtml)
-- 2026-06-30 05:52 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/9794105.shtml)
-- 2026-06-30 06:05 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/3171912542.shtml)
-- 2026-06-30 05:37 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/3460128.shtml)
-- 2026-06-30 05:39 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/241433110.shtml)
-- 2026-06-30 06:01 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/850653669.shtml)
-- 2026-06-30 05:53 - [恋与深空 日服](https://www.share.minike.top/Article/details/8933540816.shtml)
-- 2026-06-30 05:57 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/74332.shtml)
-- 2026-06-30 05:42 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/667317397625.shtml)
-- 2026-06-30 05:44 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/2932370.shtml)
-- 2026-06-30 05:59 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/95672494325.shtml)
-- 2026-06-30 06:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/900600.shtml)
+- 2026-06-30 05:51 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/9982368.shtml)
+- 2026-06-30 06:05 - [速度与激情9](https://www.blog.minike.top/Article/details/4102882.shtml)
+- 2026-06-30 06:11 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/3957146552.shtml)
+- 2026-06-30 06:07 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/50900034420.shtml)
+- 2026-06-30 05:47 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/0767336.shtml)
+- 2026-06-30 06:10 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/291351.shtml)
+- 2026-06-30 06:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/025428.shtml)
+- 2026-06-30 05:56 - [周生如故](https://www.blog.minike.top/Article/details/308550134.shtml)
+- 2026-06-30 06:03 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/2095655188.shtml)
+- 2026-06-30 06:01 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/66919521.shtml)
+- 2026-06-30 06:06 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/9550106307.shtml)
+- 2026-06-30 06:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/3860727114.shtml)
+- 2026-06-30 06:05 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/5187046412.shtml)
+- 2026-06-30 05:44 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/318346.shtml)
+- 2026-06-30 06:06 - [《共患难》](https://www.share.kurohicncr.top/Article/details/287194412663.shtml)

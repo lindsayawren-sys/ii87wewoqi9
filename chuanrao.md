@@ -1,60 +1,56 @@
-# 北京经开区发布营商环境改革创新成果 近30项成果全国全市推广
+# ST萃华：无法在法定期限内披露定期报告 5月6日起停牌
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电 (黄巧维)北京经济技术开发区(简称北京经开区，又称北京亦庄)已有200余项营商环境改革创新举措落地见效，其中近30项创新成果在全国或全市范围内推广。北京经济技术开发区工委委员、管委会副主任李全在今天举行的一场发布会上表示，经开区始终把营商环境作为高质量发展的生命线，以“亦企创未来”品牌为引领，在制度创新、为企服务、要素保障和数字赋能四方面聚能发力，有力发
+人民财讯5月5日电，ST萃华（维权）（002731）5月5日公告，公司原定于4月29日披露2025年年度报告和2026年第一季度报告。因定期报告涉及的部分信息需要进一步核实、补充完善，公司未能完成2025年年报的编制工作，公司无法在法定期限内（4月30日）披露上述定期报告。公司股票于5月6日（星期三）开市起停牌。 根据相关规定，上市公司未在法定期限内披露年度报告，且在公司股票停
 
 ## 正文
 
-中新网北京6月17日电 (黄巧维)北京经济技术开发区(简称北京经开区，又称北京亦庄)已有200余项营商环境改革创新举措落地见效，其中近30项创新成果在全国或全市范围内推广。
+人民财讯5月5日电，ST萃华（维权）（002731）5月5日公告，公司原定于4月29日披露2025年年度报告和2026年第一季度报告。
 
-北京经济技术开发区工委委员、管委会副主任李全在今天举行的一场发布会上表示，经开区始终把营商环境作为高质量发展的生命线，以“亦企创未来”品牌为引领，在制度创新、为企服务、要素保障和数字赋能四方面聚能发力，有力发挥了全市营商环境改革试验田和示范区的作用。
+因定期报告涉及的部分信息需要进一步核实、补充完善，公司未能完成2025年年报的编制工作，公司无法在法定期限内（4月30日）披露上述定期报告。
 
-以“沙盒审批”健全“四新”经济准入规范 北京经济技术开发区行政审批局局长庞雁介绍，北京经开区紧扣产业发展实际、聚焦企业核心需求，稳慎探索、先行先试，在全市首创新质生产力“沙盒审批”机制，破解新兴业态准入堵点。
+公司股票于5月6日（星期三）开市起停牌。
 
-庞雁表示，在机制运行方面，北京经开区以“全流程闭环管理”为核心，确保试点工作规范可控。
+根据相关规定，上市公司未在法定期限内披露年度报告，且在公司股票停牌两个月内仍未披露，将被实施退市风险警示。
 
-“我们始终把安全可控摆在沙盒审批的首要位置，构建了’入盒申请—符合性审查—沙盒试验—出盒审批’全链条工作程序，做到包容而不纵容、放手而不放任。
+上市公司因触及上述情形其股票交易被实施退市风险警示之日起的两个月内仍未披露过半数董事保证真实、准确、完整的相关年度报告，将被终止其股票上市交易。
 
-” 目前，沙盒审批已在医疗器械自动售械机及机器人(数字人)演出等两个领域率先落地。
+另外，公司及子公司深圳萃华由于部分流动资金紧张，出现部分借款未能如期偿还的情形。
 
-经开区已为首家数字人试点企业颁发沙盒准入证明，计划年内对相关线下商业文艺演出进行审核，为数字人产业规范化发展探索路径。
+截至目前，公司及深圳萃华在银行等融资机构新增4笔借款逾期，逾期未付本金约1.44亿元，公司及子公司累计借款逾期本金约6.38亿元。
 
-“我们立足新业态、新产业发展实际破除制度堵点，用首创性制度供给、释放企业创新发展空间。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 05:55 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 05:56 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 05:54 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 05:39 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 05:36 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 05:47 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 05:53 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 05:39 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 05:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 05:58 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-30 06:04 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 05:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 05:38 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 05:43 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 05:51 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 05:48 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 06:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 05:55 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 06:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 05:44 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 05:50 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 05:56 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 05:42 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 05:42 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:04 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/249676912264.shtml)
-- 2026-06-30 05:48 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/61967889436.shtml)
-- 2026-06-30 05:52 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/98616.shtml)
-- 2026-06-30 05:44 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/696253.shtml)
-- 2026-06-30 05:45 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/5478700.shtml)
-- 2026-06-30 06:01 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/044491979881.shtml)
-- 2026-06-30 05:57 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/89120439.shtml)
-- 2026-06-30 05:36 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/7576732864.shtml)
-- 2026-06-30 05:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/69216.shtml)
-- 2026-06-30 05:37 - [月亮](https://www.blog.kurohicncr.top/Article/details/994905876460.shtml)
-- 2026-06-30 05:47 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/930771.shtml)
-- 2026-06-30 05:41 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/152977.shtml)
-- 2026-06-30 05:40 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/7227631926.shtml)
-- 2026-06-30 05:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/54089276784.shtml)
-- 2026-06-30 05:36 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/67678.shtml)
+- 2026-06-30 05:48 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/70043973434.shtml)
+- 2026-06-30 05:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/9341267425.shtml)
+- 2026-06-30 05:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/8646260.shtml)
+- 2026-06-30 05:42 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/078157863223.shtml)
+- 2026-06-30 05:42 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/9344275274.shtml)
+- 2026-06-30 05:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/97614.shtml)
+- 2026-06-30 06:11 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/608246302.shtml)
+- 2026-06-30 05:47 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/33911206.shtml)
+- 2026-06-30 06:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/562559929.shtml)
+- 2026-06-30 06:04 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/347836267.shtml)
+- 2026-06-30 06:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/82373.shtml)
+- 2026-06-30 05:51 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/5755559.shtml)
+- 2026-06-30 06:02 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/3389445.shtml)
+- 2026-06-30 05:58 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/726001.shtml)
+- 2026-06-30 05:56 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/9061821537.shtml)

@@ -1,61 +1,60 @@
-# 货币政策框架改革再进一步 隔夜回购利率将发挥更重要作用
+# 当驴火遇见拿铁：“混搭风”圈粉年轻人
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 来源：金融时报 6月17日，在2026陆家嘴论坛上，央行行长潘功胜表示，金融结构正在发生深刻的变化。他指出，从经济发展阶段看，我国经济已从高速增长转向高质量发展，相应地，金融对经济的服务更多体现在结构优化上，而不是宏观金融总量的持续扩张上。 一组数据显示：目前，我国社会融资规模存量超过450万亿元，M2余额超过350
+中新网保定5月5日电 题：当驴火遇见拿铁：“混搭风”圈粉年轻人 作者 赵丹媚 李玉素 徐巧明 清晨，河北保定一家老字号驴肉火烧店前，刚出炉的“驴火”酥脆掉渣，几步之遥，一款“驴火拿铁”成为咖啡厅热销单品。“五一”假期，不少年轻游客“一手驴火、一手咖啡”，混搭出街头新时尚。 除了与咖啡的“联名”，驴奶冰淇淋、驴形火烧、“Jelly Lv”毛绒玩具、驴火造型冰箱贴等，也成为游客争相
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 来源：金融时报 6月17日，在2026陆家嘴论坛上，央行行长潘功胜表示，金融结构正在发生深刻的变化。
+中新网保定5月5日电 题：当驴火遇见拿铁：“混搭风”圈粉年轻人 作者 赵丹媚 李玉素 徐巧明 清晨，河北保定一家老字号驴肉火烧店前，刚出炉的“驴火”酥脆掉渣，几步之遥，一款“驴火拿铁”成为咖啡厅热销单品。
 
-他指出，从经济发展阶段看，我国经济已从高速增长转向高质量发展，相应地，金融对经济的服务更多体现在结构优化上，而不是宏观金融总量的持续扩张上。
+“五一”假期，不少年轻游客“一手驴火、一手咖啡”，混搭出街头新时尚。
 
-一组数据显示：目前，我国社会融资规模存量超过450万亿元，M2余额超过350万亿元，总量规模已经很大。
+除了与咖啡的“联名”，驴奶冰淇淋、驴形火烧、“Jelly Lv”毛绒玩具、驴火造型冰箱贴等，也成为游客争相购买的“城市符号”。
 
-“当前280万亿元的贷款余额中，房地产、地方融资平台的贷款占比仍然较大，这一块不仅不再增长，反而还在下降。
+而这种混搭的尝试，并未止步于美食与文创。
 
-剩下的其他贷款要先填补上这个下降的部分，才能表现为增量，全部信贷要保持过去的增速是很难的，也是没有必要的。
+毗邻京津的保定，是新中国的工业重镇，以“西郊八大厂”为代表的厂区承载着城市荣光。
 
-”潘功胜表示，同时，部分存量贷款效率不高，盘活低效存量贷款和新增贷款对经济增长的意义本质上是相同的。
+随着产业转型，一些老厂房逐渐闲置。
 
-贷款“降速提质”或将成为宏观运行的新常态之一。
+如今，它们正与电竞、潮玩、艺术等新业态大胆碰撞，成为年轻人旅行热门目的地。
 
-实际上，近年来，我国货币政策调控框架正从数量型为主向价格型为主转型，本次潘功胜宣布的政策也显示了这一趋势。
+“老厂房的厚重结构与赛博朋克的炫酷灯光形成强烈对比，每个角落都很出片。
 
 ## 相关推荐
 
-- 2026-06-30 05:51 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 05:50 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 05:40 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 05:45 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 05:46 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 06:02 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 05:45 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-30 05:54 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 05:49 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 05:54 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 05:58 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 05:44 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 05:46 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 05:46 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 05:38 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 05:53 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 05:45 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 05:44 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 06:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 06:10 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 05:59 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 05:50 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 06:00 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 05:54 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-30 06:09 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 05:52 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 05:57 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 06:04 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 05:52 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:40 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/946184476368.shtml)
-- 2026-06-30 05:59 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/79238590.shtml)
-- 2026-06-30 06:04 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/9264500998.shtml)
-- 2026-06-30 05:58 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/054405553.shtml)
-- 2026-06-30 06:00 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/1239395.shtml)
-- 2026-06-30 05:48 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/945691.shtml)
-- 2026-06-30 05:47 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/5408961.shtml)
-- 2026-06-30 05:46 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/18505088688.shtml)
-- 2026-06-30 05:58 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/3647885531.shtml)
-- 2026-06-30 05:39 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/84369287877.shtml)
-- 2026-06-30 06:05 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/1982254216.shtml)
-- 2026-06-30 05:46 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/94519438.shtml)
-- 2026-06-30 05:48 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/4377310546.shtml)
-- 2026-06-30 05:59 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/6678990.shtml)
-- 2026-06-30 05:50 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/6852839.shtml)
+- 2026-06-30 05:42 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/3693670452.shtml)
+- 2026-06-30 05:51 - [天道](http://www.blog.minike.top/Article/details/509981575930.shtml)
+- 2026-06-30 05:51 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/8798096762.shtml)
+- 2026-06-30 06:08 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/756949.shtml)
+- 2026-06-30 05:59 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/7106523463.shtml)
+- 2026-06-30 05:52 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/1353516095.shtml)
+- 2026-06-30 06:07 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/977062470546.shtml)
+- 2026-06-30 06:00 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/29910195433.shtml)
+- 2026-06-30 06:03 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/264924668894.shtml)
+- 2026-06-30 06:05 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/0874132434.shtml)
+- 2026-06-30 05:59 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/0180006790.shtml)
+- 2026-06-30 05:55 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/11732670.shtml)
+- 2026-06-30 05:42 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/436010.shtml)
+- 2026-06-30 05:45 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/7183906.shtml)
+- 2026-06-30 06:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/84435191209.shtml)

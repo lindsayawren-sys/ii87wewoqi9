@@ -1,58 +1,59 @@
-# 网络数据安全风险评估办法
+# 哈萨克斯坦今年一季度可再生能源发电量同比增长15%
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-国家互联网信息办公室 中华人民共和国工业和信息化部 中华人民共和国公安部 令第24号 《网络数据安全风险评估办法》已经2026年6月1日国家互联网信息办公室2026年第12次室务会会议审议通过，并经中华人民共和国工业和信息化部、中华人民共和国公安部同意，现予公布，自2026年8月20日起施行。 国家互联网信息办公室主任 庄荣文 工业和信息化部部长 李乐成 公安部部长 王小洪 2
+中新网阿斯塔纳5月6日电 (记者 单璐)哈萨克斯坦能源部6日发布消息称，2026年第一季度，哈萨克斯坦可再生能源发电量达23亿千瓦时，同比增长15%。 为进一步扩大可再生能源发电规模，哈萨克斯坦今年计划投运10个新的可再生能源项目，包括4座风电站、5座太阳能电站和1座水电站，新增项目总装机容量为245兆瓦。 数据显示，2025年，可再生能源发电量占哈萨克斯坦全国发电总量的7%。
 
 ## 正文
 
-国家互联网信息办公室 中华人民共和国工业和信息化部 中华人民共和国公安部 令第24号 《网络数据安全风险评估办法》已经2026年6月1日国家互联网信息办公室2026年第12次室务会会议审议通过，并经中华人民共和国工业和信息化部、中华人民共和国公安部同意，现予公布，自2026年8月20日起施行。
+中新网阿斯塔纳5月6日电 (记者 单璐)哈萨克斯坦能源部6日发布消息称，2026年第一季度，哈萨克斯坦可再生能源发电量达23亿千瓦时，同比增长15%。
 
-国家互联网信息办公室主任 庄荣文 工业和信息化部部长 李乐成 公安部部长 王小洪 2026年6月18日 网络数据安全风险评估办法 第一章 总 则 第一条 为了规范网络数据安全风险评估活动，保障网络数据安全，促进网络数据依法合理有效利用，根据《中华人民共和国数据安全法》、《中华人民共和国网络安全法》、《网络数据安全管理条例》等法律法规，制定本办法。
+为进一步扩大可再生能源发电规模，哈萨克斯坦今年计划投运10个新的可再生能源项目，包括4座风电站、5座太阳能电站和1座水电站，新增项目总装机容量为245兆瓦。
 
-第二条 在中华人民共和国境内开展网络数据安全风险评估，应当遵守本办法。
+数据显示，2025年，可再生能源发电量占哈萨克斯坦全国发电总量的7%。
 
-本办法所称网络数据安全风险评估(以下简称风险评估)，是指对网络数据和网络数据处理活动安全进行的风险识别、风险分析和风险评价等活动。
+根据规划，到2030年，这一比例将提升至15%。
 
-第三条 在国家数据安全工作协调机制指导下，国家网信部门会同国务院电信、公安等有关部门建立网络数据安全风险评估专项工作机制，指导、监督风险评估工作。
+哈能源部称，目前已有多家国际企业参与哈萨克斯坦可再生能源领域项目建设，包括法国道达尔能源公司、中国电力国际发展有限公司、阿联酋马斯达尔能源公司以及中国能源建设集团等。
 
-第四条 有关主管部门应当按照谁管业务、谁管业务数据、谁管数据安全的原则，定期组织开展本行业、本领域风险评估，根据工作需要对本行业、本领域处理重要数据的网络数据处理者(以下简称重要数据处理者)开展风险评估情况进行检查，并于每年1月底前将年度风险评估检查计划报送国家网信部门。
+消息称，到2035年，哈萨克斯坦计划新增超过8吉瓦可再生能源装机容量。
 
-国家网信部门通过国家数据安全工作协调机制将计划与国务院电信、公安、国家安全等有关部门共享并进行协调，避免不必要的检查和交叉重复检查。
+哈能源部认为，相关项目实施后，将有助于增强国家电力系统稳定性，提高能源安全水平，并进一步推动能源结构多元化。
 
-有关主管部门开展检查不得向被检查的重要数据处理者收取费用。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:58 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 05:53 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 05:54 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 05:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 05:57 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 05:38 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 05:45 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 05:54 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 06:01 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 06:00 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 05:48 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 05:57 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 05:56 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 06:01 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 05:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 06:04 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 06:10 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 05:44 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 05:58 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 05:48 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 05:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 05:52 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 05:47 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 05:48 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 06:09 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:47 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/27377.shtml)
-- 2026-06-30 05:48 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/8893043995.shtml)
-- 2026-06-30 05:50 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/201756.shtml)
-- 2026-06-30 05:52 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/84067450.shtml)
-- 2026-06-30 06:02 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/49311662.shtml)
-- 2026-06-30 05:47 - [毒液2](http://www.share.kurohicncr.top/Article/details/43625.shtml)
-- 2026-06-30 05:54 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/2722495295.shtml)
-- 2026-06-30 05:57 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/04806948.shtml)
-- 2026-06-30 05:37 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/8043538.shtml)
-- 2026-06-30 05:48 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/0266093200.shtml)
-- 2026-06-30 05:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/272804468801.shtml)
-- 2026-06-30 05:53 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/330615963814.shtml)
-- 2026-06-30 06:01 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/9447586.shtml)
-- 2026-06-30 06:01 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/7845197.shtml)
-- 2026-06-30 06:01 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/12021148.shtml)
+- 2026-06-30 06:07 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/780433.shtml)
+- 2026-06-30 06:03 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/6394928.shtml)
+- 2026-06-30 06:00 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/364940.shtml)
+- 2026-06-30 05:48 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/7582031640.shtml)
+- 2026-06-30 05:45 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/82118.shtml)
+- 2026-06-30 05:42 - [周生如故](http://www.blog.kurohicncr.top/Article/details/37961408155.shtml)
+- 2026-06-30 06:08 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/23737868.shtml)
+- 2026-06-30 06:06 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/97626960.shtml)
+- 2026-06-30 06:00 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/19335934625.shtml)
+- 2026-06-30 06:09 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/7287525.shtml)
+- 2026-06-30 05:58 - [金刚川](https://www.share.minike.top/Article/details/74862796321.shtml)
+- 2026-06-30 06:07 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/87608.shtml)
+- 2026-06-30 05:50 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/9442940.shtml)
+- 2026-06-30 06:05 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/79418238.shtml)
+- 2026-06-30 05:55 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/367457766.shtml)

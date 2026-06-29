@@ -1,59 +1,53 @@
-# 北京市教育学会体教融合专业委员会成立
+# 朝鲜常驻联合国代表：美国等国无端指责朝拥核国家地位
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电 (记者 陈杭)北京市教育学会体教融合专业委员会成立仪式暨北京市健康学校建设校长研讨会16日在首都师范大学附属中学举行。 本次活动由北京市教育学会、首都体育学院、首都师范大学附属中学教育集团联合主办，《体育教学》编辑部、首都师范大学附属中学承办。 活动现场，北京市教育学会体教融合专业委员会正式揭牌。专委会由首都师范大学附属中学和首都体育学院联合发起，由首都
+中新网5月7日电 据朝中社报道，当地时间5月6日，朝鲜常驻联合国代表金星发表谈话称，在联合国总部举行的《不扩散核武器条约》第十一次审议大会上，美国及其“仆从国家”无端指责朝鲜当前拥核国家地位和主权权利行使，搅乱大会气氛。金星表示，《不扩散核武器条约》审议大会本应该为从根源上解决国际核裁军问题和核冲突风险做出贡献。但是，全球核不扩散机制逐渐削弱的根本原因是其按照美国和西方势力的不
 
 ## 正文
 
-中新网北京6月17日电 (记者 陈杭)北京市教育学会体教融合专业委员会成立仪式暨北京市健康学校建设校长研讨会16日在首都师范大学附属中学举行。
+中新网5月7日电 据朝中社报道，当地时间5月6日，朝鲜常驻联合国代表金星发表谈话称，在联合国总部举行的《不扩散核武器条约》第十一次审议大会上，美国及其“仆从国家”无端指责朝鲜当前拥核国家地位和主权权利行使，搅乱大会气氛。
 
-本次活动由北京市教育学会、首都体育学院、首都师范大学附属中学教育集团联合主办，《体育教学》编辑部、首都师范大学附属中学承办。
+金星表示，《不扩散核武器条约》审议大会本应该为从根源上解决国际核裁军问题和核冲突风险做出贡献。
 
-活动现场，北京市教育学会体教融合专业委员会正式揭牌。
+但是，全球核不扩散机制逐渐削弱的根本原因是其按照美国和西方势力的不纯政治企图，化为恶意诋毁主权国家的工具。
 
-专委会由首都师范大学附属中学和首都体育学院联合发起，由首都师范大学附属中学教育集团提供基础教育实践基地、健康学校建设经验，首都体育学院提供学术支撑、运动健康专家资源。
+金星还称，以美国为首的一些特定国家对朝合法拥核和主权国家固有的防卫权利行使说三道四，他对其予以强烈谴责。
 
-专委会将立足首都基础教育发展需求，面向北京市各区教育教研单位、各级各类中小学、体育教师、体育教研工作者、教体领域科研人员提供专业服务；同时服务区域学校体育改革发展、青少年学生群体，对接北京教育学会及属地教体主管部门，搭建教体双向联动平台，服务首都体教融合事业高质量发展。
-
-北京市教育学会会长方中雄表示，希望专委会找准定位、当好“参谋助手”，扎根一线、做好“桥梁纽带”，脚踏实地、协同聚力。
-
-学会将始终秉持“学术立会、服务兴会”的宗旨，为专委会提供必要的支持与保障。
-
-首都体育学院院长张霞表示，学校将主动扛起高校社会责任，充分发挥专业优势，依托专委会平台，进一步加强与全市中小学的交流协作。
+金星强调，朝鲜将对国际社会保障国际和平安全、谋求全球战略稳定性的努力作出积极贡献。
 
 ## 相关推荐
 
-- 2026-06-30 05:53 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 05:50 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 05:55 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 05:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 05:58 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 05:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 06:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 05:49 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 06:01 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 05:56 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 05:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 05:54 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 05:46 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-30 05:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 05:50 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 05:57 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 05:49 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 05:46 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 05:57 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 06:05 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 06:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 05:58 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 05:55 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 06:05 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 05:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 06:01 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/2877529176.shtml)
-- 2026-06-30 06:01 - [逃狱兄弟](https://www.blog.minike.top/Article/details/739470382.shtml)
-- 2026-06-30 05:44 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/424219.shtml)
-- 2026-06-30 05:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/54975.shtml)
-- 2026-06-30 05:50 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/69292575.shtml)
-- 2026-06-30 05:42 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/03673481.shtml)
-- 2026-06-30 05:39 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/6595608427.shtml)
-- 2026-06-30 05:56 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/909457.shtml)
-- 2026-06-30 05:48 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/6631410.shtml)
-- 2026-06-30 05:38 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/80968274120.shtml)
-- 2026-06-30 06:05 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/4001895.shtml)
-- 2026-06-30 06:02 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/8285679483.shtml)
-- 2026-06-30 06:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/91510.shtml)
-- 2026-06-30 06:00 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/3362788463.shtml)
-- 2026-06-30 05:50 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/963243.shtml)
+- 2026-06-30 05:46 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/121368.shtml)
+- 2026-06-30 06:03 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/472766.shtml)
+- 2026-06-30 05:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/8359993.shtml)
+- 2026-06-30 06:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/73696034.shtml)
+- 2026-06-30 05:49 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/5590417.shtml)
+- 2026-06-30 06:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/51385003591.shtml)
+- 2026-06-30 06:11 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/09528.shtml)
+- 2026-06-30 06:03 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/662312761.shtml)
+- 2026-06-30 06:01 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/0138222911.shtml)
+- 2026-06-30 05:49 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/920989582.shtml)
+- 2026-06-30 05:59 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/3879575.shtml)
+- 2026-06-30 05:56 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/707398042291.shtml)
+- 2026-06-30 05:51 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/197150.shtml)
+- 2026-06-30 05:45 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/41659127966.shtml)
+- 2026-06-30 05:55 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/9967736.shtml)

@@ -1,57 +1,48 @@
-# 5000美元“长”成5万棵树，一笔捐款背后的中国治沙力量
+# 韩国称将确保每年从加拿大进口至多3300万桶原油
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 19:13 来源：中国新闻网 6月17日是世界防治荒漠化与干旱日。前阵子，60岁的中国治沙人殷玉珍终于找到了20多年前资助她的美国教师赛考斯。27年前，赛考斯在电视上看到殷玉珍在毛乌素沙地种树治沙的报道，深受触动，四处筹款，寄来了5000美元。时光飞逝，当年殷玉珍用筹款购买的小树苗，如今已长成5万多棵树，蔓延成一片森林。 毛乌素沙地是中国四大沙
+韩国财政部长具润哲表示，根据自由贸易协定，韩国将通过降低关税的方式，每年确保从加拿大进口至多3300万桶原油。 韩国方面还将简化加拿大原油的进口程序。 此举正值韩国寻求在中东冲突背景下实现能源来源多元化之际。责任编辑：于健 SF069
 
 ## 正文
 
-发布时间：2026年06月17日 19:13 来源：中国新闻网 6月17日是世界防治荒漠化与干旱日。
+韩国财政部长具润哲表示，根据自由贸易协定，韩国将通过降低关税的方式，每年确保从加拿大进口至多3300万桶原油。
 
-前阵子，60岁的中国治沙人殷玉珍终于找到了20多年前资助她的美国教师赛考斯。
+韩国方面还将简化加拿大原油的进口程序。
 
-27年前，赛考斯在电视上看到殷玉珍在毛乌素沙地种树治沙的报道，深受触动，四处筹款，寄来了5000美元。
+此举正值韩国寻求在中东冲突背景下实现能源来源多元化之际。
 
-时光飞逝，当年殷玉珍用筹款购买的小树苗，如今已长成5万多棵树，蔓延成一片森林。
-
-毛乌素沙地是中国四大沙地之一，曾被称为不毛之地。
-
-曾经，这里风沙肆虐，黄沙漫天。
-
-如今，毛乌素治理率已超过80%，流动沙丘面积缩减了93%。
-
-党的十八大以来，中国53%的可治理沙化土地得到有效治理，成为全球增绿最多最快的国家。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 06:05 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 05:58 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 05:59 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 06:04 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 06:01 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 05:49 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 05:57 - [日本领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 06:01 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 05:48 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 05:50 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 05:41 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 05:58 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 05:47 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 06:05 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 05:58 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 06:05 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 05:57 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 05:50 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 06:01 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 06:03 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 05:48 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:45 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/47175803927.shtml)
-- 2026-06-30 06:01 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/524970.shtml)
-- 2026-06-30 06:03 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/417169240404.shtml)
-- 2026-06-30 05:47 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/20222788.shtml)
-- 2026-06-30 05:51 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/8816999.shtml)
-- 2026-06-30 05:53 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/713000085507.shtml)
-- 2026-06-30 05:49 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/04702665.shtml)
-- 2026-06-30 05:45 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/392544929.shtml)
-- 2026-06-30 06:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/90196335.shtml)
-- 2026-06-30 05:38 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/320746264.shtml)
-- 2026-06-30 05:41 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/38635653685.shtml)
-- 2026-06-30 05:36 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/0760096.shtml)
-- 2026-06-30 05:57 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/521534.shtml)
-- 2026-06-30 05:58 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/11929914621.shtml)
-- 2026-06-30 06:01 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/534569.shtml)
+- 2026-06-30 06:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/9182706353.shtml)
+- 2026-06-30 06:00 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/537254109.shtml)
+- 2026-06-30 05:47 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/47583317.shtml)
+- 2026-06-30 05:55 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/5033792.shtml)
+- 2026-06-30 06:03 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/676073102804.shtml)
+- 2026-06-30 05:45 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/8817750.shtml)
+- 2026-06-30 05:59 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/60909011086.shtml)
+- 2026-06-30 06:07 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/94206.shtml)
+- 2026-06-30 05:50 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/827547791.shtml)
+- 2026-06-30 05:57 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/74923.shtml)
+- 2026-06-30 06:03 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/5734436.shtml)
+- 2026-06-30 05:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/54514.shtml)
+- 2026-06-30 05:42 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/95759679.shtml)
+- 2026-06-30 06:09 - [日本领先巴西](https://www.blog.minike.top/Article/details/9646783.shtml)
+- 2026-06-30 06:04 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/9018721421.shtml)

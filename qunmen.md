@@ -1,57 +1,60 @@
-# ST广糖（000911）投资者索赔分析
+# 超360亿主力资金狂涌！电子行业成“流量王”！兆易创新登顶A股吸金榜，华宝基金电子ETF（515260）狂飙6.33%
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月12日，ST广糖（000911）发布公告，因公司涉嫌信息披露违法违规，中国证监会决定对公司立案调查。部分股民或许存在索赔机会。 徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致损失，可以向有管辖权的法院提起民事赔偿诉讼以维护自己的合法权益，可
+今日（5月6日）电子板块领跑市场，半导体龙头携手狂飙，海光信息20CM涨停，通富微电、兆易创新、三安光电亦涨停，寒武纪、澜起科技等多只成份股刷新上市以来的高点，荟聚电子板块核心龙头的电子ETF华宝（515260）场内价格盘中狂飙6.33%，现涨5.44%，创历史新高！ 值得关注的是，电子ETF华宝（515260）场内宽幅溢价，实施溢价率高达0.36%，或有资金看好电子板块后市表
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月12日，ST广糖（000911）发布公告，因公司涉嫌信息披露违法违规，中国证监会决定对公司立案调查。
+今日（5月6日）电子板块领跑市场，半导体龙头携手狂飙，海光信息20CM涨停，通富微电、兆易创新、三安光电亦涨停，寒武纪、澜起科技等多只成份股刷新上市以来的高点，荟聚电子板块核心龙头的电子ETF华宝（515260）场内价格盘中狂飙6.33%，现涨5.44%，创历史新高！
 
-部分股民或许存在索赔机会。
+值得关注的是，电子ETF华宝（515260）场内宽幅溢价，实施溢价率高达0.36%，或有资金看好电子板块后市表现，伴随火热的行情，积极进场抢筹！
 
-徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致损失，可以向有管辖权的法院提起民事赔偿诉讼以维护自己的合法权益，可索赔损失范围包括投资差额损失、印花税及佣金损失。
+资金面上，主力资金持续偏爱电子板块！
 
-（徐劲律师专栏） 暂定索赔条件： 在2026年06月13日之前买入，并在2026年06月13日后卖出或仍持有而亏损的投资者（最终索赔结果以法院判决为准）。
+截至发稿，电子板块获主力资金净流入超370亿元，拉长时间来看，近5日、近20日分别吸金934亿元和3132亿元，板块吸金额持续高居31个申万一级行业首位！
 
-（*ST广糖维权入口） 投资者应准备下列材料：身份证复印件，证券账户开户信息确认单（原件加盖证券公司营业部印章），证券交易记录流水（从首次买入该股票至今并加盖证券公司营业部印章，有库存股的还要打印出库存股数）。
+电子ETF华宝（515260）成份股兆易创新狂揽36.5亿元，霸居A股吸金榜榜首，成份股佰维存储、澜起科技、海光信息等个股亦跻身A股吸金榜TOP5。
 
-（本文由北京市盈科（深圳）律师事务所徐劲律师（执业证号14403200610948623）供稿，不代表新浪财经的立场。
+消息面上，电子行业表现出极强的吸睛能力，成“流量王”。
 
-徐劲律师擅长在上市公司虚假陈述案件中为股民维权索赔，执业十余年来，曾代理投资者起诉多家上市公司成功索赔。
+数据显示，4月份，电子行业共有82家上市公司获得私募机构密集调研，合计调研次数达1052次，两项指标均领先于其他行业。
 
-） 责任编辑：韦子蓉
+为何私募机构4月份调研聚焦电子行业？
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 05:49 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 06:03 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 05:39 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 05:40 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 05:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 05:48 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 05:46 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 06:03 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 05:49 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 05:58 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 06:10 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 05:55 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 06:02 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 05:53 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 05:50 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 05:50 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 05:57 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 06:01 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 06:07 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 06:08 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 05:46 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 06:08 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 05:53 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 06:03 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/90966931226.shtml)
-- 2026-06-30 05:51 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/274861690.shtml)
-- 2026-06-30 05:55 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/01639810035.shtml)
-- 2026-06-30 05:46 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/5485649.shtml)
-- 2026-06-30 05:47 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/2470500950.shtml)
-- 2026-06-30 05:52 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/565939830568.shtml)
-- 2026-06-30 05:42 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/63352.shtml)
-- 2026-06-30 05:43 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/1506920653.shtml)
-- 2026-06-30 05:40 - [周生如故](http://www.share.minike.top/Article/details/2651230.shtml)
-- 2026-06-30 05:49 - [美股](http://www.share.minike.top/Article/details/67804540.shtml)
-- 2026-06-30 05:38 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/411284153.shtml)
-- 2026-06-30 05:53 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/111277.shtml)
-- 2026-06-30 06:05 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/3185411.shtml)
-- 2026-06-30 05:46 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/298851464.shtml)
-- 2026-06-30 05:38 - [女心理师](https://www.share.minike.top/Article/details/560807766436.shtml)
+- 2026-06-30 06:03 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/99609544.shtml)
+- 2026-06-30 05:59 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/115627058638.shtml)
+- 2026-06-30 05:58 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/70462.shtml)
+- 2026-06-30 06:02 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/723928.shtml)
+- 2026-06-30 06:11 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/89144.shtml)
+- 2026-06-30 06:05 - [美人鱼](https://www.blog.minike.top/Article/details/1895436.shtml)
+- 2026-06-30 05:54 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/073774183.shtml)
+- 2026-06-30 05:47 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/609015.shtml)
+- 2026-06-30 06:08 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/8921872808.shtml)
+- 2026-06-30 05:49 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/08833565035.shtml)
+- 2026-06-30 06:11 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/949601273.shtml)
+- 2026-06-30 06:00 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/06500860.shtml)
+- 2026-06-30 06:05 - [一生一世](https://www.blog.minike.top/Article/details/57458.shtml)
+- 2026-06-30 05:51 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/88216731.shtml)
+- 2026-06-30 05:57 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/59422.shtml)

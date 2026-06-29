@@ -1,57 +1,60 @@
-# 港股半导体股午后续涨 华虹宏力拉升涨超10%
+# 港股收评：恒指涨1.22% 科指涨0.8% 科网股活跃 黄金股普涨 芯片股大涨 芯智控股涨超28%
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-港股半导体股午后续涨，天数智芯涨超13%，华虹宏力、纳芯微拉升涨超10%，兆易创新涨超8%，英诺赛科、澜起科技涨超6%，中芯国际涨超3%。 消息面上，陆家嘴论坛释放拥抱科技重磅信号，而产业端同步验证：国内大厂国产算力采购持续，且中国开源大模型已走到被微软认真评估替代OpenAI的门槛。 具体看：① 陆家嘴论坛：持续深化“两创板”改革，落实发展未来产业战略部署，支持量子科技、生物
+5月6日消息，港股三大指数震荡走高。截至收盘，恒生指数涨1.22%，报26213.78点，恒生科技指数涨0.8%，国企指数涨0.8%。盘面上，科网股涨多跌少，联想、百度涨超4%，阿里巴巴涨超2%，美团、腾讯跌超1%；芯片股大涨，芯智控股涨超28%；黄金股涨幅居前，赤峰黄金涨超10%；可孚医疗今日上市，首日收跌。 芯片股大涨，芯智控股涨超28%。有分析指出，半导体行业整体呈现“头
 
 ## 正文
 
-港股半导体股午后续涨，天数智芯涨超13%，华虹宏力、纳芯微拉升涨超10%，兆易创新涨超8%，英诺赛科、澜起科技涨超6%，中芯国际涨超3%。
+5月6日消息，港股三大指数震荡走高。
 
-消息面上，陆家嘴论坛释放拥抱科技重磅信号，而产业端同步验证：国内大厂国产算力采购持续，且中国开源大模型已走到被微软认真评估替代OpenAI的门槛。
+截至收盘，恒生指数涨1.22%，报26213.78点，恒生科技指数涨0.8%，国企指数涨0.8%。
 
-具体看：① 陆家嘴论坛：持续深化“两创板”改革，落实发展未来产业战略部署，支持量子科技、生物制造、具身智能等更多领域“硬科技”企业上市。
+盘面上，科网股涨多跌少，联想、百度涨超4%，阿里巴巴涨超2%，美团、腾讯跌超1%；芯片股大涨，芯智控股涨超28%；黄金股涨幅居前，赤峰黄金涨超10%；可孚医疗今日上市，首日收跌。
 
-② 字节跳动洽谈天数智芯：采购至少5万颗推理GPU，“训练vs推理”采购分工正式显性化据媒体报道，字节跳动正与天数智芯洽谈采购至少5万颗AI芯片，主要用于豆包等C端/MaaS的海量并发推理。
+芯片股大涨，芯智控股涨超28%。
 
-若落地，天数智芯将成为字节第三家国内GPU供应商。
+有分析指出，半导体行业整体呈现“头部企业盈利稳固、二线厂商减亏提速”的发展态势。
 
-③ 微软考虑将DeepSeek V4微调版引入Copilot Cowork作为OpenAI/Anthropic低成本替代据报道，微软正评估把中国开源模型DeepSeek V4的微调版接入旗下企业AI工具Copilot Cowork，作为高价闭源模型的成本优化选项，预计数周内敲定。
+具体来看，三家企业实现盈利，寒武纪、摩尔线程营收同比增速均超150%；海光信息一季度营收突破40亿元大关。
 
-④ 美国银行最新预测：到2030年全球AI资本支出将达1.7万亿美元，其中中国约3300亿美元。
+这一系列数据充分验证了国产AI算力芯片行业持续的高景气度，标志着产业正从技术突破阶段向规模化商业落地阶段跨越。
 
-这条预测的核心含义本轮AI狂潮十年维度的持续capex，不是短时间囤货。
+黄金股涨幅居前，赤峰黄金涨超11%。
 
 ## 相关推荐
 
-- 2026-06-30 05:56 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 05:58 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 05:59 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 05:50 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 06:04 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 05:57 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 05:56 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 05:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 05:43 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 05:42 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 05:53 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 06:08 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 06:07 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 05:54 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 05:56 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 05:46 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 06:11 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 06:04 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 05:49 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 05:48 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 05:44 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 06:10 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 06:07 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 06:04 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 05:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/852491.shtml)
-- 2026-06-30 05:40 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/10518711952.shtml)
-- 2026-06-30 06:04 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/13988.shtml)
-- 2026-06-30 05:45 - [巴西2比1日本](http://www.blog.minike.top/Article/details/43237286.shtml)
-- 2026-06-30 05:54 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/88667051362.shtml)
-- 2026-06-30 05:54 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/1646710166.shtml)
-- 2026-06-30 05:45 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/03901630.shtml)
-- 2026-06-30 05:59 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/23396352274.shtml)
-- 2026-06-30 05:57 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/219835590133.shtml)
-- 2026-06-30 05:45 - [送你一朵小红花](https://www.share.minike.top/Article/details/07085184447.shtml)
-- 2026-06-30 05:48 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/1698853108.shtml)
-- 2026-06-30 05:54 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/0049092410.shtml)
-- 2026-06-30 05:45 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/732569471751.shtml)
-- 2026-06-30 06:00 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/94408307624.shtml)
-- 2026-06-30 05:39 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/5848170.shtml)
+- 2026-06-30 05:55 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/30433051197.shtml)
+- 2026-06-30 05:56 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/94554470.shtml)
+- 2026-06-30 06:05 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/72193546631.shtml)
+- 2026-06-30 05:59 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/9372509663.shtml)
+- 2026-06-30 06:11 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/17939.shtml)
+- 2026-06-30 06:03 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/258910173.shtml)
+- 2026-06-30 05:45 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/72103412283.shtml)
+- 2026-06-30 06:00 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/19914680.shtml)
+- 2026-06-30 06:05 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/047085.shtml)
+- 2026-06-30 06:08 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/82907.shtml)
+- 2026-06-30 05:46 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/2857790737.shtml)
+- 2026-06-30 06:00 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/824686497508.shtml)
+- 2026-06-30 05:46 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/2512300417.shtml)
+- 2026-06-30 05:43 - [金刚川](http://www.blog.kurohicncr.top/Article/details/393347461367.shtml)
+- 2026-06-30 05:47 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/135228434297.shtml)

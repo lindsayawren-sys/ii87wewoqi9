@@ -1,56 +1,57 @@
-# 《上海国际金融中心发展离岸金融行动方案》出炉：六类离岸金融业务迎突破，未来还有这些期待点
+# “五一”假期广州南沙汽车口岸约7000辆汽车出口
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-财联社6月17日讯（记者 李婷）今日，2026陆家嘴论坛开幕。同日，中国人民银行发布消息显示，近日，中国人民银行、国家发展改革委、金融监管总局、中国证监会、国家外汇局和上海市人民政府联合印发《上海国际金融中心发展离岸金融行动方案》（以下简称《行动方案》）。 《行动方案》提出，到2027年末，初步建立适应离岸金融业务的业务规则、风险管理和处置、营商环境等制度体系；到2030年末，
+中新网广州5月5日电 (许青青 关悦)5日，在完成海关通关手续后，随着汽笛声响起，“穗港汽车出口快线”中的“穗港汽车01”号货轮搭载约170辆新能源汽车驶离南沙汽车码头泊位，前往中国香港。 据广州海关5日介绍，“五一”假期期间，南沙汽车口岸共有4艘船搭载约7000辆汽车出口，包括吉利、比亚迪、埃安等国产品牌，将出口到墨西哥，约旦、沙特阿拉伯等地。 广州南沙汽车口岸是华南地区规模
 
 ## 正文
 
-财联社6月17日讯（记者 李婷）今日，2026陆家嘴论坛开幕。
+中新网广州5月5日电 (许青青 关悦)5日，在完成海关通关手续后，随着汽笛声响起，“穗港汽车出口快线”中的“穗港汽车01”号货轮搭载约170辆新能源汽车驶离南沙汽车码头泊位，前往中国香港。
 
-同日，中国人民银行发布消息显示，近日，中国人民银行、国家发展改革委、金融监管总局、中国证监会、国家外汇局和上海市人民政府联合印发《上海国际金融中心发展离岸金融行动方案》（以下简称《行动方案》）。
+据广州海关5日介绍，“五一”假期期间，南沙汽车口岸共有4艘船搭载约7000辆汽车出口，包括吉利、比亚迪、埃安等国产品牌，将出口到墨西哥，约旦、沙特阿拉伯等地。
 
-《行动方案》提出，到2027年末，初步建立适应离岸金融业务的业务规则、风险管理和处置、营商环境等制度体系；到2030年末，逐步形成相对成熟的离岸金融制度和法治体系；到2035年末，成为离岸、在岸高水平统筹协调发展的战略枢纽。
+广州南沙汽车口岸是华南地区规模最大的汽车滚装码头集群，拥有7个万吨级以上滚装汽车专用泊位、1.8公里码头岸线、近160万平方米商品车堆场，年设计通过能力超300万辆，可停靠大型滚装船舶，是大湾区国产汽车出海的重要枢纽门户。
 
-“《行动方案》将根据实际需求和风险情况，按照‘成熟一类、实施一类’的原则小切口稳步探索离岸金融试点业务。
+为进一步畅通国产汽车跨境物流通道，广州海关所属南沙海关建立“一揽子”通关服务机制，实现“企业一次咨询、窗口全方位答疑”，通过“智慧海港”“智能监控”平台，实现出口车辆从进场到离境的全流程数字化闭环监管，创新落地“出口监管仓+海运直通”模式，变“船等车”为“车等船”，大幅压缩车辆在港停留时间。
 
-初期优先发展六类具备一定基础的离岸金融业务，此后根据情况逐步拓展新的试点业务。
+针对节假日汽车出口需求，南沙海关指导企业应用“提前申报”模式，开展单证预审，保障审单、查验等通关环节顺畅。
 
-”权威专家对财联社记者表示。
+“今年汽车出口势头继续火热，假期前我们就提前对接企业、码头，摸排出口计划，出口汽车抵达口岸后1小时内即可完成查验放行。
 
-国内离岸金融格局将被重塑 《行动方案》主要内容包括6个方面：一是在浦东新区开展离岸金融先行先试，二是资金流动与账户管理，三是数字化应用，四是离岸金融业务，五是离岸金融法律制度体系，六是离岸金融监管和风险防控。
+”南沙海关汽车监管科科长肖迎锋介绍。
 
-“《行动方案》站在国家金融开放全局视角，提出上海要注重做好与香港离岸金融发展的互学互鉴，实现两个国际金融中心的协同联动发展，共同维护国家经济金融安全和利益。
+据统计，今年1-4月，南沙海关监管经南沙汽车码头滚装出口汽车约15.1万辆，同比增加约21.3%。
 
 ## 相关推荐
 
-- 2026-06-30 06:01 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 05:46 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 06:04 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 05:59 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 05:40 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 05:49 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 06:02 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 05:57 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 05:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 05:56 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 05:42 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 05:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 06:05 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 06:10 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 05:58 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 05:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 05:59 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 06:04 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 05:47 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 05:46 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 06:11 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:54 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/05669847.shtml)
-- 2026-06-30 05:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/3029393552.shtml)
-- 2026-06-30 06:03 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/21547599.shtml)
-- 2026-06-30 05:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/7322462665.shtml)
-- 2026-06-30 05:48 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/327427.shtml)
-- 2026-06-30 05:42 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/41639.shtml)
-- 2026-06-30 06:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/573012534.shtml)
-- 2026-06-30 05:47 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/83035960378.shtml)
-- 2026-06-30 05:41 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/825624.shtml)
-- 2026-06-30 06:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/0492174741.shtml)
-- 2026-06-30 05:44 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/02366046548.shtml)
-- 2026-06-30 06:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/48084.shtml)
-- 2026-06-30 06:05 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/73306.shtml)
-- 2026-06-30 05:42 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/366433741.shtml)
-- 2026-06-30 05:36 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/27983.shtml)
+- 2026-06-30 06:07 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/9958844.shtml)
+- 2026-06-30 06:11 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/7074971030.shtml)
+- 2026-06-30 05:43 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/92952117177.shtml)
+- 2026-06-30 05:57 - [金刚川](http://www.blog.kurohicncr.top/Article/details/398870597995.shtml)
+- 2026-06-30 06:02 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/95627800401.shtml)
+- 2026-06-30 05:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/525121.shtml)
+- 2026-06-30 06:06 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/102855863.shtml)
+- 2026-06-30 05:45 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/8334795513.shtml)
+- 2026-06-30 06:10 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/73983015.shtml)
+- 2026-06-30 06:02 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/800198418376.shtml)
+- 2026-06-30 05:57 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/1875676.shtml)
+- 2026-06-30 05:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/59886.shtml)
+- 2026-06-30 05:44 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/13438444221.shtml)
+- 2026-06-30 05:55 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/9029003904.shtml)
+- 2026-06-30 05:50 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/31220877.shtml)

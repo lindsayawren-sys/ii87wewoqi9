@@ -1,56 +1,48 @@
-# 中意235件展品亮相重庆“东西方奇幻生物展”
+# 今年“五一”假期银联网联共处理支付交易金额7.85万亿元
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-【欧洲专线】中意235件展品亮相重庆“东西方奇幻生物展” 中新社重庆6月18日电 (记者 钟旖)“跨越山海——寻找东西方传说中的奇幻生物”展览18日在重庆中国三峡博物馆开幕。中意两国20余家权威博物馆及相关机构的235件(组)展品集中亮相，共同呈现东西方文明想象。 据介绍，以“奇幻生物”为主题，展览创新采用“博物学视角+旅程式叙事+沉浸式空间”的展陈形式，将斯芬克斯、格里芬、塞
+记者从中国人民银行了解到，支付业务数据显示，2026年“五一”假期（2026年5月1日—5月5日），银联、网联共处理支付交易289.37亿笔，金额7.85万亿元，较去年“五一”假期（2025年5月1日—5月5日）分别增长23.45%和2.74%。其中，处理境外来华人员支付交易笔数、金额较去年同期分别增长45.15%和36.96%。责任编辑：曹睿潼
 
 ## 正文
 
-【欧洲专线】中意235件展品亮相重庆“东西方奇幻生物展” 中新社重庆6月18日电 (记者 钟旖)“跨越山海——寻找东西方传说中的奇幻生物”展览18日在重庆中国三峡博物馆开幕。
+记者从中国人民银行了解到，支付业务数据显示，2026年“五一”假期（2026年5月1日—5月5日），银联、网联共处理支付交易289.37亿笔，金额7.85万亿元，较去年“五一”假期（2025年5月1日—5月5日）分别增长23.45%和2.74%。
 
-中意两国20余家权威博物馆及相关机构的235件(组)展品集中亮相，共同呈现东西方文明想象。
+其中，处理境外来华人员支付交易笔数、金额较去年同期分别增长45.15%和36.96%。
 
-据介绍，以“奇幻生物”为主题，展览创新采用“博物学视角+旅程式叙事+沉浸式空间”的展陈形式，将斯芬克斯、格里芬、塞壬、巨龙、辟邪、龙凤等东西方形象置于同一展览语境之中，系统呈现从地中海古典文明到东方华夏文明的多元物证。
-
-意大利方策展人Enrica Pagella介绍，展品中有125件(组)意大利珍品是首度走进重庆，包括雕塑、绘画、陶器、金属器物、木雕等。
-
-“此次展览是一次有趣的探索尝试。
-
-希望通过意大利和中国的展品的对比，展现欧洲和中国在‘奇幻生物’这一主题上的艺术特色与文化差异。
-
-” 中方策展人、重庆中国三峡博物馆陈列展览部主任夏伙根称，围绕展览主题，工作人员对中方展品做了大量的并置、对比工作，旨在把中外文明交流互鉴呈现给大众。
-
-比如，由重庆中国三峡博物馆、中国国家博物馆分别馆藏的战国错金银犀牛形铜带钩，在分藏近70年后首次“合体”展出；广汉三星堆遗址出土的商代铜凤鸟、重庆云阳出土的新莽羽人辟邪铜连枝灯、重庆丰都出土的东汉辟邪陶摇钱树座等，都在讲述巴蜀地区对“奇幻生物”的认识。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 05:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 05:49 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-30 05:41 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 06:00 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 05:52 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 06:00 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 06:02 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 05:49 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 06:04 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 05:49 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 06:11 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 05:59 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 05:57 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 05:42 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 06:05 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 05:55 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 05:57 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 05:55 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 05:56 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 05:49 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 06:04 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 05:48 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:59 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/792849364.shtml)
-- 2026-06-30 05:53 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/10577.shtml)
-- 2026-06-30 05:42 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/802547373.shtml)
-- 2026-06-30 05:51 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/955651336821.shtml)
-- 2026-06-30 05:37 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/309269805.shtml)
-- 2026-06-30 05:57 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/116113.shtml)
-- 2026-06-30 05:46 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/14062176.shtml)
-- 2026-06-30 05:45 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/8645660821.shtml)
-- 2026-06-30 05:37 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/196591022181.shtml)
-- 2026-06-30 05:50 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/924372.shtml)
-- 2026-06-30 05:52 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/70509040454.shtml)
-- 2026-06-30 05:46 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/88120.shtml)
-- 2026-06-30 06:03 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/3192104.shtml)
-- 2026-06-30 06:00 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/0688412.shtml)
-- 2026-06-30 05:40 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/913190790431.shtml)
+- 2026-06-30 05:46 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/337464995884.shtml)
+- 2026-06-30 05:48 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/230387957.shtml)
+- 2026-06-30 06:09 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/89256587.shtml)
+- 2026-06-30 06:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/932452.shtml)
+- 2026-06-30 06:06 - [85花告别古偶](http://www.blog.minike.top/Article/details/649256927997.shtml)
+- 2026-06-30 06:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/244648597404.shtml)
+- 2026-06-30 05:49 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/6836151650.shtml)
+- 2026-06-30 05:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/0058052871.shtml)
+- 2026-06-30 05:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/809421188.shtml)
+- 2026-06-30 05:53 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/82583.shtml)
+- 2026-06-30 06:03 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/842051339675.shtml)
+- 2026-06-30 05:42 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/1728597509.shtml)
+- 2026-06-30 06:00 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/3310390057.shtml)
+- 2026-06-30 06:10 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/69679.shtml)
+- 2026-06-30 05:47 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/849446.shtml)

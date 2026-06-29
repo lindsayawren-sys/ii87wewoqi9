@@ -1,61 +1,56 @@
-# 中国旅行社行业首份宣传负面清单发布
+# 美SEC拟允许上市公司以半年报替代季报 降低合规成本
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新社北京6月18日电 (记者 刘文文)中国旅行社协会18日发布《旅行社旅游招徕宣传负面清单》。该文件针对当前旅游市场招徕宣传中的突出问题，列明了“严禁”行为，剑指虚假宣传、不合理低价等行业乱象。这也是旅行社行业发布的首份宣传负面清单。 这份文件共十一条，从无证经营、不合理低价，到人工智能(AI)虚假宣传、老年人及未成年人特殊保护，几乎涵盖旅游招徕宣传的全链条。 其中，“不合理
+登录新浪财经APP 搜索【信披】查看更多考评等级 美国证券交易委员会（SEC）周二正式提出一项规则修订案，拟允许上市公司自愿选择以半年报替代现行季报，结束自1970年以来延续55年的强制季度披露制度。 SEC主席Paul S． Atkins在声明中表示：“现行规则的刚性阻碍了公司自主决定最适合各自业务需求以及投资者利益的信息披露频率，此次拟议修订旨在为企业提供更大的监管灵活性”
 
 ## 正文
 
-中新社北京6月18日电 (记者 刘文文)中国旅行社协会18日发布《旅行社旅游招徕宣传负面清单》。
+登录新浪财经APP 搜索【信披】查看更多考评等级 美国证券交易委员会（SEC）周二正式提出一项规则修订案，拟允许上市公司自愿选择以半年报替代现行季报，结束自1970年以来延续55年的强制季度披露制度。
 
-该文件针对当前旅游市场招徕宣传中的突出问题，列明了“严禁”行为，剑指虚假宣传、不合理低价等行业乱象。
+SEC主席Paul S． Atkins在声明中表示：“现行规则的刚性阻碍了公司自主决定最适合各自业务需求以及投资者利益的信息披露频率，此次拟议修订旨在为企业提供更大的监管灵活性”。
 
-这也是旅行社行业发布的首份宣传负面清单。
+根据提案，选择半年报的公司每财年仅需提交一份半年报与一份年报，取代现行的三份季报与一份年报，信息披露次数由四次减至两次。
 
-这份文件共十一条，从无证经营、不合理低价，到人工智能(AI)虚假宣传、老年人及未成年人特殊保护，几乎涵盖旅游招徕宣传的全链条。
+此举并非强制切换，现行季报制度对仍希望保留该频率的公司继续有效。
 
-其中，“不合理低价宣传”被列为重点打击对象。
+支持者认为，强制季报不仅导致管理团队过度关注短期业绩，还迫使大量中小公司承担高昂的合规成本。
 
-文件明确严禁以“零团费”“负团费”“免费游”“零元购”为噱头诱骗旅游者，严禁通过虚标原价、虚假折扣、拆分核心服务项目隐藏费用等方式进行误导性价格宣传。
+数据显示，每季度准备报告耗时超1000小时、成本超10万美元。
 
-针对新兴营销手段，文件也给出了明确规定。
+摩根大通等投行表示支持，认为季报制度助长了市场短视行为。
 
-使用AI生成技术制作的宣传内容，必须在显著位置标注“AI生成提示”，且不得有虚假、误导情节。
+然而，批评者警告，半年报将导致分析师覆盖减少、交易量下降、买卖价差扩大，并可能增加内幕交易风险。
 
 ## 相关推荐
 
-- 2026-06-30 05:58 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 05:38 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 05:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 05:45 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 06:02 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 05:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 06:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 05:47 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 05:51 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 05:54 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 05:58 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 05:56 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 05:43 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 06:03 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 05:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 06:10 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 05:52 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 05:53 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 05:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 06:07 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 06:11 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 05:54 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 06:08 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 05:43 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 05:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:53 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/792171.shtml)
-- 2026-06-30 05:37 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/44442548494.shtml)
-- 2026-06-30 06:05 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/549408.shtml)
-- 2026-06-30 05:58 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/9297987007.shtml)
-- 2026-06-30 06:04 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/12313.shtml)
-- 2026-06-30 05:40 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/1924736801.shtml)
-- 2026-06-30 06:05 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/9338462199.shtml)
-- 2026-06-30 05:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/112471.shtml)
-- 2026-06-30 05:56 - [蔚来车主罚站](https://www.share.minike.top/Article/details/791253030.shtml)
-- 2026-06-30 05:36 - [金刚川](http://www.share.minike.top/Article/details/19164323.shtml)
-- 2026-06-30 05:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/4036892612.shtml)
-- 2026-06-30 05:54 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/74513761719.shtml)
-- 2026-06-30 05:49 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/026311.shtml)
-- 2026-06-30 05:39 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/90751960.shtml)
-- 2026-06-30 05:37 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/071296.shtml)
+- 2026-06-30 05:47 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/684421.shtml)
+- 2026-06-30 06:11 - [日本16强魔咒](https://www.share.minike.top/Article/details/883507.shtml)
+- 2026-06-30 06:05 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/75642978.shtml)
+- 2026-06-30 06:06 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/6666750142.shtml)
+- 2026-06-30 06:02 - [逃狱兄弟](http://www.share.minike.top/Article/details/04008599444.shtml)
+- 2026-06-30 05:49 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/1012005846.shtml)
+- 2026-06-30 05:47 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/404891.shtml)
+- 2026-06-30 05:48 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/006519.shtml)
+- 2026-06-30 06:06 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/7111074.shtml)
+- 2026-06-30 05:45 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/81141237.shtml)
+- 2026-06-30 05:52 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/82486.shtml)
+- 2026-06-30 05:58 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/311933405.shtml)
+- 2026-06-30 05:46 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/9056063.shtml)
+- 2026-06-30 06:10 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/025953447104.shtml)
+- 2026-06-30 06:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/67019795884.shtml)

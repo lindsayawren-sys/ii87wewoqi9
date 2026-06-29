@@ -1,61 +1,48 @@
-# “打开艺术之门”2026年暑期艺术节59天带来丰富演出和夏令营
+# 中国保险行业协会资金运用专委会召开第三届常务委员会第五次会议
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新网北京6月18日电 (记者 应妮)暑期将至，“打开艺术之门”2026年暑期艺术节也如约而至。主办方在17日的发布会上介绍，7月3日至8月30日，艺术节将在59天中上演47场演出，并设置7个艺术夏令营、8场“中国人的戏曲”系列讲堂与5场非遗体验营，此外，今年艺术节特别策划的“机器人音乐周”将打破艺术与科技的边界。 本届艺术节将推出“辉煌名团”“遇见大师”“国乐国潮”“妙趣时光
+人民财讯5月6日电，近日，中国保险行业协会资金运用专委会召开第三届常务委员会第五次会议，会议认为，站在“十五五”的新起点，资金运用专委会应紧扣“十五五”规划要求，强化责任担当，进一步落实好“协会主建、专委主战、部门主评”的专委会发展机制，不断提升专委会工作质效。一是进一步细化工作方案，明确责任单位、路线图和时间节点，确保工作落地效果；二是抓住行业热点和监管重点，兼顾各类型公司的
 
 ## 正文
 
-中新网北京6月18日电 (记者 应妮)暑期将至，“打开艺术之门”2026年暑期艺术节也如约而至。
+人民财讯5月6日电，近日，中国保险行业协会资金运用专委会召开第三届常务委员会第五次会议，会议认为，站在“十五五”的新起点，资金运用专委会应紧扣“十五五”规划要求，强化责任担当，进一步落实好“协会主建、专委主战、部门主评”的专委会发展机制，不断提升专委会工作质效。
 
-主办方在17日的发布会上介绍，7月3日至8月30日，艺术节将在59天中上演47场演出，并设置7个艺术夏令营、8场“中国人的戏曲”系列讲堂与5场非遗体验营，此外，今年艺术节特别策划的“机器人音乐周”将打破艺术与科技的边界。
+一是进一步细化工作方案，明确责任单位、路线图和时间节点，确保工作落地效果；二是抓住行业热点和监管重点，兼顾各类型公司的不同特点和诉求，深化定期交流；三是加强资金运用领域数据建设，为行业数据共建共享贡献力量。
 
-本届艺术节将推出“辉煌名团”“遇见大师”“国乐国潮”“妙趣时光”“紫禁城听戏”“挚爱经典”“科技未来”七大系列。
-
-北京交响乐团、北京民族乐团担纲开幕与闭幕演出，中国广播民乐团、北京京剧院、中国评剧院等优秀团体加盟，指挥家谭利华、钢琴家盛原等老中青三代艺术家接力登台。
-
-艺术节引入前沿科技，让机器人与艺术家在聚光灯下对话。
-
-“机器人音乐周”将于8月中旬登场，届时，音乐堂大厅设置机器人展示与互动体验区，孩子们在演前便能感受机械臂的律动，零距离感知科技的温度。
-
-随后上演两场重磅专场——跨界音乐家将与机器人乐队同台共演，北京民族乐团更将与机器人并肩奏响经典曲目。
-
-今年“打开艺术之门”的线下夏令营将聚焦民乐经典与现代创作，开设琵琶、古琴、埙/笛/箫、流行音乐创作、乐队合奏、声音创作、亲子和声等核心课程，各领域资深艺术家与专业导师将全程陪伴学员。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 05:43 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-30 05:47 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 05:49 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 06:02 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 05:45 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 05:44 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 05:50 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 05:37 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 05:54 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 05:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 06:00 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 05:37 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 05:57 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 06:00 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 05:56 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 05:51 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 06:01 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 05:52 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 05:52 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 06:06 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 06:00 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 05:48 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 05:49 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 05:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 05:56 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 06:07 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 05:45 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:48 - [起风了](http://www.blog.minike.top/Article/details/8117128.shtml)
-- 2026-06-30 05:55 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/7692234.shtml)
-- 2026-06-30 06:00 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/9789586.shtml)
-- 2026-06-30 05:39 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/716219954075.shtml)
-- 2026-06-30 05:59 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/700710.shtml)
-- 2026-06-30 05:50 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/48804.shtml)
-- 2026-06-30 05:37 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/29931931.shtml)
-- 2026-06-30 05:55 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/69187801511.shtml)
-- 2026-06-30 05:41 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/770959.shtml)
-- 2026-06-30 05:51 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/4558275670.shtml)
-- 2026-06-30 05:45 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/99825.shtml)
-- 2026-06-30 05:56 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/80842310.shtml)
-- 2026-06-30 05:53 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/1091378623.shtml)
-- 2026-06-30 06:05 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/614355017295.shtml)
-- 2026-06-30 05:39 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/408142.shtml)
+- 2026-06-30 06:02 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/15275786399.shtml)
+- 2026-06-30 05:47 - [我和我的家乡](http://www.blog.minike.top/Article/details/30682.shtml)
+- 2026-06-30 06:06 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/5048729958.shtml)
+- 2026-06-30 05:57 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/77036.shtml)
+- 2026-06-30 05:47 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/7227016.shtml)
+- 2026-06-30 06:01 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/21481672917.shtml)
+- 2026-06-30 05:56 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/40103.shtml)
+- 2026-06-30 06:10 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/734391139970.shtml)
+- 2026-06-30 06:04 - [《贺子珍》](http://www.blog.minike.top/Article/details/38763939.shtml)
+- 2026-06-30 06:04 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/408162107040.shtml)
+- 2026-06-30 05:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/56535203672.shtml)
+- 2026-06-30 05:53 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/1634572.shtml)
+- 2026-06-30 06:01 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/38669587428.shtml)
+- 2026-06-30 06:10 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/728818.shtml)
+- 2026-06-30 05:52 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/98577471.shtml)

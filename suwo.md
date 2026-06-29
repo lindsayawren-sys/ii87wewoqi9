@@ -1,60 +1,60 @@
-# 上交所就《上海证券交易所科创板企业发行上市申报及推荐暂行规定（征求意见稿）》向市场公开征求意见
+# 长城基金《AI荐股套路深，捂紧钱包莫轻信》投教视频：用通俗剧情揭示非法平台伪造盈利截图 警示性强
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：上交所发布 近日，按照中国证监会统一部署，上交所就修订《上海证券交易所科创板企业发行上市申报及推荐暂行规定（征求意见稿）》（以下简称《暂行规定》）向市场公开征求意见。本次修订，旨在落实国家“十五五”规划纲要和战略性新兴产业分类要求，重点聚焦培育壮大新兴产业和未来产业，支持符合条件的量子科技、生物制造、
+专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。长城基金《AI荐股套路深，捂紧钱包莫轻信》投教视频参选“最具影响力投教项目优秀案例”类别。>>活动详情 据悉，当前非法金融活动借“AI量化”“智能选股”等概念误导投资者。长城基金《AI荐股套路深，捂紧钱包莫轻信》投教视频通过剧情化、场景化的科普形式，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：515投资者保护！
 
-来源：上交所发布 近日，按照中国证监会统一部署，上交所就修订《上海证券交易所科创板企业发行上市申报及推荐暂行规定（征求意见稿）》（以下简称《暂行规定》）向市场公开征求意见。
+新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
 
-本次修订，旨在落实国家“十五五”规划纲要和战略性新兴产业分类要求，重点聚焦培育壮大新兴产业和未来产业，支持符合条件的量子科技、生物制造、氢能和核聚变能、脑机接口、具身智能及第六代移动通信（6G）等更多领域“硬科技”企业在科创板上市，持续提升科创板服务高水平科技自立自强的适应性和包容性。
+长城基金《AI荐股套路深，捂紧钱包莫轻信》投教视频参选“最具影响力投教项目优秀案例”类别。
 
-按照上述要求，本次《暂行规定》修订主要调整更新第五条规定的战略性新兴产业领域二级行业。
+>>活动详情 据悉，当前非法金融活动借“AI量化”“智能选股”等概念误导投资者。
 
-其中，新一代信息技术领域，新增“量子”；高端装备领域，新增“机器人”，并调整“海洋工程装备”为“海洋装备”；新能源领域，新增“氢能”；生物医药领域，新增“脑机接口、生物药品、基因工程药物和疫苗、生物医学工程”等。
+长城基金《AI荐股套路深，捂紧钱包莫轻信》投教视频通过剧情化、场景化的科普形式，有效帮助投资者认清非法荐股本质，引导选择正规投资渠道，强化理性投资意识，显著提升投教宣传的传播力与接受度，筑牢群众防非反诈防线。
 
-去年以来，多家量子科技、生物制造、脑机接口等领域的企业有在科创板上市的意愿，调整更新科创板重点支持的具体行业范围，已具备必要的实践基础和市场共识。
+该作品为AI荐股防非反诈主题短视频，以情景对话、场景演绎形式揭露非法“AI荐股”骗局，对投资者开展风险警示。
 
-需要注意的是，科技企业既蕴含发展动能，也面临较大的不确定性风险，其发展是一个不断探索、逐步前行的过程。
+产品以生活化对话、直播间话术还原、动态指标拆解为特色，用通俗剧情揭示非法平台伪造盈利截图、利用“未来函数”制造择时精准假象，内容生动易懂、警示性强。
 
-上市过程中，需要更加注重保护投资者，特别是中小投资者的合法权益。
+效果上，《AI荐股套路深，捂紧钱包莫轻信》投教视频推出以来在新华网播放量超百万，获得行业内外口碑好评。
 
 ## 相关推荐
 
-- 2026-06-30 05:44 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 06:05 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 05:42 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 05:51 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 05:57 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 05:46 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-30 05:55 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 06:05 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-30 05:58 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 05:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 05:46 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 05:49 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 06:02 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 05:43 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 06:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 06:07 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 05:50 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 06:00 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 05:47 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 05:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 05:48 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 05:47 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 05:58 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 06:06 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 05:55 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 05:57 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 06:07 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 05:43 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/21431588.shtml)
-- 2026-06-30 05:36 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/322564890005.shtml)
-- 2026-06-30 05:47 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/7621281.shtml)
-- 2026-06-30 05:52 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/5384915552.shtml)
-- 2026-06-30 05:37 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/8058967.shtml)
-- 2026-06-30 05:49 - [沉睡花园](http://www.share.minike.top/Article/details/514974.shtml)
-- 2026-06-30 05:37 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/527921.shtml)
-- 2026-06-30 05:43 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/276562.shtml)
-- 2026-06-30 05:54 - [人类...完蛋了...](https://www.share.minike.top/Article/details/184329046.shtml)
-- 2026-06-30 05:45 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/113022119073.shtml)
-- 2026-06-30 05:40 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/08230001.shtml)
-- 2026-06-30 05:55 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/903555242798.shtml)
-- 2026-06-30 05:39 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/9052013305.shtml)
-- 2026-06-30 05:56 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/177471017.shtml)
-- 2026-06-30 05:39 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/2508344.shtml)
+- 2026-06-30 05:48 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/07662595339.shtml)
+- 2026-06-30 05:43 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/202578.shtml)
+- 2026-06-30 05:50 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/0885816.shtml)
+- 2026-06-30 06:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/9206321.shtml)
+- 2026-06-30 06:05 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/37566410534.shtml)
+- 2026-06-30 05:56 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/28032.shtml)
+- 2026-06-30 05:42 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/85940938.shtml)
+- 2026-06-30 06:04 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/36547.shtml)
+- 2026-06-30 06:04 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/51700.shtml)
+- 2026-06-30 06:00 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/124213895.shtml)
+- 2026-06-30 05:47 - [绘画区你赢了](http://www.blog.minike.top/Article/details/013456447.shtml)
+- 2026-06-30 05:59 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/5547836534.shtml)
+- 2026-06-30 05:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/92201.shtml)
+- 2026-06-30 05:51 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/63879676039.shtml)
+- 2026-06-30 05:47 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/452752765024.shtml)

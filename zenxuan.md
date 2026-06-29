@@ -1,58 +1,57 @@
-# 12天扫描1263人：联想集团世界杯数字人极限交付实录
+# 建行中层人事调整 涉及总分行和多家子公司
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间6月17日，在2026 FIFA世界杯J组首轮阿根廷队对阵阿尔及利亚队的比赛中，梅西再次成为全场焦点。 比赛第76分钟，梅西以一记世界波破门完成帽子戏法，帮助阿根廷3比0领先。凭借这粒进球，梅西成为世界杯历史上上演帽子戏法最年长的球员，同时追平克洛泽的世界杯进球纪录。对于全球球迷而言，这是属于球王的
+来源：金融人事mini 4月29日，建行披露2026年一季报。今年1-3月，建行实现营业收入2112.56亿元，同比增长11.15%，营收增速领跑六大行；实现归母净利润862.91亿元，同比增长3.53%。截至一季度末，建行资产总额达47.13万亿元，较上年末增长3.29%。 同日，建行发布董事会决议公告，其中，提名纪志宏连任执行董事、詹诚信勋爵连任独立董事。 本期，继续介绍建
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：金融人事mini 4月29日，建行披露2026年一季报。
 
-北京时间6月17日，在2026 FIFA世界杯J组首轮阿根廷队对阵阿尔及利亚队的比赛中，梅西再次成为全场焦点。
+今年1-3月，建行实现营业收入2112.56亿元，同比增长11.15%，营收增速领跑六大行；实现归母净利润862.91亿元，同比增长3.53%。
 
-比赛第76分钟，梅西以一记世界波破门完成帽子戏法，帮助阿根廷3比0领先。
+截至一季度末，建行资产总额达47.13万亿元，较上年末增长3.29%。
 
-凭借这粒进球，梅西成为世界杯历史上上演帽子戏法最年长的球员，同时追平克洛泽的世界杯进球纪录。
+同日，建行发布董事会决议公告，其中，提名纪志宏连任执行董事、詹诚信勋爵连任独立董事。
 
-对于全球球迷而言，这是属于球王的又一个历史性夜晚。
+本期，继续介绍建行中层人事变动，涉及广西分行行长、总行多部门和多家子公司总裁。
 
-但在这场比赛开局阶段，另一幕同样引发了大量关注。
+总分行 广西区分行行长方建平，转任资深专家。
 
-比赛第5分钟，梅西接队友直塞后单刀破门，原本帮助阿根廷取得领先。
+方建平，曾任建行苏州分行副行长、纪委书记，江苏省分行纪委书记、副行长，2018年12月任宁波市分行行长，2022年初调任建行广西区分行党委书记、行长。
 
-然而边裁第一时间举旗示意越位，随后技术系统介入复核。
+湖北省分行副行长徐刚，拟任广西区分行行长。
 
 ## 相关推荐
 
-- 2026-06-30 05:51 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 05:50 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 05:39 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-30 05:45 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 06:04 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 05:40 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 05:55 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 05:51 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 06:06 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 06:01 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 05:56 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 05:47 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 05:58 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 05:45 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 05:58 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 05:42 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 05:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 05:50 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 05:44 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 05:49 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 05:46 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 06:09 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 06:02 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:03 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/460914940.shtml)
-- 2026-06-30 05:54 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/33109.shtml)
-- 2026-06-30 05:38 - [森保一 保守](http://www.share.minike.top/Article/details/147700.shtml)
-- 2026-06-30 05:59 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/60566040642.shtml)
-- 2026-06-30 05:40 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/96229228.shtml)
-- 2026-06-30 06:01 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/93407834242.shtml)
-- 2026-06-30 05:36 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/19924.shtml)
-- 2026-06-30 05:37 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/826867.shtml)
-- 2026-06-30 05:47 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/2784817.shtml)
-- 2026-06-30 05:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/39579.shtml)
-- 2026-06-30 05:57 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/114463.shtml)
-- 2026-06-30 05:37 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/777050524.shtml)
-- 2026-06-30 05:49 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/67241118.shtml)
-- 2026-06-30 06:00 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/50498.shtml)
-- 2026-06-30 05:45 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/1690429234.shtml)
+- 2026-06-30 05:43 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/2701968.shtml)
+- 2026-06-30 05:42 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/20501208347.shtml)
+- 2026-06-30 05:57 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/3841384604.shtml)
+- 2026-06-30 05:43 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/48651.shtml)
+- 2026-06-30 06:02 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/650022.shtml)
+- 2026-06-30 06:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/22033.shtml)
+- 2026-06-30 06:05 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/38042765787.shtml)
+- 2026-06-30 06:00 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/3780493572.shtml)
+- 2026-06-30 05:59 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/96013.shtml)
+- 2026-06-30 06:02 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/268121803654.shtml)
+- 2026-06-30 06:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/3645325845.shtml)
+- 2026-06-30 05:46 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/95668.shtml)
+- 2026-06-30 05:43 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/93184087.shtml)
+- 2026-06-30 05:52 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/628964391.shtml)
+- 2026-06-30 06:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/96062.shtml)

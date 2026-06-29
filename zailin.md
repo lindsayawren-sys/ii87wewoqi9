@@ -1,60 +1,56 @@
-# 美国未宣布延长俄罗斯石油制裁豁免，是否重启制裁尚不明朗
+# 惠誉上调阿根廷主权债务评级至“B-”，称经济改革取得进展
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-美国财政部周三并未宣布延长针对俄罗斯海运原油的制裁豁免——该豁免已于午夜到期——但特朗普及政府官员均未说明，这是否意味着相关制裁将重新实施。 在与伊朗发生冲突期间，特朗普政府曾豁免对俄罗斯石油的制裁，以帮助脆弱经济体应对能源危机。随着华盛顿与德黑兰达成结束对伊制裁的谅解备忘录，中东石油得以重新进入全球市场，这一情况可能发生变化。 周三，特朗普对美国是否会重新对俄罗斯实施制裁未置
+全球评级机构惠誉周二将阿根廷的长期外币和本币发行人违约评级从“CCC+”上调至“B-”，展望稳定。 惠誉指出，阿根廷财政和外部平衡状况改善、经济改革取得进展、外汇储备积累前景改善，并预期阿根廷政府将获得融资以偿还债务。 但该机构指出，由于国际储备疲软、通胀高企以及宏观经济长期不稳定，脆弱性依然存在。 惠誉表示，预计2026年阿根廷经济增长将放缓至3.2%。 该机构指出，在202
 
 ## 正文
 
-美国财政部周三并未宣布延长针对俄罗斯海运原油的制裁豁免——该豁免已于午夜到期——但特朗普及政府官员均未说明，这是否意味着相关制裁将重新实施。
+全球评级机构惠誉周二将阿根廷的长期外币和本币发行人违约评级从“CCC+”上调至“B-”，展望稳定。
 
-在与伊朗发生冲突期间，特朗普政府曾豁免对俄罗斯石油的制裁，以帮助脆弱经济体应对能源危机。
+惠誉指出，阿根廷财政和外部平衡状况改善、经济改革取得进展、外汇储备积累前景改善，并预期阿根廷政府将获得融资以偿还债务。
 
-随着华盛顿与德黑兰达成结束对伊制裁的谅解备忘录，中东石油得以重新进入全球市场，这一情况可能发生变化。
+但该机构指出，由于国际储备疲软、通胀高企以及宏观经济长期不稳定，脆弱性依然存在。
 
-周三，特朗普对美国是否会重新对俄罗斯实施制裁未置可否。
+惠誉表示，预计2026年阿根廷经济增长将放缓至3.2%。
 
-“我们正在考虑这个问题。
+该机构指出，在2025年10月中期选举之后，阿根廷总统米莱获得了更强有力的政治支持。
 
-我们正在观察油价会降到什么程度，它真的在暴跌，”他在法国举行的七国集团（G7）峰会上对记者说。
+10月份的选举胜利使米莱政府得以推进结构性改革，包括延长工作时间的劳工计划和放宽冰川地区采矿限制的立法。
 
-周二，特朗普暗示，美国可以通过终止豁免来重新实施制裁。
+阿根廷政治经济部长何塞·路易斯·达萨在X网站上发文称：“阿根廷此举已跨越了国际市场的一个关键门槛。
 
-“我们很快就能做到这一点，因为石油现在正从中东源源不断地流出，”他说。
+” 他补充道：“目前，数千家机构基金无法投资CCC级债券。
 
 ## 相关推荐
 
-- 2026-06-30 05:39 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 05:53 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-30 05:55 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 05:59 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 05:50 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 05:49 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 05:43 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-30 06:01 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 05:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-30 05:48 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 05:48 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 05:57 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 05:51 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 05:49 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 06:11 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-30 05:55 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 06:07 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 06:05 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 05:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 05:56 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 05:54 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 05:53 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 05:52 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 05:59 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:49 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/80650697143.shtml)
-- 2026-06-30 05:59 - [金刚川](http://www.blog.kurohicncr.top/Article/details/5001798.shtml)
-- 2026-06-30 06:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/92216372.shtml)
-- 2026-06-30 06:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/032032.shtml)
-- 2026-06-30 05:43 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/59235.shtml)
-- 2026-06-30 06:00 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/41002.shtml)
-- 2026-06-30 05:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/96159794616.shtml)
-- 2026-06-30 05:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/022615.shtml)
-- 2026-06-30 05:48 - [巴西绝杀日本](http://www.share.minike.top/Article/details/61966.shtml)
-- 2026-06-30 05:41 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/603995361548.shtml)
-- 2026-06-30 06:04 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/262954.shtml)
-- 2026-06-30 05:58 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/470939.shtml)
-- 2026-06-30 05:41 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/65458.shtml)
-- 2026-06-30 06:05 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/8518411717.shtml)
-- 2026-06-30 05:44 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/8141804.shtml)
+- 2026-06-30 05:49 - [美股](https://www.blog.minike.top/Article/details/6495913676.shtml)
+- 2026-06-30 05:45 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/6196140.shtml)
+- 2026-06-30 06:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/87179.shtml)
+- 2026-06-30 06:10 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/8412201038.shtml)
+- 2026-06-30 05:55 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/3472276368.shtml)
+- 2026-06-30 06:00 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/13807482.shtml)
+- 2026-06-30 05:57 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/75152375013.shtml)
+- 2026-06-30 05:47 - [第一炉香](https://www.share.kurohicncr.top/Article/details/5579048309.shtml)
+- 2026-06-30 06:11 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/0097392.shtml)
+- 2026-06-30 05:48 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/23046.shtml)
+- 2026-06-30 05:54 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/128257087.shtml)
+- 2026-06-30 05:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/8344271.shtml)
+- 2026-06-30 05:47 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/43696898061.shtml)
+- 2026-06-30 06:03 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/9818971.shtml)
+- 2026-06-30 05:50 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/987091610.shtml)

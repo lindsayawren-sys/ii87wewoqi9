@@ -1,58 +1,51 @@
-# 青海西宁：留学生制作香包 感受中国文化
+# 科网股早盘集体高开 快手-W涨超6%阿里巴巴-W涨超4%
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-淘宝闪购、美团、京东外卖回应国家规范补贴行为：坚决拥护深化金融改革强监管 为全球注入更多确定性冲刺百万亿，服务业高质量发展提速“特种兵式”参赛的伊朗队，美加墨世界杯之旅有多难？斯坦利·约翰逊：为何要重走马可·波罗之路？多边主义保障世界人权面临何种挑战与机遇？“天下为公”为全球变局中的和平与秩序提供何种中国方案？两度落后两度扳平，伊朗队完成美加墨世界杯首秀各地抢抓布局太空算力，培
+科网股早盘集体高开，带动恒生科技指数涨超2%。成份股方面，截至发稿，快手-W（01024）上涨6.62%，报47.98港元；阿里巴巴-W（09988）上涨4.55%，报140.30港元；百度集团-SW（09888）上涨3.88%，报136.70港元；京东集团-SW（09618）上涨2.75%，报119.60港元。责任编辑：卢昱君
 
 ## 正文
 
-淘宝闪购、美团、京东外卖回应国家规范补贴行为：坚决拥护深化金融改革强监管 为全球注入更多确定性冲刺百万亿，服务业高质量发展提速“特种兵式”参赛的伊朗队，美加墨世界杯之旅有多难？
+科网股早盘集体高开，带动恒生科技指数涨超2%。
 
-斯坦利·约翰逊：为何要重走马可·波罗之路？
+成份股方面，截至发稿，快手-W（01024）上涨6.62%，报47.98港元；阿里巴巴-W（09988）上涨4.55%，报140.30港元；百度集团-SW（09888）上涨3.88%，报136.70港元；京东集团-SW（09618）上涨2.75%，报119.60港元。
 
-多边主义保障世界人权面临何种挑战与机遇？
-
-“天下为公”为全球变局中的和平与秩序提供何种中国方案？
-
-两度落后两度扳平，伊朗队完成美加墨世界杯首秀各地抢抓布局太空算力，培育空天领域新质生产力兰州厨具老板自学英语走红：只要开始，就不算晚外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东盟？
-
-“新疆小羊”爆火，折射哪些文旅市场新变化？
-
-美伊确认达成协议 “难缠”的以色列会否搅局？
-
-封关半年看海南：“老外”为何喜欢来“追箭”？
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:55 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 05:46 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 05:37 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 05:44 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 05:52 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 06:02 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 06:02 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 05:54 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 06:02 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 05:42 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 06:02 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 05:54 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 06:03 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 06:08 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 05:54 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 05:46 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 06:08 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 05:56 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 05:50 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 05:44 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 06:08 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 05:46 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 06:08 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 05:55 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 06:11 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 06:05 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 06:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:57 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/4089569.shtml)
-- 2026-06-30 06:04 - [天道](https://www.share.kurohicncr.top/Article/details/488423.shtml)
-- 2026-06-30 05:53 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/362914.shtml)
-- 2026-06-30 05:45 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/66691966054.shtml)
-- 2026-06-30 06:03 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/774372067.shtml)
-- 2026-06-30 05:47 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/66602.shtml)
-- 2026-06-30 05:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/711190.shtml)
-- 2026-06-30 05:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/577894834.shtml)
-- 2026-06-30 06:01 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/50296391625.shtml)
-- 2026-06-30 05:37 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/283279128.shtml)
-- 2026-06-30 05:43 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/23182086.shtml)
-- 2026-06-30 06:02 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/6415253.shtml)
-- 2026-06-30 05:56 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/55128074331.shtml)
-- 2026-06-30 05:41 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/95388433.shtml)
-- 2026-06-30 06:03 - [青春环游记第三季](http://www.blog.minike.top/Article/details/88114915584.shtml)
+- 2026-06-30 06:00 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/49732.shtml)
+- 2026-06-30 06:09 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/3437980.shtml)
+- 2026-06-30 05:58 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/847974055.shtml)
+- 2026-06-30 06:04 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/40299441.shtml)
+- 2026-06-30 05:44 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/7198984.shtml)
+- 2026-06-30 05:46 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/632937890656.shtml)
+- 2026-06-30 05:57 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/40002939.shtml)
+- 2026-06-30 05:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/105209364.shtml)
+- 2026-06-30 05:53 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/62596339.shtml)
+- 2026-06-30 05:44 - [张凌赫 客串](https://www.share.minike.top/Article/details/53167296942.shtml)
+- 2026-06-30 05:52 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/67222.shtml)
+- 2026-06-30 05:57 - [蔚来车主罚站](http://www.share.minike.top/Article/details/48977.shtml)
+- 2026-06-30 05:48 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/7693635138.shtml)
+- 2026-06-30 06:00 - [内马尔替补](http://www.share.minike.top/Article/details/972786337025.shtml)
+- 2026-06-30 06:02 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/773302293755.shtml)

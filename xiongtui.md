@@ -1,48 +1,60 @@
-# 市场监管总局督导货拉拉落实反垄断合规整改
+# 黄河水利委员会发布2025年黄河流域水土保持公报
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-前期，市场监管总局依据《中华人民共和国反垄断法》公开约谈货拉拉，要求其停止利用算法不合理压低货运价格、利用平台规则实施强制独家车贴等行为，全面开展自查整改，依法合规经营，主动回应各方关切，自觉接受社会监督。 市场监管总局加强对货拉拉反垄断合规整改的全过程督导，压实平台主体责任，督促其严格落实整改要求，具体包括四方面内容： 停止利用算法不合理压低货运价格，严格控制多因素计价订单占
+中新网5月7日电 据水利部网站消息，近日，黄河水利委员会发布《黄河流域水土保持公报(2025)》(以下简称《公报》)，内容包括黄河流域水土流失状况、水土流失治理、国家水土保持重点工程、生产建设项目水土保持监督管理、重要水土保持事件等。《公报》显示，截至2025年，黄河流域水土流失面积24.04万平方千米，累计初步治理水土流失面积29.05万平方千米，淤地坝6.02万座，水土保持
 
 ## 正文
 
-前期，市场监管总局依据《中华人民共和国反垄断法》公开约谈货拉拉，要求其停止利用算法不合理压低货运价格、利用平台规则实施强制独家车贴等行为，全面开展自查整改，依法合规经营，主动回应各方关切，自觉接受社会监督。
+中新网5月7日电 据水利部网站消息，近日，黄河水利委员会发布《黄河流域水土保持公报(2025)》(以下简称《公报》)，内容包括黄河流域水土流失状况、水土流失治理、国家水土保持重点工程、生产建设项目水土保持监督管理、重要水土保持事件等。
 
-市场监管总局加强对货拉拉反垄断合规整改的全过程督导，压实平台主体责任，督促其严格落实整改要求，具体包括四方面内容： 停止利用算法不合理压低货运价格，严格控制多因素计价订单占比，公平合理运用调价算法，推动平均每单运价、每公里运价合理回升，并常态化公示计价规则和运价涨降理由； 全面取消强制独家车贴规则，停止提高抽成、罚款等惩罚措施，并将向司机退还不合理费用1.2亿元； 切实降低平台抽成费率，平台整体抽成费率由整改前约11%降至约9%，每年可减轻司机负担超13亿元； 全面保障司机合法权益，取消非付费会员司机每天接2单限制，提升车型与订单匹配度，取消扣减里程机制，每年投入里程偏差补偿金1000万元，优化司机申诉流程，投入司机帮扶资金5000万元。
+《公报》显示，截至2025年，黄河流域水土流失面积24.04万平方千米，累计初步治理水土流失面积29.05万平方千米，淤地坝6.02万座，水土保持率69.75%。
 
-市场监管总局将深入整治平台经济领域“内卷式”竞争，督促货拉拉持续深化反垄断合规整改质效，保护货车司机和消费者利益，形成优质优价、良性竞争的市场秩序，促进平台企业与平台内经营者、劳动者实现共赢发展。
+2025年，黄河流域共实施小流域水土流失综合治理工程、坡耕地水土流失综合治理工程、淤地坝工程和粗泥沙集中来源区拦沙工程、病险淤地坝除险加固和老旧淤地坝提升改造工程等六类国家水土保持重点工程，累计安排中央资金50.85亿元，治理水土流失面积4461平方千米，新建淤地坝442座，新建拦沙坝800座。
 
-（总台央视记者 王婧） 责任编辑：刘万里 SF014
+2025年，黄河流域共审批生产建设项目水土保持方案9452个，7313个生产建设项目完成水土保持设施自主验收报备。
+
+各级水行政主管部门对14401个生产建设项目水土保持工作开展监督检查。
+
+2025年，黄河流域生态产品价值转换和碳汇成功交易27单，总交易额达1.38亿元。
+
+全国首单淤地坝新增耕地占补平衡交易、坡耕地水土流失治理碳汇交易顺利完成。
+
+生态环境部与水利部联合发布《温室气体自愿减排项目方法学 淤地坝碳汇(CCER—14—005—V01)》。
 
 ## 相关推荐
 
-- 2026-06-30 05:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 05:55 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 05:37 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 05:37 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 05:44 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 06:02 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 05:41 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 05:50 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 06:05 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 05:44 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 05:43 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 05:53 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 05:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 06:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 05:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 06:06 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 05:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 06:08 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 06:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 05:52 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 05:53 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 06:00 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 06:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 05:48 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:00 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/63939770.shtml)
-- 2026-06-30 05:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/7450437.shtml)
-- 2026-06-30 06:05 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/755988.shtml)
-- 2026-06-30 05:44 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/1735884.shtml)
-- 2026-06-30 05:53 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/431303940373.shtml)
-- 2026-06-30 05:45 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/4293090.shtml)
-- 2026-06-30 05:44 - [爱很美味](http://www.share.kurohicncr.top/Article/details/5401401.shtml)
-- 2026-06-30 05:47 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/2870221.shtml)
-- 2026-06-30 05:36 - [绘画区你赢了](https://www.share.minike.top/Article/details/6245276.shtml)
-- 2026-06-30 06:01 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/11181138470.shtml)
-- 2026-06-30 05:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/94210964.shtml)
-- 2026-06-30 05:53 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/25808154.shtml)
-- 2026-06-30 05:52 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/4843835.shtml)
-- 2026-06-30 05:49 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/41692997240.shtml)
-- 2026-06-30 05:36 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/98830.shtml)
+- 2026-06-30 05:56 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/0166878.shtml)
+- 2026-06-30 06:11 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/0993445.shtml)
+- 2026-06-30 05:44 - [送你一朵小红花](http://www.blog.minike.top/Article/details/24481091946.shtml)
+- 2026-06-30 06:07 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/5705636755.shtml)
+- 2026-06-30 06:03 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/655773418.shtml)
+- 2026-06-30 05:45 - [房价什么时候能涨](http://www.share.minike.top/Article/details/855120969743.shtml)
+- 2026-06-30 06:11 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/786808413418.shtml)
+- 2026-06-30 06:09 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/24749.shtml)
+- 2026-06-30 05:51 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/971918.shtml)
+- 2026-06-30 05:50 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/379537909.shtml)
+- 2026-06-30 06:07 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/96847.shtml)
+- 2026-06-30 05:56 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/871519793.shtml)
+- 2026-06-30 05:44 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/61073.shtml)
+- 2026-06-30 05:49 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/329758.shtml)
+- 2026-06-30 06:08 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/117117.shtml)

@@ -1,49 +1,57 @@
-# 美元跃升至日内高点 18名FOMC成员中9人预计2026年将加息
+# 花自己的钱，咋变成了“借”钱花？
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-专题：美联储维持利率不变，精简声明以移除降息偏向 彭博美元指数跃升至日内高点，此前美联储维持政策利率不变并删除宽松倾向相关措辞，18名FOMC成员中有9人预计2026年将加息。 彭博美元指数一度上涨0.3%；多数G10货币日内下跌，日元基本持平。责任编辑：李桐
+转自：贝壳财经“我什么时候开的月付功能？”前不久，家住北京的陈先生刷到一条来自抖音的还款提醒，让他一头雾水。点开订单详情才想起来：今年3月购买商品时，他无意点了“月付”按钮，“当时我以为是我常用的信用卡支付，没多看，也没有想那么多。”陈先生的遭遇并非个例。在社交平台上，外卖、网购、订票、打车时，这种“捆绑支付”非常普遍，不少用户都碰到过：到了付款那一步，App上跳出来的支付页面
 
 ## 正文
 
-专题：美联储维持利率不变，精简声明以移除降息偏向 彭博美元指数跃升至日内高点，此前美联储维持政策利率不变并删除宽松倾向相关措辞，18名FOMC成员中有9人预计2026年将加息。
+转自：贝壳财经“我什么时候开的月付功能？
 
-彭博美元指数一度上涨0.3%；多数G10货币日内下跌，日元基本持平。
+”前不久，家住北京的陈先生刷到一条来自抖音的还款提醒，让他一头雾水。
 
-责任编辑：李桐
+点开订单详情才想起来：今年3月购买商品时，他无意点了“月付”按钮，“当时我以为是我常用的信用卡支付，没多看，也没有想那么多。
+
+”陈先生的遭遇并非个例。
+
+在社交平台上，外卖、网购、订票、打车时，这种“捆绑支付”非常普遍，不少用户都碰到过：到了付款那一步，App上跳出来的支付页面，本以为是默认支付方式，却在不经意之间开通了分期或类信用卡产品，有“白条”“月付”“先享后付”之类的选项，配上“立减”“优惠”“随机减”等优惠，直到收到账单或还款时才发现，这笔钱不是常规扣款支付，摇身一变成了“你借的”小额贷款。
+
+针对这一乱象，监管已经出手。
+
+就在近期，央行等八部门联合发布的《金融产品网络营销管理办法》（以下简称《管理办法》）正式对外公布，并将于今年9月30日正式实施。
+
+这份文件的核心条款之一，是禁止支付与信贷捆绑。
 
 ## 相关推荐
 
-- 2026-06-30 05:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 06:00 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 05:58 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 05:43 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 05:44 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 05:56 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 05:40 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 05:42 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 05:42 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 05:57 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 05:40 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 05:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 05:42 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 05:55 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 05:48 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 05:58 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 05:59 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 05:58 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 06:03 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 05:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 06:07 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 06:03 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 05:59 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 05:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/31495922.shtml)
-- 2026-06-30 05:36 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/07030615652.shtml)
-- 2026-06-30 05:44 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/58765860802.shtml)
-- 2026-06-30 06:04 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/4677919861.shtml)
-- 2026-06-30 05:59 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/0432668.shtml)
-- 2026-06-30 05:36 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/0557156339.shtml)
-- 2026-06-30 05:56 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/10888145.shtml)
-- 2026-06-30 05:56 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/92413989.shtml)
-- 2026-06-30 05:42 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/379112752034.shtml)
-- 2026-06-30 05:55 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/68643572.shtml)
-- 2026-06-30 05:48 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/05318.shtml)
-- 2026-06-30 05:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/9194692.shtml)
-- 2026-06-30 05:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/394897064.shtml)
-- 2026-06-30 05:42 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/162270.shtml)
-- 2026-06-30 05:36 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/182390.shtml)
+- 2026-06-30 05:47 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/25035638.shtml)
+- 2026-06-30 05:44 - [毒液2](https://www.share.kurohicncr.top/Article/details/064772242.shtml)
+- 2026-06-30 06:07 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/86558086.shtml)
+- 2026-06-30 05:50 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/273481393.shtml)
+- 2026-06-30 05:52 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/5661557.shtml)
+- 2026-06-30 05:45 - [明星大侦探第一季](http://www.share.minike.top/Article/details/9679387695.shtml)
+- 2026-06-30 05:50 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/07057391990.shtml)
+- 2026-06-30 05:53 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/82895577.shtml)
+- 2026-06-30 05:56 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/0587683353.shtml)
+- 2026-06-30 06:09 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/5457124930.shtml)
+- 2026-06-30 05:49 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/23430622178.shtml)
+- 2026-06-30 05:50 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/12314.shtml)
+- 2026-06-30 05:59 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/586074138551.shtml)
+- 2026-06-30 06:01 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/2000028.shtml)
+- 2026-06-30 06:01 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/5652107.shtml)

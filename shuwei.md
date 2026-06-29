@@ -1,60 +1,57 @@
-# 中央网信办：即日起开展为期3个月的“清朗·整治账号名称信息乱象”专项行动
+# 芯片制造商推动纳斯达克和标普500指数创下新高
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据“网信中国”微信公众号消息，近日，中央网信办秘书局发布《关于开展“清朗·整治账号名称信息乱象”专项行动的通知》，具体如下： 各省、自治区、直辖市党委网信办，新疆生产建设兵团党委网信办： 按照2026年“清朗”系列专项行动总体安排，中央网信办决定自即日起，开展为期3个月的“清朗·整治账号名称信息乱象”专项行动。现就有关事项通知如下： 一、工作目标坚持问题导向
+周二，投资者大举买进存储芯片类股，推动纳斯达克综合指数和标普500指数创下历史新高，并使费城半导体指数创下自互联网泡沫时代以来的最佳表现。 自3月底以来，该指数已累计上涨54%，创下自2000年3月以来25个交易日内的最佳表现。芯片制造商正加紧行动，以满足对专用设备的激增需求，这些设备对驱动人工智能（AI）至关重要。 存储芯片价格上涨增加了苹果公司等科技巨头的成本，但为该板块的
 
 ## 正文
 
-中新网6月18日电 据“网信中国”微信公众号消息，近日，中央网信办秘书局发布《关于开展“清朗·整治账号名称信息乱象”专项行动的通知》，具体如下： 各省、自治区、直辖市党委网信办，新疆生产建设兵团党委网信办： 按照2026年“清朗”系列专项行动总体安排，中央网信办决定自即日起，开展为期3个月的“清朗·整治账号名称信息乱象”专项行动。
+周二，投资者大举买进存储芯片类股，推动纳斯达克综合指数和标普500指数创下历史新高，并使费城半导体指数创下自互联网泡沫时代以来的最佳表现。
 
-现就有关事项通知如下： 一、工作目标坚持问题导向和效果导向，通过开展专项行动，集中整治账号名称信息存在的突出问题。
+自3月底以来，该指数已累计上涨54%，创下自2000年3月以来25个交易日内的最佳表现。
 
-针对名称冒充、身份伪装、夹带违规信息、名称信息黑灰产等4类问题，督促网站平台严格落实主体责任，进一步完善账号名称信息全流程管理，持续营造清朗网络空间。
+芯片制造商正加紧行动，以满足对专用设备的激增需求，这些设备对驱动人工智能（AI）至关重要。
 
-二、整治重点 专项行动重点整治4类突出问题： 1.名称冒充问题。
+存储芯片价格上涨增加了苹果公司等科技巨头的成本，但为该板块的制造商带来了财务利好。
 
-一是假冒仿冒官方机构账号。
+周二的涨势推动英特尔公司股价上涨13%，市值达到约5440亿美元，超过了甲骨文公司和强生公司。
 
-在账号名称、简介中嵌入党政军机关等官方机构信息，使用相同或相似名称、标识，恶意误导公众。
+闪迪、美光科技和高通的股价涨幅均超过10%，提振以科技股集中的纳斯达克综合指数上涨1%。
 
-使用、关联县级以上行政区划地名，使用“某某政事”等组合表述，易被误认为官方账号，使公众产生错误认知。
+富国证券首席股票策略师表示，设计、生产或销售高强度AI任务所需计算机芯片的公司，是目前大规模AI基础设施建设的最大受益者。
 
-使用“某某办事大厅”“某某服务中心”等官方服务通道表述，假冒本地官方生活服务账号。
+“这确实是瓶颈所在，”他说。
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 05:49 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 05:41 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 06:02 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 05:55 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 06:02 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 05:58 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-30 06:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 05:53 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 05:39 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 06:03 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 05:58 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 05:54 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 06:04 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 06:04 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 05:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 05:53 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 05:57 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 05:46 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 06:10 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 05:43 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 06:03 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 05:52 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 06:10 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 06:06 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:02 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/9215602682.shtml)
-- 2026-06-30 05:41 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/5612162157.shtml)
-- 2026-06-30 06:05 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/6781590587.shtml)
-- 2026-06-30 05:59 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/251393388952.shtml)
-- 2026-06-30 05:49 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/52534.shtml)
-- 2026-06-30 06:03 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/819305724586.shtml)
-- 2026-06-30 05:54 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/278146.shtml)
-- 2026-06-30 05:50 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/926482506.shtml)
-- 2026-06-30 05:56 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/0485101224.shtml)
-- 2026-06-30 05:57 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/2719500241.shtml)
-- 2026-06-30 06:01 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/854058707.shtml)
-- 2026-06-30 05:56 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/837378746406.shtml)
-- 2026-06-30 05:39 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/35700069.shtml)
-- 2026-06-30 06:06 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/542531588.shtml)
-- 2026-06-30 05:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/954664.shtml)
+- 2026-06-30 06:00 - [流金岁月](http://www.share.minike.top/Article/details/8071276384.shtml)
+- 2026-06-30 05:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/90611687906.shtml)
+- 2026-06-30 05:58 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/9219559558.shtml)
+- 2026-06-30 05:49 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/9420373876.shtml)
+- 2026-06-30 05:59 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/456875991143.shtml)
+- 2026-06-30 05:52 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/186816699.shtml)
+- 2026-06-30 05:48 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/680582550.shtml)
+- 2026-06-30 05:56 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/5505038.shtml)
+- 2026-06-30 05:54 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/608809830.shtml)
+- 2026-06-30 05:48 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/59052635763.shtml)
+- 2026-06-30 05:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/75555.shtml)
+- 2026-06-30 06:09 - [急先锋](http://www.blog.kurohicncr.top/Article/details/0918860781.shtml)
+- 2026-06-30 05:54 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/7383098859.shtml)
+- 2026-06-30 05:55 - [金牌调解](https://www.blog.minike.top/Article/details/33371.shtml)
+- 2026-06-30 06:11 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/65996792.shtml)

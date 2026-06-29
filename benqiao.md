@@ -1,57 +1,56 @@
-# 钦州港海关机关大楼南面车位维修项目成交结果公告
+# 2026年“五一”假期全社会跨区域人员流动量超15.17亿人次
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-钦州港海关机关大楼南面车位维修项目采用协商谈判价方式进行采购。现就本次采购的成交结果公告如下： 一、采购项目名称 钦州港海关机关大楼南面车位维修项目。 二、采购公告媒体及日期公告媒体：中华人民共和国南宁海关网(nanning.customs.gov.cn)。 公告日期：2026年6月8日。 三、评审日期及地点 评审日期：2026年6月16日。 评审地点：钦州港海关615会议室。
+发布时间：2026年05月06日 18:55 来源：中国新闻网 5月6日，记者从交通运输部获悉，2026年5月1日至5日，全社会跨区域人员流动超15.17亿人次，日均超3.03亿人次，同比增长3.49%。 假期期间，铁路客运总量超1.06亿人次，日均2127.54万人次，同比增长4.6%。公路人员流动总量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)超1
 
 ## 正文
 
-钦州港海关机关大楼南面车位维修项目采用协商谈判价方式进行采购。
+发布时间：2026年05月06日 18:55 来源：中国新闻网 5月6日，记者从交通运输部获悉，2026年5月1日至5日，全社会跨区域人员流动超15.17亿人次，日均超3.03亿人次，同比增长3.49%。
 
-现就本次采购的成交结果公告如下： 一、采购项目名称 钦州港海关机关大楼南面车位维修项目。
+假期期间，铁路客运总量超1.06亿人次，日均2127.54万人次，同比增长4.6%。
 
-二、采购公告媒体及日期公告媒体：中华人民共和国南宁海关网(nanning.customs.gov.cn)。
+公路人员流动总量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)超13.91亿人次，日均超2.78亿人次，同比增长3.51%。
 
-公告日期：2026年6月8日。
+水路客运总量849.2万人次，日均为169.84万人次，同比下降1.37%。
 
-三、评审日期及地点 评审日期：2026年6月16日。
+民航客运总量1054万人次，日均为210.8万人次，同比下降5.74%。
 
-评审地点：钦州港海关615会议室。
-
-四、成交结果信息 成交供应商名称：广西纳晟文化传媒有限公司 成交供应商地址：南宁市江南区亭江路28号3号楼一层A座A1-3号商铺 成交金额：人民币陆万陆仟玖佰贰拾伍元肆角叁分元(￥66925.43) 五、成交结果公告时间 自成交公告发布之日起一个工作日。
-
-六、联系事项 联系人：王工 联系电话：0777-2021015 各有关当事人对成交结果有异议的，可以在成交结果公告发布期限届满之日起三个工作日内以书面形式向钦州港海关提出质疑。
+(记者 刘超） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 05:36 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 05:57 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 06:02 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 05:43 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 05:53 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 05:47 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 05:58 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 05:39 - [日本反击率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 05:43 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 06:00 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-30 05:47 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 05:43 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 05:55 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 05:45 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 05:47 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 06:05 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 05:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 06:04 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 06:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 06:11 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 05:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 05:51 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 05:42 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 05:45 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 05:42 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:05 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/436517428782.shtml)
-- 2026-06-30 05:45 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/991344.shtml)
-- 2026-06-30 05:42 - [逃狱兄弟](http://www.blog.minike.top/Article/details/16953419277.shtml)
-- 2026-06-30 06:04 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/27800230653.shtml)
-- 2026-06-30 05:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/372670074.shtml)
-- 2026-06-30 05:46 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/60182262.shtml)
-- 2026-06-30 05:55 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/8034673.shtml)
-- 2026-06-30 05:49 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/71720.shtml)
-- 2026-06-30 05:59 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/70270646.shtml)
-- 2026-06-30 05:50 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/33979245.shtml)
-- 2026-06-30 05:56 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/551287332981.shtml)
-- 2026-06-30 05:41 - [日本16强魔咒](https://www.blog.minike.top/Article/details/5311783.shtml)
-- 2026-06-30 05:56 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/22975.shtml)
-- 2026-06-30 06:05 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/5562764542.shtml)
-- 2026-06-30 05:49 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/38572868.shtml)
+- 2026-06-30 06:02 - [毒液2](http://www.share.kurohicncr.top/Article/details/8856781692.shtml)
+- 2026-06-30 05:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/41757523.shtml)
+- 2026-06-30 06:09 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/3676149361.shtml)
+- 2026-06-30 06:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/9727043.shtml)
+- 2026-06-30 05:57 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/562716338734.shtml)
+- 2026-06-30 05:58 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/91595.shtml)
+- 2026-06-30 06:00 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/530866362.shtml)
+- 2026-06-30 06:04 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/907586813474.shtml)
+- 2026-06-30 05:44 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/152591.shtml)
+- 2026-06-30 05:52 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/266213039.shtml)
+- 2026-06-30 05:58 - [一生一世](https://www.blog.kurohicncr.top/Article/details/4244456.shtml)
+- 2026-06-30 06:09 - [爱很美味](http://www.share.kurohicncr.top/Article/details/36953767.shtml)
+- 2026-06-30 06:07 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/45748407309.shtml)
+- 2026-06-30 05:49 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/29029741288.shtml)
+- 2026-06-30 06:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/420344789.shtml)

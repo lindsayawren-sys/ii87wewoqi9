@@ -1,56 +1,57 @@
-# 中国海油原副总经理袁光宇一审被判死缓
+# 龙台青春歌会福建长汀上演：两岸青年共赴青春之约
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新社北京6月17日电 (记者 张素)记者从中国最高人民法院获悉，6月17日，江苏省徐州市中级人民法院一审公开宣判中国海洋石油集团有限公司原党组成员、副总经理袁光宇受贿案，对被告人袁光宇以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的袁光宇受贿所得财物及孳息依法予以追缴，上缴国库。公开资料显示，袁光宇生于1959年，1982年加入中国海洋石油
+发布时间：2026年05月05日 20:35 来源：中国新闻网 以“共赴青春之约 同绘融合新篇”为主题的2026年龙台青春歌会5月4日晚在福建长汀举行。来自台湾的青年歌手、茶文化专家、自媒体达人等20多名嘉宾共同参与。 当晚的歌会节目融合两岸艺术特色，拉丁舞、琴茶雅韵、客家非遗剪纸服饰走秀、街舞、空竹表演等轮番登场。来自台湾的青年艺人与长汀本地艺术团体同台献艺，整场演出气氛热烈
 
 ## 正文
 
-中新社北京6月17日电 (记者 张素)记者从中国最高人民法院获悉，6月17日，江苏省徐州市中级人民法院一审公开宣判中国海洋石油集团有限公司原党组成员、副总经理袁光宇受贿案，对被告人袁光宇以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的袁光宇受贿所得财物及孳息依法予以追缴，上缴国库。
+发布时间：2026年05月05日 20:35 来源：中国新闻网 以“共赴青春之约 同绘融合新篇”为主题的2026年龙台青春歌会5月4日晚在福建长汀举行。
 
-公开资料显示，袁光宇生于1959年，1982年加入中国海洋石油总公司，2016年任中国海洋石油集团有限公司副总经理、党组成员，2019年卸任。
+来自台湾的青年歌手、茶文化专家、自媒体达人等20多名嘉宾共同参与。
 
-2025年3月，官方通报袁光宇被查。
+当晚的歌会节目融合两岸艺术特色，拉丁舞、琴茶雅韵、客家非遗剪纸服饰走秀、街舞、空竹表演等轮番登场。
 
-同年7月，中央纪委国家监委通报其被开除党籍。
+来自台湾的青年艺人与长汀本地艺术团体同台献艺，整场演出气氛热烈，掌声不断。
 
-他被指毫无纪法底线，肆无忌惮“靠石油吃石油”，大搞权钱交易等。
+在歌会前的参访活动中，台湾青年们还前往铁长乡茶山基地，开展采茶体验、参观茶文化研习馆，了解长汀茶史与制茶工艺，并参与剪纸现场教学，沉浸式体验客家文化的独特魅力，感受两岸同根同源的民间信仰文化和民间习俗。
 
-经审理查明，2001年至2022年，袁光宇利用担任中海石油北方钻井公司总经理，中海油田服务有限公司总经理、总裁，中海石油(中国)有限公司天津分公司总经理，中国海洋石油渤海石油管理局局长，中国海洋石油有限公司执行副总裁、总裁，中国海洋石油集团有限公司党组成员、副总经理等职务上的便利，为相关单位和个人在项目承揽、企业经营、职务调整等事项上提供帮助，直接或者通过他人非法收受财物，共计折合人民币1.52亿余元。
+主办方表示，将以此次龙台青春歌会为契机，持续深化两岸青年交流合作，常态化开展文化体验、研学参访、艺术共创等活动，进一步擦亮“龙台青年文化交流”品牌，不断增进两岸青年文化认同与同胞情谊。
 
-法院认为，袁光宇的行为构成受贿罪，受贿数额特别巨大，并使国家和人民利益遭受特别重大损失，论罪应当判处死刑。
-
-鉴于其归案后如实供述自己罪行，主动交代监察机关尚未掌握的部分犯罪事实，认罪悔罪，积极退赃，受贿所得及孳息已全部追缴到案，具有法定、酌定从轻处罚情节，对其判处死刑，可不立即执行。
+(记者 吴晟炜 视频来源 长汀县融媒体中心） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 05:56 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 05:53 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 05:37 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 05:37 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 06:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 05:38 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 05:49 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 05:36 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 06:00 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 05:48 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 06:00 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 05:42 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 06:00 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 05:59 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-30 06:08 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 06:03 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 05:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 06:10 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 05:46 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 06:03 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 06:03 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 05:42 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:03 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/81317596561.shtml)
-- 2026-06-30 05:50 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/0457882950.shtml)
-- 2026-06-30 05:56 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/48910090.shtml)
-- 2026-06-30 05:36 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/93953.shtml)
-- 2026-06-30 06:04 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/9614674083.shtml)
-- 2026-06-30 05:58 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/23777592.shtml)
-- 2026-06-30 05:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/323974897947.shtml)
-- 2026-06-30 05:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/40876378.shtml)
-- 2026-06-30 05:57 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/160402778210.shtml)
-- 2026-06-30 05:55 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/18239948.shtml)
-- 2026-06-30 05:41 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/6342263.shtml)
-- 2026-06-30 06:00 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/179186505701.shtml)
-- 2026-06-30 05:56 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/73271830.shtml)
-- 2026-06-30 05:36 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/5411490289.shtml)
-- 2026-06-30 06:02 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/3197346273.shtml)
+- 2026-06-30 05:46 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/445492247.shtml)
+- 2026-06-30 06:04 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/71510339153.shtml)
+- 2026-06-30 05:45 - [爱很美味](https://www.share.minike.top/Article/details/511826445.shtml)
+- 2026-06-30 06:09 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/4141147748.shtml)
+- 2026-06-30 05:58 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/6439831.shtml)
+- 2026-06-30 05:48 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/682627325938.shtml)
+- 2026-06-30 06:01 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/81830.shtml)
+- 2026-06-30 06:03 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/257475705092.shtml)
+- 2026-06-30 05:59 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/38926.shtml)
+- 2026-06-30 05:45 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/651128678390.shtml)
+- 2026-06-30 05:46 - [我和我的家乡](http://www.blog.minike.top/Article/details/358677.shtml)
+- 2026-06-30 05:49 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/4008862389.shtml)
+- 2026-06-30 05:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/3642280.shtml)
+- 2026-06-30 06:11 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/71063032.shtml)
+- 2026-06-30 05:58 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/2691374.shtml)

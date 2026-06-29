@@ -1,47 +1,45 @@
-# 美国加州和佛州发生林火火灾
+# 康耐特光学于5月5日斥资2741.35万港元回购60万股
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 09:03 来源：央视综合 责任编辑：【王祎】
+康耐特光学（02276）发布公告，于2026年5月5日斥资2741.35万港元回购60万股。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年06月18日 09:03 来源：央视综合 责任编辑：【王祎】
+康耐特光学（02276）发布公告，于2026年5月5日斥资2741.35万港元回购60万股。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:39 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 05:53 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-30 05:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 05:49 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 05:40 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 05:55 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 05:49 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-30 06:00 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-30 06:01 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 06:04 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 05:58 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 05:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 06:01 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 05:40 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-30 05:55 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 06:02 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 05:42 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 05:48 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 05:49 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 05:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 05:46 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 06:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 05:47 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 05:50 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 05:49 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 06:00 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/33497671.shtml)
-- 2026-06-30 05:51 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/49559092934.shtml)
-- 2026-06-30 06:05 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/47302.shtml)
-- 2026-06-30 05:56 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/0517042911.shtml)
-- 2026-06-30 05:56 - [沙丘](http://www.blog.minike.top/Article/details/3803865.shtml)
-- 2026-06-30 05:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/990562524.shtml)
-- 2026-06-30 05:43 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/57950936.shtml)
-- 2026-06-30 05:37 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/58068860305.shtml)
-- 2026-06-30 05:53 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/32261336.shtml)
-- 2026-06-30 05:51 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/59178175.shtml)
-- 2026-06-30 05:40 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/62383.shtml)
-- 2026-06-30 05:38 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/3821760.shtml)
-- 2026-06-30 05:54 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/27103880.shtml)
-- 2026-06-30 05:42 - [极限挑战第一季](https://www.share.minike.top/Article/details/09639.shtml)
-- 2026-06-30 05:54 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/0876951991.shtml)
+- 2026-06-30 06:05 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/832814.shtml)
+- 2026-06-30 05:43 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/58531.shtml)
+- 2026-06-30 05:59 - [流金岁月](http://www.share.kurohicncr.top/Article/details/387643949.shtml)
+- 2026-06-30 05:53 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/8399451901.shtml)
+- 2026-06-30 06:00 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/94679429680.shtml)
+- 2026-06-30 06:10 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/884952.shtml)
+- 2026-06-30 06:02 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/990451.shtml)
+- 2026-06-30 06:00 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/296028936.shtml)
+- 2026-06-30 05:55 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/371683.shtml)
+- 2026-06-30 06:05 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/766676310.shtml)
+- 2026-06-30 05:57 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/232442.shtml)
+- 2026-06-30 06:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/0669456753.shtml)
+- 2026-06-30 05:44 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/859639.shtml)
+- 2026-06-30 05:42 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/029904.shtml)
+- 2026-06-30 05:54 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/061561.shtml)

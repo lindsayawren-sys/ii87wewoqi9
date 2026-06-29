@@ -1,56 +1,61 @@
-# （八闽千姿）泉州烧肉粽：山珍“会”海味 粽香传数代
+# 五一档总票房7.58亿元！它凭什么刷新今年最高分纪录？
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新社泉州6月18日电 题：泉州烧肉粽：山珍“会”海味 粽香传数代 中新社记者 孙虹 端午临近，古城福建泉州的街巷间粽香弥漫。在百年地标泉州钟楼旁，蓝氏钟楼肉粽第五代传人蓝瑞毅守着祖辈传下的老手艺，在传承中摸索创新，让延续百年的古早烧肉粽走向更远的地方。 发源于泉州一带的烧肉粽闽南风味浓厚。闽南语“烧”就是“热”的意思，过去烧肉粽都由小贩挑着担子走街串巷叫卖。蓝氏肉粽创始人蓝丹
+中新网北京5月6日电(记者 任思雨)据国家电影局统计，2026五一档票房为7.58亿元，观影人次为2084.19万，放映场次为237.6万场。影片《消失的人》《寒战1994》《穿普拉达的女王2》《10间敢死队》《给阿嬷的情书》分列档期票房前五名，这五部影片累计票房均突破5000万。其中，《消失的人》《寒战1994》贡献五一档大盘票房的60%以上。 今年五一档，十余部影片集中上映
 
 ## 正文
 
-中新社泉州6月18日电 题：泉州烧肉粽：山珍“会”海味 粽香传数代 中新社记者 孙虹 端午临近，古城福建泉州的街巷间粽香弥漫。
+中新网北京5月6日电(记者 任思雨)据国家电影局统计，2026五一档票房为7.58亿元，观影人次为2084.19万，放映场次为237.6万场。
 
-在百年地标泉州钟楼旁，蓝氏钟楼肉粽第五代传人蓝瑞毅守着祖辈传下的老手艺，在传承中摸索创新，让延续百年的古早烧肉粽走向更远的地方。
+影片《消失的人》《寒战1994》《穿普拉达的女王2》《10间敢死队》《给阿嬷的情书》分列档期票房前五名，这五部影片累计票房均突破5000万。
 
-发源于泉州一带的烧肉粽闽南风味浓厚。
+其中，《消失的人》《寒战1994》贡献五一档大盘票房的60%以上。
 
-闽南语“烧”就是“热”的意思，过去烧肉粽都由小贩挑着担子走街串巷叫卖。
+今年五一档，十余部影片集中上映，涵盖动作、犯罪、喜剧、悬疑、惊悚、爱情、动画等多种类型，给观众带来多样化的选择。
 
-蓝氏肉粽创始人蓝丹铛，生于清光绪十三年(1887年)，从挑担走街串巷叫卖肉粽到从事肉粽生意，并把肉粽制作技艺传给后代。
+在电影供给丰富的同时，票价也更加“亲民”。
 
-第四代蓝雄辉则在20世纪90年代末开起实体门店。
+灯塔专业版数据分析师陈晋向记者表示，“相较往年，今年五一档新片发行结算票价整体下调，拉动档期平均票价明显走低。
 
-生在制粽世家，蓝雄辉之子蓝瑞毅从小与粽香相伴。
+2026年五一档平均票价36.4元，去年同期为39.6元，同比减少3.2元、降幅达8%。
 
-“小时候房间隔壁就是制作间，每天叫醒我的不是闹钟，是粽子的香气。
+” 在观众结构层面，2026年五一档男女观众分布较去年更为均衡。
 
 ## 相关推荐
 
-- 2026-06-30 06:02 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 05:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 05:59 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 06:01 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 05:41 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 05:57 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 05:54 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 05:49 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 05:55 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 05:54 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 06:09 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 05:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 06:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 06:05 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 05:58 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 06:03 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 06:04 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 06:02 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 06:08 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 05:56 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 05:59 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 05:49 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 06:10 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 05:57 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 05:51 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/2353390223.shtml)
-- 2026-06-30 06:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/11210725377.shtml)
-- 2026-06-30 06:04 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/69009234.shtml)
-- 2026-06-30 05:48 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/951750351035.shtml)
-- 2026-06-30 06:05 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/2535122899.shtml)
-- 2026-06-30 05:47 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/5473962864.shtml)
-- 2026-06-30 05:47 - [美人鱼](https://www.share.minike.top/Article/details/4445844.shtml)
-- 2026-06-30 05:41 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/323023.shtml)
-- 2026-06-30 06:01 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/138267836.shtml)
-- 2026-06-30 05:36 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/0479357.shtml)
-- 2026-06-30 05:57 - [逃狱兄弟](http://www.share.minike.top/Article/details/76270779.shtml)
-- 2026-06-30 05:41 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/044491262686.shtml)
-- 2026-06-30 05:59 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/0072607.shtml)
-- 2026-06-30 05:59 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/067074908.shtml)
-- 2026-06-30 05:36 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/6349143151.shtml)
+- 2026-06-30 05:46 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/8253439.shtml)
+- 2026-06-30 05:49 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/139278711.shtml)
+- 2026-06-30 06:02 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/133237419910.shtml)
+- 2026-06-30 06:06 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/8047886.shtml)
+- 2026-06-30 06:08 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/477437162584.shtml)
+- 2026-06-30 06:02 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/035268446146.shtml)
+- 2026-06-30 06:03 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/0835710.shtml)
+- 2026-06-30 05:56 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/910267040180.shtml)
+- 2026-06-30 05:49 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/0658161236.shtml)
+- 2026-06-30 05:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/31036061884.shtml)
+- 2026-06-30 05:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/233746519.shtml)
+- 2026-06-30 05:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/6403307374.shtml)
+- 2026-06-30 05:44 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/653726.shtml)
+- 2026-06-30 05:56 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/478573614900.shtml)
+- 2026-06-30 05:56 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/51131.shtml)

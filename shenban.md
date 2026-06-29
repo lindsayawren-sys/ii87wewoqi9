@@ -1,47 +1,57 @@
-# 远光软件：公司历来重视培养复合型管理人才
+# 外商投资监管充满不确定性，中企如何因地制宜找准“药方”
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月18日，远光软件在互动平台回答投资者提问时表示，公司历来重视培养复合型管理人才，并开展常态化轮岗，经理人调动也属于公司正常的轮岗调整，不存在经营失职的情况。广东数远科技是公司控股子公司，经营情况正常。（文章来源：证券日报）
+登录新浪财经APP 搜索【信披】查看更多考评等级 当下衡量出海项目的回报率（ROI）需要同时考虑经济指标与非经济因素。 当前，全球外商投资（FDI）监管环境的不断收紧以及产业政策驱动的宏观经济重构，正迫使资本对供应链、投入成本及市场准入进行重新定价。 这种“FDI审查与经济安全”的合流，不仅体现在欧美等地法规改革等政策层面，更深入渗透至实务操作之中。例如，欧盟的监管机构采取了更
 
 ## 正文
 
-证券日报网讯 6月18日，远光软件在互动平台回答投资者提问时表示，公司历来重视培养复合型管理人才，并开展常态化轮岗，经理人调动也属于公司正常的轮岗调整，不存在经营失职的情况。
+登录新浪财经APP 搜索【信披】查看更多考评等级 当下衡量出海项目的回报率（ROI）需要同时考虑经济指标与非经济因素。
 
-广东数远科技是公司控股子公司，经营情况正常。
+当前，全球外商投资（FDI）监管环境的不断收紧以及产业政策驱动的宏观经济重构，正迫使资本对供应链、投入成本及市场准入进行重新定价。
 
-（文章来源：证券日报）
+这种“FDI审查与经济安全”的合流，不仅体现在欧美等地法规改革等政策层面，更深入渗透至实务操作之中。
+
+例如，欧盟的监管机构采取了更具干预性的救济措施，将审查触角延伸至更广泛的行业领域，并对企业的股权控制结构及数据治理展现出前所未有的敏感度。
+
+在这一环境下，中企在向外探索时，如何审视和精准测算每一笔“合规溢价”，并利用法律工具穿越监管的不确定性，已成为决定企业能否平稳落地深水区的关键。
+
+作为拥有超过22年跨境并购经验的资深专家，富而德（Freshfields）律师事务所合伙人沈育欣接受第一财经记者专访时表示，总体来看，中企应对监管风险的方式已经非常多元，在“走出去”的过程中，准备工作也做得越来越细致。
+
+“虽然没有哪一个单一的手段能解决所有问题，但通过前置的自我评估和申报策略、法律架构的加固、保险工具的应用以及外交渠道的预留等等，中企考虑风险应对措施的维度和深度比以前已有了长足的进步。
+
+”他称。
 
 ## 相关推荐
 
-- 2026-06-30 05:42 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 05:50 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 06:01 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 05:49 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 05:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 05:36 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 05:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 05:44 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 06:00 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-30 05:38 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 06:05 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 06:09 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 05:47 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 05:55 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 05:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 05:54 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 06:05 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 05:45 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 06:04 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 06:08 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 06:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 06:03 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:03 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/57531518977.shtml)
-- 2026-06-30 05:44 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/721205067770.shtml)
-- 2026-06-30 05:51 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/4268862610.shtml)
-- 2026-06-30 06:05 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/263312239.shtml)
-- 2026-06-30 05:42 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/35297090.shtml)
-- 2026-06-30 06:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/53572500.shtml)
-- 2026-06-30 05:59 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/157011740472.shtml)
-- 2026-06-30 05:42 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/572631.shtml)
-- 2026-06-30 06:02 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/33399351.shtml)
-- 2026-06-30 05:36 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/75972518.shtml)
-- 2026-06-30 05:50 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/5694241372.shtml)
-- 2026-06-30 05:57 - [请回答王牌2019](https://www.share.minike.top/Article/details/4958900573.shtml)
-- 2026-06-30 05:46 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/188899340696.shtml)
-- 2026-06-30 05:39 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/9358864.shtml)
-- 2026-06-30 05:43 - [刘念回应](https://www.blog.minike.top/Article/details/076409906.shtml)
+- 2026-06-30 06:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/317988592.shtml)
+- 2026-06-30 05:50 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/508597.shtml)
+- 2026-06-30 05:59 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/48131264.shtml)
+- 2026-06-30 06:06 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/61839259.shtml)
+- 2026-06-30 05:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/43225736.shtml)
+- 2026-06-30 06:11 - [毒液2](http://www.share.minike.top/Article/details/48128.shtml)
+- 2026-06-30 05:54 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/14124008.shtml)
+- 2026-06-30 05:56 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/641491.shtml)
+- 2026-06-30 06:03 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/5458406138.shtml)
+- 2026-06-30 06:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/100462529.shtml)
+- 2026-06-30 05:57 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/908411625.shtml)
+- 2026-06-30 05:44 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/4061002524.shtml)
+- 2026-06-30 06:02 - [一生一世](http://www.blog.minike.top/Article/details/17317356.shtml)
+- 2026-06-30 06:01 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/6510185712.shtml)
+- 2026-06-30 05:59 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/55982.shtml)

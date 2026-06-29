@@ -1,48 +1,51 @@
-# 创业板指创历史新高 A股四大千元股同创新高
+# SpaceX将向Anthropic开放其大型AI超级计算机使用权
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 17:07 来源：中国新闻网 6月18日，A股收盘，创业板指涨超2%收报4252.39点，盘中再创历史新高。A股当前股价最高的四只千元股，联讯仪器、源杰科技、寒武纪、中际旭创亦盘中大涨，股价均创历史新高。其中，中际旭创盘中涨超7%，总市值突破1.5万亿元，超越贵州茅台总市值。(记者 谢艺观） 责任编辑：【宋宇晟】
+埃隆・马斯克旗下的 SpaceX 公司于周三宣布，已签署合作协议，向人工智能企业 Anthropic 开放Colossus 1大型 AI 超级计算机的使用权限。此举标志着人工智能赛道两大顶尖巨头正式联手。 SpaceX 在官网公告中表示，Anthropic 将借助这批新增算力，提升旗下 AI 助手Claude Pro与Claude Max付费订阅用户的服务承载能力。 这家航天企
 
 ## 正文
 
-发布时间：2026年06月18日 17:07 来源：中国新闻网 6月18日，A股收盘，创业板指涨超2%收报4252.39点，盘中再创历史新高。
+埃隆・马斯克旗下的 SpaceX 公司于周三宣布，已签署合作协议，向人工智能企业 Anthropic 开放Colossus 1大型 AI 超级计算机的使用权限。
 
-A股当前股价最高的四只千元股，联讯仪器、源杰科技、寒武纪、中际旭创亦盘中大涨，股价均创历史新高。
+此举标志着人工智能赛道两大顶尖巨头正式联手。
 
-其中，中际旭创盘中涨超7%，总市值突破1.5万亿元，超越贵州茅台总市值。
+SpaceX 在官网公告中表示，Anthropic 将借助这批新增算力，提升旗下 AI 助手Claude Pro与Claude Max付费订阅用户的服务承载能力。
 
-(记者 谢艺观） 责任编辑：【宋宇晟】
+这家航天企业补充称，Anthropic 还有意与 SpaceX 合作，共同建设数吉瓦级太空轨道 AI 算力基础设施。
+
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 05:56 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-30 06:03 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 05:54 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 05:49 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 05:43 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 05:56 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 05:47 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 06:03 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 05:58 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 05:39 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 06:00 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 05:43 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 05:51 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 05:52 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 06:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 06:00 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 06:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 05:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 05:54 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 06:03 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 06:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:53 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/82520720.shtml)
-- 2026-06-30 05:38 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/591765208316.shtml)
-- 2026-06-30 05:54 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/72600407535.shtml)
-- 2026-06-30 06:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/732335133.shtml)
-- 2026-06-30 06:00 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/80871352117.shtml)
-- 2026-06-30 05:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/93350250214.shtml)
-- 2026-06-30 05:59 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/7111042.shtml)
-- 2026-06-30 05:55 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/3073742906.shtml)
-- 2026-06-30 05:57 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/047924234.shtml)
-- 2026-06-30 05:46 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/346379.shtml)
-- 2026-06-30 06:01 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/352413444528.shtml)
-- 2026-06-30 05:56 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/294577251573.shtml)
-- 2026-06-30 05:45 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/99224982.shtml)
-- 2026-06-30 05:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/18666748704.shtml)
-- 2026-06-30 05:57 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/01691.shtml)
+- 2026-06-30 05:54 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/997761662.shtml)
+- 2026-06-30 05:47 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/822867077450.shtml)
+- 2026-06-30 05:46 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/803497638681.shtml)
+- 2026-06-30 05:55 - [沉睡花园](http://www.share.minike.top/Article/details/815882885.shtml)
+- 2026-06-30 06:00 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/1440927.shtml)
+- 2026-06-30 06:04 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/5728131.shtml)
+- 2026-06-30 05:55 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/318764115227.shtml)
+- 2026-06-30 05:47 - [斗破苍穹](http://www.share.minike.top/Article/details/8718583539.shtml)
+- 2026-06-30 05:49 - [毒液2](https://www.share.minike.top/Article/details/458459.shtml)
+- 2026-06-30 05:58 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/78581153205.shtml)
+- 2026-06-30 05:57 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.minike.top/Article/details/014134.shtml)
+- 2026-06-30 05:46 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/8957354.shtml)
+- 2026-06-30 06:04 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/236657.shtml)
+- 2026-06-30 06:02 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/870032.shtml)
+- 2026-06-30 05:53 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/4001661.shtml)

@@ -1,58 +1,59 @@
-# 外交部：日本右翼势力掩盖真相 根本目的是否认历史定论
+# 全国大部降水增多 冷空气将自北向南制造降温
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-6月18日，外交部发言人林剑主持例行记者会。有记者问：近日，《揭秘731部队：日本的秘密人体实验》纪录片播出，通过采访日军侵华第731部队唯一在世老兵、细菌战受害者及家属、新加坡学者等，让观众得以进一步了解历史真相。该纪录片受到了广泛关注。网民评论称，日军暴行惨无人道，不应逃脱历史审判。发言人对此有何评论？林剑表示，二战期间，侵华日军第731部队进行了灭绝人性的活体实验和细菌战
+中国天气网讯 今天(5月6日)，南方新一轮降水过程来袭，部分地区有暴雨，同时北方降水范围也会扩大。随着冷空气南下、降水增多，各地气温将自北向南逐渐下跌，东北、华北至江南多地最高气温累计降幅可达10℃左右。 南方新一轮降水过程上线 北方降水范围有所扩大 昨天，全国大部降水不多，强度普遍较弱，监测显示，云南西南部、广东东南部沿海、海南岛南部等地部分地区出现中到大雨，局地暴雨。 随着
 
 ## 正文
 
-6月18日，外交部发言人林剑主持例行记者会。
+中国天气网讯 今天(5月6日)，南方新一轮降水过程来袭，部分地区有暴雨，同时北方降水范围也会扩大。
 
-有记者问：近日，《揭秘731部队：日本的秘密人体实验》纪录片播出，通过采访日军侵华第731部队唯一在世老兵、细菌战受害者及家属、新加坡学者等，让观众得以进一步了解历史真相。
+随着冷空气南下、降水增多，各地气温将自北向南逐渐下跌，东北、华北至江南多地最高气温累计降幅可达10℃左右。
 
-该纪录片受到了广泛关注。
+南方新一轮降水过程上线 北方降水范围有所扩大 昨天，全国大部降水不多，强度普遍较弱，监测显示，云南西南部、广东东南部沿海、海南岛南部等地部分地区出现中到大雨，局地暴雨。
 
-网民评论称，日军暴行惨无人道，不应逃脱历史审判。
+随着暖湿气流加强北上、冷空气南下，今起三天，南方地区自西向东将有新一轮降水过程，部分地区有暴雨，并伴有短时强降水、雷暴大风等强对流天气。
 
-发言人对此有何评论？
+在北方，今天降水范围有所扩大，强度总体不强，明天起大部地区将回归晴朗。
 
-林剑表示，二战期间，侵华日军第731部队进行了灭绝人性的活体实验和细菌战，受害者既有大量的中国平民，也有苏联战俘、朝鲜劳工、英美被俘的军人等。
+中央气象台预计，今天，西藏中西部、新疆南疆高海拔山区、青海东部和南部、甘肃西南部、川西高原北部等地部分地区有小到中雪或雨夹雪，局地有大雪；东北地区中东部、陕西中南部、河北南部、山东中北部、重庆东北部、江汉大部、贵州中东部、湖南中北部、广西北部、西藏东南部等地部分地区有中到大雨，其中，湖北中部、湖南西部和北部、贵州中部等地部分地区有暴雨。
 
-这段极其黑暗、残忍的历史，拷问着人类的良知和底线。
+明天，西藏中部、青海大部、甘肃西南部、川西高原北部等地部分地区有小到中雪或雨夹雪，局地有大雪；湖北东部、安徽南部、江南大部、广西中东部、广东中北部等地部分地区有中到大雨，其中，湖南南部、江西东北部、浙江西南部、福建西北部、广东中北部等地部分地区有暴雨。
 
-令人警醒的是，面对铁证如山的事实，日本右翼势力不仅拒不反省，还把臭名昭著的731部队美化为“从事卫生研究的单位”，大搞历史修正主义，极力掩盖真相、淡化否认罪责。
+后天，西藏东北部、青海南部和东部、甘肃西南部、川西高原北部等地部分地区有小到中雪或雨夹雪，局地有大雪；福建东南部、广东南部、广西东南部、海南岛北部、台湾岛东部、云南南部等地部分地区有中到大雨，其中，广东西南部和东北部等地部分地区有暴雨。
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 05:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 06:03 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 05:56 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 05:42 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 05:43 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 06:04 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 05:38 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 05:38 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-30 05:40 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 05:55 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-30 05:39 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 05:49 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 05:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 05:45 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 05:44 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 05:54 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 06:10 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 05:42 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 05:50 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 05:48 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 06:00 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 05:58 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 06:00 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 06:01 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:58 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/84935.shtml)
-- 2026-06-30 05:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/3155285.shtml)
-- 2026-06-30 05:54 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/2413704576.shtml)
-- 2026-06-30 05:46 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/6011984.shtml)
-- 2026-06-30 05:52 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/674091475464.shtml)
-- 2026-06-30 05:39 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/83823.shtml)
-- 2026-06-30 05:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/83350028.shtml)
-- 2026-06-30 05:43 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/784507464377.shtml)
-- 2026-06-30 05:45 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/722170.shtml)
-- 2026-06-30 05:40 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/431209.shtml)
-- 2026-06-30 05:47 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/18761978.shtml)
-- 2026-06-30 05:41 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/1558685340.shtml)
-- 2026-06-30 06:02 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/5491592692.shtml)
-- 2026-06-30 05:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/029748464684.shtml)
-- 2026-06-30 06:03 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/27342.shtml)
+- 2026-06-30 05:48 - [金牌调解](http://www.share.kurohicncr.top/Article/details/176279606330.shtml)
+- 2026-06-30 05:48 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/69091043387.shtml)
+- 2026-06-30 05:49 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/3416822.shtml)
+- 2026-06-30 05:47 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/0652227.shtml)
+- 2026-06-30 05:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/279086624.shtml)
+- 2026-06-30 05:59 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/579867577.shtml)
+- 2026-06-30 06:05 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/89714919026.shtml)
+- 2026-06-30 05:45 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/38701965.shtml)
+- 2026-06-30 05:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/9432203.shtml)
+- 2026-06-30 06:05 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/1296231656.shtml)
+- 2026-06-30 05:51 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/5289466.shtml)
+- 2026-06-30 06:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/51583718230.shtml)
+- 2026-06-30 05:57 - [勇敢的心第二部](https://www.share.minike.top/Article/details/80596286.shtml)
+- 2026-06-30 05:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/539520752.shtml)
+- 2026-06-30 05:49 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/080405295841.shtml)

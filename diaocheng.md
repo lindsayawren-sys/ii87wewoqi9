@@ -1,58 +1,57 @@
-# 北京推出多彩促消费活动庆端午
+# 新疆导游那句火遍全网的话，藏着动人的故事
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新网北京6月18日电 (记者 吕少威)记者18日从北京市商务局获悉，今年端午小长假期间，北京重点商圈商超、特色餐饮、文旅休闲、体育赛事、非遗体验等优质资源集中发力，推出众多应时应景的主题活动，从潮流购物到特色美食街区，从民俗游园雅趣、文艺展演到全民运动狂欢，将端午传统民俗文化与夜间经济深度融合，为市民游客打造沉浸式夏日消费新体验。 端午假期，北京各大商圈将延长营业时间，叠加节
+“不是打穿天山容易，而是天山那头有人民！”前不久，新疆导游迪丽努尔·吐尔逊江为台湾省的游客介绍天山胜利隧道的一番话，感动无数网友。 作为“天山那头”的南疆孩子，迪丽努尔在北疆乌鲁木齐上大学时，熬过20多个小时的硬座火车站票，也曾在盘山公路上颠簸过好几个小时……那段漫长而艰辛的路程，随着天山胜利隧道的贯通，彻底变成了回忆。 在央视新闻 《中国UP！》节目中，迪丽努尔说，自己对天山
 
 ## 正文
 
-中新网北京6月18日电 (记者 吕少威)记者18日从北京市商务局获悉，今年端午小长假期间，北京重点商圈商超、特色餐饮、文旅休闲、体育赛事、非遗体验等优质资源集中发力，推出众多应时应景的主题活动，从潮流购物到特色美食街区，从民俗游园雅趣、文艺展演到全民运动狂欢，将端午传统民俗文化与夜间经济深度融合，为市民游客打造沉浸式夏日消费新体验。
+“不是打穿天山容易，而是天山那头有人民！
 
-端午假期，北京各大商圈将延长营业时间，叠加节日专属折扣、主题活动、IP互动、会员福利等多重玩法，打造全天候、沉浸式夜购空间。
+”前不久，新疆导游迪丽努尔·吐尔逊江为台湾省的游客介绍天山胜利隧道的一番话，感动无数网友。
 
-东城、西城、朝阳、丰台、顺义、延庆、平谷、通州等多区域商场轮番推出力度十足的促销活动。
+作为“天山那头”的南疆孩子，迪丽努尔在北疆乌鲁木齐上大学时，熬过20多个小时的硬座火车站票，也曾在盘山公路上颠簸过好几个小时……那段漫长而艰辛的路程，随着天山胜利隧道的贯通，彻底变成了回忆。
 
-此外，今年端午小长假恰逢2026年美加墨世界杯赛事，双重热点将带动各大商场人气攀升。
+在央视新闻 《中国UP！
 
-朝阳大悦城一层户外广场落地的 FanTown世界杯豪门 IP官方授权快闪展，复刻的大力神杯、七大国家队正版周边悉数亮相，将吸引更多端午假期外出休闲的球迷驻足打卡；荟聚购物中心一层中庭也打造了沉浸式足球嘉年华，专区售卖 FIFA2026世界杯官方授权好物，正版球衣、吉祥物玩偶挂件预计成为热销单品，场地还设置了大屏实时直播赛事，氛围感十足的冠军围巾墙，也将成为市民端午逛街拍照打卡的热门点位，进一步丰富端午假日多元消费场景。
+》节目中，迪丽努尔说，自己对天山胜利隧道的讲解，是她这个南疆孩子用骨子里最深刻的记忆，向这个伟大的工程致敬。
 
-本次端午假期，北京深挖舌尖上的消费潜力，串联特色美食街区、主题美食节、深夜食堂、民俗小吃主题活动。
+01“穿越天山的路被凿穿 变成短短20分钟” 迪丽努尔出生在天山南麓的阿图什。
 
-作为京城美食名片，第八届簋街不夜节持续火热。
+小时候，天山那头的北疆在她心里遥不可及。
 
-端午期间，街区全体商户推出满减、特惠套餐，凭影院票根还可享堂食优惠。
+直到考上位于乌鲁木齐的新疆财经大学，她才第一次走出了南疆。
 
 ## 相关推荐
 
-- 2026-06-30 05:58 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 05:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 05:46 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 05:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 05:46 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 05:44 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 05:48 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 06:01 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 06:01 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 05:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 05:46 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 05:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 06:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 05:50 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 06:07 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 05:46 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 05:57 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 05:50 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 05:44 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 05:45 - [《共患难》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 05:57 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-30 05:44 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 05:55 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:43 - [蔚来车主罚站](http://www.share.minike.top/Article/details/131687949.shtml)
-- 2026-06-30 05:51 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/482998504742.shtml)
-- 2026-06-30 06:01 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/8536327.shtml)
-- 2026-06-30 05:53 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/219052265781.shtml)
-- 2026-06-30 05:43 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/6548787.shtml)
-- 2026-06-30 05:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/3776425.shtml)
-- 2026-06-30 05:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/5001793.shtml)
-- 2026-06-30 05:44 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/21119167719.shtml)
-- 2026-06-30 06:04 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/743182376306.shtml)
-- 2026-06-30 05:45 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/646150176249.shtml)
-- 2026-06-30 06:01 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/0115180.shtml)
-- 2026-06-30 05:39 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/513362.shtml)
-- 2026-06-30 05:50 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/37789.shtml)
-- 2026-06-30 05:40 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/34576351.shtml)
-- 2026-06-30 06:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/71441817711.shtml)
+- 2026-06-30 06:10 - [沉睡花园](http://www.share.minike.top/Article/details/698913314041.shtml)
+- 2026-06-30 06:02 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/6555892.shtml)
+- 2026-06-30 06:01 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/09219.shtml)
+- 2026-06-30 06:01 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/6113426916.shtml)
+- 2026-06-30 05:55 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/533270524.shtml)
+- 2026-06-30 06:01 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/219814566.shtml)
+- 2026-06-30 05:55 - [沉睡花园](https://www.share.minike.top/Article/details/55309920.shtml)
+- 2026-06-30 06:04 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/85574251.shtml)
+- 2026-06-30 05:52 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/6429909.shtml)
+- 2026-06-30 05:50 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/2083340265.shtml)
+- 2026-06-30 06:03 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/193887465.shtml)
+- 2026-06-30 05:43 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/065669570916.shtml)
+- 2026-06-30 05:44 - [月亮](https://www.blog.minike.top/Article/details/20384.shtml)
+- 2026-06-30 06:10 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/6805455.shtml)
+- 2026-06-30 05:53 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/856726337765.shtml)

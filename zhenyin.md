@@ -1,49 +1,57 @@
-# 科创金融生态共建合作框架协议在沪签署
+# 地缘紧张局势缓和 墨西哥比索与股市双双走高
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 中国长城资产与中国银行、中国中信金融资产、中国东方资产、上海国投公司在2026陆家嘴论坛上共同签署科创金融生态共建合作框架协议。 合作由中国银行发起，聚焦上海三大先导产业，创新打造“股权投资+银行服务+AMC资本盘活”一体化模式，覆盖科创企业全生命周期。 依据协议，“十五五”期间合作各方将协同投入百亿级资金，构建多层
+受中东地缘政治紧张局势有所缓解的提振，墨西哥比索与股市周二双双上涨，收复了前一交易日的部分失地。 截至早盘交易时段，墨西哥主要股指S&P/BMV IPC指数上涨1.45%至68，257.72点，FTSE BIVA指数上涨1.40%至1，367.63点。墨西哥比索兑美元汇率也同步走强，市场风险偏好显著回升。 权重股中，建筑材料巨头Cemex领涨，涨幅达4.24%至21.65比索；
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 中国长城资产与中国银行、中国中信金融资产、中国东方资产、上海国投公司在2026陆家嘴论坛上共同签署科创金融生态共建合作框架协议。
+受中东地缘政治紧张局势有所缓解的提振，墨西哥比索与股市周二双双上涨，收复了前一交易日的部分失地。
 
-合作由中国银行发起，聚焦上海三大先导产业，创新打造“股权投资+银行服务+AMC资本盘活”一体化模式，覆盖科创企业全生命周期。
+截至早盘交易时段，墨西哥主要股指S&P/BMV IPC指数上涨1.45%至68，257.72点，FTSE BIVA指数上涨1.40%至1，367.63点。
 
-依据协议，“十五五”期间合作各方将协同投入百亿级资金，构建多层次基金集群与服务闭环。
+墨西哥比索兑美元汇率也同步走强，市场风险偏好显著回升。
 
-责任编辑：秦艺
+权重股中，建筑材料巨头Cemex领涨，涨幅达4.24%至21.65比索；Orbia Advance股价上涨2.86%至22.27比索，可口可乐Femsa上涨3.72%至183.84比索。
+
+此轮上涨的主要背景是美伊停火协议虽然脆弱但仍在维系。
+
+美国国防部长赫格塞斯表示，伊朗对阿联酋的袭击尚未达到重启大规模作战行动的阈值，停火并未结束。
+
+这一表态缓解了市场对中东全面开战的担忧，推动国际油价从高位回落，进而减轻了墨西哥等能源进口国的通胀压力。
+
+分析人士指出，墨西哥因其地理上与中东隔绝，且毗邻美国，成为本轮地缘冲突中的潜在受益者。
 
 ## 相关推荐
 
-- 2026-06-30 05:51 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 05:59 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 05:38 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 06:00 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 06:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 05:59 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 05:56 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 05:57 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 05:41 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 05:36 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 05:43 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 05:49 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 05:48 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 05:58 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 06:09 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 05:47 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 05:42 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 06:02 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 06:10 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 05:51 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 05:59 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 06:07 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:54 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/924681258608.shtml)
-- 2026-06-30 06:03 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/528620.shtml)
-- 2026-06-30 05:44 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/29523117.shtml)
-- 2026-06-30 05:58 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/594826966.shtml)
-- 2026-06-30 05:51 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/6897679.shtml)
-- 2026-06-30 05:59 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/01821943726.shtml)
-- 2026-06-30 05:45 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/759676.shtml)
-- 2026-06-30 05:49 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/541867007068.shtml)
-- 2026-06-30 05:36 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/783595878858.shtml)
-- 2026-06-30 06:02 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/37350343.shtml)
-- 2026-06-30 05:40 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/6841451323.shtml)
-- 2026-06-30 05:41 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/890113462122.shtml)
-- 2026-06-30 06:02 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/1327424.shtml)
-- 2026-06-30 05:44 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/37794.shtml)
-- 2026-06-30 05:49 - [急先锋](https://www.blog.kurohicncr.top/Article/details/678997155.shtml)
+- 2026-06-30 06:09 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/925649.shtml)
+- 2026-06-30 05:52 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/120894028.shtml)
+- 2026-06-30 06:08 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/03640588.shtml)
+- 2026-06-30 05:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/440598.shtml)
+- 2026-06-30 06:07 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/31177081615.shtml)
+- 2026-06-30 06:00 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/2644215909.shtml)
+- 2026-06-30 06:05 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/394064218.shtml)
+- 2026-06-30 06:12 - [急先锋](https://www.share.kurohicncr.top/Article/details/99886.shtml)
+- 2026-06-30 05:48 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/7190975358.shtml)
+- 2026-06-30 05:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/61884616670.shtml)
+- 2026-06-30 05:50 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/828677.shtml)
+- 2026-06-30 05:51 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/85227884.shtml)
+- 2026-06-30 06:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/9876783182.shtml)
+- 2026-06-30 06:07 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/958691222140.shtml)
+- 2026-06-30 05:43 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/260025.shtml)

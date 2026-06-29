@@ -1,58 +1,58 @@
-# 新加坡冬海集团悄然进军美国市场 测试AI聊天机器人Migoo
+# 戴姆勒卡车公司营业利润减半 需求疲软和关税冲击北美市场
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-在美股上市的新加坡互联网领军企业冬海集团（Sea Ltd．）正在包括美国在内的地区推出一款生成式人工智能（AI）聊天机器人，这是该公司首次进军竞争激烈的美国消费市场，加快AI布局。 知情人士透露，这款名为Migoo的AI陪伴聊天机器人已经上线，可能很快会进行更大规模发布。Migoo的网站和应用并未提及冬海为所有者。该应用直接接入苹果iMessage等平台，旨在充当高度个性化的陪
+全球最大卡车制造商之一戴姆勒卡车公司周三表示，受历史性疲软的需求及其关键市场北美地区进口关税的影响，其第一季度营业利润减少了一半以上。该公司经调整后的营业利润为4.98亿欧元（合5.8356亿美元），而去年同期为10.8亿欧元。 戴姆勒卡车的业绩反映了北美市场的急剧放缓，该地区销量下降了四分之一，至29，432辆，而特朗普领导下的美国政府实施的进口关税对汽车行业造成了重大打击。
 
 ## 正文
 
-在美股上市的新加坡互联网领军企业冬海集团（Sea Ltd．）正在包括美国在内的地区推出一款生成式人工智能（AI）聊天机器人，这是该公司首次进军竞争激烈的美国消费市场，加快AI布局。
+全球最大卡车制造商之一戴姆勒卡车公司周三表示，受历史性疲软的需求及其关键市场北美地区进口关税的影响，其第一季度营业利润减少了一半以上。
 
-知情人士透露，这款名为Migoo的AI陪伴聊天机器人已经上线，可能很快会进行更大规模发布。
+该公司经调整后的营业利润为4.98亿欧元（合5.8356亿美元），而去年同期为10.8亿欧元。
 
-Migoo的网站和应用并未提及冬海为所有者。
+戴姆勒卡车的业绩反映了北美市场的急剧放缓，该地区销量下降了四分之一，至29，432辆，而特朗普领导下的美国政府实施的进口关税对汽车行业造成了重大打击。
 
-该应用直接接入苹果iMessage等平台，旨在充当高度个性化的陪伴型聊天机器人，能够记住用户的喜好和习惯。
+该集团首席财务官伊娃·舍勒（Eva Scherer）在声明中表示：“北美卡车业务‘继续面临关税带来的逆风，第一季度首次全面反映了关税的影响’。
 
-该项目是冬海迄今进军AI领域最重要的举措之一。
+”北美地区的调整后销售利润率从去年的14.4%降至5.4%。
 
-冬海运营热门线上零售平台虾皮和游戏平台Garena，过去一年股价下跌逾40%，因其在AI领域落后于阿里巴巴和腾讯控股等亚洲同行。
+戴姆勒卡车公司仍确认了其全年业绩展望，并指出北美卡车业务的新订单量较上年增长了86%。
 
-知情人士称，在美国，冬海的目标是利润丰厚且竞争激烈的Z世代AI市场，该市场由OpenAI和字节跳等公司主导。
-
-知情人士因讨论非公开计划而要求匿名。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 05:36 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 05:57 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 06:03 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 05:36 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-30 06:05 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 05:53 - [日本进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 05:43 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 05:40 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 05:41 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 06:00 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 05:44 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 05:48 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 06:01 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 06:05 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 05:51 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 05:48 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 05:50 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 06:00 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 06:01 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 05:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 06:03 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 05:54 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 05:46 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 05:53 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 06:00 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 05:56 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [周生如故](http://www.share.minike.top/Article/details/0480769.shtml)
-- 2026-06-30 05:51 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/330420765.shtml)
-- 2026-06-30 06:01 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/5880019393.shtml)
-- 2026-06-30 05:59 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/91299.shtml)
-- 2026-06-30 05:38 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/52769889175.shtml)
-- 2026-06-30 05:58 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/4384356983.shtml)
-- 2026-06-30 05:43 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/567413509052.shtml)
-- 2026-06-30 05:39 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/421609956.shtml)
-- 2026-06-30 06:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/0893133757.shtml)
-- 2026-06-30 05:55 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/3285788345.shtml)
-- 2026-06-30 06:00 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/682553.shtml)
-- 2026-06-30 05:55 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/7580385.shtml)
-- 2026-06-30 05:47 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/763832880.shtml)
-- 2026-06-30 05:59 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/289794403.shtml)
-- 2026-06-30 06:01 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/802411.shtml)
+- 2026-06-30 05:59 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/8779187938.shtml)
+- 2026-06-30 05:51 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/07257906525.shtml)
+- 2026-06-30 05:58 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/65347652471.shtml)
+- 2026-06-30 06:00 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/4810132559.shtml)
+- 2026-06-30 06:05 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/50649036895.shtml)
+- 2026-06-30 05:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/207885.shtml)
+- 2026-06-30 05:55 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/64759717716.shtml)
+- 2026-06-30 06:03 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/565908036969.shtml)
+- 2026-06-30 05:45 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/578430592141.shtml)
+- 2026-06-30 06:07 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/50879904366.shtml)
+- 2026-06-30 05:43 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/315807338.shtml)
+- 2026-06-30 05:42 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/35279.shtml)
+- 2026-06-30 06:09 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/543105342.shtml)
+- 2026-06-30 05:43 - [TOP Prada](https://www.share.minike.top/Article/details/4631565.shtml)
+- 2026-06-30 06:11 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/1266680.shtml)

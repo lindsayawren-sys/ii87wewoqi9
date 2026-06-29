@@ -1,59 +1,59 @@
-# （活力中国调研行）以天津为样板 中国探路“新三样”固废回收利用
+# 湖北五道峡国家级自然保护区首次发现白腹隼雕
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新社天津6月17日电 题：以天津为样板 中国探路“新三样”固废回收利用 中新社记者 周亚强 随着新能源产业快速发展，逐步迎来退役高峰的光伏组件、动力电池、风机叶片等“新三样”固废的回收利用备受关注。中新社记者近日走进位于天津的中国资源循环集团(下称“中国资环”)绿色低碳循环经济示范基地，探访相关产业实践。 这片占地26.6万平方米的基地由闲置厂房改造而成。2025年，中国资环
+中新网湖北保康5月6日电 (张倩龙 陈泉霖 刘涛)湖北五道峡国家级自然保护区工作人员近日日常巡护监测中，首次记录到国家二级保护动物白腹隼雕活动影像，为该区域生物多样性研究再添重要例证。 据了解，白腹隼雕属大型珍稀猛禽，体型雄健、羽翼修长，成鸟体长可达70厘米，翼展近1.8米。通体羽色错落有致，下体洁白布有黑褐色纵纹，上体呈暗褐色，尾羽灰底镶宽阔黑端。白腹隼雕性情凶猛机敏、飞行矫
 
 ## 正文
 
-中新社天津6月17日电 题：以天津为样板 中国探路“新三样”固废回收利用 中新社记者 周亚强 随着新能源产业快速发展，逐步迎来退役高峰的光伏组件、动力电池、风机叶片等“新三样”固废的回收利用备受关注。
+中新网湖北保康5月6日电 (张倩龙 陈泉霖 刘涛)湖北五道峡国家级自然保护区工作人员近日日常巡护监测中，首次记录到国家二级保护动物白腹隼雕活动影像，为该区域生物多样性研究再添重要例证。
 
-中新社记者近日走进位于天津的中国资源循环集团(下称“中国资环”)绿色低碳循环经济示范基地，探访相关产业实践。
+据了解，白腹隼雕属大型珍稀猛禽，体型雄健、羽翼修长，成鸟体长可达70厘米，翼展近1.8米。
 
-这片占地26.6万平方米的基地由闲置厂房改造而成。
+通体羽色错落有致，下体洁白布有黑褐色纵纹，上体呈暗褐色，尾羽灰底镶宽阔黑端。
 
-2025年，中国资环仅用百余天将其建成国内首个资源循环领域国家级示范基地，集资源循环、能源循环、数字循环、资产循环于一体。
+白腹隼雕性情凶猛机敏、飞行矫健迅捷，常栖息于人迹罕至的山地丘陵，以鸟类、鼠类、野兔等为食。
 
-“我们正加快建设兼具回收储运与综合利用功能的大型区域回收利用中心，目标是形成千亿级循环经济产业集群。
+白腹隼雕主要分布于中国长江以南，野生种群数量稀少，为国家二级重点保护野生动物。
 
-”中资环绿投循环科技投资(深圳)有限公司董事长罗晓光说，目前基地已集聚多家产业链上下游企业，推进从绿色分拣、梯级利用到再生循环的完整链条构建。
+此次现身区域位于五道峡国家级自然保护区海拔1200米山地林区，悬崖河谷相间，植被繁茂静谧，人为干扰极低，为白腹隼雕提供优良栖息觅食地。
 
-罗晓光介绍，常规光伏板多为黑色或深蓝色，中国资环创新了全彩化涂层技术，使退役组件变身彩色发电建材，“既做建筑立面装饰，又能发电支持园区照明”，发电效率可达到标准光伏板的90%左右。
+湖北五道峡国家级自然保护区位于保康县。
 
-基地已应用此类组件10296块，其中彩色化应用7171块；覆盖面积约2.7万平方米，年发电量约550万千瓦时。
+近年来，该自然保护区持续强化巡护监测与生态修复，红外相机先后拍到林麝、亚洲黑熊等珍稀物种，生物多样性保护成效显著。
 
 ## 相关推荐
 
-- 2026-06-30 05:43 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 05:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 06:00 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 06:05 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 05:45 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 05:44 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 05:43 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 05:45 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 05:50 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 05:37 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 05:56 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 05:50 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 05:40 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 06:03 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 05:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 05:49 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 05:47 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 05:58 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-30 06:03 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 06:09 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 05:48 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 05:53 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 05:51 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 06:07 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 06:01 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 05:58 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/257378489.shtml)
-- 2026-06-30 06:02 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/529514083.shtml)
-- 2026-06-30 05:58 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/29640168123.shtml)
-- 2026-06-30 05:48 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/5194850679.shtml)
-- 2026-06-30 05:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/983997885.shtml)
-- 2026-06-30 05:49 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/445021894.shtml)
-- 2026-06-30 05:54 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/17384276949.shtml)
-- 2026-06-30 06:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/44641985.shtml)
-- 2026-06-30 05:37 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/520015399321.shtml)
-- 2026-06-30 05:42 - [一生一世](http://www.share.kurohicncr.top/Article/details/99715.shtml)
-- 2026-06-30 05:38 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/39112772700.shtml)
-- 2026-06-30 05:40 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/615083192.shtml)
-- 2026-06-30 05:49 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/8973144618.shtml)
-- 2026-06-30 05:56 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/60494871136.shtml)
-- 2026-06-30 05:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/67925.shtml)
+- 2026-06-30 05:47 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/77921.shtml)
+- 2026-06-30 05:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/90158399618.shtml)
+- 2026-06-30 06:05 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/497653095086.shtml)
+- 2026-06-30 05:57 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/822791208218.shtml)
+- 2026-06-30 06:10 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/9190497.shtml)
+- 2026-06-30 06:08 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/58977690.shtml)
+- 2026-06-30 06:00 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/66015.shtml)
+- 2026-06-30 06:07 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/9155976.shtml)
+- 2026-06-30 06:11 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/22829674735.shtml)
+- 2026-06-30 05:49 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/2766599080.shtml)
+- 2026-06-30 06:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/5692915.shtml)
+- 2026-06-30 05:53 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/97964.shtml)
+- 2026-06-30 05:58 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/9995207711.shtml)
+- 2026-06-30 06:06 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/60206526152.shtml)
+- 2026-06-30 05:53 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/967923.shtml)

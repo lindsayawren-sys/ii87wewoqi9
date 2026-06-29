@@ -1,59 +1,58 @@
-# 陆家嘴论坛，传来大消息！午后，沪指重回4100点，科技股再度走强
+# 东西问丨索朗卓玛：欧洲议会带上“滤镜”，看不见真实中国西藏
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|肖芮冬 每经编辑|赵云 6月17日，市场低开高走，创业板指、深成指均涨超1%，科创50指数涨超4.5%。截至收盘，沪指涨0.4%，深成指涨1.31%，创业板指涨1.56%。 板块来看，PCB概念爆发；半导体产业链表现活跃，存储芯片、半导体设备方向领涨；玻璃基板概念延续强势。下跌方面，煤炭板块震荡调
+中新社北京5月5日电 题：欧洲议会带上“滤镜”，看不见真实中国西藏 ——专访中国藏学研究中心宗教研究所副研究员索朗卓玛 中新社记者 安英昭 欧洲议会日前通过有关决议，对中国今年3月颁布实施的民族团结进步促进法横加指责。中国驻欧盟使团代表中方发表严正声明，指出有关决议罔顾事实和法理，恶意抹黑中国法律和民族政策，粗暴干涉中国内政。 中国藏学研究中心宗教研究所副研究员索朗卓玛接受中新
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京5月5日电 题：欧洲议会带上“滤镜”，看不见真实中国西藏 ——专访中国藏学研究中心宗教研究所副研究员索朗卓玛 中新社记者 安英昭 欧洲议会日前通过有关决议，对中国今年3月颁布实施的民族团结进步促进法横加指责。
 
-每经记者|肖芮冬 每经编辑|赵云 6月17日，市场低开高走，创业板指、深成指均涨超1%，科创50指数涨超4.5%。
+中国驻欧盟使团代表中方发表严正声明，指出有关决议罔顾事实和法理，恶意抹黑中国法律和民族政策，粗暴干涉中国内政。
 
-截至收盘，沪指涨0.4%，深成指涨1.31%，创业板指涨1.56%。
+中国藏学研究中心宗教研究所副研究员索朗卓玛接受中新社“东西问”专访时指出，欧洲议会的抹黑与歪曲恰与现实相反。
 
-板块来看，PCB概念爆发；半导体产业链表现活跃，存储芯片、半导体设备方向领涨；玻璃基板概念延续强势。
+“今日西藏，宗教信仰自由得到充分保障，宗教文化在传承中创新发展，宗教界与各族群众同心同德、和睦共处。
 
-下跌方面，煤炭板块震荡调整。
+” 现将访谈实录摘要如下： 中新社记者：欧洲议会有关决议指责中国民族团结进步促进法“限制中国境内及境外各群体的文化、宗教和语言自由”。
 
-全市场超3700只个股下跌。
+作为藏族学者，在您看来真实状况究竟如何？
 
-沪深两市成交额3.09万亿元，较上一个交易日放量271亿。
+索朗卓玛：宗教信仰自由是中国宪法和有关法律赋予公民的基本权利，在西藏得到真切落实与充分保障。
 
-今天盘前，不少人的预期是“A股要调整”，原因主要有三： （1）科技线已连涨两天，累积一定获利盘； （2）今天是本周“出金日”，场内资金存在结账需要； （3）为应对即将到来的美联储主席沃什首秀，隔夜美股、早盘日韩股市均有所调整，影响A股开盘情绪。
+在西藏，藏传佛教、苯教、伊斯兰教、天主教等多种宗教和谐并存，藏传佛教内部各教派平等相处，信教与不信教公民一律平等，没有人因信仰不同受到歧视或不公对待。
 
 ## 相关推荐
 
-- 2026-06-30 05:54 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 05:57 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 05:57 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 06:00 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 05:40 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 06:04 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 05:49 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 05:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 06:01 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 05:38 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 05:51 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 05:39 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 05:46 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 05:50 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 06:08 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 05:49 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 05:47 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 05:43 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 05:52 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 05:56 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 05:59 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 06:00 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 05:46 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 05:52 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 05:47 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/249877.shtml)
-- 2026-06-30 05:36 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/660641144.shtml)
-- 2026-06-30 05:38 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/61232352072.shtml)
-- 2026-06-30 05:51 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/620946251384.shtml)
-- 2026-06-30 05:51 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/62108901.shtml)
-- 2026-06-30 05:49 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/107684.shtml)
-- 2026-06-30 06:05 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/44573508.shtml)
-- 2026-06-30 05:48 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/773316.shtml)
-- 2026-06-30 06:03 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/00668.shtml)
-- 2026-06-30 05:55 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/6164345585.shtml)
-- 2026-06-30 05:50 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/65207444.shtml)
-- 2026-06-30 05:53 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/9859224.shtml)
-- 2026-06-30 06:03 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/6475037105.shtml)
-- 2026-06-30 05:53 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.kurohicncr.top/Article/details/23515066054.shtml)
-- 2026-06-30 05:59 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/01047.shtml)
+- 2026-06-30 05:50 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/757684312.shtml)
+- 2026-06-30 05:56 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/83641224.shtml)
+- 2026-06-30 06:06 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/753941.shtml)
+- 2026-06-30 06:07 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/201918.shtml)
+- 2026-06-30 06:05 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/826041.shtml)
+- 2026-06-30 05:53 - [千与千寻](https://www.share.kurohicncr.top/Article/details/880639735415.shtml)
+- 2026-06-30 05:45 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/3767549510.shtml)
+- 2026-06-30 05:42 - [日本进球](http://www.blog.minike.top/Article/details/486652.shtml)
+- 2026-06-30 05:46 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/5836983.shtml)
+- 2026-06-30 05:52 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/70422.shtml)
+- 2026-06-30 06:02 - [内马尔替补](http://www.share.minike.top/Article/details/31072011.shtml)
+- 2026-06-30 05:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/116866824.shtml)
+- 2026-06-30 05:53 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/098813309520.shtml)
+- 2026-06-30 05:42 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/92001469.shtml)
+- 2026-06-30 05:48 - [巴西2比1日本](https://www.share.minike.top/Article/details/1732854.shtml)

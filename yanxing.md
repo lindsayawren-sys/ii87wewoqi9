@@ -1,58 +1,57 @@
-# 高盛Kaplan：美联储或在秋季“连环加息”
+# Anthropic创始人警告：部分软件企业将彻底破产
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-来源：华尔街见闻 高盛副董事长Kaplan发出严厉警告：若通胀数据持续顽固，美联储最早秋季重启加息，且极可能连续出手2至3次。叠加新任主席沃什鹰派转向、官方PCE通胀预期骤升至3.6%，市场宽松幻想彻底破灭——首次加息预期从2027年3月骤然提前至今年10月。 美联储鹰派立场的实质性强化与前高官的严厉警告，正在彻底击碎市场的宽松幻想，引发利率衍生品与现货市场的剧烈重定价。 高盛
+人工智能公司 Anthropic 首席执行官达里奥・阿莫代伊表示，无法顺应人工智能浪潮完成转型的 SaaS（软件即服务） 企业，或将走向覆灭。 阿莫代伊在 Anthropic 举办的金融服务专题峰会上，与记者安德鲁・罗斯・索尔金、摩根大通 CEO 杰米・戴蒙对话时发表了上述观点。 索尔金先是向戴蒙提问：随着人工智能发展，软件行业企业将面临何种格局变化，随后又向阿莫代伊提出了同样
 
 ## 正文
 
-来源：华尔街见闻 高盛副董事长Kaplan发出严厉警告：若通胀数据持续顽固，美联储最早秋季重启加息，且极可能连续出手2至3次。
+人工智能公司 Anthropic 首席执行官达里奥・阿莫代伊表示，无法顺应人工智能浪潮完成转型的 SaaS（软件即服务） 企业，或将走向覆灭。
 
-叠加新任主席沃什鹰派转向、官方PCE通胀预期骤升至3.6%，市场宽松幻想彻底破灭——首次加息预期从2027年3月骤然提前至今年10月。
+阿莫代伊在 Anthropic 举办的金融服务专题峰会上，与记者安德鲁・罗斯・索尔金、摩根大通 CEO 杰米・戴蒙对话时发表了上述观点。
 
-美联储鹰派立场的实质性强化与前高官的严厉警告，正在彻底击碎市场的宽松幻想，引发利率衍生品与现货市场的剧烈重定价。
+索尔金先是向戴蒙提问：随着人工智能发展，软件行业企业将面临何种格局变化，随后又向阿莫代伊提出了同样问题。
 
-高盛副董事长、前达拉斯联储主席 Rob Kaplan最新明确警告，若通胀数据未能降温，美联储最早可能在秋季重启加息，且这大概率不是单次行动，而是连续2至3次的系列收紧。
+阿莫代伊回应称，企业再也不能依靠自身软件的复杂壁垒构筑护城河、抵御竞争对手。
 
-这一鹰派言论叠加美联储主席沃什抗击通胀的强硬信号及大幅上调的官方通胀预测，直接导致掉期市场定价发生“大逆转”。
+“如果一家企业的竞争护城河只是‘我们的软件架构复杂、开发门槛高，只有我们能做，别人无法复刻’，这种优势正在彻底消失。
 
-交易员将首次加息预期从遥远的2027年3月大幅提前至今年10月。
+” 阿莫代伊表示。
 
-政策预期的急剧修正迅速向跨资产市场传导。
+他补充道：“当下整个 SaaS 老牌巨头群体最终走向如何，还存在很大不确定性。
 
-对利率最敏感的短期美债遭遇猛烈抛售，2年期美债收益率创下3月以来最大单日涨幅，并直接引发周四亚洲时段贵金属市场的恐慌性闪跌，金价失守4300美元关口。
+但个体 SaaS 企业市值缩水、陷入破产、彻底倒闭的可能性极大，最终结局取决于企业自身的应对转型。
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 05:49 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 05:57 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 05:41 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 05:52 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 05:42 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 05:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 05:55 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 05:41 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 06:02 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 05:37 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 06:04 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 06:05 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 06:04 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 05:58 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 05:48 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 05:52 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 06:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 05:47 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 05:47 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 05:47 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 05:48 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 05:45 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:56 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/9018138261.shtml)
-- 2026-06-30 05:53 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/576003.shtml)
-- 2026-06-30 05:49 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/05401941555.shtml)
-- 2026-06-30 05:47 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/413958.shtml)
-- 2026-06-30 05:56 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/350231688375.shtml)
-- 2026-06-30 05:57 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/09836857736.shtml)
-- 2026-06-30 06:03 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/008160670888.shtml)
-- 2026-06-30 05:58 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/917000.shtml)
-- 2026-06-30 05:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/66684209.shtml)
-- 2026-06-30 05:47 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/45001619475.shtml)
-- 2026-06-30 05:56 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/15651.shtml)
-- 2026-06-30 05:36 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/49621999.shtml)
-- 2026-06-30 05:36 - [一见倾心](https://www.share.minike.top/Article/details/57046.shtml)
-- 2026-06-30 05:36 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/89304468940.shtml)
-- 2026-06-30 05:45 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/80131.shtml)
+- 2026-06-30 06:02 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/00039088892.shtml)
+- 2026-06-30 05:47 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/0020190.shtml)
+- 2026-06-30 05:54 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/69670592309.shtml)
+- 2026-06-30 05:52 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/7952874081.shtml)
+- 2026-06-30 05:57 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/828402.shtml)
+- 2026-06-30 05:59 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/88153825.shtml)
+- 2026-06-30 05:47 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/431837657529.shtml)
+- 2026-06-30 05:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/995909605.shtml)
+- 2026-06-30 06:11 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/82286969.shtml)
+- 2026-06-30 05:46 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/84252715670.shtml)
+- 2026-06-30 05:49 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/668019830716.shtml)
+- 2026-06-30 06:01 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/4949326563.shtml)
+- 2026-06-30 05:59 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/068901816.shtml)
+- 2026-06-30 06:03 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/8650830866.shtml)
+- 2026-06-30 06:03 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/110334165.shtml)

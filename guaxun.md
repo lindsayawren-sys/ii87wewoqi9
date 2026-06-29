@@ -1,56 +1,49 @@
-# 孟广禄、杭间、孙晓云分别当选新一届中国剧协、中国民协、中国书协主席
+# 英国海事贸易行动办公室：一艘货船在霍尔木兹海峡被不明投射物击中
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-新华社北京6月18日电(记者王思北)中国戏剧家协会第十次全国代表大会、中国民间文艺家协会第十一次全国代表大会、中国书法家协会第九次全国代表大会18日分别在京闭幕。孟广禄当选中国戏剧家协会第十届主席、杭间当选中国民间文艺家协会第十一届主席、孙晓云当选中国书法家协会第九届主席。王勇、王馗、王红丽、王滨梅、尹晓东、田沁鑫、冯俐、冯远征、李梅、谷好好、陈涌泉、陈智林、曾小敏、谢涛当选中
+英国海事贸易行动办公室表示，收到一宗发生在霍尔木兹海峡的事件报告。 经核实消息来源称，一艘货船被不明投射物击中，对环境的影响尚不清楚，建议船只报告任何可疑活动，相关当局正在展开调查。责任编辑：李桐
 
 ## 正文
 
-新华社北京6月18日电(记者王思北)中国戏剧家协会第十次全国代表大会、中国民间文艺家协会第十一次全国代表大会、中国书法家协会第九次全国代表大会18日分别在京闭幕。
+英国海事贸易行动办公室表示，收到一宗发生在霍尔木兹海峡的事件报告。
 
-孟广禄当选中国戏剧家协会第十届主席、杭间当选中国民间文艺家协会第十一届主席、孙晓云当选中国书法家协会第九届主席。
+经核实消息来源称，一艘货船被不明投射物击中，对环境的影响尚不清楚，建议船只报告任何可疑活动，相关当局正在展开调查。
 
-王勇、王馗、王红丽、王滨梅、尹晓东、田沁鑫、冯俐、冯远征、李梅、谷好好、陈涌泉、陈智林、曾小敏、谢涛当选中国剧协第十届副主席。
-
-伊和白乙拉、刘晓春、安德明、孙立新、张宇、林继富、郑春辉、姚建萍、徐粤春、郭崇林、彭恒礼、谢亚平、蔡葩、漆凌云当选中国民协第十一届副主席。
-
-马勇明、王瑞、叶培贵、刘月卯、沈浩、张继、张红春、周斌、孟庆星、徐海、韩戾军、漆钢、颜奕端、潘善助当选中国书协第九届副主席。
-
-中国戏剧家协会第十次全国代表大会、中国民间文艺家协会第十一次全国代表大会、中国书法家协会第九次全国代表大会于6月17日至18日在北京召开。
-
-与会代表分别审议通过了工作报告，修订了《中国戏剧家协会章程》《中国民间文艺家协会章程》《中国书法家协会章程》，选举产生了中国戏剧家协会、中国民间文艺家协会、中国书法家协会新一届领导机构。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 05:44 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 05:44 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 06:02 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 05:37 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 05:50 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 05:36 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 05:59 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 05:58 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 05:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 05:53 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 05:42 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 05:42 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-30 05:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 06:10 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 05:43 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 05:59 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 05:47 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 06:07 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 05:46 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 05:59 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 05:59 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-30 05:45 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 05:43 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 06:03 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 06:07 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/868881048.shtml)
-- 2026-06-30 06:01 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/442266400.shtml)
-- 2026-06-30 05:51 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.kurohicncr.top/Article/details/477478230971.shtml)
-- 2026-06-30 05:36 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/116517237575.shtml)
-- 2026-06-30 05:59 - [森保一 保守](http://www.share.minike.top/Article/details/1020365664.shtml)
-- 2026-06-30 06:03 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/568412.shtml)
-- 2026-06-30 05:40 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/268249.shtml)
-- 2026-06-30 06:05 - [孙兴慜道歉](http://www.share.minike.top/Article/details/2617587.shtml)
-- 2026-06-30 05:49 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/88948032971.shtml)
-- 2026-06-30 05:58 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/87979254.shtml)
-- 2026-06-30 05:45 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/27352894.shtml)
-- 2026-06-30 05:52 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/6708083012.shtml)
-- 2026-06-30 06:05 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/36736.shtml)
-- 2026-06-30 05:53 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/37032.shtml)
-- 2026-06-30 05:55 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/28075756.shtml)
+- 2026-06-30 05:48 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/5793186824.shtml)
+- 2026-06-30 06:07 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/62031.shtml)
+- 2026-06-30 05:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/513020.shtml)
+- 2026-06-30 05:48 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/286802500.shtml)
+- 2026-06-30 05:49 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/907902.shtml)
+- 2026-06-30 06:05 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/034616946.shtml)
+- 2026-06-30 06:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/34355.shtml)
+- 2026-06-30 05:56 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/80462627.shtml)
+- 2026-06-30 06:08 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/86841467612.shtml)
+- 2026-06-30 06:05 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/56513838965.shtml)
+- 2026-06-30 05:48 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/946162900.shtml)
+- 2026-06-30 06:01 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/82666418825.shtml)
+- 2026-06-30 05:58 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/918927.shtml)
+- 2026-06-30 05:46 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/50586.shtml)
+- 2026-06-30 05:52 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/8392828.shtml)

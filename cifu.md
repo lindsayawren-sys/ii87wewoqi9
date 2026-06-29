@@ -1,53 +1,60 @@
-# 珠江流域持续暴雨 40条河流发生超警洪水
+# 晋祠博物馆一座移动厕所背后的治理智慧
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新社广州6月17日电 (记者 王坚)中国水利部珠江水利委员会(珠江委)17日通报称，受珠江流域近期持续强降雨影响，韩江、东江及北江上游出现明显涨水过程，40条河流发生超警洪水。 珠江委介绍，6月12日以来，珠江流域遭遇入汛以来最强降雨过程，降雨覆盖面积广，累计降雨量100毫米、50毫米以上暴雨笼罩面积分别为11.6万平方公里和29.37万平方公里，其中，韩江、东江累计面平均降
+中新网太原5月6日电 (记者 胡健)“五一”假期，山西太原晋祠博物馆一处卫生间的细微调整，成为游客镜头下的暖心话题。面对持续升温的文旅热，这座拥有悠久历史的古典园林，以一次“想在前头”的柔性管理，展现出精细化服务的治理能力，也折射出太原建设“锦绣太原城”的文旅新气象。 近年来，随着山西、太原文旅热度持续攀升，拥有2500年建城史的古都太原，凭借深厚底蕴与烟火气，让八方游客赞叹“
 
 ## 正文
 
-中新社广州6月17日电 (记者 王坚)中国水利部珠江水利委员会(珠江委)17日通报称，受珠江流域近期持续强降雨影响，韩江、东江及北江上游出现明显涨水过程，40条河流发生超警洪水。
+中新网太原5月6日电 (记者 胡健)“五一”假期，山西太原晋祠博物馆一处卫生间的细微调整，成为游客镜头下的暖心话题。
 
-珠江委介绍，6月12日以来，珠江流域遭遇入汛以来最强降雨过程，降雨覆盖面积广，累计降雨量100毫米、50毫米以上暴雨笼罩面积分别为11.6万平方公里和29.37万平方公里，其中，韩江、东江累计面平均降雨量分别达109毫米、129毫米。
+面对持续升温的文旅热，这座拥有悠久历史的古典园林，以一次“想在前头”的柔性管理，展现出精细化服务的治理能力，也折射出太原建设“锦绣太原城”的文旅新气象。
 
-受其影响，韩江、东江及北江上游出现明显涨水过程，永定河、古竹水等40条河流发生超警洪水，最大超警幅度0.03米至1.81米。
+近年来，随着山西、太原文旅热度持续攀升，拥有2500年建城史的古都太原，凭借深厚底蕴与烟火气，让八方游客赞叹“不虚此行”。
 
-面对严峻复杂的防汛形势，按照中国水利部部署要求，珠江委会同广东、福建省水利厅科学实施水库群联合调度，成功避免韩江、东江编号洪水发生，最大限度减轻了流域防洪压力。
+作为太原最重要的文化地标，晋祠是中国现存规模宏大、跨越时代久远的唐宋祠庙式古典园林，“不到晋祠，枉来太原”已成共识。
 
-(完)
+今年“五一”假期，晋祠博物馆一处卫生间的“微创新”，让游客在欣赏古建之美外，更感受到服务的温度。
+
+平日里，晋祠博物馆卫生间即到即用。
+
+但在超大客流高峰期，女性游客排长队是许多景区面临的共同挑战。
+
+为让女性游客拥有舒心体验，晋祠博物馆在假期前提前研判、精准施策：馆内所有卫生间正常开放，同时针对入口区域客流量较大的一处卫生间，在紧邻入口约5米处调配了一辆设施完备的大巴车移动卫生间，停靠在不影响通行与古建风貌的区域，作为女性厕位补充。
 
 ## 相关推荐
 
-- 2026-06-30 05:42 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 05:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 05:40 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 05:57 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 05:44 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 05:53 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 05:38 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 06:00 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 05:55 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 05:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 05:40 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 05:46 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-30 05:46 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 05:57 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 06:09 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 05:52 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 05:50 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 05:42 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 05:52 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 05:44 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 06:07 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 06:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 05:47 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 05:46 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 06:00 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 06:08 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 05:42 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/612468902003.shtml)
-- 2026-06-30 05:37 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/58205793.shtml)
-- 2026-06-30 05:40 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/3153389503.shtml)
-- 2026-06-30 05:40 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/7106763376.shtml)
-- 2026-06-30 06:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/9130006.shtml)
-- 2026-06-30 05:41 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/764061016.shtml)
-- 2026-06-30 05:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/895098150995.shtml)
-- 2026-06-30 05:48 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/41974.shtml)
-- 2026-06-30 05:37 - [扬名立万](https://www.share.minike.top/Article/details/249348227.shtml)
-- 2026-06-30 05:56 - [千与千寻](https://www.share.minike.top/Article/details/21753482.shtml)
-- 2026-06-30 05:56 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/36855499.shtml)
-- 2026-06-30 05:44 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/17849.shtml)
-- 2026-06-30 06:04 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/543638728.shtml)
-- 2026-06-30 06:01 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/087188498.shtml)
-- 2026-06-30 05:53 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/229283.shtml)
+- 2026-06-30 06:06 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/51659546093.shtml)
+- 2026-06-30 06:06 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/14192307339.shtml)
+- 2026-06-30 05:57 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/6471933.shtml)
+- 2026-06-30 05:43 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/842422559.shtml)
+- 2026-06-30 05:57 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/22173236736.shtml)
+- 2026-06-30 06:02 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/870645.shtml)
+- 2026-06-30 05:43 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/02241.shtml)
+- 2026-06-30 06:07 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/40405232696.shtml)
+- 2026-06-30 06:05 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/7483126.shtml)
+- 2026-06-30 06:10 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/679251137.shtml)
+- 2026-06-30 05:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/088006992.shtml)
+- 2026-06-30 05:56 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/954341294.shtml)
+- 2026-06-30 05:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/49726.shtml)
+- 2026-06-30 06:02 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/2142758.shtml)
+- 2026-06-30 05:51 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/3817445725.shtml)

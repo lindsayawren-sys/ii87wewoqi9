@@ -1,49 +1,59 @@
-# 谷歌Gemini项目联合负责人诺姆·沙泽尔确认将加入OpenAI
+# 泰国内阁批准4000亿泰铢紧急贷款以缓解能源危机
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-谷歌工程副总裁、Gemini人工智能模型联合负责人诺姆·沙泽尔（Noam Shazeer）周三表示，他将离开该公司，加入OpenAI。稍早有媒体报道，沙泽尔即将加入OpenAI。责任编辑：王永生
+中新社曼谷5月5日电 (记者 李映民)泰国副总理兼财政部长艾尼迪·尼迪甘巴帕5日在总理府向媒体透露，内阁当天批准了总额4000亿泰铢的紧急贷款以缓解能源危机引发的生活成本上涨的压力。 艾尼迪·尼迪甘巴帕是在内阁会议结束后披露这一消息的。他表示，该笔贷款非常有必要，因为能源价格上涨会影响到每个人。 他透露，该贷款的一半将用于帮助弱势群体，另一半将用于帮助相关企业从化石燃料向可再生
 
 ## 正文
 
-谷歌工程副总裁、Gemini人工智能模型联合负责人诺姆·沙泽尔（Noam Shazeer）周三表示，他将离开该公司，加入OpenAI。
+中新社曼谷5月5日电 (记者 李映民)泰国副总理兼财政部长艾尼迪·尼迪甘巴帕5日在总理府向媒体透露，内阁当天批准了总额4000亿泰铢的紧急贷款以缓解能源危机引发的生活成本上涨的压力。
 
-稍早有媒体报道，沙泽尔即将加入OpenAI。
+艾尼迪·尼迪甘巴帕是在内阁会议结束后披露这一消息的。
 
-责任编辑：王永生
+他表示，该笔贷款非常有必要，因为能源价格上涨会影响到每个人。
+
+他透露，该贷款的一半将用于帮助弱势群体，另一半将用于帮助相关企业从化石燃料向可再生能源的转型。
+
+他补充说，政府将努力降低民众生活成本，并推动清洁能源的使用。
+
+这些资金将从6月到9月使用，其中包括向2000多万低收入人群提供援助，以减轻他们的生活成本。
+
+据艾尼迪·尼迪甘巴帕介绍，3月份该国公共债务占GDP的66.4%，低于70%的上限，新增贷款不会超过这一上限。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:37 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 06:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 05:56 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 05:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 05:40 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 05:41 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 05:38 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 05:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 06:04 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 05:59 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 05:58 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 05:46 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 05:54 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 05:52 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 05:49 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 05:50 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 05:43 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 06:01 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 06:00 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 05:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 05:52 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 05:53 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 05:57 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 05:44 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 05:57 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 05:44 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:44 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/77232635619.shtml)
-- 2026-06-30 05:39 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/31554087187.shtml)
-- 2026-06-30 05:55 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/30729.shtml)
-- 2026-06-30 05:55 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/4007788459.shtml)
-- 2026-06-30 06:01 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/4159852.shtml)
-- 2026-06-30 05:44 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/9414754015.shtml)
-- 2026-06-30 05:38 - [巴西2比1日本](http://www.share.minike.top/Article/details/26242.shtml)
-- 2026-06-30 05:59 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/454106.shtml)
-- 2026-06-30 06:02 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/603706504615.shtml)
-- 2026-06-30 05:51 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/22850.shtml)
-- 2026-06-30 05:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/959646260.shtml)
-- 2026-06-30 05:40 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.kurohicncr.top/Article/details/23580734.shtml)
-- 2026-06-30 05:40 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/13693017011.shtml)
-- 2026-06-30 05:36 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/9242369459.shtml)
-- 2026-06-30 06:02 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/77521616.shtml)
+- 2026-06-30 06:04 - [世界杯](https://www.blog.kurohicncr.top/Article/details/5746199.shtml)
+- 2026-06-30 05:49 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/9166924000.shtml)
+- 2026-06-30 06:07 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/3973133.shtml)
+- 2026-06-30 05:55 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/150963779.shtml)
+- 2026-06-30 06:08 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/7050080819.shtml)
+- 2026-06-30 05:50 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/9144855240.shtml)
+- 2026-06-30 06:04 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/27709672.shtml)
+- 2026-06-30 05:49 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/59246.shtml)
+- 2026-06-30 06:04 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/56842.shtml)
+- 2026-06-30 05:54 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/015495300.shtml)
+- 2026-06-30 06:04 - [刘必安等16人非法集资案二审宣判](https://www.blog.kurohicncr.top/Article/details/252007.shtml)
+- 2026-06-30 05:50 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/112650400936.shtml)
+- 2026-06-30 06:01 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/00134.shtml)
+- 2026-06-30 06:01 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/30265085397.shtml)
+- 2026-06-30 06:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/007643501.shtml)

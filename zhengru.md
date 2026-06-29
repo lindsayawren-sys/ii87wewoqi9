@@ -1,61 +1,45 @@
-# 哈佛大学、巴德学院因与爱泼斯坦的关系再遭美国国会质询
+# 存储概念早盘集体高开 XL二南三星涨超20%澜起科技涨超13%
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-哈佛大学审查了与爱泼斯坦的关联，该校前校长劳伦斯·萨默斯也辞去了教职。巴德学院（Bard College）则表示，在对其与已故性犯罪者爱泼斯坦的交往进行调查后，任职多年的校长利昂·博特斯坦即将退休。 不过，美国众议院司法委员会的首席民主党人、众议员杰米·拉斯金周三致信这两所学校称，两所学校均未彻底查清其与爱泼斯坦的关联。 拉斯金的信件显示，巴德学院理事会的审查“忽略了更深层次的
+存储概念早盘集体高开，截至发稿，南方两倍做多三星电子（07747）上涨20.04%，报124.60港元；南方两倍做多海力士（07709）上涨18.70%，报71.22港元；澜起科技（06809）上涨13.07%，报311.40港元；兆易创新（03986）上涨9.44%，报510港元。责任编辑：卢昱君
 
 ## 正文
 
-哈佛大学审查了与爱泼斯坦的关联，该校前校长劳伦斯·萨默斯也辞去了教职。
+存储概念早盘集体高开，截至发稿，南方两倍做多三星电子（07747）上涨20.04%，报124.60港元；南方两倍做多海力士（07709）上涨18.70%，报71.22港元；澜起科技（06809）上涨13.07%，报311.40港元；兆易创新（03986）上涨9.44%，报510港元。
 
-巴德学院（Bard College）则表示，在对其与已故性犯罪者爱泼斯坦的交往进行调查后，任职多年的校长利昂·博特斯坦即将退休。
-
-不过，美国众议院司法委员会的首席民主党人、众议员杰米·拉斯金周三致信这两所学校称，两所学校均未彻底查清其与爱泼斯坦的关联。
-
-拉斯金的信件显示，巴德学院理事会的审查“忽略了更深层次的制度缺陷”。
-
-他在另一封信中写道，哈佛大学2020年的调查结果“充其量是不完整的”。
-
-拉斯金在信中要求这两所学校在7月1日前交出相关记录，包括爱泼斯坦与校方官员的通信、爱泼斯坦或其关联方的捐款，以及校方调查的细节。
-
-拉斯金还通过巴德学院要求博特斯坦安排与众议院司法委员会进行一次书面面谈。
-
-巴德学院和哈佛大学的代表表示，他们已收到信件。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 06:02 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-30 05:54 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 05:55 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 05:58 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 05:59 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-30 05:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 06:01 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 05:50 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 05:49 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 05:54 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 05:45 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 05:53 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 05:46 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 05:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 05:57 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 05:59 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 06:03 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 06:01 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 05:55 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 05:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 05:52 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 06:00 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 06:07 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 06:10 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 06:06 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:57 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/9045044.shtml)
-- 2026-06-30 05:58 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/645819570218.shtml)
-- 2026-06-30 05:50 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/3264166.shtml)
-- 2026-06-30 05:47 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/0834873.shtml)
-- 2026-06-30 05:55 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/7963426138.shtml)
-- 2026-06-30 05:49 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/1247158.shtml)
-- 2026-06-30 05:39 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/20810948069.shtml)
-- 2026-06-30 05:40 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/9113041830.shtml)
-- 2026-06-30 05:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/7914991082.shtml)
-- 2026-06-30 05:44 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/088716466081.shtml)
-- 2026-06-30 05:41 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/768879.shtml)
-- 2026-06-30 05:54 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/54840495.shtml)
-- 2026-06-30 05:59 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/78541438202.shtml)
-- 2026-06-30 05:38 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/56719391.shtml)
-- 2026-06-30 06:01 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/02328.shtml)
+- 2026-06-30 06:02 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/029601.shtml)
+- 2026-06-30 05:48 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/5981919.shtml)
+- 2026-06-30 05:49 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/8633967772.shtml)
+- 2026-06-30 05:43 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/842123665.shtml)
+- 2026-06-30 05:47 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/162609.shtml)
+- 2026-06-30 05:52 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/243096175765.shtml)
+- 2026-06-30 05:47 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/50521174269.shtml)
+- 2026-06-30 05:53 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/8928214756.shtml)
+- 2026-06-30 06:05 - [第一炉香](https://www.blog.minike.top/Article/details/538130367.shtml)
+- 2026-06-30 05:55 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/371812731154.shtml)
+- 2026-06-30 05:52 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/175679.shtml)
+- 2026-06-30 05:48 - [金刚川](https://www.blog.kurohicncr.top/Article/details/858671.shtml)
+- 2026-06-30 06:06 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/9454875.shtml)
+- 2026-06-30 06:07 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/07952026.shtml)
+- 2026-06-30 05:58 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/740366235.shtml)

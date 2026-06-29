@@ -1,60 +1,59 @@
-# 盛美上海龙虎榜：营业部净买入5.87亿元
+# 沃尔沃一季度汽车季度销量下滑 10%
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-6月17日盛美上海（688082）收盘价361.20元，收盘涨停，全天换手率2.51%，振幅22.40%，成交额39.53亿元。科创板交易公开信息显示，当日该股因日收盘价涨幅达15%等上榜。证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交16.37亿元， 其中，买入成交额为11.12亿元，卖出成交额为5.25亿元，合计净买入5.87亿元。具体来看，今日上榜的前五大买入营
+专题：聚焦美股2026年第一季度财报 整体销量走低，但纯电动车型销量同比上涨 14% 瑞典车企沃尔沃汽车公布季度销量下滑 10%，主要受中国市场竞争日趋激烈、美国消费者情绪持续低迷拖累。 沃尔沃周二表示，截至 4 月的三个月，全球汽车销量为162，864 辆。 受本土车企竞争冲击与宏观环境承压影响，沃尔沃在华销量表现疲软；同时美国消费者信心跌至历史低位，也拖累了整体销售。 尽管
 
 ## 正文
 
-6月17日盛美上海（688082）收盘价361.20元，收盘涨停，全天换手率2.51%，振幅22.40%，成交额39.53亿元。
+专题：聚焦美股2026年第一季度财报 整体销量走低，但纯电动车型销量同比上涨 14% 瑞典车企沃尔沃汽车公布季度销量下滑 10%，主要受中国市场竞争日趋激烈、美国消费者情绪持续低迷拖累。
 
-科创板交易公开信息显示，当日该股因日收盘价涨幅达15%等上榜。
+沃尔沃周二表示，截至 4 月的三个月，全球汽车销量为162，864 辆。
 
-证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交16.37亿元， 其中，买入成交额为11.12亿元，卖出成交额为5.25亿元，合计净买入5.87亿元。
+受本土车企竞争冲击与宏观环境承压影响，沃尔沃在华销量表现疲软；同时美国消费者信心跌至历史低位，也拖累了整体销售。
 
-具体来看，今日上榜的前五大买入营业部中，有2家机构专用席位现身，即买二、买五，买入金额分别为31702.63万元、10586.43万元，沪股通为第一大买入营业部，买入金额为38686.78万元，营业部合计买入3.02亿元。
+尽管整体销量下滑，纯电动车型销量同比仍增长 14%。
 
-卖出营业部中，有1家机构专用席位现身，即卖二，卖出金额分别为10835.72万元，沪股通为第四大卖出营业部，卖出金额为8194.39万元，营业部合计卖出3.35亿元。
+纯电动车销量占当期总销量比重接近四分之一。
 
-买卖金额相抵，机构专用席位今日净买入该股3.15亿元，沪股通今日净买入该股3.05亿元。
+此外，旗下轻混车型及传统燃油车型销量下滑 16%。
 
-资金流向方面，该股今日全天主力资金净流入1.96亿元。
-
-（数据宝）盛美上海6月17日龙虎榜注：本文系新闻报道，不构成投资建议，股市有风险，投资需谨慎。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 05:51 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 05:55 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 05:50 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 05:54 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 05:36 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 05:45 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 05:36 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 06:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 05:37 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 05:40 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 05:37 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 05:42 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 05:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 05:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 05:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 06:00 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 05:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 05:52 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 06:10 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 05:50 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 05:44 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 05:59 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 05:56 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 05:48 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 05:46 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 05:49 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 05:49 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 06:05 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:05 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/0428027.shtml)
-- 2026-06-30 05:47 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/292467.shtml)
-- 2026-06-30 05:36 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/3951494087.shtml)
-- 2026-06-30 05:58 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/87008.shtml)
-- 2026-06-30 05:37 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/09172198518.shtml)
-- 2026-06-30 05:45 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/22760.shtml)
-- 2026-06-30 05:50 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/941360007520.shtml)
-- 2026-06-30 05:57 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/946121981966.shtml)
-- 2026-06-30 05:42 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/6198745349.shtml)
-- 2026-06-30 06:05 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/6142872331.shtml)
-- 2026-06-30 05:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/050123336014.shtml)
-- 2026-06-30 05:37 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/05955.shtml)
-- 2026-06-30 06:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/219903385720.shtml)
-- 2026-06-30 06:03 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/45633.shtml)
-- 2026-06-30 06:04 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/090956944.shtml)
+- 2026-06-30 05:59 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/137283.shtml)
+- 2026-06-30 06:09 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/9927155727.shtml)
+- 2026-06-30 05:52 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/120331.shtml)
+- 2026-06-30 06:08 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/824923850.shtml)
+- 2026-06-30 05:43 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/136587541502.shtml)
+- 2026-06-30 06:10 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/22847381.shtml)
+- 2026-06-30 05:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/007405.shtml)
+- 2026-06-30 05:57 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/48360031633.shtml)
+- 2026-06-30 06:10 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/961841.shtml)
+- 2026-06-30 06:01 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/337641533368.shtml)
+- 2026-06-30 06:08 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/7885339.shtml)
+- 2026-06-30 06:01 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/23836366.shtml)
+- 2026-06-30 05:58 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/9765325827.shtml)
+- 2026-06-30 05:48 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/20980.shtml)
+- 2026-06-30 05:43 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/80719637947.shtml)

@@ -1,56 +1,60 @@
-# 广西民众逛“中医药夜市” 感受传统医药魅力
+# 伯里在科恩大手笔竞购eBay后清仓游戏驿站：切勿把负债当作创新
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新网柳州6月18日电(林馨)6月17日晚，2026年“百市千县”中医药文化惠民活动(广西站)暨中医药健康养生文化行启动仪式在广西柳州市举行。活动将传统中医药文化融入现代夜市生活，吸引大批民众前来“打卡”，沉浸式感受传统中医药的魅力。 本次活动以“活力中医药，健康惠万家”为主题，现场设置名中医义诊、特色技法体验、药膳品鉴及数智中医药体验等多个互动区域，实现“体验+科普”的深度融
+在游戏驿站高调出价收购 eBay 之后，迈克尔・伯里彻底清仓了所持全部游戏驿站股票。他表示，这笔交易高杠杆负债的做法，彻底打破了他长期看好该公司的投资逻辑。 伯里周一晚间在 Substack 专栏发文称：“我已卖出全部游戏驿站持仓。” “无论从哪个角度测算，我所秉持的‘即时版伯克希尔’投资逻辑，都无法接受债务 / 息税折旧摊销前利润超过 5 倍，也绝不能容忍利息保障倍数低于 4
 
 ## 正文
 
-中新网柳州6月18日电(林馨)6月17日晚，2026年“百市千县”中医药文化惠民活动(广西站)暨中医药健康养生文化行启动仪式在广西柳州市举行。
+在游戏驿站高调出价收购 eBay 之后，迈克尔・伯里彻底清仓了所持全部游戏驿站股票。
 
-活动将传统中医药文化融入现代夜市生活，吸引大批民众前来“打卡”，沉浸式感受传统中医药的魅力。
+他表示，这笔交易高杠杆负债的做法，彻底打破了他长期看好该公司的投资逻辑。
 
-本次活动以“活力中医药，健康惠万家”为主题，现场设置名中医义诊、特色技法体验、药膳品鉴及数智中医药体验等多个互动区域，实现“体验+科普”的深度融合。
+伯里周一晚间在 Substack 专栏发文称：“我已卖出全部游戏驿站持仓。
 
-在数智中医药体验区，68岁的张女士在工作人员的引导下，尝试人工智能把脉。
+” “无论从哪个角度测算，我所秉持的‘即时版伯克希尔’投资逻辑，都无法接受债务 / 息税折旧摊销前利润超过 5 倍，也绝不能容忍利息保障倍数低于 4 倍…… 因此，这是我开设 Substack 专栏以来首次做出减持卖出操作。
 
-她表示：“感觉机器把脉还是挺准的，报告里还给出了相应的饮食建议，很方便。
+” 游戏驿站向 eBay 发起主动非约束性收购邀约，报价每股 125 美元现金加股票，对 eBay 整体估值约555 亿美元。
 
-” 除了前沿的AI中医体验，现场的动手制作中草药活动也吸引了不少亲子家庭参与。
+该报价较 eBay 近期股价大幅溢价，但也令市场对交易融资方式产生巨大质疑。
 
-作为此次活动的承办方之一，广西药用植物园为民众带来了丰富的科普体验。
+目前游戏驿站自身市值不足120 亿美元。
 
-带着孩子前来参加活动的李女士说：“难得有机会让孩子亲手触摸、制作中草药，了解这么多中医药知识。
+收购消息公布后，游戏驿站周一股价大跌约 10%，反映出投资者普遍质疑交易可行性，以及此举可能给公司资产负债表带来的巨大压力。
 
 ## 相关推荐
 
-- 2026-06-30 05:52 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 05:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 05:40 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 05:52 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 05:44 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-30 05:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 06:01 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 06:00 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 06:04 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 06:03 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 06:07 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 05:43 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 06:02 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 06:05 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 06:08 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 05:57 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 05:46 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 05:57 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 06:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 05:56 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 06:01 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 06:02 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 05:49 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 05:48 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/39218225606.shtml)
-- 2026-06-30 05:37 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/418596.shtml)
-- 2026-06-30 05:49 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/3285215.shtml)
-- 2026-06-30 05:55 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/140549216.shtml)
-- 2026-06-30 05:53 - [森保一 保守](http://www.blog.minike.top/Article/details/56875.shtml)
-- 2026-06-30 06:05 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/24275.shtml)
-- 2026-06-30 05:40 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/06641817.shtml)
-- 2026-06-30 05:59 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/813348038.shtml)
-- 2026-06-30 05:46 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/88913442847.shtml)
-- 2026-06-30 05:59 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/16169.shtml)
-- 2026-06-30 05:37 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/600614982277.shtml)
-- 2026-06-30 05:43 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/72105507164.shtml)
-- 2026-06-30 06:00 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/40973164.shtml)
-- 2026-06-30 06:05 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/357658968.shtml)
-- 2026-06-30 05:49 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/10744331.shtml)
+- 2026-06-30 05:53 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/12832060.shtml)
+- 2026-06-30 05:59 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/215446.shtml)
+- 2026-06-30 06:08 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/768558.shtml)
+- 2026-06-30 06:06 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/818078267795.shtml)
+- 2026-06-30 05:49 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/7017254.shtml)
+- 2026-06-30 05:45 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/355237954617.shtml)
+- 2026-06-30 05:47 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/69410.shtml)
+- 2026-06-30 05:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/21014.shtml)
+- 2026-06-30 06:05 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/647541.shtml)
+- 2026-06-30 05:52 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/7779274384.shtml)
+- 2026-06-30 05:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/704367421082.shtml)
+- 2026-06-30 05:50 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/98572252380.shtml)
+- 2026-06-30 05:43 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/09516072.shtml)
+- 2026-06-30 05:51 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/543570.shtml)
+- 2026-06-30 06:03 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/578938.shtml)

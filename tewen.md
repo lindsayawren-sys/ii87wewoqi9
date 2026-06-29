@@ -1,59 +1,59 @@
-# 11部门联合发文力推新能源重卡：完成道路交通脱碳的“最后一块拼图”
+# 印度Zee公司就涉嫌侵犯音乐版权一事起诉信实-迪士尼
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：美国环保协会 本文作者为美国环保协会（EDF）北京代表处企业伙伴关系主任冉泽、高级分析员李蕴洁。该团队致力于推动企业净零行动，并关注氢能可持续发展、储能、长途货运脱碳等议题。 在乘用车渗透率已经超过半壁江山的背景下，中国道路交通领域的清洁化转型正逐步向长途货运领域纵深推进。在交通领域“双碳”进程中，重
+法庭文件显示，印度Zee娱乐公司已起诉该国最大的娱乐公司——信实-迪士尼合资企业，指控其在许可协议到期后仍使用了Zee拥有版权的音乐。 此前未公开的法庭文件显示，Zee公司正寻求300万美元的赔偿，指控信实-迪士尼在流媒体平台及其部分电视频道上未经授权使用并利用了其音乐部门的作品。 这起在新德里提起的诉讼由路透首次报道，标志着Zee与由信实集团和迪士尼2024年85亿美元合并组
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+法庭文件显示，印度Zee娱乐公司已起诉该国最大的娱乐公司——信实-迪士尼合资企业，指控其在许可协议到期后仍使用了Zee拥有版权的音乐。
 
-来源：美国环保协会 本文作者为美国环保协会（EDF）北京代表处企业伙伴关系主任冉泽、高级分析员李蕴洁。
+此前未公开的法庭文件显示，Zee公司正寻求300万美元的赔偿，指控信实-迪士尼在流媒体平台及其部分电视频道上未经授权使用并利用了其音乐部门的作品。
 
-该团队致力于推动企业净零行动，并关注氢能可持续发展、储能、长途货运脱碳等议题。
+这起在新德里提起的诉讼由路透首次报道，标志着Zee与由信实集团和迪士尼2024年85亿美元合并组建的集团之间最新的法律冲突。
 
-在乘用车渗透率已经超过半壁江山的背景下，中国道路交通领域的清洁化转型正逐步向长途货运领域纵深推进。
+随着印度流媒体和广播市场的整合，这场纠纷凸显了内容权利方面日益加剧的紧张局势。
 
-在交通领域“双碳”进程中，重卡一直是减排难度最大的领域之一，而长途干线运输更是其中最具挑战性的环节，可谓“难点中的难点”。
+Zee集团与JioStar（由印度亿万富翁穆克什·安巴尼旗下的信实集团主导的信实-迪士尼合资企业）均拒绝置评。
 
-近日，交通运输部等11部门联合发布《推动新能源重卡规模化应用实施方案》（以下简称：《实施方案》），提出到2030年，新能源重卡渗透率达到40%，打造零碳公路运输通道，高速公路新能源重卡货运量占比达到18%等目标，标志着中国道路交通向全面清洁化迈出了重要一步，也可以说补上了道路交通脱碳最难的一块“拼图”。
+Zee与信实集团目前还在伦敦进行仲裁，信实集团要求Zee就其2024年退出板球授权协议一事赔偿10亿美元 。
 
-总体而言，该方案有以下几方面亮点—— 新能源重卡不仅是实现道路交通减碳的重要抓手，同时对于改善空气质量也具有重要意义。
+Zee否认存在任何不当行为，并正在对该索赔提出异议。
 
-长期以来，柴油重卡一直是道路交通领域空气污染的重要来源——《中国移动源环境年报》显示，2024年全国货车排放的氮氧化物占汽车总排放的83%，颗粒物占比更是高达90.4%。
+Zee在4月14日提交的1，800页诉讼文件中指控，在2024年和2025年某些授权协议到期且因商业条款分歧未获续签后，信实-迪士尼仍至少50次使用了其音乐作品。
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 05:53 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-30 05:48 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 05:39 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 05:54 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 05:58 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 05:49 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 05:50 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 05:52 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 05:38 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 06:03 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 05:41 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 05:37 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 05:58 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 06:02 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 05:52 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 05:48 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 06:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 05:49 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 06:00 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 05:54 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 05:57 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 06:02 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 06:08 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 06:09 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 05:52 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:48 - [巴西绝杀日本](http://www.share.minike.top/Article/details/198751664.shtml)
-- 2026-06-30 05:58 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/20466146.shtml)
-- 2026-06-30 05:51 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/0423394386.shtml)
-- 2026-06-30 05:36 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/070432.shtml)
-- 2026-06-30 05:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/173465.shtml)
-- 2026-06-30 05:56 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/97252066493.shtml)
-- 2026-06-30 05:59 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/0211253215.shtml)
-- 2026-06-30 05:54 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/407989005.shtml)
-- 2026-06-30 05:50 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/95198386190.shtml)
-- 2026-06-30 05:40 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/0477253604.shtml)
-- 2026-06-30 05:50 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/1035411897.shtml)
-- 2026-06-30 05:44 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/44211212.shtml)
-- 2026-06-30 05:39 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/1999635.shtml)
-- 2026-06-30 05:37 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/8092507.shtml)
-- 2026-06-30 05:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/609763692690.shtml)
+- 2026-06-30 06:01 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/293301.shtml)
+- 2026-06-30 05:49 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/6294379.shtml)
+- 2026-06-30 06:01 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/05104.shtml)
+- 2026-06-30 06:10 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/00708.shtml)
+- 2026-06-30 05:56 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/7692002898.shtml)
+- 2026-06-30 05:45 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/866439830110.shtml)
+- 2026-06-30 05:42 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/846018112205.shtml)
+- 2026-06-30 05:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/30868.shtml)
+- 2026-06-30 05:43 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/735523024.shtml)
+- 2026-06-30 05:52 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/95730385.shtml)
+- 2026-06-30 05:52 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/157940994652.shtml)
+- 2026-06-30 05:58 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/22198.shtml)
+- 2026-06-30 05:58 - [恋与深空 巧合](https://www.share.minike.top/Article/details/1267189.shtml)
+- 2026-06-30 05:43 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/09229518.shtml)
+- 2026-06-30 05:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/129422606.shtml)

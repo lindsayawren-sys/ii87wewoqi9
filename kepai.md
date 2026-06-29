@@ -1,56 +1,56 @@
-# 银行分红密集落地 16家银行6月份完成 金额435亿
+# 欧盟各国与立法者就简化版人工智能法规达成初步协议
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-进入6月份，上市银行年度分红密集落地，有10家银行已经完成分红，加上5月份5家银行，一共有15家银行完成了分红。还有6家银行宣布将在6月完成分红。除了郑州银行，A股共有41家上市银行确定实施2025年度分红，全年累计派发现金红利 6456.37亿元 （含中期分红），较2024年增加约135亿元。6月8日，上海银行完成红利发放，根据分配方案每股分红现金0.22元，共计派发31.2
+欧盟各国与欧洲议会议员周四就一项经简化的里程碑式人工智能（AI）法规达成一致，其中包括推迟实施时间。批评人士认为，此举表明欧洲向科技巨头让步。 这项初步协议是在历经九小时谈判后达成的，未来数月内仍需获得欧盟各国政府和欧洲议会的正式批准。“今天就《人工智能法案》达成的协议，将通过降低重复性行政成本，为企业提供有力支持，”塞浦路斯欧洲事务副部长Marilena Raouna在一份声
 
 ## 正文
 
-进入6月份，上市银行年度分红密集落地，有10家银行已经完成分红，加上5月份5家银行，一共有15家银行完成了分红。
+欧盟各国与欧洲议会议员周四就一项经简化的里程碑式人工智能（AI）法规达成一致，其中包括推迟实施时间。
 
-还有6家银行宣布将在6月完成分红。
+批评人士认为，此举表明欧洲向科技巨头让步。
 
-除了郑州银行，A股共有41家上市银行确定实施2025年度分红，全年累计派发现金红利 6456.37亿元 （含中期分红），较2024年增加约135亿元。
+这项初步协议是在历经九小时谈判后达成的，未来数月内仍需获得欧盟各国政府和欧洲议会的正式批准。
 
-6月8日，上海银行完成红利发放，根据分配方案每股分红现金0.22元，共计派发31.26亿。
+“今天就《人工智能法案》达成的协议，将通过降低重复性行政成本，为企业提供有力支持，”塞浦路斯欧洲事务副部长Marilena Raouna在一份声明中表示。
 
-加上2025年中期的42.63亿，2025年合计派发73.89亿。
+塞浦路斯目前担任欧盟轮值主席国。
 
-6月9日，常熟银行和紫金银行完成红利发放。
+该法案于2024年8月生效，其核心条款原计划分阶段实施，此次修订属于欧盟执委会推动简化一系列数字法规举措的一部分。
 
-常熟银行每股发放现金0.12元，共计派发3.98亿，每股转增股份0.1股，共计转增3.32亿股。
+简化举措的出台，源于企业抱怨监管规则重叠和繁文缛节削弱了其与美国及亚洲竞争对手抗衡的能力。
 
-加上2025年中期派发的4.97亿，合计派发8.95亿。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 06:05 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 05:37 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 05:49 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 06:01 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 05:47 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 05:36 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 05:53 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 06:04 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 05:41 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 05:53 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 06:05 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 05:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 05:52 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 05:51 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 05:59 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 05:55 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 06:05 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 05:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 05:50 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/432493.shtml)
-- 2026-06-30 05:38 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/42091318276.shtml)
-- 2026-06-30 06:00 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/9667811051.shtml)
-- 2026-06-30 06:04 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/66161083093.shtml)
-- 2026-06-30 05:38 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/098670268759.shtml)
-- 2026-06-30 06:05 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/542663426999.shtml)
-- 2026-06-30 06:03 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/712039.shtml)
-- 2026-06-30 06:02 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/0107414363.shtml)
-- 2026-06-30 05:52 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/677475293.shtml)
-- 2026-06-30 05:38 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/16133869.shtml)
-- 2026-06-30 05:53 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/093923226610.shtml)
-- 2026-06-30 05:58 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/9420488.shtml)
-- 2026-06-30 05:45 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/36459853896.shtml)
-- 2026-06-30 05:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/871738.shtml)
-- 2026-06-30 06:05 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/0518135.shtml)
+- 2026-06-30 06:06 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/530388018117.shtml)
+- 2026-06-30 05:50 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/7060519024.shtml)
+- 2026-06-30 06:11 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/9886018.shtml)
+- 2026-06-30 06:06 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/95341042050.shtml)
+- 2026-06-30 05:58 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/981112.shtml)
+- 2026-06-30 05:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/163909051552.shtml)
+- 2026-06-30 05:54 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/572227062.shtml)
+- 2026-06-30 06:01 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/74975127.shtml)
+- 2026-06-30 06:11 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/04891.shtml)
+- 2026-06-30 06:10 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/376783.shtml)
+- 2026-06-30 06:07 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/537741223.shtml)
+- 2026-06-30 06:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/085986044255.shtml)
+- 2026-06-30 05:56 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/7669603.shtml)
+- 2026-06-30 05:43 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/7860228938.shtml)
+- 2026-06-30 05:56 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/90902596233.shtml)

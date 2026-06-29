@@ -1,61 +1,61 @@
-# 从北服到北欧：“经纬新章”展览在瑞典掀起东方美学热
+# 中国美妆市场回暖
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-近日，“经纬新章——中华服饰基因的当代叙事”国际巡展(瑞典站)在斯德哥尔摩中国文化中心开幕。该展为国家艺术基金2026年度传播交流推广资助项目，由北京服装学院与斯德哥尔摩中国文化中心联合主办，北京服装学院民族服饰博物馆承办。 中国驻瑞典大使周立民、大使夫人张国英，中国驻瑞典大使馆文化参赞兼斯德哥尔摩中国文化中心主任李蕊；国家艺术基金管理中心活动处处长刘立明、监督处干部穆含章；斯
+中国美妆市场正在持续释放回暖信号。近日，欧莱雅集团表示，今年一季度中国市场加速增长且持续领先整体市场复苏节奏。更早前，多家国际知名美妆集团发布的财报也显示，中国市场的复苏支撑了整体业绩增长。与此同时，中国美妆市场加速变化，新需求、新人群、新场景持续涌现，AI也在重塑行业的生产消费格局。 业绩修复，发展趋稳 “中国美妆市场正在稳健回暖。”4月27日，欧莱雅北亚总裁及中国首席执行官
 
 ## 正文
 
-近日，“经纬新章——中华服饰基因的当代叙事”国际巡展(瑞典站)在斯德哥尔摩中国文化中心开幕。
+中国美妆市场正在持续释放回暖信号。
 
-该展为国家艺术基金2026年度传播交流推广资助项目，由北京服装学院与斯德哥尔摩中国文化中心联合主办，北京服装学院民族服饰博物馆承办。
+近日，欧莱雅集团表示，今年一季度中国市场加速增长且持续领先整体市场复苏节奏。
 
-中国驻瑞典大使周立民、大使夫人张国英，中国驻瑞典大使馆文化参赞兼斯德哥尔摩中国文化中心主任李蕊；国家艺术基金管理中心活动处处长刘立明、监督处干部穆含章；斯德哥尔摩中国文化中心副主任戴卫红、艺术总监罗梅雨(Maria NordsøLundberg)；瑞典艺术家厄兰・冯・霍夫斯滕(Erland von Hofsten) ，当代女诗人许九梅，以及北京服装学院师生、瑞典友人、华侨华人代表和媒体嘉宾出席开幕系列活动。
+更早前，多家国际知名美妆集团发布的财报也显示，中国市场的复苏支撑了整体业绩增长。
 
-展览项目负责人、北京服装学院田辉教授作为主办方代表致辞。
+与此同时，中国美妆市场加速变化，新需求、新人群、新场景持续涌现，AI也在重塑行业的生产消费格局。
 
-他表示，中华服饰是“穿在身上的史书”，承载着深厚的民族底蕴与历史文化基因。
+业绩修复，发展趋稳 “中国美妆市场正在稳健回暖。
 
-展览汇聚两百余件匠心之作，有机融合传统民族服饰与当代原创设计，生动展现了中华服饰文化的传承与创新。
+”4月27日，欧莱雅北亚总裁及中国首席执行官博万尚在年度发展战略沟通会上作出这样的判断。
 
-主办方特邀来自“中国冰雪之乡”吉林长春的女诗人许九梅，现场演绎其原创诗作《长春颂》。
+背后是一串数据的支撑。
 
-诗歌融汇冰雪文化、北国风情与东方气韵，与展出的冬奥服饰作品交相呼应，实现服饰之美与文字诗意的双向交融。
+2025年欧莱雅中国继续展现强大韧性，加速增长，稳居中国美妆市场第一。
 
 ## 相关推荐
 
-- 2026-06-30 05:52 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 05:39 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 05:36 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 05:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 05:42 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 05:56 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 05:53 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 05:47 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 06:00 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-30 05:46 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 05:36 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 05:53 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 05:59 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 05:57 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 05:46 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 06:10 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 05:54 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 05:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 05:47 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 05:47 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 05:48 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 06:06 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 06:02 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 05:50 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 06:00 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 05:46 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 05:42 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 05:44 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 05:50 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 05:54 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [时光音乐会](https://www.share.minike.top/Article/details/11393935.shtml)
-- 2026-06-30 05:45 - [一见倾心](http://www.blog.minike.top/Article/details/9825460478.shtml)
-- 2026-06-30 06:01 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/103852220877.shtml)
-- 2026-06-30 05:55 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/094879376.shtml)
-- 2026-06-30 05:41 - [女心理师](https://www.share.kurohicncr.top/Article/details/531827089.shtml)
-- 2026-06-30 05:51 - [日本反击率先破门](http://www.blog.minike.top/Article/details/318126.shtml)
-- 2026-06-30 06:05 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/777784.shtml)
-- 2026-06-30 05:43 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/8749487904.shtml)
-- 2026-06-30 06:02 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/68136530.shtml)
-- 2026-06-30 05:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/428788740492.shtml)
-- 2026-06-30 06:05 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/232108548.shtml)
-- 2026-06-30 05:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/555242296598.shtml)
-- 2026-06-30 05:57 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/594664808.shtml)
-- 2026-06-30 05:45 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/7961997.shtml)
-- 2026-06-30 05:49 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/012453.shtml)
+- 2026-06-30 06:01 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/73563386.shtml)
+- 2026-06-30 05:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/5280091.shtml)
+- 2026-06-30 06:00 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/97464249680.shtml)
+- 2026-06-30 05:45 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/04186249.shtml)
+- 2026-06-30 06:11 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/506827.shtml)
+- 2026-06-30 05:50 - [金刚川](https://www.blog.minike.top/Article/details/6516603152.shtml)
+- 2026-06-30 06:09 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/37613948479.shtml)
+- 2026-06-30 05:51 - [美股](https://www.blog.minike.top/Article/details/725315133.shtml)
+- 2026-06-30 05:49 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/2069569663.shtml)
+- 2026-06-30 05:50 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/197587571221.shtml)
+- 2026-06-30 05:47 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/390114843.shtml)
+- 2026-06-30 05:54 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/8855758547.shtml)
+- 2026-06-30 05:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/3843158261.shtml)
+- 2026-06-30 06:10 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/0862088789.shtml)
+- 2026-06-30 06:07 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/73582018152.shtml)

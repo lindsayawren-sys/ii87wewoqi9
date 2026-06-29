@@ -1,53 +1,60 @@
-# 七部门：推动重点行业工业大模型与专用小模型协同开发部署
+# “五一”假期广州各口岸均迎进出境客流高峰
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-人民财讯6月18日电，工信部等七部门联合印发《促进平台经济大中小企业协同发展行动方案（2026—2028年）》。《行动方案》提出，持续引导平台互通互操作，建立完善平台互联互通标准体系与程序规则，加快明确数据接口标准化、业务流程互操作等技术要求。制定完善云平台间系统迁移和互联互通标准，加快业务和数据互联互通。加快探索通用模型与面向特定场景的专用模型协同模式，依托工业互联网平台打通
+中新社广州5月5日电 (记者 许青青)第139届中国进出口商品交易会三期于5月1日至5月5日举办，现场客商云集，加之正逢“五一”假期，跨境旅游火热，广州各口岸均迎来进出境客流高峰。 广州海关所属广州白云机场海关物流监控处航空器监管科科长方平兰介绍，1日当天就迎来假期进出境监管高峰，监管了370多架次进出境航班和约6.2万名进出境人员。广州海关测算，“五一”假期(5月1日至5月5
 
 ## 正文
 
-人民财讯6月18日电，工信部等七部门联合印发《促进平台经济大中小企业协同发展行动方案（2026—2028年）》。
+中新社广州5月5日电 (记者 许青青)第139届中国进出口商品交易会三期于5月1日至5月5日举办，现场客商云集，加之正逢“五一”假期，跨境旅游火热，广州各口岸均迎来进出境客流高峰。
 
-《行动方案》提出，持续引导平台互通互操作，建立完善平台互联互通标准体系与程序规则，加快明确数据接口标准化、业务流程互操作等技术要求。
+广州海关所属广州白云机场海关物流监控处航空器监管科科长方平兰介绍，1日当天就迎来假期进出境监管高峰，监管了370多架次进出境航班和约6.2万名进出境人员。
 
-制定完善云平台间系统迁移和互联互通标准，加快业务和数据互联互通。
+广州海关测算，“五一”假期(5月1日至5月5日)，广州海关累计保障广州白云机场口岸进出境航班超1700架次，进出境人员约29万人次，同比增长约14%和16%，创历史同期新高。
 
-加快探索通用模型与面向特定场景的专用模型协同模式，依托工业互联网平台打通模型间交互接口，推动重点行业工业大模型与专用小模型协同开发部署。
+毗邻广交会展馆的琶洲港澳客运口岸迎来广交会参展客商返程高峰。
 
-加快智能体互联互通协议标准研制和推广应用，打通数据、工具与能力壁垒，实现异构智能体间的任务协同与资源互操作。
+为保障境外客商返程通关，广州海关所属广州会展中心海关开设“广交会来宾便捷通道”。
 
-责任编辑：刘万里 SF014
+据测算，“五一”假期，该海关累计监管进出境旅客约1920人次，监管进出境船舶20艘次。
+
+在广州南沙，南沙客运港运营来往香港国际机场等多条航线，“五一”假期，广州海关所属南沙海关监管经南沙客运港进出境旅客超3500人次，日均客流量较假期前增长约75%。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:57 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 06:00 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 05:43 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 05:44 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 05:53 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 05:36 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 05:39 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 05:45 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 05:54 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 05:57 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 06:04 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 06:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 05:49 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 06:05 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 05:55 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 05:55 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 05:44 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 06:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 05:59 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 05:59 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 05:56 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 06:04 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 06:03 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 06:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 06:02 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/514653.shtml)
-- 2026-06-30 05:39 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/740882464.shtml)
-- 2026-06-30 05:44 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/29743.shtml)
-- 2026-06-30 06:02 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/65062360910.shtml)
-- 2026-06-30 05:59 - [日本反击率先破门](https://www.blog.minike.top/Article/details/79046.shtml)
-- 2026-06-30 05:36 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/76940232170.shtml)
-- 2026-06-30 06:04 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/42241584.shtml)
-- 2026-06-30 05:39 - [85花告别古偶](https://www.share.minike.top/Article/details/19387470.shtml)
-- 2026-06-30 05:41 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/6177784866.shtml)
-- 2026-06-30 06:05 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/63722.shtml)
-- 2026-06-30 06:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/40742673506.shtml)
-- 2026-06-30 05:55 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/4102361912.shtml)
-- 2026-06-30 05:56 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/537658338.shtml)
-- 2026-06-30 05:59 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/4954831.shtml)
-- 2026-06-30 05:54 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/78052377956.shtml)
+- 2026-06-30 05:46 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/85820056033.shtml)
+- 2026-06-30 05:49 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/0216940.shtml)
+- 2026-06-30 05:45 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/5562451041.shtml)
+- 2026-06-30 05:47 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/9151037477.shtml)
+- 2026-06-30 05:48 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/4475423.shtml)
+- 2026-06-30 05:46 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/89900972900.shtml)
+- 2026-06-30 05:50 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/44096.shtml)
+- 2026-06-30 05:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/2775052897.shtml)
+- 2026-06-30 05:53 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/555616.shtml)
+- 2026-06-30 06:00 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/51441.shtml)
+- 2026-06-30 06:02 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/30602722349.shtml)
+- 2026-06-30 05:43 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/5316159707.shtml)
+- 2026-06-30 05:56 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/17709.shtml)
+- 2026-06-30 05:57 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/607565125588.shtml)
+- 2026-06-30 06:00 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/14625.shtml)

@@ -1,59 +1,57 @@
-# 台设“联系窗口”网站搜集大陆情报 国台办：强烈谴责、坚决反制
+# 山西晋城：千年老街焕新彩 文旅盛宴醉游人
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新社北京6月17日电 (刘大炜 黄欣欣)台安全部门近日称，已完成建置所谓“联系窗口”网站，作为大陆民众提供情报的管道。对此，国务院台办新闻发言人陈斌华17日表示强烈谴责，并指将坚决反制。 国台办例行新闻发布会当天在北京举行。陈斌华表示，民进党当局公然以大陆为目标进行情报窃取和渗透破坏活动，升高两岸对立、破坏两岸关系，充分暴露其“台独”立场冥顽不化、对抗思维执迷不悟。 陈斌华指
+中新网晋城5月5日电 (杨佩佩 高俊明)“五一”假期，山西省晋城市城区南大街以“‘晋’享好戏 花漾凤城”为核心，开启文化艺术周活动。千年古街深挖历史文脉与本土文化底蕴，将传统演艺、非遗韵律、潮流体验与市井烟火完美相融，让老街焕发新活力，成为全市假期热门文旅打卡地。 本次南大街文化艺术周活动全方位打造沉浸式文旅体验场景，让游客在青石板路与古巷风貌中，感受老城底蕴，品味文化魅力。文
 
 ## 正文
 
-中新社北京6月17日电 (刘大炜 黄欣欣)台安全部门近日称，已完成建置所谓“联系窗口”网站，作为大陆民众提供情报的管道。
+中新网晋城5月5日电 (杨佩佩 高俊明)“五一”假期，山西省晋城市城区南大街以“‘晋’享好戏 花漾凤城”为核心，开启文化艺术周活动。
 
-对此，国务院台办新闻发言人陈斌华17日表示强烈谴责，并指将坚决反制。
+千年古街深挖历史文脉与本土文化底蕴，将传统演艺、非遗韵律、潮流体验与市井烟火完美相融，让老街焕发新活力，成为全市假期热门文旅打卡地。
 
-国台办例行新闻发布会当天在北京举行。
+本次南大街文化艺术周活动全方位打造沉浸式文旅体验场景，让游客在青石板路与古巷风貌中，感受老城底蕴，品味文化魅力。
 
-陈斌华表示，民进党当局公然以大陆为目标进行情报窃取和渗透破坏活动，升高两岸对立、破坏两岸关系，充分暴露其“台独”立场冥顽不化、对抗思维执迷不悟。
+文庙巷口，“花漾凤城一路有戏”街区行进式表演成为一大亮点，表演队伍移步换景，与古色古香的街巷建筑、青砖黛瓦相得益彰，勾勒出“一步一景、一景一戏”的唯美画卷。
 
-陈斌华指出，依照有关法律规定，中国公民、各政党和人民团体、企业事业组织和其他社会组织都有维护安全的责任和义务。
+非遗广场上，“最晋城最动听”古建音乐会悠扬奏响，成为老街人气聚集地。
 
-对于向台湾情报机构提供情报、构成犯罪的，有关部门将依法追究其法律责任。
+独具特色的老式录音机舞台造型吸睛十足，传统音律与现代潮流音乐碰撞交融，既有本土民俗曲调的温婉绵长，又有潮流乐曲的青春活力，灯光随旋律变幻，游客们自发打开手机闪光灯，跟着节奏合唱互动，用音乐点亮老街夜空，勾勒出兼具烟火气与文艺感的诗意画面。
 
-针对陆委会发言人近日称是大陆方面改变台海“现状”，陈斌华表示，世界上只有一个中国，台湾是中国的一部分，这是不容置疑的历史和法理事实，也是真正的台海现状。
+漫步南大街，既能触摸千年老街的历史厚重感，感受老城街巷的岁月积淀，又能沉浸式参与丰富的文化活动，解锁多元文旅体验。
 
-民进党当局无论打着什么幌子，都掩盖不了其妄图把台湾从中国分裂出去的“台独”本质。
+古街两侧，剪纸、面塑等非遗技艺展示让游客近距离感受非遗魅力，本土特色小吃勾起浓浓乡愁，让游客在游玩之余，品味晋城独特的风味与文化。
 
 ## 相关推荐
 
-- 2026-06-30 06:04 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 05:47 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 05:53 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 05:36 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 05:42 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 05:41 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 06:05 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 05:39 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 05:53 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 05:54 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 05:54 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 05:40 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 05:59 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 05:48 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 05:55 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 06:05 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 05:57 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 05:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 06:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 06:01 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 05:49 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 05:43 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 05:46 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 05:51 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/87434831816.shtml)
-- 2026-06-30 05:39 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/223015.shtml)
-- 2026-06-30 05:58 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/641475672.shtml)
-- 2026-06-30 05:51 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/1897626.shtml)
-- 2026-06-30 05:45 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/92041739783.shtml)
-- 2026-06-30 05:49 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/7224526.shtml)
-- 2026-06-30 06:02 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/9701419211.shtml)
-- 2026-06-30 05:46 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/9241338110.shtml)
-- 2026-06-30 05:49 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/36320441.shtml)
-- 2026-06-30 05:54 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/75664389.shtml)
-- 2026-06-30 05:44 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/13495651.shtml)
-- 2026-06-30 05:44 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/354639395653.shtml)
-- 2026-06-30 05:38 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/01037.shtml)
-- 2026-06-30 05:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/48483782.shtml)
-- 2026-06-30 05:54 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/80710383.shtml)
+- 2026-06-30 06:01 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/423741.shtml)
+- 2026-06-30 06:05 - [急先锋](http://www.blog.minike.top/Article/details/7508015.shtml)
+- 2026-06-30 05:59 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/721169.shtml)
+- 2026-06-30 06:08 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/909594429345.shtml)
+- 2026-06-30 06:03 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/436458172.shtml)
+- 2026-06-30 06:00 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/592949.shtml)
+- 2026-06-30 06:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/05537915024.shtml)
+- 2026-06-30 05:51 - [扬名立万](http://www.share.minike.top/Article/details/5212851401.shtml)
+- 2026-06-30 06:06 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/86355.shtml)
+- 2026-06-30 05:43 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/6911360965.shtml)
+- 2026-06-30 06:11 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/01210.shtml)
+- 2026-06-30 06:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/35723.shtml)
+- 2026-06-30 05:45 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/4913207.shtml)
+- 2026-06-30 06:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/3256729499.shtml)
+- 2026-06-30 06:10 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/91300509.shtml)

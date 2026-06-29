@@ -1,58 +1,60 @@
-# 美联储“放鹰”，金价一度“闪跌”
+# 中医专家提醒立夏养生要健脾祛湿 适度运动
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-当地时间周三，美联储结束本月议息会议后宣布维持利率不变，利率决议符合市场预期。不过，新任主席沃什主导的政策声明已经明显转向鹰派，不再重申“密切关注就业和通胀两方面风险”，而是强调以“稳定物价”为首要目标。 此外， 美联储删除了以往的利率路径前瞻指引。利率“点阵图”中，半数决策者预计今年将至少加息一次。 受美联储“鹰派”信号影响，所有期限美债收益率全线上行，令风险资产价格承压，标
+发布时间：2026年05月06日 20:40 来源：中国新闻网 今年5月5日是农历立夏节气，也是夏季的第一个节气。立夏的到来，宣告春天结束，各地气温将逐步升高，降雨量增多，农作物长势旺盛。 岐黄学者、广东省中医院副院长杨志敏5月6日表示，立夏时节，气温渐升、雨水增多，自此开启湿与热交织的季节。此时人体气血运行最为旺盛，主要集中在身体的表层。心气当令，汗孔开泄，通过出汗来散发体内
 
 ## 正文
 
-当地时间周三，美联储结束本月议息会议后宣布维持利率不变，利率决议符合市场预期。
+发布时间：2026年05月06日 20:40 来源：中国新闻网 今年5月5日是农历立夏节气，也是夏季的第一个节气。
 
-不过，新任主席沃什主导的政策声明已经明显转向鹰派，不再重申“密切关注就业和通胀两方面风险”，而是强调以“稳定物价”为首要目标。
+立夏的到来，宣告春天结束，各地气温将逐步升高，降雨量增多，农作物长势旺盛。
 
-此外， 美联储删除了以往的利率路径前瞻指引。
+岐黄学者、广东省中医院副院长杨志敏5月6日表示，立夏时节，气温渐升、雨水增多，自此开启湿与热交织的季节。
 
-利率“点阵图”中，半数决策者预计今年将至少加息一次。
+此时人体气血运行最为旺盛，主要集中在身体的表层。
 
-受美联储“鹰派”信号影响，所有期限美债收益率全线上行，令风险资产价格承压，标普500指数十一大板块全数下跌，通信服务板块和非必需消费品板块领跌， 美国三大股指周三全线收跌 。
+心气当令，汗孔开泄，通过出汗来散发体内的热量，这是一个新陈代谢最快的季节。
 
-截至收盘，道指下跌0.98%，标普500指数下跌1.21%，纳指下跌1.34%。
+她表示，立夏养生关键在于防湿祛湿，需从饮食、运动两方面科学调理，守护身体健康。
 
-热门个股方面，周三SpaceX上市以来首次收跌，跌幅4.95%。
+杨志敏表示，日常吃瓜果时宜搭配生姜，避免过量食用生冷寒凉之物，保护脾胃阳气。
 
-美债收益率上行压制高成长股估值。
+同时不必刻意怕热避汗，适度出汗是排出湿气的重要途径。
 
 ## 相关推荐
 
-- 2026-06-30 05:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 05:42 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 05:50 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 05:39 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 05:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 05:40 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 05:44 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 05:55 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 05:42 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 05:46 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 05:42 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 05:51 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 05:48 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 06:11 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 06:01 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-30 05:53 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 05:42 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 05:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 06:00 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 05:52 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 05:59 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 05:42 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 06:03 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 06:00 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 05:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 05:52 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/645603.shtml)
-- 2026-06-30 05:37 - [美股](http://www.blog.kurohicncr.top/Article/details/25345556.shtml)
-- 2026-06-30 05:49 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/68940652574.shtml)
-- 2026-06-30 05:47 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/3797254.shtml)
-- 2026-06-30 05:36 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/470367520.shtml)
-- 2026-06-30 05:53 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/784989.shtml)
-- 2026-06-30 05:53 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/98356063.shtml)
-- 2026-06-30 05:41 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/86220.shtml)
-- 2026-06-30 06:05 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/39826868.shtml)
-- 2026-06-30 05:56 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/320339898.shtml)
-- 2026-06-30 05:36 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/568214.shtml)
-- 2026-06-30 05:50 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/45696513.shtml)
-- 2026-06-30 05:51 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/868254754.shtml)
-- 2026-06-30 05:54 - [美股](https://www.share.kurohicncr.top/Article/details/40359271.shtml)
-- 2026-06-30 05:59 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/257537730.shtml)
+- 2026-06-30 05:55 - [森保一 保守](http://www.share.minike.top/Article/details/23694013050.shtml)
+- 2026-06-30 05:53 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/19350077.shtml)
+- 2026-06-30 05:49 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/7143040389.shtml)
+- 2026-06-30 06:00 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/32500089.shtml)
+- 2026-06-30 06:06 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/888052648.shtml)
+- 2026-06-30 05:56 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/94945.shtml)
+- 2026-06-30 06:01 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/542249608197.shtml)
+- 2026-06-30 05:44 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/2577706273.shtml)
+- 2026-06-30 05:53 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/324500.shtml)
+- 2026-06-30 06:00 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/2501236.shtml)
+- 2026-06-30 05:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/311129854650.shtml)
+- 2026-06-30 06:00 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/474369219144.shtml)
+- 2026-06-30 05:59 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/715152207.shtml)
+- 2026-06-30 05:49 - [啊啊啊](http://www.share.minike.top/Article/details/4342456149.shtml)
+- 2026-06-30 06:08 - [沉睡花园](http://www.share.minike.top/Article/details/291299.shtml)

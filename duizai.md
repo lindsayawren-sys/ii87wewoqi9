@@ -1,54 +1,56 @@
-# 美商务部暂缓将多家中国公司列入实体清单，外交部：一贯反对美方滥用实体清单等工具
+# 欧盟向美国表示贸易协议应在7月最后期限前落实
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-6月17日，外交部发言人林剑主持例行记者会。法新社记者提问，美国商务部为避免与中国紧张关系升级，暂缓将包括深度求索（DeepSeek）和一家大型芯片制造商在内的多家中国公司列入实体清单。请问外交部对此有何评论？ 林剑表示，中方一贯反对美方泛化国家安全概念，滥用实体清单等出口管制的工具，遏制打压中方企业。美方应停止将经贸科技问题政治化、工具化、武器化。责任编辑：刘万里 SF014
+欧盟希望到7月落实与美国贸易协议的主要内容，同时敦促华盛顿遵守协议中的既有承诺。 欧盟执行机构欧盟委员会发言人表示，欧盟贸易专员Maros Sefcovic周二在巴黎与美国贸易代表贾米森·格里尔会晤时传达了上述信息。 “如果能在协议签署一周年之前落实协议的主要内容，将是有益的，”该发言人表示。 在美国总统唐纳德·特朗普表示将对欧洲汽车和卡车征收25%的关税，并指责欧盟未履行先前
 
 ## 正文
 
-6月17日，外交部发言人林剑主持例行记者会。
+欧盟希望到7月落实与美国贸易协议的主要内容，同时敦促华盛顿遵守协议中的既有承诺。
 
-法新社记者提问，美国商务部为避免与中国紧张关系升级，暂缓将包括深度求索（DeepSeek）和一家大型芯片制造商在内的多家中国公司列入实体清单。
+欧盟执行机构欧盟委员会发言人表示，欧盟贸易专员Maros Sefcovic周二在巴黎与美国贸易代表贾米森·格里尔会晤时传达了上述信息。
 
-请问外交部对此有何评论？
+“如果能在协议签署一周年之前落实协议的主要内容，将是有益的，”该发言人表示。
 
-林剑表示，中方一贯反对美方泛化国家安全概念，滥用实体清单等出口管制的工具，遏制打压中方企业。
+在美国总统唐纳德·特朗普表示将对欧洲汽车和卡车征收25%的关税，并指责欧盟未履行先前承诺之后，美欧贸易关系再度濒临冲突加剧。
 
-美方应停止将经贸科技问题政治化、工具化、武器化。
+特朗普对欧盟耗时数月仍未正式批准双方去年7月初步达成的贸易协议感到不满。
 
-责任编辑：刘万里 SF014
+但欧盟坚称，这只是按立法程序推进，并计划在6月批准该协议。
+
+根据协议，欧盟同意取消对美国工业品的关税，换取对包括汽车在内的大多数欧洲产品设定15%的关税上限。
+
+这意味着，如果特朗普真的实施25%的汽车关税，将违反去年作出的承诺。
 
 ## 相关推荐
 
-- 2026-06-30 06:05 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 05:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 06:00 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 06:04 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 05:51 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 05:43 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 05:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 05:38 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 05:53 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 05:48 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 06:02 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 05:51 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 05:57 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 06:00 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 05:57 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 05:56 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 05:43 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 06:05 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 05:56 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 05:48 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 06:08 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 05:44 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:55 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/11495309239.shtml)
-- 2026-06-30 05:45 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/08940363.shtml)
-- 2026-06-30 05:50 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/77019251.shtml)
-- 2026-06-30 05:51 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/142982827.shtml)
-- 2026-06-30 05:58 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/702336044.shtml)
-- 2026-06-30 05:51 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/2298512204.shtml)
-- 2026-06-30 05:42 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/2966440.shtml)
-- 2026-06-30 05:38 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/55347663.shtml)
-- 2026-06-30 05:40 - [日本进球](http://www.share.kurohicncr.top/Article/details/40274.shtml)
-- 2026-06-30 05:38 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/10941603567.shtml)
-- 2026-06-30 06:04 - [日本进球](https://www.share.minike.top/Article/details/008665066670.shtml)
-- 2026-06-30 05:45 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/354050962.shtml)
-- 2026-06-30 05:59 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/315123173.shtml)
-- 2026-06-30 05:53 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/4900262259.shtml)
-- 2026-06-30 06:03 - [扬名立万](https://www.blog.minike.top/Article/details/646963024970.shtml)
+- 2026-06-30 05:49 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/251180840794.shtml)
+- 2026-06-30 05:56 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/81143.shtml)
+- 2026-06-30 05:48 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/62252.shtml)
+- 2026-06-30 06:03 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/84376787.shtml)
+- 2026-06-30 05:47 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/48051712.shtml)
+- 2026-06-30 05:43 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/848348.shtml)
+- 2026-06-30 05:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/89280194062.shtml)
+- 2026-06-30 06:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/76761493370.shtml)
+- 2026-06-30 06:09 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/6938818416.shtml)
+- 2026-06-30 06:06 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/3751808434.shtml)
+- 2026-06-30 06:08 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/82048438135.shtml)
+- 2026-06-30 05:52 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/7002720715.shtml)
+- 2026-06-30 06:09 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/865681921.shtml)
+- 2026-06-30 06:07 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/51538558460.shtml)
+- 2026-06-30 05:42 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/29666.shtml)

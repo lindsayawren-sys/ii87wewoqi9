@@ -1,58 +1,59 @@
-# 高盛：美联储或在秋季“连环加息”
+# 台企解除刘世芳亲属职务 国台办：搞“台独”害人害己
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-（来源：财闻） 若通胀数据未能降温，美联储最早可能在秋季重启加息，且这大概率不是单次行动，而是连续2至3次的系列收紧。 据追风交易台消息，美联储鹰派立场的实质性强化与前高官的严厉警告，正在彻底击碎市场的宽松幻想，引发利率衍生品与现货市场的剧烈重定价。 高盛副董事长、前达拉斯联储主席 Rob Kaplan最新明确警告，若通胀数据未能降温，美联储最早可能在秋季重启加息，且这大概率不
+中新社北京5月6日电 江西省上高县荣炭科技有限公司宣布自4月7日起已解除“台独”顽固分子刘世芳的亲属颜文群全部职务。国务院台办发言人陈斌华6日应询表示，大陆方面决不允许“台独”顽固分子及其亲属在大陆投资经商谋利。刘世芳现任民进党当局内部事务主管部门负责人。在今年1月7日国台办新闻发布会上，她被列为“台独”顽固分子。发言人指其赤裸裸宣扬“台独”分裂谬论，大肆打压支持、参与两岸交流
 
 ## 正文
 
-（来源：财闻） 若通胀数据未能降温，美联储最早可能在秋季重启加息，且这大概率不是单次行动，而是连续2至3次的系列收紧。
+中新社北京5月6日电 江西省上高县荣炭科技有限公司宣布自4月7日起已解除“台独”顽固分子刘世芳的亲属颜文群全部职务。
 
-据追风交易台消息，美联储鹰派立场的实质性强化与前高官的严厉警告，正在彻底击碎市场的宽松幻想，引发利率衍生品与现货市场的剧烈重定价。
+国务院台办发言人陈斌华6日应询表示，大陆方面决不允许“台独”顽固分子及其亲属在大陆投资经商谋利。
 
-高盛副董事长、前达拉斯联储主席 Rob Kaplan最新明确警告，若通胀数据未能降温，美联储最早可能在秋季重启加息，且这大概率不是单次行动，而是连续2至3次的系列收紧。
+刘世芳现任民进党当局内部事务主管部门负责人。
 
-这一鹰派言论叠加美联储主席沃什抗击通胀的强硬信号及大幅上调的官方通胀预测，直接导致掉期市场定价发生“大逆转”。
+在今年1月7日国台办新闻发布会上，她被列为“台独”顽固分子。
 
-交易员将首次加息预期从遥远的2027年3月大幅提前至今年10月。
+发言人指其赤裸裸宣扬“台独”分裂谬论，大肆打压支持、参与两岸交流合作的台湾人士，迫害在台大陆配偶，极力给两岸人员往来设置障碍，封堵两岸民众交流沟通渠道。
 
-政策预期的急剧修正迅速向跨资产市场传导。
+2月，有香港媒体曝光其亲属在大陆投资谋利且为刘提供政治献金，国台办当时即表示依法依规查处相关问题。
 
-对利率最敏感的短期美债遭遇猛烈抛售，2年期美债收益率创下3月以来单日涨幅新高，并直接引发周四亚洲时段贵金属市场的恐慌性闪跌，金价失守4300美元关口。
+陈斌华5月6日强调，“台独”破坏台海和平稳定、损害两岸同胞利益，是一条走不通的绝路，搞“台独”害人害己，必遭惩治。
 
-Kaplan的警告与美联储官方释放的鹰派信号形成共振。
+他也指出，大陆方面的惩“独”举措只针对极少数“台独”分子，不涉及广大台胞台企，大陆将一如既往欢迎、支持广大台胞台企扎根祖国大陆发展，分享中国式现代化发展机遇与成果，让台胞台企更有幸福感、获得感。
 
 ## 相关推荐
 
-- 2026-06-30 05:57 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 06:03 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-30 05:53 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 05:58 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 05:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 05:44 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 05:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 05:51 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 05:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 05:43 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 05:36 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 05:40 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 05:54 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 05:52 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 05:52 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 06:01 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 05:59 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 06:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 05:42 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 06:01 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 05:49 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 05:50 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 05:47 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 05:56 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 06:11 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [沉睡花园](https://www.share.minike.top/Article/details/849869.shtml)
-- 2026-06-30 05:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/95037979.shtml)
-- 2026-06-30 05:59 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/184282309.shtml)
-- 2026-06-30 05:49 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/61781974596.shtml)
-- 2026-06-30 05:58 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/47442235.shtml)
-- 2026-06-30 05:37 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/84474906.shtml)
-- 2026-06-30 05:50 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/377332941.shtml)
-- 2026-06-30 05:43 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/27072583512.shtml)
-- 2026-06-30 05:42 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/970192.shtml)
-- 2026-06-30 05:36 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/556793.shtml)
-- 2026-06-30 05:54 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/94339.shtml)
-- 2026-06-30 05:53 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/692053.shtml)
-- 2026-06-30 05:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/2136220025.shtml)
-- 2026-06-30 05:50 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/0104558.shtml)
-- 2026-06-30 05:59 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/5698400.shtml)
+- 2026-06-30 06:08 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/2586253643.shtml)
+- 2026-06-30 06:05 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/2082068540.shtml)
+- 2026-06-30 05:46 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/634424740677.shtml)
+- 2026-06-30 05:46 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/12314983652.shtml)
+- 2026-06-30 06:11 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/6841983234.shtml)
+- 2026-06-30 05:49 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/142340228047.shtml)
+- 2026-06-30 05:47 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/799006533.shtml)
+- 2026-06-30 05:46 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/50909.shtml)
+- 2026-06-30 06:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/89450242465.shtml)
+- 2026-06-30 05:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/102523.shtml)
+- 2026-06-30 05:42 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/7106717340.shtml)
+- 2026-06-30 05:42 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/59412.shtml)
+- 2026-06-30 05:45 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/93843.shtml)
+- 2026-06-30 06:11 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/49077076398.shtml)
+- 2026-06-30 05:48 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/0275112036.shtml)

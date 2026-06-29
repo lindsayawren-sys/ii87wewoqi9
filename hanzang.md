@@ -1,54 +1,59 @@
-# 封关半年看海南：靠什么让外国游客“真香”？
+# 日本放话“全方位”狙击日元投机，美财长贝森特下周抵日谈汇率
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 21:08 来源：中国新闻网 2025年12月18日，海南自贸港启动全岛封关。封关以来，政策红利持续释放，旅游市场热度节节攀升。 6月17日，海南自由贸易港封关半年新闻发布会在海口举行。中新社记者在会上获悉，初步核算，2025年12月至2026年5月，海南全省接待国内外游客同比增长12%，其中入境游客134.4万人次，同比增长93.9%。俄语区
+金十数据 日本最高货币事务官员三村淳称，日本准备从“所有角度”遏制日元投机，正以紧迫态度监控市场。贝森特下周将访日三天，会晤高市早苗等官员，汇率问题成核心议题。 围绕日本当局是否在假期期间多次入市干预汇率的讨论尚未平息，外汇政策负责人已释放更为强硬的信号。 负责国际事务的日本财务省副大臣三村淳周四表示，面对持续的投机行为，日本方面准备从“所有角度”采取措施应对，并正以紧迫态度持
 
 ## 正文
 
-发布时间：2026年06月17日 21:08 来源：中国新闻网 2025年12月18日，海南自贸港启动全岛封关。
+金十数据 日本最高货币事务官员三村淳称，日本准备从“所有角度”遏制日元投机，正以紧迫态度监控市场。
 
-封关以来，政策红利持续释放，旅游市场热度节节攀升。
+贝森特下周将访日三天，会晤高市早苗等官员，汇率问题成核心议题。
 
-6月17日，海南自由贸易港封关半年新闻发布会在海口举行。
+围绕日本当局是否在假期期间多次入市干预汇率的讨论尚未平息，外汇政策负责人已释放更为强硬的信号。
 
-中新社记者在会上获悉，初步核算，2025年12月至2026年5月，海南全省接待国内外游客同比增长12%，其中入境游客134.4万人次，同比增长93.9%。
+负责国际事务的日本财务省副大臣三村淳周四表示，面对持续的投机行为，日本方面准备从“所有角度”采取措施应对，并正以紧迫态度持续监控市场。
 
-俄语区市场继续领跑，东南亚市场稳步恢复，港澳台市场保持活跃，欧美澳新远程市场快速上升。
+在被问及近期日元波动是否受到原油期货走势影响时，三村淳回应称，在干预问题上“我们瞄准所有角度”。
 
-海南靠什么让外国游客“真香”？
+他同时强调，当局当前的重点是应对投机行为带来的市场扰动。
 
-(陈英清 李宇凡 林士杰 海南综合报道） 责任编辑：【李季】
+针对具体行情，三村淳未对周三日元的快速波动作出评价。
+
+当天，日元在约30分钟内上涨约1.8%，一度触及1美元兑155.04日元，为近10周以来最强水平。
 
 ## 相关推荐
 
-- 2026-06-30 05:50 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 06:02 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 05:47 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 05:52 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 06:04 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 05:48 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 05:44 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 06:02 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-30 05:58 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 05:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 05:46 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 06:01 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 05:51 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 05:58 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 05:55 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 06:05 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 05:54 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 05:47 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 05:44 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 05:45 - [日本16强魔咒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 06:07 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 05:52 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 06:11 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:45 - [啊啊啊](http://www.blog.minike.top/Article/details/270662.shtml)
-- 2026-06-30 06:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/679967743.shtml)
-- 2026-06-30 06:04 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/8866576.shtml)
-- 2026-06-30 06:05 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/61186867295.shtml)
-- 2026-06-30 05:58 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/7707571962.shtml)
-- 2026-06-30 05:45 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/873737991649.shtml)
-- 2026-06-30 05:42 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/133506641360.shtml)
-- 2026-06-30 05:47 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/18063161434.shtml)
-- 2026-06-30 05:58 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/32840255858.shtml)
-- 2026-06-30 05:40 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/8408125.shtml)
-- 2026-06-30 06:03 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/3569340.shtml)
-- 2026-06-30 05:38 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/70569.shtml)
-- 2026-06-30 05:45 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/19275849.shtml)
-- 2026-06-30 05:53 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/01831.shtml)
-- 2026-06-30 05:56 - [巴西绝杀](http://www.share.minike.top/Article/details/5619352355.shtml)
+- 2026-06-30 06:06 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/9109266.shtml)
+- 2026-06-30 05:46 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/656452.shtml)
+- 2026-06-30 06:10 - [金刚川](https://www.share.kurohicncr.top/Article/details/453462491.shtml)
+- 2026-06-30 06:10 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/52192012.shtml)
+- 2026-06-30 06:09 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/581004295.shtml)
+- 2026-06-30 06:07 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/2824930232.shtml)
+- 2026-06-30 05:53 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/192004250.shtml)
+- 2026-06-30 05:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/6481356920.shtml)
+- 2026-06-30 06:08 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/29604060215.shtml)
+- 2026-06-30 05:53 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/030660155.shtml)
+- 2026-06-30 05:44 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/6626637885.shtml)
+- 2026-06-30 05:51 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/546824961.shtml)
+- 2026-06-30 05:42 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/90112667.shtml)
+- 2026-06-30 05:54 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/904389364.shtml)
+- 2026-06-30 05:46 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/76582618.shtml)

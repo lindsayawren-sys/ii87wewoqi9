@@ -1,58 +1,61 @@
-# 赵鹏：保险通过大数法则与商业契约，将个体难以承受的风险损失转化为全社会可负担的确定性的小额成本
+# 银发观察：“00后”走进养老院 以青春定义“新蓝海”
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，2026陆家嘴论坛于今日召开。中国人民保险集团股份有限公司副董事长、总裁赵鹏出席“全体大会七：提高普惠金融的有效性与精准度”并演讲。 赵鹏表示，普惠的起点是对大众群体的生存关照。保险兼具市场运行效率与社会救助的价值，通过大数法则与商业契约，将个体难以承受的风险损失转化为全社会可负担的确定性的小
+中新网杭州5月5日电(张煜欢)走进杭州元墅西兴老人公寓，“00后”养老护理员徐畅弯腰扶住偏瘫老人的腰际，引导老人缓慢从床边挪至轮椅。个头小小的她动作干净利落、专业标准，没有想象中那般费力。 这一幕，正在越来越多的养老机构里成为日常。截至2025年，中国60岁及以上人口已突破3.2亿，而持证养老护理员仅50万人，缺口超500万人。 当“最年轻”的一代走进“最夕阳”的场景，外界往往
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，2026陆家嘴论坛于今日召开。
+中新网杭州5月5日电(张煜欢)走进杭州元墅西兴老人公寓，“00后”养老护理员徐畅弯腰扶住偏瘫老人的腰际，引导老人缓慢从床边挪至轮椅。
 
-中国人民保险集团股份有限公司副董事长、总裁赵鹏出席“全体大会七：提高普惠金融的有效性与精准度”并演讲。
+个头小小的她动作干净利落、专业标准，没有想象中那般费力。
 
-赵鹏表示，普惠的起点是对大众群体的生存关照。
+这一幕，正在越来越多的养老机构里成为日常。
 
-保险兼具市场运行效率与社会救助的价值，通过大数法则与商业契约，将个体难以承受的风险损失转化为全社会可负担的确定性的小额成本。
+截至2025年，中国60岁及以上人口已突破3.2亿，而持证养老护理员仅50万人，缺口超500万人。
 
-从而使守望相助，从道义救助转变为市场化、可持续的制度性安排。
+当“最年轻”的一代走进“最夕阳”的场景，外界往往担心他们“吃不了苦”“留不住人”。
 
-赵鹏指出，2025年，中国人保承办的大病保险、长期护理保险，门诊慢特病等政策性项目达到1858个，覆盖超15亿人次。
+实际上，他们正试图用专业与青春，重新定义这份“与衰老相处”的职业。
 
-服务妇女、儿童、残疾人、特殊人群超1.3亿人次，服务新市民超3000万人次。
+“00后”学了养老专业 “00后”徐畅大学学的是“智慧健康养老服务与管理”，目前她在养老院护理一线已工作两年。
 
-下一步中国人保将聚焦民生薄弱环节和保障空白群体，持续拓宽保障覆盖面，织密织牢人民群众风险保障的防护网。
+当记者问及“为什么会学养老专业”，徐畅直言，“老龄化是大趋势，但是目前这个行业竞争力还没那么强。
 
 ## 相关推荐
 
-- 2026-06-30 05:58 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 05:42 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 05:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 06:01 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 06:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 05:56 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 05:45 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 05:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 05:44 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 05:43 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 06:04 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 05:38 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 06:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 05:58 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 05:49 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 05:58 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 05:58 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 05:45 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 05:48 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 06:06 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 05:49 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 06:03 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 05:58 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 05:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 05:43 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 05:58 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 06:09 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:48 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/45972.shtml)
-- 2026-06-30 05:38 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/089458076766.shtml)
-- 2026-06-30 05:55 - [女心理师](http://www.blog.kurohicncr.top/Article/details/855683172.shtml)
-- 2026-06-30 05:53 - [青春环游记第三季](http://www.blog.minike.top/Article/details/330248007910.shtml)
-- 2026-06-30 05:43 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/871502.shtml)
-- 2026-06-30 05:57 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/2243377107.shtml)
-- 2026-06-30 05:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/371388614245.shtml)
-- 2026-06-30 05:39 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/86577.shtml)
-- 2026-06-30 05:50 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/053677.shtml)
-- 2026-06-30 06:02 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/304846.shtml)
-- 2026-06-30 06:02 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/430220.shtml)
-- 2026-06-30 05:57 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/840648414367.shtml)
-- 2026-06-30 05:49 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/29567.shtml)
-- 2026-06-30 05:40 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/13809663.shtml)
-- 2026-06-30 05:38 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/419864294949.shtml)
+- 2026-06-30 05:44 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/390400319.shtml)
+- 2026-06-30 05:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/43628770740.shtml)
+- 2026-06-30 05:48 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/244346.shtml)
+- 2026-06-30 05:59 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/010812.shtml)
+- 2026-06-30 05:42 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/4952241.shtml)
+- 2026-06-30 05:47 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/3751167733.shtml)
+- 2026-06-30 05:42 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/398175457.shtml)
+- 2026-06-30 05:55 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/7774047919.shtml)
+- 2026-06-30 06:03 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/6089653.shtml)
+- 2026-06-30 05:53 - [《共患难》](http://www.blog.minike.top/Article/details/7499859891.shtml)
+- 2026-06-30 05:56 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/385852.shtml)
+- 2026-06-30 05:47 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/450100524.shtml)
+- 2026-06-30 05:53 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/758243616.shtml)
+- 2026-06-30 05:43 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/676520.shtml)
+- 2026-06-30 06:00 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/87760819.shtml)

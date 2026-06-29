@@ -1,56 +1,57 @@
-# 韩正会见美国前运输部长赵小兰
+# 韩股飙涨6.45%首次突破7300点，创历史新高
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-新华社北京6月17日电 6月17日，国家副主席韩正在北京会见美国前运输部长赵小兰。 韩正表示，今年5月，习近平主席同特朗普总统共同确定了中美建设性战略稳定关系的新定位，为下阶段中美关系作出了重要战略指引。中方一贯致力于发展稳定的中美关系。落实两国元首共识，需要双方各界共同采取行动，进一步加强经贸等领域的合作，密切人文交流和民间地方往来，为双边关系发展打造更多坚实支撑。 赵小兰表
+韩国股市周三飙升近6.5%，延续了此前的涨势，首次突破7300点大关。半导体行业的强劲上涨以及市场对中东和平协议的乐观预期是推动股市走强的主要因素。韩元兑美元汇率也走强。 韩国综合股价指数（KOSPI）当天上涨447.57点，涨幅6.45%，创下7384.56点的历史新高。 美国总统特朗普隔夜宣布，为促成与伊朗达成最终协议，他将暂停护送船只通过霍尔木兹海峡的行动。 韩国综合股价
 
 ## 正文
 
-新华社北京6月17日电 6月17日，国家副主席韩正在北京会见美国前运输部长赵小兰。
+韩国股市周三飙升近6.5%，延续了此前的涨势，首次突破7300点大关。
 
-韩正表示，今年5月，习近平主席同特朗普总统共同确定了中美建设性战略稳定关系的新定位，为下阶段中美关系作出了重要战略指引。
+半导体行业的强劲上涨以及市场对中东和平协议的乐观预期是推动股市走强的主要因素。
 
-中方一贯致力于发展稳定的中美关系。
+韩元兑美元汇率也走强。
 
-落实两国元首共识，需要双方各界共同采取行动，进一步加强经贸等领域的合作，密切人文交流和民间地方往来，为双边关系发展打造更多坚实支撑。
+韩国综合股价指数（KOSPI）当天上涨447.57点，涨幅6.45%，创下7384.56点的历史新高。
 
-赵小兰表示，美中元首会晤具有重要意义，保持稳定的美中关系符合各方利益。
+美国总统特朗普隔夜宣布，为促成与伊朗达成最终协议，他将暂停护送船只通过霍尔木兹海峡的行动。
 
-愿继续为推动美中务实合作、促进民间往来作出努力。
+韩国综合股价指数（KOSPI）开盘上涨2.25%，首次突破7000点大关，并在交易时段内延续涨势。
+
+近几个月来，该基准股指持续上涨，在1月底突破5000点大关，2月突破6000点大关。
+
+在2月底美伊冲突爆发后，该指数一度大幅下跌，但后来收回了全部跌幅，并在人工智能热潮持续升温以及对重要航道重新开放的预期推动下，一举突破7000点大关。
 
 ## 相关推荐
 
-- 2026-06-30 05:53 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 05:59 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 05:46 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 06:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 05:46 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 05:53 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 05:56 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 05:55 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 05:45 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 05:40 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 05:44 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 06:05 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 05:54 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 06:05 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 06:02 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-30 05:57 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 05:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 05:52 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 06:08 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 05:45 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 05:48 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 05:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 05:46 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 06:02 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 05:51 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:47 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/6362453.shtml)
-- 2026-06-30 06:04 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/227947.shtml)
-- 2026-06-30 05:38 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/291566.shtml)
-- 2026-06-30 05:51 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/4398830532.shtml)
-- 2026-06-30 05:49 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/57172946301.shtml)
-- 2026-06-30 05:55 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/77903314.shtml)
-- 2026-06-30 05:57 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/0939234745.shtml)
-- 2026-06-30 05:38 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/19819143222.shtml)
-- 2026-06-30 05:56 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/7395147.shtml)
-- 2026-06-30 05:59 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/039781122583.shtml)
-- 2026-06-30 06:05 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/91235405108.shtml)
-- 2026-06-30 05:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/2847736.shtml)
-- 2026-06-30 05:39 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/185619.shtml)
-- 2026-06-30 05:47 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/63989563.shtml)
-- 2026-06-30 05:56 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/530277291482.shtml)
+- 2026-06-30 06:00 - [恋与深空 日服](http://www.share.minike.top/Article/details/227919.shtml)
+- 2026-06-30 05:44 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/83664.shtml)
+- 2026-06-30 06:02 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/46085199.shtml)
+- 2026-06-30 05:57 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/1023857557.shtml)
+- 2026-06-30 05:44 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/97240453060.shtml)
+- 2026-06-30 06:09 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/20795080558.shtml)
+- 2026-06-30 06:06 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/50456447418.shtml)
+- 2026-06-30 06:00 - [世界杯](http://www.blog.kurohicncr.top/Article/details/68749465209.shtml)
+- 2026-06-30 06:08 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/3519455.shtml)
+- 2026-06-30 05:47 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/0164058295.shtml)
+- 2026-06-30 05:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/69295183.shtml)
+- 2026-06-30 05:44 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/3466388.shtml)
+- 2026-06-30 06:09 - [绘画区你赢了](https://www.share.minike.top/Article/details/68929850029.shtml)
+- 2026-06-30 05:48 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/62128796553.shtml)
+- 2026-06-30 06:05 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/4298540.shtml)

@@ -1,59 +1,58 @@
-# 中科曙光发布新一代通用高性能计算平台 规格首次比肩国际旗舰
+# 卡夫亨氏警告通胀风险，宣布2026年海外裁员400人
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新网天津6月18日电 (记者 周亚强)中国算力基础设施提供商中科曙光近日发布新一代通用高性能计算平台。该平台以国产百核级512线程通用CPU为核心，通过“算存网”(计算、存储、网络)全栈协同优化，整体规格首次达到国际厂商旗舰级水平。 性能方面，新平台搭载首个国产10T级通用CPU(128核、512线程、单CPU FP64双精度算力10T)，相较当代平台，该平台HPL双精度浮点
+卡夫亨氏公司向美国证券交易委员会提交文件称，由于中东冲突等因素预计将推高2026年通胀压力，公司计划本年度在北美以外地区裁减约400个岗位。与此同时，这家食品巨头公布的第一季度业绩超出市场预期，股价早盘上涨约4%。 财报显示，公司第一季度营收达60.5亿美元，高于市场预期的58.9亿美元；调整后每股收益为58美分，远超预期的50美分。然而，受广告支出增加、制造与物流成本通胀等因
 
 ## 正文
 
-中新网天津6月18日电 (记者 周亚强)中国算力基础设施提供商中科曙光近日发布新一代通用高性能计算平台。
+卡夫亨氏公司向美国证券交易委员会提交文件称，由于中东冲突等因素预计将推高2026年通胀压力，公司计划本年度在北美以外地区裁减约400个岗位。
 
-该平台以国产百核级512线程通用CPU为核心，通过“算存网”(计算、存储、网络)全栈协同优化，整体规格首次达到国际厂商旗舰级水平。
+与此同时，这家食品巨头公布的第一季度业绩超出市场预期，股价早盘上涨约4%。
 
-性能方面，新平台搭载首个国产10T级通用CPU(128核、512线程、单CPU FP64双精度算力10T)，相较当代平台，该平台HPL双精度浮点相对性能提升近2倍，STREAM访存性能提升近1倍，应用性能平均提升近1倍，均与国际主流高端平台处于同等水平。
+财报显示，公司第一季度营收达60.5亿美元，高于市场预期的58.9亿美元；调整后每股收益为58美分，远超预期的50美分。
 
-兼容性是此次发布的一大亮点。
+然而，受广告支出增加、制造与物流成本通胀等因素影响，季度调整后营业利润同比下降11.8%至11亿美元。
 
-该平台兼容当前主流x86软件生态，且是国内首个原生支持AVX-512(国际主流高性能计算指令集)的国产计算平台，现有软件无需重新编译或修改源码即可直接运行，用户软件授权、业务流程和工程经验全部保留，实现“零迁移成本”。
+首席执行官Steve Cahillane表示，公司正持续推进组织架构调整，在裁撤部分海外岗位的同时，整体增聘营销和销售团队人员。
 
-散热方面，据介绍，平台提供风冷、冷板液冷、浸没液冷三种散热形态的计算节点，意味着国产高性能计算平台正在形成覆盖不同规模场景的完整工程化能力，让国产超算从“可用”逐渐走向“更好用”。
+今年2月，卡夫亨氏宣布暂停分拆计划，转而投入约6亿美元用于营销和研发以重振美国业务。
 
-目前，该平台已覆盖地球科学、工业制造、生命科学、物理化学材料等多个领域。
+公司维持全年业绩指引，预计有机净销售额下降1.5%至3.5%，调整后每股收益为1.98至2.10美元。
 
-其中，公里级天气模拟性能达到当代平台的1.95倍；工业仿真实测性能达到1.86倍，与国际主流高端平台处于同等水平。
+Cahillane承认消费环境依然严峻，“消费者能承受的涨价幅度是有限的”，公司希望通过提升生产率来对冲成本上涨压力。
 
 ## 相关推荐
 
-- 2026-06-30 05:59 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 05:53 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 05:49 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 06:05 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 05:57 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 05:39 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 05:47 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 05:52 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 06:04 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 05:36 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 05:46 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 05:56 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 05:52 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 05:59 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 06:08 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 06:09 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-30 06:03 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 06:01 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 05:51 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 05:50 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 05:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 06:09 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 06:08 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 05:48 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 06:03 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/116771414920.shtml)
-- 2026-06-30 05:57 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/0685401195.shtml)
-- 2026-06-30 05:58 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/97599.shtml)
-- 2026-06-30 06:05 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/024427527.shtml)
-- 2026-06-30 05:43 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/14319445.shtml)
-- 2026-06-30 05:41 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/29639604.shtml)
-- 2026-06-30 06:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/6970297223.shtml)
-- 2026-06-30 05:42 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/78261623.shtml)
-- 2026-06-30 05:53 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/9500684700.shtml)
-- 2026-06-30 05:51 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/611804275960.shtml)
-- 2026-06-30 05:54 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/08348805768.shtml)
-- 2026-06-30 05:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/638215.shtml)
-- 2026-06-30 06:04 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/773642.shtml)
-- 2026-06-30 05:40 - [刘念回应](http://www.share.kurohicncr.top/Article/details/486150002249.shtml)
-- 2026-06-30 05:58 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/677767508.shtml)
+- 2026-06-30 05:51 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/031558.shtml)
+- 2026-06-30 05:43 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/220494020.shtml)
+- 2026-06-30 05:44 - [《贺子珍》](https://www.blog.minike.top/Article/details/774625634663.shtml)
+- 2026-06-30 06:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/16006085389.shtml)
+- 2026-06-30 05:43 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/7842609151.shtml)
+- 2026-06-30 05:57 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/4679888.shtml)
+- 2026-06-30 05:45 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/15422313.shtml)
+- 2026-06-30 06:04 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/6646356.shtml)
+- 2026-06-30 06:01 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/861365714100.shtml)
+- 2026-06-30 06:07 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/439607.shtml)
+- 2026-06-30 05:52 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/96920929.shtml)
+- 2026-06-30 05:53 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/0769797245.shtml)
+- 2026-06-30 06:09 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/127659.shtml)
+- 2026-06-30 06:02 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/554122569.shtml)
+- 2026-06-30 06:04 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/8207557.shtml)

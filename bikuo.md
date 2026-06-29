@@ -1,56 +1,56 @@
-# 民生银行总行个金部换帅：原私行部总经理黄晋拟接任
+# 广东多举措部署近期强降雨防御工作
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 张欣 6月18日，据本报记者了解，民生银行（HK1988）总行信用卡中心总经理孙兴，不再兼任总行个人金融部总经理。民生总行财富管理部/私人银行部总经理黄晋，拟任总行个人金融部总经理。 此次卸任兼职个金部总经理的孙兴，历任民生银行（HK1988）济南分行副行长、乌鲁木齐分行行长、合肥分行行长；2025年9月调任总行，出任信用卡中心总经理，本次人事调整后，将剥
+中新网广州5月6日电 (记者 王坚)广东省防汛防旱防风总指挥部办公室6日印发通知，部署各地各有关部门认真贯彻落实广东省委、省政府工作部署，全力做好近期强降雨、强对流天气防御工作，全力保障人民群众生命财产安全。广东省应急管理厅介绍，据气象部门预报，7日至9日，受西风波动和弱冷空气影响，全省有中到大雨局部暴雨或大暴雨过程，雷雨时伴有短时强降水和8级左右雷雨大风等强对流天气。其中，7
 
 ## 正文
 
-21世纪经济报道记者 张欣 6月18日，据本报记者了解，民生银行（HK1988）总行信用卡中心总经理孙兴，不再兼任总行个人金融部总经理。
+中新网广州5月6日电 (记者 王坚)广东省防汛防旱防风总指挥部办公室6日印发通知，部署各地各有关部门认真贯彻落实广东省委、省政府工作部署，全力做好近期强降雨、强对流天气防御工作，全力保障人民群众生命财产安全。
 
-民生总行财富管理部/私人银行部总经理黄晋，拟任总行个人金融部总经理。
+广东省应急管理厅介绍，据气象部门预报，7日至9日，受西风波动和弱冷空气影响，全省有中到大雨局部暴雨或大暴雨过程，雷雨时伴有短时强降水和8级左右雷雨大风等强对流天气。
 
-此次卸任兼职个金部总经理的孙兴，历任民生银行（HK1988）济南分行副行长、乌鲁木齐分行行长、合肥分行行长；2025年9月调任总行，出任信用卡中心总经理，本次人事调整后，将剥离个金部兼职工作，专注信用卡业务。
+其中，7日，韶关、清远、粤西和珠三角市县多云转中到大雨，局部暴雨或大暴雨；8日，中北部市县中到大雨局部暴雨转阵雨，南部市县有中到大雨，局部暴雨或大暴雨；9日，湛江和茂名有中到大雨，局部暴雨或大暴雨。
 
-新人选黄晋于1980年出生，先后历任民生银行（HK1988）昆明分行私银部总经理、分行个人金融部总经理，后调任贵阳分行行长助理、副行长，之后晋升总行个人金融部副总经理，2021年起担任总行财富管理部/私人银行部总经理至今。
+通知要求，要加强监测预警和会商研判。
 
-此外，黄晋还身兼民生理财董事。
+针对短时强降雨和夜间降雨，加强分镇短临预警、暴雨重现期预警和夜间防范提醒，严格落实直达基层责任人的暴雨预警双重“叫应”和反馈机制，及时启动应急响应。
 
-民生银行（HK1988）2026年一季报显示，该行实现营业收入378.22亿元，同比增长2.74%；利息净收入255.71亿元，同比增长2.84%；净息差 1.43%，同比提升2个基点；净利差1.35%，同比提升5个基点。
+要严格落实风险防范措施，扎实做好中小河流洪水、山洪、地质灾害和城乡内涝等防御工作，持续深入开展度汛隐患排查治理。
 
-受加大不良处置力度影响，归属于股东的净利润115.14亿元，同比下降9.64%。
+加强水利调度和工程巡查防守，严格落实地质灾害隐患点和风险区双控管理措施。
 
-资产质量方面，截至报告期末，民生银行（HK1988）不良贷款率1.46%，较上年末下降0.03个百分点；拨备覆盖率141.94%，高于监管要求，风险抵补能力保持在合理区间。
+加大道路交通安全防范力度，督促重点企业落实防雷防潮措施，紧盯学校、养老院、福利院、医院以及医养结合机构等人员密集和重点关注场所，加强涉灾风险排查。
 
 ## 相关推荐
 
-- 2026-06-30 05:45 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 05:39 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 05:54 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 05:39 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 05:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 06:04 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 06:03 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 05:42 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 05:52 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 05:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 05:49 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 05:53 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 05:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 06:00 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 06:06 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 05:57 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 06:08 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 05:51 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 05:53 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 06:07 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/90769662.shtml)
-- 2026-06-30 05:41 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/274643285.shtml)
-- 2026-06-30 05:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/2874037.shtml)
-- 2026-06-30 06:02 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/83038398.shtml)
-- 2026-06-30 05:36 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/27293898860.shtml)
-- 2026-06-30 06:03 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/920427.shtml)
-- 2026-06-30 05:41 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/76877508.shtml)
-- 2026-06-30 05:42 - [巴拉圭先进球了](https://www.blog.minike.top/Article/details/62574981642.shtml)
-- 2026-06-30 05:44 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/8531223.shtml)
-- 2026-06-30 05:43 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/75917956.shtml)
-- 2026-06-30 05:36 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/64310.shtml)
-- 2026-06-30 05:53 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/399929.shtml)
-- 2026-06-30 05:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/2794052.shtml)
-- 2026-06-30 05:43 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/4346605.shtml)
-- 2026-06-30 05:42 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/59857.shtml)
+- 2026-06-30 05:44 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/741614736762.shtml)
+- 2026-06-30 06:00 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/86929127.shtml)
+- 2026-06-30 05:53 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/16061050958.shtml)
+- 2026-06-30 06:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/82729060364.shtml)
+- 2026-06-30 06:04 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/79155.shtml)
+- 2026-06-30 06:09 - [刘念回应](https://www.share.kurohicncr.top/Article/details/480966.shtml)
+- 2026-06-30 06:08 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/63443989456.shtml)
+- 2026-06-30 05:56 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/55664.shtml)
+- 2026-06-30 05:42 - [《贺子珍》](http://www.blog.minike.top/Article/details/708572.shtml)
+- 2026-06-30 05:47 - [刘念回应](http://www.share.kurohicncr.top/Article/details/8466905.shtml)
+- 2026-06-30 05:50 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/305899174040.shtml)
+- 2026-06-30 06:09 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/7645038.shtml)
+- 2026-06-30 06:04 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/75209.shtml)
+- 2026-06-30 05:55 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/745250.shtml)
+- 2026-06-30 05:53 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/1650407729.shtml)

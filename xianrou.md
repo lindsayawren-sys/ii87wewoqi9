@@ -1,59 +1,58 @@
-# 世界经济论坛：中国创新经验为各国提供有益参考
+# “五一”假期浙江口岸出入境人员超10万人次
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-原标题：世界经济论坛：中国创新经验为各国提供有益参考 世界经济论坛官网6月17日刊文指出，中国经济增长正越来越依靠创新驱动。通过大规模推动创新成果的实际应用，大幅提升经济发展的效率与质量。这样的经验为全球各国提供了有益参考。 先进制造业是中国经济创新发展的典型代表 文章表示，先进制造业是中国经济创新发展的典型代表。密集的供应商网络、工厂、物流系统、数字平台和终端市场等，为新技术
+中新网杭州5月6日电 (钱晨菲)6日，记者从浙江边检总站获悉，今年“五一”假期，浙江口岸出入境人员总量超10万人次。 据悉，浙江边检机关共查验出入境人员10.5万余人次、飞机609架次、船舶455艘次。 从入境方向看，“五一”假期从浙江口岸入境外国旅客4608人次。其中，入境观光旅游2064人次，入境从事商贸活动1493人次，免签入境外国旅客2120人次，占入境外国旅客总数的4
 
 ## 正文
 
-原标题：世界经济论坛：中国创新经验为各国提供有益参考 世界经济论坛官网6月17日刊文指出，中国经济增长正越来越依靠创新驱动。
+中新网杭州5月6日电 (钱晨菲)6日，记者从浙江边检总站获悉，今年“五一”假期，浙江口岸出入境人员总量超10万人次。
 
-通过大规模推动创新成果的实际应用，大幅提升经济发展的效率与质量。
+据悉，浙江边检机关共查验出入境人员10.5万余人次、飞机609架次、船舶455艘次。
 
-这样的经验为全球各国提供了有益参考。
+从入境方向看，“五一”假期从浙江口岸入境外国旅客4608人次。
 
-先进制造业是中国经济创新发展的典型代表 文章表示，先进制造业是中国经济创新发展的典型代表。
+其中，入境观光旅游2064人次，入境从事商贸活动1493人次，免签入境外国旅客2120人次，占入境外国旅客总数的46%。
 
-密集的供应商网络、工厂、物流系统、数字平台和终端市场等，为新技术提供了良好的测试、改进和规模化应用的场景。
+从出境方向看，“五一”假期从该省口岸出境内地旅客约3.3万人次。
 
-文章认为，制造业的下一个前沿领域是生物制造。
+中国香港、韩国、泰国、新加坡、马来西亚等为热门目的地。
 
-当前，中国的生物制造产业规模已接近1万亿元人民币，预计到2030年将增长至约1.8万亿元人民币。
+按照国家移民管理局统一部署，浙江边检总站多措并举，主动作为，科学预测、及时发布本口岸出入境客流情况，提示广大出入境人员合理安排行程；优化勤务组织模式，配足配强一线警力，加强部门协同联动，及时疏导瞬时客流高峰，确保通关现场高效运转、平稳有序。
 
-中国已经成为将生物技术创新转化为产业竞争力、供应链韧性和长期经济增长的关键场所。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:42 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 05:50 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 05:45 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 05:37 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 05:40 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 05:41 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 05:48 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 06:04 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 05:38 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 06:02 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 05:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 05:37 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 05:41 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 05:54 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 06:00 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 05:54 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 06:09 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 05:57 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 06:11 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 06:02 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 05:50 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 05:45 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 06:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 05:50 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 06:08 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/17420.shtml)
-- 2026-06-30 06:02 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/8083411.shtml)
-- 2026-06-30 06:05 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/64004500027.shtml)
-- 2026-06-30 05:46 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/16189.shtml)
-- 2026-06-30 05:52 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/5665825.shtml)
-- 2026-06-30 05:58 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/67566732977.shtml)
-- 2026-06-30 05:48 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/4531467.shtml)
-- 2026-06-30 05:49 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/065909948584.shtml)
-- 2026-06-30 05:43 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/227896290.shtml)
-- 2026-06-30 06:00 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/474149.shtml)
-- 2026-06-30 05:38 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/40006730294.shtml)
-- 2026-06-30 05:46 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/9981255759.shtml)
-- 2026-06-30 05:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/24412898.shtml)
-- 2026-06-30 05:58 - [毒液2](http://www.blog.kurohicncr.top/Article/details/01647351106.shtml)
-- 2026-06-30 05:49 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/91639641.shtml)
+- 2026-06-30 05:59 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/62486.shtml)
+- 2026-06-30 05:49 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/14072085.shtml)
+- 2026-06-30 05:54 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/481052467.shtml)
+- 2026-06-30 05:47 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/64538.shtml)
+- 2026-06-30 05:49 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/46976.shtml)
+- 2026-06-30 05:53 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/30561156.shtml)
+- 2026-06-30 06:05 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/9243452.shtml)
+- 2026-06-30 06:04 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/604390713.shtml)
+- 2026-06-30 05:43 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/51201138916.shtml)
+- 2026-06-30 06:00 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/098895229313.shtml)
+- 2026-06-30 05:49 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/74456989.shtml)
+- 2026-06-30 05:55 - [送你一朵小红花](https://www.blog.minike.top/Article/details/19639.shtml)
+- 2026-06-30 05:54 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/1355888.shtml)
+- 2026-06-30 06:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/4558100.shtml)
+- 2026-06-30 06:00 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/37678.shtml)

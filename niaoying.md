@@ -1,46 +1,50 @@
-# 恒丰银行北京通州分行被罚30万元：员工行为管理不到位
+# “越风嘉韵·翰墨同源”联展在台湾嘉义开幕
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-6月18日金融一线消息，国家金融监督管理总局北京监管局行政处罚信息公开表显示，恒丰银行北京通州分行因员工行为管理不到位，被处以罚款30万元，相关责任人李婷、齐钊、赵安东分别给予警告并处罚款5万元。 责任编辑：王馨茹
+发布时间：2026年05月05日 16:58 来源：中国新闻网 5月4日，“越风嘉韵·翰墨同源”名家暨青年创作联展在台湾嘉义开幕，展出来自浙江省绍兴市越城区与台湾书画艺术界及青年学子的逾百件作品。主办方台湾华夏艺术画院院长柯育沅表示，希望借由展览推动两岸艺文交流互动，让艺术家加深了解，也提升创作水平。(记者 陈建新 制作 王嘉怡） 责任编辑：【卢岩】
 
 ## 正文
 
-6月18日金融一线消息，国家金融监督管理总局北京监管局行政处罚信息公开表显示，恒丰银行北京通州分行因员工行为管理不到位，被处以罚款30万元，相关责任人李婷、齐钊、赵安东分别给予警告并处罚款5万元。
+发布时间：2026年05月05日 16:58 来源：中国新闻网 5月4日，“越风嘉韵·翰墨同源”名家暨青年创作联展在台湾嘉义开幕，展出来自浙江省绍兴市越城区与台湾书画艺术界及青年学子的逾百件作品。
 
-责任编辑：王馨茹
+主办方台湾华夏艺术画院院长柯育沅表示，希望借由展览推动两岸艺文交流互动，让艺术家加深了解，也提升创作水平。
+
+(记者 陈建新 制作 王嘉怡） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 05:51 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 06:03 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 05:46 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 05:46 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 05:46 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 05:45 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 06:03 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 05:40 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 05:50 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 05:44 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 05:41 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 05:39 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 06:06 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 05:46 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 06:03 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 05:57 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 05:49 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 05:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 05:51 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 05:53 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 06:08 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 06:03 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 05:51 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 05:52 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 06:10 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 06:06 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/74871.shtml)
-- 2026-06-30 05:47 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/39823.shtml)
-- 2026-06-30 05:56 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/03496.shtml)
-- 2026-06-30 05:43 - [第一炉香](https://www.blog.minike.top/Article/details/604972.shtml)
-- 2026-06-30 05:57 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/211918561332.shtml)
-- 2026-06-30 05:57 - [斛珠夫人](http://www.blog.minike.top/Article/details/774006881.shtml)
-- 2026-06-30 05:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/23715.shtml)
-- 2026-06-30 05:46 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/0365862.shtml)
-- 2026-06-30 05:51 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/44051.shtml)
-- 2026-06-30 05:36 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/87242.shtml)
-- 2026-06-30 05:52 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/222810.shtml)
-- 2026-06-30 05:55 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/385672442.shtml)
-- 2026-06-30 05:47 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/2094638.shtml)
-- 2026-06-30 05:39 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/05749956.shtml)
-- 2026-06-30 05:45 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/3864732.shtml)
+- 2026-06-30 06:10 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/6621130253.shtml)
+- 2026-06-30 05:53 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/251750.shtml)
+- 2026-06-30 05:58 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/2489307.shtml)
+- 2026-06-30 06:10 - [毒液2](https://www.share.kurohicncr.top/Article/details/54303.shtml)
+- 2026-06-30 05:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/866940.shtml)
+- 2026-06-30 05:45 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/4419278290.shtml)
+- 2026-06-30 06:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/864286519.shtml)
+- 2026-06-30 05:57 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/406517729.shtml)
+- 2026-06-30 05:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/6359917904.shtml)
+- 2026-06-30 05:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/263235944093.shtml)
+- 2026-06-30 05:42 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/17087426159.shtml)
+- 2026-06-30 05:52 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/958245680648.shtml)
+- 2026-06-30 05:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/5209267260.shtml)
+- 2026-06-30 05:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/84936.shtml)
+- 2026-06-30 06:10 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/56286.shtml)

@@ -1,61 +1,58 @@
-# PCB领涨科技，哪只ETF更能抓住这条主线？
+# 金观平：“六张网”建设顾当前利长远
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-用一句话总结近期的市场，那就是：科技领涨A股，PCB领涨科技。4月1日至6月17日，中证印制电路板指数累计涨幅高达112%。 PCB就是“印制电路板”的英文缩写，简单来说就是电子设备的“骨架”，AI服务器里面的芯片和各种电子元件，都需要通过PCB连接起来。在AI推理需求爆发催化下，PCB正迎来“量价齐升”的超级周期。 然而，很多投资者面临“幸福的烦恼”：PCB概念股众多，不知道
+中央政治局近期召开会议，明确提出深入挖掘内需潜力，加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等“六张网”的规划建设。 与传统的“铁公基”不同，“六张网”建设深度融合数字化、智能化、绿色化与互联互通等发展理念，兼顾当前发展与长远布局、紧密结合投资于物和投资于人，成为我国深入挖掘内需潜力、推动高质量发展的重要抓手。 短期来看，“六张网”建设是扩大有效投资、稳定经
 
 ## 正文
 
-用一句话总结近期的市场，那就是：科技领涨A股，PCB领涨科技。
+中央政治局近期召开会议，明确提出深入挖掘内需潜力，加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等“六张网”的规划建设。
 
-4月1日至6月17日，中证印制电路板指数累计涨幅高达112%。
+与传统的“铁公基”不同，“六张网”建设深度融合数字化、智能化、绿色化与互联互通等发展理念，兼顾当前发展与长远布局、紧密结合投资于物和投资于人，成为我国深入挖掘内需潜力、推动高质量发展的重要抓手。
 
-PCB就是“印制电路板”的英文缩写，简单来说就是电子设备的“骨架”，AI服务器里面的芯片和各种电子元件，都需要通过PCB连接起来。
+短期来看，“六张网”建设是扩大有效投资、稳定经济增长的关键举措。
 
-在AI推理需求爆发催化下，PCB正迎来“量价齐升”的超级周期。
+经过几十年高强度开发建设，我国大规模投资阶段已基本完成，近年来投资效益呈下降趋势，投资动能有所减弱。
 
-然而，很多投资者面临“幸福的烦恼”：PCB概念股众多，不知道怎么选，而多数科技类ETF的PCB权重不过个位数，那要怎么捕捉这波行情呢？
+2025年，我国固定资产投资同比下降3.8%，亟需找到新的投资增长点。
 
-事实上，市场上还真有一个指数具备较高的PCB含量。
+“十五五”时期，我国经济要保持适当增速也需投资持续发力。
 
-按照成份股是否属于中证印制电路板指数（932666）的口径来划分，成长ETF易方达（159259）跟踪的国证成长100指数中PCB含量高达20.2%，在全市场有ETF跟踪的指数中排名第一。
+根据国家发展改革委初步估算，今年仅“六张网”及相关重点领域建设的投资规模就超过7万亿元。
 
-此外，成长100指数还覆盖了光模块、AI数据中心电源、存储等方向，海外AI算力链占比超过55%。
+随着相关配套政策的出台，这些项目将迅速形成实物工作量，对稳增长、保就业产生显著拉动效应。
 
 ## 相关推荐
 
-- 2026-06-30 06:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 06:04 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 05:51 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 05:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 05:39 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 05:46 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 05:45 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 05:59 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 05:37 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 05:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 06:03 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-30 05:58 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 05:42 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 05:51 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 05:39 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 06:07 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 05:47 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 05:51 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 05:43 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 05:44 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 06:05 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 06:02 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 05:52 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 05:44 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 06:02 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 06:01 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 05:48 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/589813525.shtml)
-- 2026-06-30 05:56 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/26304901.shtml)
-- 2026-06-30 05:43 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/571795594.shtml)
-- 2026-06-30 05:40 - [世界杯](https://www.share.minike.top/Article/details/062603514595.shtml)
-- 2026-06-30 05:42 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/2579312730.shtml)
-- 2026-06-30 05:59 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/983486969260.shtml)
-- 2026-06-30 06:01 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/961825550622.shtml)
-- 2026-06-30 05:36 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/818253999279.shtml)
-- 2026-06-30 05:50 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/7618314.shtml)
-- 2026-06-30 05:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/638703.shtml)
-- 2026-06-30 05:39 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/8195439263.shtml)
-- 2026-06-30 05:37 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/64953845.shtml)
-- 2026-06-30 05:37 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/0276390282.shtml)
-- 2026-06-30 05:47 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/81652.shtml)
-- 2026-06-30 05:47 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/587538841429.shtml)
+- 2026-06-30 05:47 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/92055376.shtml)
+- 2026-06-30 06:11 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/45080270.shtml)
+- 2026-06-30 05:53 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/71693.shtml)
+- 2026-06-30 05:51 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/5346235.shtml)
+- 2026-06-30 06:00 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/513769030.shtml)
+- 2026-06-30 05:50 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/0875596372.shtml)
+- 2026-06-30 05:56 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/59216.shtml)
+- 2026-06-30 05:58 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/742878045.shtml)
+- 2026-06-30 06:11 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/1644845672.shtml)
+- 2026-06-30 06:01 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/98736650.shtml)
+- 2026-06-30 05:49 - [千与千寻](https://www.share.minike.top/Article/details/045386.shtml)
+- 2026-06-30 05:48 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/8643756227.shtml)
+- 2026-06-30 05:42 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/95797598874.shtml)
+- 2026-06-30 06:01 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/3194931516.shtml)
+- 2026-06-30 05:58 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/1688544852.shtml)

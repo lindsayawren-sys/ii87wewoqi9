@@ -1,58 +1,56 @@
-# 近500家民企共逐海南自贸港绿色发展红利
+# 段永平发文称卖了神华继续加仓泡泡玛特
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-中新社海口6月17日电 (记者 张茜翼)中国2026全国民营企业绿色发展大会17日在海口举行，近500家民企参会，探寻绿色转型中的海南机遇。 全国政协副主席、全国工商联主席高云龙在大会上致辞时表示，加快数字化绿色化协同转型发展，是抢占新一轮科技革命和产业变革制高点的现实需要，也是构筑国家竞争新优势的有力支撑。他期待企业家进一步挖掘海南独特区位和自然禀赋优势，发现更多投资机会，推
+5月7日，知名投资人段永平在社交平台发文称，其把煤炭股中国神华全部换成了潮玩公司泡泡玛特（09992.HK）。还调侃称“神华是一家很好的公司，我们的投资也获得了很好的回报，在此谢过。将来有机会还会再回来。” 消息一出，当日午间收盘前，泡泡玛特盘中直线拉升约2个多点，截至午间收盘，报收159.2港元/股，涨1.86%，总市值约2135亿港元。 值得关注的是，段永平近期密集发声，多
 
 ## 正文
 
-中新社海口6月17日电 (记者 张茜翼)中国2026全国民营企业绿色发展大会17日在海口举行，近500家民企参会，探寻绿色转型中的海南机遇。
+5月7日，知名投资人段永平在社交平台发文称，其把煤炭股中国神华全部换成了潮玩公司泡泡玛特（09992.HK）。
 
-全国政协副主席、全国工商联主席高云龙在大会上致辞时表示，加快数字化绿色化协同转型发展，是抢占新一轮科技革命和产业变革制高点的现实需要，也是构筑国家竞争新优势的有力支撑。
+还调侃称“神华是一家很好的公司，我们的投资也获得了很好的回报，在此谢过。
 
-他期待企业家进一步挖掘海南独特区位和自然禀赋优势，发现更多投资机会，推动更多项目落地。
+将来有机会还会再回来。
 
-近年来，海南加快“低碳岛”建设，推动经济社会全面绿色低碳转型。
+” 消息一出，当日午间收盘前，泡泡玛特盘中直线拉升约2个多点，截至午间收盘，报收159.2港元/股，涨1.86%，总市值约2135亿港元。
 
-海南省委书记冯飞表示，希望与企业家在海洋能源、光伏、氢氨醇一体化、核电小堆、生物制造、医疗康养等领域打造应用场景，拓展海外市场，加快技术创新，拉长产业链条，收获更多合作成果。
+值得关注的是，段永平近期密集发声，多次在投资者社区提及泡泡玛特，从最初的态度转变到明确确认入局，逐步释放看多信号。
 
-荣程集团董事会执行主席、总裁张君婷说，该集团去年12月在海口注册成立南方总部、氢能科技、供应链、文化健康四家主体，还与海南大学签约主攻“海水制氢”，共建“琼北零碳智慧运输走廊”；40辆氢燃料电池冷藏车将于本月投入海口冷链物流运营，配套制氢加氢一体站7月中旬具备供氢能力。
+4月9日，他以“我的泡泡玛特保险公司正式开张了”的表述，透露已布局该标的。
 
-在海南省东方市，明阳集团打造高端装备出口制造中心，布局全球化超级灯塔工厂，形成辐射东南亚的装备出口规模；建设百万吨级绿色电氢氨醇基地，构建绿电氢氨醇千亿产业集群。
+4月13日，段永平在回应网友“分享泡泡玛特估值”思路时，建议对方去看《因为独特》，并表示自己是王宁的粉丝。
 
-该集团总裁韩冰表示，未来将推动应用场景化，加强海南自贸港和粤港澳大湾区“港湾联动”。
+《因为独特》一书基于对泡泡玛特创始人王宁的深度访谈，系统梳理其创业历程与企业全球化发展实践。
 
 ## 相关推荐
 
-- 2026-06-30 06:04 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 06:02 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-30 06:04 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 05:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 06:04 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 05:53 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 06:03 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 05:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 05:45 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-30 05:56 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 05:41 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 05:56 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 06:07 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 05:51 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 06:06 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 05:51 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 05:43 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 05:56 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-30 06:10 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 05:49 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 06:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 05:59 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/71269971.shtml)
-- 2026-06-30 06:00 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/2016696097.shtml)
-- 2026-06-30 05:48 - [巴西扳平比分](https://www.blog.minike.top/Article/details/38794683.shtml)
-- 2026-06-30 06:04 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/54884.shtml)
-- 2026-06-30 05:43 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/156221141.shtml)
-- 2026-06-30 06:04 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/234704.shtml)
-- 2026-06-30 05:50 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/932481261.shtml)
-- 2026-06-30 05:56 - [女心理师](http://www.share.minike.top/Article/details/85725714062.shtml)
-- 2026-06-30 05:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/7125711803.shtml)
-- 2026-06-30 05:50 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/65453298184.shtml)
-- 2026-06-30 05:48 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/00354295.shtml)
-- 2026-06-30 05:57 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/87356897.shtml)
-- 2026-06-30 05:41 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/789033.shtml)
-- 2026-06-30 05:57 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/101388673.shtml)
-- 2026-06-30 06:03 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/768536.shtml)
+- 2026-06-30 05:59 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/30771.shtml)
+- 2026-06-30 05:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/654014413.shtml)
+- 2026-06-30 05:56 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/7722533477.shtml)
+- 2026-06-30 05:47 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/07133147.shtml)
+- 2026-06-30 05:45 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/19945210.shtml)
+- 2026-06-30 05:45 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/76263.shtml)
+- 2026-06-30 06:06 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/345986.shtml)
+- 2026-06-30 06:04 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/6756101742.shtml)
+- 2026-06-30 05:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/2917342266.shtml)
+- 2026-06-30 05:52 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/4740732.shtml)
+- 2026-06-30 06:03 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/43882.shtml)
+- 2026-06-30 05:51 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.kurohicncr.top/Article/details/850360169.shtml)
+- 2026-06-30 05:53 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/313992260437.shtml)
+- 2026-06-30 05:54 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/222881.shtml)
+- 2026-06-30 05:56 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/508404194814.shtml)

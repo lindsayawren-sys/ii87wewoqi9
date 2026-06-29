@@ -1,58 +1,57 @@
-# 港股博彩股走低 澳博控股7连跌刷新年内新低 世界杯赛事分流博彩预算
+# 大摩：威高股份目标价降至5.2港元 维持“与大市同步”评级
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-6月18日消息，港股博彩股继续走低，其中，金沙中国、新濠国际发展盘中跌超3%均刷新年内新低，美高梅中国跌2.12%，银河娱乐跌1.36%，澳博控股跌1.23%录得7连跌行情，刷新年内新低。 消息上，花旗与汇丰研究均指出，6月11日至7月19日举行的世界杯赛事是导致澳门博彩总收入（GGR）短期放缓的核心原因。历史数据显示，大型足球赛事会分散澳门玩家的博彩预算，而今年赛制扩容可能使
+摩根士丹利发布研报称，将威高股份（01066）2026至2028年收入预测各上调4%，以反映每年约4%至5%的增长，处于管理层最新指引的下限。然而，该行下调威高股份2026至2030年的毛利率假设，以反映持续的定价压力及集中采购对一般耗材的影响，并按趋势微调营运开支比率。该行已计入威高2025年全年业绩，将2026至2028年每股盈利预测分别下调14.7%、13.8%及14.2
 
 ## 正文
 
-6月18日消息，港股博彩股继续走低，其中，金沙中国、新濠国际发展盘中跌超3%均刷新年内新低，美高梅中国跌2.12%，银河娱乐跌1.36%，澳博控股跌1.23%录得7连跌行情，刷新年内新低。
+摩根士丹利发布研报称，将威高股份（01066）2026至2028年收入预测各上调4%，以反映每年约4%至5%的增长，处于管理层最新指引的下限。
 
-消息上，花旗与汇丰研究均指出，6月11日至7月19日举行的世界杯赛事是导致澳门博彩总收入（GGR）短期放缓的核心原因。
+然而，该行下调威高股份2026至2030年的毛利率假设，以反映持续的定价压力及集中采购对一般耗材的影响，并按趋势微调营运开支比率。
 
-历史数据显示，大型足球赛事会分散澳门玩家的博彩预算，而今年赛制扩容可能使影响更为显著。
+该行已计入威高2025年全年业绩，将2026至2028年每股盈利预测分别下调14.7%、13.8%及14.2%。
 
-花旗预测6月澳门博彩总营收同比下跌10%。
+按更新后的人民币兑港元汇率1.14计算，目标价由6港元下调至5.2港元，维持“与大市同步”评级。
 
-汇丰研究发表报告指，短期内日均赌收放缓，或对博彩业的市场情绪及表现构成压力。
+该行认为，威高股份在中国医疗科技多个领域均有布局，包括一般耗材、骨科、药品包装、介入产品及血液管理等，拥有业内其中一个最有效的销售分销网络，是推出新产品的强大平台。
 
-该行偏好银娱的高端组合持续改善，且拥有强劲的长期增长动力，又看好金沙中国及美高梅中国，均予‘买入’评级，目标价分别为48.5港元、22.6港元及17港元。
+惟近期增长受价格下调及行业销量低于平均所影响，加上持续的DRG及集中采购政策逆风，评级“与大市同步”反映其估值在稳定增长路径及股息率支持下属合理。
 
-责任编辑：郝欣煜
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:39 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 05:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 05:45 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-30 05:53 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 05:37 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 05:49 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 05:39 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 05:36 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 05:41 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 05:50 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 06:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 05:43 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 05:41 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 06:04 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 05:42 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 05:54 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 05:53 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 06:09 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 05:45 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-30 05:52 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 06:03 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 06:01 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 05:55 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 06:08 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 05:56 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 05:44 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 06:07 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:42 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/43187132003.shtml)
-- 2026-06-30 05:54 - [日本进球](http://www.blog.minike.top/Article/details/2197387.shtml)
-- 2026-06-30 05:36 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/20698799494.shtml)
-- 2026-06-30 05:51 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/358242590381.shtml)
-- 2026-06-30 05:55 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/33076.shtml)
-- 2026-06-30 06:01 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/2152552142.shtml)
-- 2026-06-30 05:49 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/03676890620.shtml)
-- 2026-06-30 05:47 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/2775470699.shtml)
-- 2026-06-30 05:54 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/12794688342.shtml)
-- 2026-06-30 05:49 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/8127643090.shtml)
-- 2026-06-30 06:02 - [扫黑风暴](https://www.blog.minike.top/Article/details/45341507232.shtml)
-- 2026-06-30 05:41 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/84905.shtml)
-- 2026-06-30 06:04 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/19111.shtml)
-- 2026-06-30 05:39 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/2618933.shtml)
-- 2026-06-30 05:56 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/606807.shtml)
+- 2026-06-30 06:08 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/4873074.shtml)
+- 2026-06-30 06:01 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/358191849042.shtml)
+- 2026-06-30 06:05 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/464790887.shtml)
+- 2026-06-30 05:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/6334788.shtml)
+- 2026-06-30 06:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/0837403918.shtml)
+- 2026-06-30 05:42 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/63145.shtml)
+- 2026-06-30 05:56 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/701469.shtml)
+- 2026-06-30 06:11 - [张凌赫 客串](https://www.blog.minike.top/Article/details/08099288.shtml)
+- 2026-06-30 06:06 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/035548.shtml)
+- 2026-06-30 05:42 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/183265400.shtml)
+- 2026-06-30 05:44 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/798570086760.shtml)
+- 2026-06-30 05:47 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/609744495879.shtml)
+- 2026-06-30 05:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/7298617.shtml)
+- 2026-06-30 06:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/6646133506.shtml)
+- 2026-06-30 05:44 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/0308245540.shtml)

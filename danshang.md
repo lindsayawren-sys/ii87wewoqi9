@@ -1,60 +1,60 @@
-# 帮境外机构解决人民币流动性问题，央行出手了
+# “-175亿！”富国基金旗下ETF成“亏损王”
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 唐婧 6月17日，央行行长潘功胜在2026陆家嘴论坛上宣布，将创设境外央行类机构回购工具。同日，央行发布公告，披露了该工具的操作框架。 潘功胜介绍，境外央行或货币当局、国际金融组织、主权财富基金，都可以用中国国债等高等级债券回购的方式，从中国人民银行获得人民币流动性，便利境外央行类机构的人民币流动性管理和人民币资产配置。 公告指出，该工具操作方式包括买断式
+来源丨资市会 作者|资市分子 管理基金规模超700亿元的蔡卡尔和田希蒙，业绩都不行。 随着公募基金一季报披露结束，产品业绩、管理规模、持仓等情况也浮出水面。富国中证港股通互联网ETF以175.47亿元的亏损成为单只基金“亏损王”，占行业整体亏损额的约8.5%，也是唯一一只亏损金额超过150亿元的基金。 富国中证港股通互联网ETF成立于2021年9月15日，截至4月30日，该基金
 
 ## 正文
 
-21世纪经济报道记者 唐婧 6月17日，央行行长潘功胜在2026陆家嘴论坛上宣布，将创设境外央行类机构回购工具。
+来源丨资市会 作者|资市分子 管理基金规模超700亿元的蔡卡尔和田希蒙，业绩都不行。
 
-同日，央行发布公告，披露了该工具的操作框架。
+随着公募基金一季报披露结束，产品业绩、管理规模、持仓等情况也浮出水面。
 
-潘功胜介绍，境外央行或货币当局、国际金融组织、主权财富基金，都可以用中国国债等高等级债券回购的方式，从中国人民银行获得人民币流动性，便利境外央行类机构的人民币流动性管理和人民币资产配置。
+富国中证港股通互联网ETF以175.47亿元的亏损成为单只基金“亏损王”，占行业整体亏损额的约8.5%，也是唯一一只亏损金额超过150亿元的基金。
 
-公告指出，该工具操作方式包括买断式逆回购和质押式逆回购，操作期限涵盖7天、1个月、3个月，回购利率在公开市场7天期逆回购操作利率上加点确定。
+富国中证港股通互联网ETF成立于2021年9月15日，截至4月30日，该基金规模为593.1亿元，是富国基金旗下管理规模最大的指数型基金。
 
-境外机构可使用中国国债、央行票据、政策性金融债等高等级人民币债券作为合格抵押品。
+该基金由基金经理蔡卡尔、田希蒙共同管理，属于“新老交叉”的组合管理模式。
 
-换言之，境外央行类机构可凭合格抵押品从中国人民银行融入资金，从而有效便利其人民币流动性管理，增强持有人民币资产的信心。
+近年来，ETF发展炙手可热，行业整体管理规模突破5万亿元，作为头部公募的富国基金亦深耕其中。
 
-‌远东资信研究院副院长张林告诉记者，境外机构持有人民币资产有时会面临短期流动性缺口，该工具有助于解决他们“变现渠道不畅”问题。
+截至4月30日，富国基金ETF规模为2202.63亿元，较年初减少330.9亿元，在行业中排名第九。
 
-此举可以降低境外机构持有人民币资产的流动性风险溢价，从而增强人民币资产对全球配置机构的吸引力。
+公司旗下89只ETF基金中，近四成产品规模低于2亿元。
 
 ## 相关推荐
 
-- 2026-06-30 05:58 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 05:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-30 05:54 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 05:52 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-30 05:41 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 06:04 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 05:38 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 05:44 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-30 05:44 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 05:56 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 06:00 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 05:52 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 05:45 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 05:48 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 06:10 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 06:09 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 05:55 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 06:11 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 05:47 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 05:51 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 05:52 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 06:09 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 05:58 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 05:58 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 05:51 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 06:00 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 05:58 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 05:53 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/91476076961.shtml)
-- 2026-06-30 05:37 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/316708.shtml)
-- 2026-06-30 05:40 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/36882.shtml)
-- 2026-06-30 05:56 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/69005899.shtml)
-- 2026-06-30 05:58 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/131089294273.shtml)
-- 2026-06-30 05:52 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/416608.shtml)
-- 2026-06-30 05:57 - [毒液2](http://www.blog.kurohicncr.top/Article/details/6165004237.shtml)
-- 2026-06-30 05:42 - [流金岁月](http://www.share.minike.top/Article/details/60716961004.shtml)
-- 2026-06-30 06:00 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/775066674.shtml)
-- 2026-06-30 06:01 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/1792742.shtml)
-- 2026-06-30 06:00 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/852595.shtml)
-- 2026-06-30 06:01 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/901853.shtml)
-- 2026-06-30 05:50 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/95278483711.shtml)
-- 2026-06-30 05:50 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/820248.shtml)
-- 2026-06-30 05:49 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/966482770.shtml)
+- 2026-06-30 06:02 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/06983581.shtml)
+- 2026-06-30 05:58 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/63606.shtml)
+- 2026-06-30 06:10 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/43464457621.shtml)
+- 2026-06-30 05:54 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/928615004.shtml)
+- 2026-06-30 05:45 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/5629612624.shtml)
+- 2026-06-30 05:53 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/669980501907.shtml)
+- 2026-06-30 06:03 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/818316754771.shtml)
+- 2026-06-30 05:59 - [小娘惹](http://www.share.kurohicncr.top/Article/details/9783709615.shtml)
+- 2026-06-30 06:11 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/27376500901.shtml)
+- 2026-06-30 05:54 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/18797.shtml)
+- 2026-06-30 06:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/862529617009.shtml)
+- 2026-06-30 06:05 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/6682072.shtml)
+- 2026-06-30 05:44 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/273638528965.shtml)
+- 2026-06-30 05:47 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/08014748875.shtml)
+- 2026-06-30 06:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/785847721722.shtml)

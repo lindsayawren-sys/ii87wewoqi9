@@ -1,49 +1,57 @@
-# 电投能源：基于经营发展需要，公司本部已于2026年5月末搬迁至内蒙古自治区呼和浩特市
+# 霸居全市场ETF涨幅榜第五！华宝基金信创ETF（562030）拉升8.1%！AI应用+存储芯片携手猛攻，江波龙等3股涨停
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月18日，电投能源在互动平台回答投资者提问时表示，基于经营发展需要，公司本部已于2026年5月末搬迁至内蒙古自治区呼和浩特市。公司始终致力于长期健康发展，通过扎实的经营业绩回报广大投资者。（文章来源：证券日报）
+或由于DeepSeek-V4全面适配国产芯片，从技术端印证信创全栈自主可控的可行性，5月首个交易日（5月6日），信创ETF华宝（562030）跳空大涨，场内价格强势拉升8.11%，收盘涨幅霸居全市场ETF涨幅榜第五！ 成份股方面，九成个股收红，37只个股涨超2%，AI应用概念股东方国信、卓易信息20CM涨停，存储芯片龙头江波龙20CM涨停，佰维存储涨逾17%，国产算力龙头海光信
 
 ## 正文
 
-证券日报网讯 6月18日，电投能源在互动平台回答投资者提问时表示，基于经营发展需要，公司本部已于2026年5月末搬迁至内蒙古自治区呼和浩特市。
+或由于DeepSeek-V4全面适配国产芯片，从技术端印证信创全栈自主可控的可行性，5月首个交易日（5月6日），信创ETF华宝（562030）跳空大涨，场内价格强势拉升8.11%，收盘涨幅霸居全市场ETF涨幅榜第五！
 
-公司始终致力于长期健康发展，通过扎实的经营业绩回报广大投资者。
+成份股方面，九成个股收红，37只个股涨超2%，AI应用概念股东方国信、卓易信息20CM涨停，存储芯片龙头江波龙20CM涨停，佰维存储涨逾17%，国产算力龙头海光信息涨逾16%。
 
-（文章来源：证券日报）
+信创，即信息技术应用创新，旨在实现从底层硬件到上层应用软件的全面自主可控，解决核心技术“卡脖子”问题。
+
+我国的信创体系，可以概括为“2+8+N”，即最初在党政领域试点应用，之后在金融、电力、石油等国计民生八大重点行业加速推进。
+
+政策方面，2027年全面替代节点倒逼，2026年成订单释放大年。
+
+国资委79号文明确要求，到2027年底前，所有央企及地方国企需实现信息系统的100%信创替代。
+
+工信部最新披露数据，2026年一季度信创领域政府采购中标金额同比增幅超65%，其中省级以上政务云平台信创适配完成率已达92.3%。
+
+产业层面，DeepSeek-V4于4月24日正式上线并开源，全面运行于华为昇腾950PR芯片，底层代码从英伟达CUDA迁移至华为CANNNext框架，标志着国产模型与国产算力闭环实质性打通。
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 05:50 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 05:39 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 05:47 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 05:39 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 05:56 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 06:01 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 05:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 05:45 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 05:42 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 06:01 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 05:59 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 05:54 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 05:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 06:06 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 05:44 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 05:59 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 05:47 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 06:05 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 05:50 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 06:04 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 06:04 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 05:55 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 06:06 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:40 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/2290248.shtml)
-- 2026-06-30 05:39 - [女心理师](http://www.share.kurohicncr.top/Article/details/92859.shtml)
-- 2026-06-30 05:59 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/0170993.shtml)
-- 2026-06-30 05:39 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/2275815.shtml)
-- 2026-06-30 05:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/4594416436.shtml)
-- 2026-06-30 05:48 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/228292.shtml)
-- 2026-06-30 05:38 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/4478243660.shtml)
-- 2026-06-30 05:44 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/06119.shtml)
-- 2026-06-30 06:02 - [沉睡花园](http://www.blog.minike.top/Article/details/6780210291.shtml)
-- 2026-06-30 06:00 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/06432.shtml)
-- 2026-06-30 06:01 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/5414848.shtml)
-- 2026-06-30 06:03 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/56420722.shtml)
-- 2026-06-30 05:46 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/03010.shtml)
-- 2026-06-30 05:48 - [斛珠夫人](https://www.share.minike.top/Article/details/998813149.shtml)
-- 2026-06-30 05:37 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/6520445.shtml)
+- 2026-06-30 05:45 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/003452607.shtml)
+- 2026-06-30 05:47 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/691283.shtml)
+- 2026-06-30 05:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/04010.shtml)
+- 2026-06-30 05:42 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/38836.shtml)
+- 2026-06-30 06:03 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/321382607161.shtml)
+- 2026-06-30 05:46 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/779818943393.shtml)
+- 2026-06-30 06:03 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/83248208.shtml)
+- 2026-06-30 06:08 - [房价什么时候能涨](http://www.share.minike.top/Article/details/68187.shtml)
+- 2026-06-30 05:42 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/847212375.shtml)
+- 2026-06-30 05:52 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/72998721.shtml)
+- 2026-06-30 05:50 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/108444077.shtml)
+- 2026-06-30 05:46 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/494076614.shtml)
+- 2026-06-30 05:51 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/08233168275.shtml)
+- 2026-06-30 05:53 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/0826329160.shtml)
+- 2026-06-30 05:52 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/278091094.shtml)

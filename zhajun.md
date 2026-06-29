@@ -1,61 +1,61 @@
-# 站上4100点！指数走强个股却大范围回调，分化行情为哪般？
+# 司法如何界定加班新形态
 
-> 更新时间：2026-06-30 06:06:02 UTC+8
+> 更新时间：2026-06-30 06:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！震荡蓄势后，上证指数顺利站上4100点整数关口，创业板表现则更为强势，最终刷新了历史收盘新高。 不过，在指数平稳反弹的表象下，市场内部的结构性矛盾持续凸显，短线资金情绪分化进一步加剧。投资者仍需留意指数冲高回落、阶段性洗盘的风险。 上证指数日K线图 赚指数不赚个股 6月17日三大股指集体反弹，上证指数小幅低
+移动办公日益普及，下班后回复工作微信、节假日参加线上会议、休息时间随时待命，成为不少职场人的日常。近日，多家法院发布劳动争议典型案例，厘清“隐形加班”相关法律问题。 北京市第二中级人民法院日前通报一起“隐形加班”案。王某因加班工资问题与公司产生争议，起诉公司称，公司频繁在工作时间外安排线上会议和培训，并规定如不参与需“自愿捐款”200元。王某提交线上参会记录、聊天截图、自制统计
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+移动办公日益普及，下班后回复工作微信、节假日参加线上会议、休息时间随时待命，成为不少职场人的日常。
 
-震荡蓄势后，上证指数顺利站上4100点整数关口，创业板表现则更为强势，最终刷新了历史收盘新高。
+近日，多家法院发布劳动争议典型案例，厘清“隐形加班”相关法律问题。
 
-不过，在指数平稳反弹的表象下，市场内部的结构性矛盾持续凸显，短线资金情绪分化进一步加剧。
+北京市第二中级人民法院日前通报一起“隐形加班”案。
 
-投资者仍需留意指数冲高回落、阶段性洗盘的风险。
+王某因加班工资问题与公司产生争议，起诉公司称，公司频繁在工作时间外安排线上会议和培训，并规定如不参与需“自愿捐款”200元。
 
-上证指数日K线图 赚指数不赚个股 6月17日三大股指集体反弹，上证指数小幅低开后便开始震荡，盘中两次冲击4100点未果后出现回落，最终尾盘多头发力拉抬股指顺利站上该重要心理位置，并重回30日均线上方。
+王某提交线上参会记录、聊天截图、自制统计表等证据，主张公司应支付加班费8.5万余元。
 
-深证成指、创业板指同样是低开高走，午后将涨幅进一步扩大，最终在全日次高点收盘。
+公司辩称，公司制度规定加班需审批，且线上会议员工无需发言甚至无需听会，不能证明实际提供劳动，“捐款”规定与参会无关。
 
-截至收盘，上证指数报收4108.08点，上涨0.4%；深证成指报收15880.95点，上涨1.31%；创业板指报收4167.05点，上涨1.56%。
+北京市第二中级人民法院审理认为，王某提交的证据能够证明公司在非工作时间安排了线上活动。
 
-成交量则是延续小幅放大格局，沪深北三市成交额合计高达31143亿元，较前一交易日放量接近280亿元。
+活动由用人单位安排，员工具有服从义务，所谓“捐款”规定进一步佐证强制性，活动挤占员工休息时间、消耗个人精力，应认定为加班。
 
 ## 相关推荐
 
-- 2026-06-30 05:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 05:48 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 06:04 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 05:36 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 05:55 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 05:51 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 05:53 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 06:04 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 05:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 06:03 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 05:52 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 05:52 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 05:36 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 05:48 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 06:00 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 06:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 05:57 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-30 05:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 05:52 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 05:43 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 05:55 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 05:44 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 05:49 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 06:05 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 06:02 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 05:48 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 05:42 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 06:03 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 05:53 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 06:08 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:55 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/830372.shtml)
-- 2026-06-30 05:44 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/89305032650.shtml)
-- 2026-06-30 05:57 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/548496.shtml)
-- 2026-06-30 05:57 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/852756539823.shtml)
-- 2026-06-30 05:50 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/6843520.shtml)
-- 2026-06-30 05:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/728568344.shtml)
-- 2026-06-30 05:47 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/987331393.shtml)
-- 2026-06-30 05:41 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/69885949.shtml)
-- 2026-06-30 05:58 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/9190704.shtml)
-- 2026-06-30 05:55 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/316984990.shtml)
-- 2026-06-30 06:00 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/590046206.shtml)
-- 2026-06-30 05:48 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/27982814.shtml)
-- 2026-06-30 06:03 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/13319070.shtml)
-- 2026-06-30 05:41 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/979850.shtml)
-- 2026-06-30 06:00 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/76806892472.shtml)
+- 2026-06-30 06:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/808261.shtml)
+- 2026-06-30 05:52 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/18990.shtml)
+- 2026-06-30 05:57 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/4929192223.shtml)
+- 2026-06-30 06:05 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/4762275613.shtml)
+- 2026-06-30 05:48 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/452487.shtml)
+- 2026-06-30 05:53 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/4588457080.shtml)
+- 2026-06-30 06:10 - [一见倾心](http://www.blog.minike.top/Article/details/7474093.shtml)
+- 2026-06-30 06:00 - [月亮](https://www.share.kurohicncr.top/Article/details/25845.shtml)
+- 2026-06-30 05:48 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/545493.shtml)
+- 2026-06-30 06:00 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/597473857344.shtml)
+- 2026-06-30 05:54 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/42834177807.shtml)
+- 2026-06-30 06:05 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/963759094129.shtml)
+- 2026-06-30 05:45 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/765398477777.shtml)
+- 2026-06-30 06:07 - [天道](http://www.share.kurohicncr.top/Article/details/0767089834.shtml)
+- 2026-06-30 06:06 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/4383427.shtml)
