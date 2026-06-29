@@ -1,58 +1,44 @@
-# 壳牌计划2027年启动Loran-Manatee气田天然气生产
+# 这封信，写给两位离开五年的老人
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-能源生产商壳牌计划于2027年开始从Loran-Manatee海上气田产出天然气。该气田横跨委内瑞拉与特立尼达和多巴哥的海上边界，特立尼达国家天然气公司董事长杰拉尔德·拉姆丁周四向路透社透露了这一消息。 在临时总统德尔西·罗德里格斯政府领导下，壳牌正加速推进委内瑞拉的天然气项目，尤其是与特立尼达合作的项目。特立尼达需要新的天然气供应来支持其液化天然气和石化项目。 拉姆丁表示，壳
+作者：中新社四川分社 谭晋豫 袁牟知博 编辑：丁宝秀 臧赫 审校：魏园 责编：马学玲 来源：中新社微信公众号
 
 ## 正文
 
-能源生产商壳牌计划于2027年开始从Loran-Manatee海上气田产出天然气。
-
-该气田横跨委内瑞拉与特立尼达和多巴哥的海上边界，特立尼达国家天然气公司董事长杰拉尔德·拉姆丁周四向路透社透露了这一消息。
-
-在临时总统德尔西·罗德里格斯政府领导下，壳牌正加速推进委内瑞拉的天然气项目，尤其是与特立尼达合作的项目。
-
-特立尼达需要新的天然气供应来支持其液化天然气和石化项目。
-
-拉姆丁表示，壳牌已告知国家天然气公司，其正在努力争取明年从该联合气田产出第一批天然气。
-
-该公司已将用于输送天然气至特立尼达的管道容量从原计划的每日7亿立方英尺提升至每日10亿立方英尺。
-
-“这些天然气现在将通过一条32英寸的管道输送至我们的Beachfield设施，而非原计划的24英寸管道，”拉姆丁在接受采访时补充道。
-
-此前有报道称，壳牌正在深入谈判参与Loran气田（该气田位于委内瑞拉一侧），并可能选择将其与Manatee气田作为一个统一项目进行开发。
+作者：中新社四川分社 谭晋豫 袁牟知博 编辑：丁宝秀 臧赫 审校：魏园 责编：马学玲 来源：中新社微信公众号
 
 ## 相关推荐
 
-- 2026-06-29 16:10 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 16:20 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 16:01 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 16:14 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 16:10 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 16:12 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 16:00 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 16:22 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 16:16 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 16:26 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 16:02 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 16:09 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 16:08 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 16:17 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 16:07 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 16:22 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 16:14 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 16:15 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 16:25 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 16:24 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 16:16 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 16:17 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 16:18 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 16:34 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:17 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/0961934.shtml)
-- 2026-06-29 16:06 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/51531812760.shtml)
-- 2026-06-29 16:27 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/42126300.shtml)
-- 2026-06-29 16:23 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/096172061.shtml)
-- 2026-06-29 16:07 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/254960012302.shtml)
-- 2026-06-29 16:07 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/8424893496.shtml)
-- 2026-06-29 16:08 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/67547.shtml)
-- 2026-06-29 16:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/221186349830.shtml)
-- 2026-06-29 16:08 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.minike.top/Article/details/370491.shtml)
-- 2026-06-29 16:09 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/4503045.shtml)
-- 2026-06-29 16:07 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/7286221.shtml)
-- 2026-06-29 16:11 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/3229373.shtml)
-- 2026-06-29 16:07 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/3804364.shtml)
-- 2026-06-29 16:29 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/615331.shtml)
-- 2026-06-29 16:11 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/817024962.shtml)
+- 2026-06-29 16:07 - [青春环游记第三季](https://www.share.minike.top/Article/details/96734661838.shtml)
+- 2026-06-29 16:12 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/2253558293.shtml)
+- 2026-06-29 16:12 - [广东一地发现极危植物新物种](http://www.share.kurohicncr.top/Article/details/092893861.shtml)
+- 2026-06-29 16:22 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/119170057620.shtml)
+- 2026-06-29 16:08 - [世界杯欧美八大豪强悉数出线](http://www.share.kurohicncr.top/Article/details/3474404.shtml)
+- 2026-06-29 16:10 - [重度抑郁女孩没钱去做心理咨询](http://www.share.kurohicncr.top/Article/details/8948229.shtml)
+- 2026-06-29 16:18 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/57399766419.shtml)
+- 2026-06-29 16:24 - [恋与深空 731](https://www.share.kurohicncr.top/Article/details/006415.shtml)
+- 2026-06-29 16:21 - [李在镕：计划将光州作为芯片生产基地](http://www.share.kurohicncr.top/Article/details/811175072642.shtml)
+- 2026-06-29 16:11 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/5232057.shtml)
+- 2026-06-29 16:23 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/39912683.shtml)
+- 2026-06-29 16:19 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/312560633.shtml)
+- 2026-06-29 16:24 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/1096066.shtml)
+- 2026-06-29 16:23 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/55004.shtml)
+- 2026-06-29 16:24 - [美人鱼](http://www.share.minike.top/Article/details/6258634.shtml)

@@ -1,61 +1,57 @@
-# 华创证券：首次覆盖心动公司给予“强推”评级 目标价为100.9港元
+# 2025年全国1%人口抽样调查主要数据公报
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-华创证券发布研报称，预计心动公司（02400）2026-2028年实现归母净利润21.8/27.3/31.1亿元，YOY+42%/25%/14%。采用PE法估值，选取部分A+H股游戏公司作为可比公司，可比公司25-27年PE均值20/15/13x。考虑公司核心自研产品有长线运营潜力，TapTap平台稳定性及持续性，应享受更高估值，给予公司26年20x目标PE，对应目标市值435
+2025年全国1%人口抽样调查主要数据公报\[1\] 国家统计局 2026年5月22日 全国1%人口抽样调查是一项重大国情国力调查。根据《全国人口普查条例》规定和《国务院办公厅关于开展2025年全国1%人口抽样调查的通知》(国办函〔2024〕71号)要求，我国进行了2025年全国1%人口抽样调查，调查的标准时点为2025年11月1日零时。按照党中央和国务院部署，在各地区、各部门、各
 
 ## 正文
 
-华创证券发布研报称，预计心动公司（02400）2026-2028年实现归母净利润21.8/27.3/31.1亿元，YOY+42%/25%/14%。
+2025年全国1%人口抽样调查主要数据公报\[1\] 国家统计局 2026年5月22日 全国1%人口抽样调查是一项重大国情国力调查。
 
-采用PE法估值，选取部分A+H股游戏公司作为可比公司，可比公司25-27年PE均值20/15/13x。
+根据《全国人口普查条例》规定和《国务院办公厅关于开展2025年全国1%人口抽样调查的通知》(国办函〔2024〕71号)要求，我国进行了2025年全国1%人口抽样调查，调查的标准时点为2025年11月1日零时。
 
-考虑公司核心自研产品有长线运营潜力，TapTap平台稳定性及持续性，应享受更高估值，给予公司26年20x目标PE，对应目标市值435.5亿元，目标价100.9港元，首次覆盖给予“强推”评级。
+按照党中央和国务院部署，在各地区、各部门、各级调查机构的共同努力下，经过广大调查人员的艰辛努力以及调查对象的积极配合，2025年全国1%人口抽样调查已完成现场登记和主要数据汇总测算等工作。
 
-华创证券主要观点如下： TapTap平台+自研双轮驱动，构筑独特竞争壁垒 公司业务主要为游戏研运与TapTap平台两大板块。
+现将根据这次调查推算的人口主要数据公布如下：一、全国人口\[2\]\[3\] 全国人口为140545万人，其中男性人口为71722万人，占51.03%；女性人口为68823万人，占48.97%，总人口性别比(以女性为100，男性对女性的比例)为104.21。
 
-公司成立于2011年，以页游研发代理起家，随着移动互联网发展过渡到移动游戏发行，2019年发力自研战略，后推出《火炬之光：无限》《出发吧麦芬》《仙境传说M：初心服》《心动小镇》等成功的自研产品。
+二、家庭户人口 全国共有家庭户\[4\]51465万户，家庭户人口为129685万人。
 
-基于对内容与流量关系和长期价值的思考，公司于2016推出TapTap平台，以“零分成、广告盈利”的商业模式，加上持续丰富的开发者服务和玩家运营，逐渐将平台打造成以社区内容为核心、以算法为驱动、以开发者服务为壁垒的综合性游戏平台。
+平均每个家庭户人口为2.52人。
 
-公司致力于形成“游戏研发和发行为TapTap提供优质独家内容—独家内容驱动TapTap用户增长—TapTap产品运营优势留下用户、产生收入—再通过TapTap反哺第一方和第三方内容创作，产生更多优质内容—驱动TapTap进一步成长”的双轮驱动的良性商业模式。
+三、年龄构成 全国人口中，0—14岁人口为21436万人，占15.25%；15—59岁人口为86987万人，占61.89%；60岁及以上人口为32122万人，占22.86%，其中65岁及以上人口为22309万人，占15.87%。
 
-自研聚焦核心品类，长青游戏已现雏形 公司从2019年开始加大自研投入，起初由于品类不够聚焦，推出的横版格斗、射击等品类产品，市场表现欠佳。
+\[5\] 四、各种受教育程度人口 全国人口中，具有大学(指大专及以上)文化程度的人口为27233万人；具有高中(含中专)文化程度的人口为24272万人；具有初中文化程度的人口为45283万人；具有小学文化程度的人口为33122万人。
 
 ## 相关推荐
 
-- 2026-06-29 16:22 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 16:26 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 16:20 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 16:29 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 16:22 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 16:29 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 16:08 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 16:14 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 16:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 16:10 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 16:06 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 16:28 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 16:23 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 16:18 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 16:22 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 16:20 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 16:10 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 16:09 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 16:20 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 16:24 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 16:32 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 16:24 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 16:17 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 16:29 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 16:20 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 16:12 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:12 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/3644914.shtml)
-- 2026-06-29 16:18 - [王楚钦3-0周启豪 晋级32强](http://www.blog.kurohicncr.top/Article/details/0643840790.shtml)
-- 2026-06-29 16:08 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/6296276.shtml)
-- 2026-06-29 16:27 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/2833538.shtml)
-- 2026-06-29 16:05 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/31919.shtml)
-- 2026-06-29 16:02 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/2410736.shtml)
-- 2026-06-29 16:23 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/78066298.shtml)
-- 2026-06-29 16:29 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/1775740.shtml)
-- 2026-06-29 16:01 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/6133302008.shtml)
-- 2026-06-29 16:04 - [7款商保创新药“转道”](http://www.share.kurohicncr.top/Article/details/4827572983.shtml)
-- 2026-06-29 16:06 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/77413.shtml)
-- 2026-06-29 16:22 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/67178.shtml)
-- 2026-06-29 16:14 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/968515672.shtml)
-- 2026-06-29 16:26 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/74252634.shtml)
-- 2026-06-29 16:00 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/796551022224.shtml)
+- 2026-06-29 16:28 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/9318657323.shtml)
+- 2026-06-29 16:16 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/41843810300.shtml)
+- 2026-06-29 16:17 - [世界杯看到肖战了](https://www.blog.kurohicncr.top/Article/details/7367625449.shtml)
+- 2026-06-29 16:18 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/2400880.shtml)
+- 2026-06-29 16:30 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/0672904253.shtml)
+- 2026-06-29 16:13 - [第一炉香](http://www.blog.minike.top/Article/details/02272117344.shtml)
+- 2026-06-29 16:06 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/6371724.shtml)
+- 2026-06-29 16:33 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/007148.shtml)
+- 2026-06-29 16:30 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/673031103.shtml)
+- 2026-06-29 16:20 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/57482.shtml)
+- 2026-06-29 16:15 - [光与夜之恋](https://www.blog.kurohicncr.top/Article/details/436733289.shtml)
+- 2026-06-29 16:23 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/27867719.shtml)
+- 2026-06-29 16:26 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/44498192.shtml)
+- 2026-06-29 16:17 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/74413175521.shtml)
+- 2026-06-29 16:07 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/2068181696.shtml)

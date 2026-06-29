@@ -1,53 +1,56 @@
-# 海南“十五五”深化区域合作：拓展国际“朋友圈”、织密省际“协同网”、下好全省“一盘棋”
+# 养老服务师：用心托举银发幸福
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月10日 16:28 来源：中国新闻网 4月10日，开局起步“十五五”——高标准建设海南自由贸易港专场新闻发布会在海口举行。海南省发展和改革委员会主任綦树利在会上介绍，“十五五”期间，海南深化区域合作与联动发展的思路是“三管齐下”，即拓展国际“朋友圈”、织密省际“协同网”、下好全省“一盘棋”。 他表示，“十五五”期间，海南将与东南亚、共建“一带一路”国家
+【好评中国·新角色】养老服务师：用心托举银发幸福 “每个老年人的身体情况不一样，照护的重点也不一样。认知症老人要特别注意防走失，还需要移除地面杂物，安装防护垫，用清晰标识区分功能区……”，这是养老服务师工作的日常缩影。 当前，职业化、专业化的养老服务人才成为护航幸福晚年的重要力量。养老服务师是人力资源社会保障部发布的17个新职业之一，指从事居家、社区、机构养老服务综合需求评估、
 
 ## 正文
 
-发布时间：2026年04月10日 16:28 来源：中国新闻网 4月10日，开局起步“十五五”——高标准建设海南自由贸易港专场新闻发布会在海口举行。
+【好评中国·新角色】养老服务师：用心托举银发幸福 “每个老年人的身体情况不一样，照护的重点也不一样。
 
-海南省发展和改革委员会主任綦树利在会上介绍，“十五五”期间，海南深化区域合作与联动发展的思路是“三管齐下”，即拓展国际“朋友圈”、织密省际“协同网”、下好全省“一盘棋”。
+认知症老人要特别注意防走失，还需要移除地面杂物，安装防护垫，用清晰标识区分功能区……”，这是养老服务师工作的日常缩影。
 
-他表示，“十五五”期间，海南将与东南亚、共建“一带一路”国家及欧洲重点地区，围绕热带农业、绿色能源、数字贸易、航运物流、高端医疗等领域深化合作；将主动对接粤港澳、京津冀、长三角、长江经济带等国家重大区域战略，重点聚焦种业、深海等领域，以合作产业园为载体，发挥区域战略叠加效应；通过建立沿海市县与中部市县结对的“山海协作”机制，打造具有海南特色的共同富裕样板。
+当前，职业化、专业化的养老服务人才成为护航幸福晚年的重要力量。
 
-(记者 林士杰) 责任编辑：【于晓】
+养老服务师是人力资源社会保障部发布的17个新职业之一，指从事居家、社区、机构养老服务综合需求评估、方案制订与实施、照护技术实施与培训指导、质量评价管理、服务咨询转介、实务应用研究的专业技术人员。
+
+“十五五”规划纲要提出，“推进养老服务人员队伍职业化建设”“大力发展银发经济，丰富适老化产品和老年服务供给”。
+
+随着我国失能失智老人照护需求的持续增长，传统的养老服务模式难以满足老年人需求。
+
+养老服务师作为新职业应运而生，他们精准捕捉需求，统筹整合各类服务资源，为老年生活注入满满安心与暖意，成为破解养老服务痛点的一支重要力量。
+
+这群专业人才正以自己的技能与温度，努力提高亿万老年人的幸福指数。
 
 ## 相关推荐
 
-- 2026-06-29 16:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 16:21 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 16:07 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 16:01 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 16:21 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 16:05 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 16:27 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 16:18 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 16:13 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 16:25 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 16:01 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 16:23 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 16:21 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 16:03 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 16:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 16:06 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 16:20 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 16:16 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 16:26 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 16:31 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 16:35 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 16:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 16:31 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 16:35 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 16:22 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:25 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/1144362436.shtml)
-- 2026-06-29 16:10 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/398951123.shtml)
-- 2026-06-29 16:01 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.kurohicncr.top/Article/details/060928.shtml)
-- 2026-06-29 16:05 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/092190471.shtml)
-- 2026-06-29 16:03 - [梅朗雄主张法国退出北约](https://www.blog.kurohicncr.top/Article/details/796724.shtml)
-- 2026-06-29 16:10 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/13546927762.shtml)
-- 2026-06-29 16:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/43538845.shtml)
-- 2026-06-29 16:04 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/98293150.shtml)
-- 2026-06-29 16:17 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/543203302364.shtml)
-- 2026-06-29 16:30 - [世界杯十大帅哥必吃榜](https://www.share.kurohicncr.top/Article/details/69991778836.shtml)
-- 2026-06-29 16:24 - [新一代影后杨紫](http://www.share.minike.top/Article/details/742118580.shtml)
-- 2026-06-29 16:06 - [新一代影后杨紫](http://www.share.kurohicncr.top/Article/details/7858440961.shtml)
-- 2026-06-29 16:17 - [血糖高的人能吃西瓜吗](http://www.share.minike.top/Article/details/60009278.shtml)
-- 2026-06-29 16:14 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.kurohicncr.top/Article/details/4696282428.shtml)
-- 2026-06-29 16:21 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.minike.top/Article/details/4289627113.shtml)
+- 2026-06-29 16:15 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/9063788.shtml)
+- 2026-06-29 16:13 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/195249.shtml)
+- 2026-06-29 16:14 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/71571950816.shtml)
+- 2026-06-29 16:35 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/06322450312.shtml)
+- 2026-06-29 16:14 - [斛珠夫人](https://www.blog.minike.top/Article/details/795525129.shtml)
+- 2026-06-29 16:34 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/95714.shtml)
+- 2026-06-29 16:21 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/50247.shtml)
+- 2026-06-29 16:25 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/0549490809.shtml)
+- 2026-06-29 16:20 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/96406942572.shtml)
+- 2026-06-29 16:13 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/54146221.shtml)
+- 2026-06-29 16:21 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/082154.shtml)
+- 2026-06-29 16:30 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/225233382.shtml)
+- 2026-06-29 16:08 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.minike.top/Article/details/48747882367.shtml)
+- 2026-06-29 16:31 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/4713752997.shtml)
+- 2026-06-29 16:13 - [男孩复读一年减重20斤涨分111分](http://www.share.kurohicncr.top/Article/details/043686910945.shtml)

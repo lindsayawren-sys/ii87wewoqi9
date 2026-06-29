@@ -1,45 +1,59 @@
-# 晶泰控股授出合共1123.43万购股权及1092.08万个受限制股份单位
+# CBA季后赛半决赛：浙江队客场战胜深圳队晋级总决赛
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-晶泰控股（02228）发布公告，于2026年4月9日，本公司根据购股权计划的条款向137名承授人授出合共1123.43万购股权及根据受限制股份单位计划的条款向270名承授人授出合共1092.08万个受限制股份单位，惟各自须待接纳后方可作实。责任编辑：卢昱君
+中新社深圳5月23日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)季后赛半决赛23日举行，浙江浙商证券队(简称“浙江队”)客场以97:88战胜深圳马可波罗队(简称“深圳队”)，以总比分3:1晋级总决赛。 此前，两队已经进行三回合较量，浙江队以大比分2:1拿到赛点。此役，两队多名主力带伤出战，均以强阵展开对决。 比赛开始，两队拼抢激烈。深圳队克里斯托弗连续
 
 ## 正文
 
-晶泰控股（02228）发布公告，于2026年4月9日，本公司根据购股权计划的条款向137名承授人授出合共1123.43万购股权及根据受限制股份单位计划的条款向270名承授人授出合共1092.08万个受限制股份单位，惟各自须待接纳后方可作实。
+中新社深圳5月23日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)季后赛半决赛23日举行，浙江浙商证券队(简称“浙江队”)客场以97:88战胜深圳马可波罗队(简称“深圳队”)，以总比分3:1晋级总决赛。
 
-责任编辑：卢昱君
+此前，两队已经进行三回合较量，浙江队以大比分2:1拿到赛点。
+
+此役，两队多名主力带伤出战，均以强阵展开对决。
+
+比赛开始，两队拼抢激烈。
+
+深圳队克里斯托弗连续得分，王浩然突破上篮，开局以4:1领先。
+
+其后，浙江队借助布朗等的接连得分，一度反超深圳队。
+
+后半节，深圳队多点开花，打出一波10:2的得分高潮。
+
+首节结束，深圳队以21:14领先。
 
 ## 相关推荐
 
-- 2026-06-29 16:16 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 16:25 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 16:24 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 16:04 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 16:23 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 16:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 16:08 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 16:14 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 16:06 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 16:13 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 16:09 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 16:16 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 16:33 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 16:33 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 16:14 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 16:30 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 16:27 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 16:13 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 16:25 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 16:17 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 16:10 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 16:14 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 16:20 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 16:32 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:09 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/2498102323.shtml)
-- 2026-06-29 16:13 - [复盘曾沛慈浪姐夺冠之路](https://www.share.minike.top/Article/details/3404422.shtml)
-- 2026-06-29 16:26 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/98850936.shtml)
-- 2026-06-29 16:01 - [复盘曾沛慈浪姐夺冠之路](http://www.share.kurohicncr.top/Article/details/276367918.shtml)
-- 2026-06-29 16:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/6486346604.shtml)
-- 2026-06-29 16:04 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/8180771.shtml)
-- 2026-06-29 16:17 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/27438791037.shtml)
-- 2026-06-29 16:18 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/591342.shtml)
-- 2026-06-29 16:27 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/2486521834.shtml)
-- 2026-06-29 16:24 - [世界杯十大帅哥必吃榜](http://www.blog.minike.top/Article/details/6235079.shtml)
-- 2026-06-29 16:09 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/931969.shtml)
-- 2026-06-29 16:28 - [当我回母校教书](https://www.share.minike.top/Article/details/398155080.shtml)
-- 2026-06-29 16:25 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.minike.top/Article/details/536413297085.shtml)
-- 2026-06-29 16:06 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/129151.shtml)
-- 2026-06-29 16:19 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/76433500680.shtml)
+- 2026-06-29 16:09 - [逆天祖国人](https://www.blog.minike.top/Article/details/95680799437.shtml)
+- 2026-06-29 16:12 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/9561360.shtml)
+- 2026-06-29 16:34 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/502522611522.shtml)
+- 2026-06-29 16:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/205099.shtml)
+- 2026-06-29 16:31 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/84891852154.shtml)
+- 2026-06-29 16:23 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.minike.top/Article/details/3586466.shtml)
+- 2026-06-29 16:19 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/84365.shtml)
+- 2026-06-29 16:32 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/4698342148.shtml)
+- 2026-06-29 16:07 - [急先锋](https://www.blog.kurohicncr.top/Article/details/93163759251.shtml)
+- 2026-06-29 16:23 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/20431253.shtml)
+- 2026-06-29 16:29 - [上海一小区水池内出现一条鳄鱼](http://www.share.minike.top/Article/details/0661269681.shtml)
+- 2026-06-29 16:33 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/805927.shtml)
+- 2026-06-29 16:21 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/637806672.shtml)
+- 2026-06-29 16:19 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/539568414.shtml)
+- 2026-06-29 16:09 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/79646097.shtml)

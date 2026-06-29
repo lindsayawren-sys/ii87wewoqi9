@@ -1,57 +1,49 @@
-# 中国为动荡的国际环境注入稳定性
+# 力量发展获董事会主席具文忠增持30万股 每股作价1.74港元
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中国为动荡的国际环境注入稳定性(国际论坛) 中国的政策连续性为国际社会提供了较高的可预期性，这种稳定性与创新驱动相结合，使中国在全球科技和产业竞争中形成独特优势，也为促进全球共同发展提供了新动力 中国的“十五五”规划纲要为国家未来5年发展指明了方向。从欧洲视角看，当前中国对外传递出的信号十分清晰：面对复杂的国际环境，中国致力于保持平稳健康可持续发展，将科技创新作为引领发展的核心
+香港联交所最新数据显示，5月22日，董事会主席具文忠增持力量发展（01277）30万股，每股作价1.74港元，总金额为52.2万港元。增持后最新持股数目约为1632.17万股，持股比例为0.19%。责任编辑：卢昱君
 
 ## 正文
 
-中国为动荡的国际环境注入稳定性(国际论坛) 中国的政策连续性为国际社会提供了较高的可预期性，这种稳定性与创新驱动相结合，使中国在全球科技和产业竞争中形成独特优势，也为促进全球共同发展提供了新动力 中国的“十五五”规划纲要为国家未来5年发展指明了方向。
+香港联交所最新数据显示，5月22日，董事会主席具文忠增持力量发展（01277）30万股，每股作价1.74港元，总金额为52.2万港元。
 
-从欧洲视角看，当前中国对外传递出的信号十分清晰：面对复杂的国际环境，中国致力于保持平稳健康可持续发展，将科技创新作为引领发展的核心驱动力，持续推进制度建设，坚定不移扩大开放、深化国际合作。
+增持后最新持股数目约为1632.17万股，持股比例为0.19%。
 
-欧洲关注中国全国两会等政治议程，不仅因为中国经济体量庞大，更因为中国在全球不确定性加剧的背景下展现出较强的发展稳定性。
-
-这为推动构建更加公正合理的国际秩序提供了现实可能，也为当前动荡的国际环境注入了稳定性。
-
-中国坚持以长期规划和稳定制度体系推进现代化进程，对欧洲具有重要参考意义。
-
-中国的政策连续性为国际社会提供了较高的可预期性，这种稳定性与创新驱动相结合，使中国在全球科技和产业竞争中形成独特优势，也为促进全球共同发展提供了新动力。
-
-中国正加快推进工业数字化、智能化转型，在人工智能、量子计算、生物技术等前沿领域不断取得突破，这将为欧中合作创造新的机遇。
-
-中国持续加大力度推进绿色发展，可再生能源装机规模快速增长，在储能技术、电动汽车及相关产业链方面领先全球，正在成为推动全球能源转型的关键力量，为应对气候变化作出重要贡献。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:10 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 16:07 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 16:13 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 16:25 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 16:28 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 16:12 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 16:29 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 16:13 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 16:10 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 16:06 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 16:26 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 16:15 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 16:34 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 16:06 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 16:12 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 16:31 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 16:11 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 16:33 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 16:15 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 16:07 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 16:30 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 16:32 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 16:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 16:26 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/168280492869.shtml)
-- 2026-06-29 16:01 - [上海一小区水池内出现一条鳄鱼](https://www.blog.kurohicncr.top/Article/details/0224360.shtml)
-- 2026-06-29 16:22 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/7027560149.shtml)
-- 2026-06-29 16:08 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/19680874479.shtml)
-- 2026-06-29 16:10 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/838206.shtml)
-- 2026-06-29 16:27 - [媒体：高考后消费应量力而行适度有度](https://www.share.minike.top/Article/details/10276596.shtml)
-- 2026-06-29 16:23 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/705997.shtml)
-- 2026-06-29 16:01 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/7863589.shtml)
-- 2026-06-29 16:20 - [血糖高的人能吃西瓜吗](https://www.blog.minike.top/Article/details/07495359.shtml)
-- 2026-06-29 16:19 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/29405192214.shtml)
-- 2026-06-29 16:18 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/916602250.shtml)
-- 2026-06-29 16:26 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/660603520.shtml)
-- 2026-06-29 16:03 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/41454644078.shtml)
-- 2026-06-29 16:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/645461505.shtml)
-- 2026-06-29 16:16 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/5708693.shtml)
+- 2026-06-29 16:14 - [上班主打一个薪尽自然凉](https://www.blog.minike.top/Article/details/41926565.shtml)
+- 2026-06-29 16:21 - [世界杯看到肖战了](http://www.share.kurohicncr.top/Article/details/063627782.shtml)
+- 2026-06-29 16:29 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.minike.top/Article/details/68785.shtml)
+- 2026-06-29 16:32 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/3240783.shtml)
+- 2026-06-29 16:31 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/95098.shtml)
+- 2026-06-29 16:12 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/638719.shtml)
+- 2026-06-29 16:33 - [医院大厅放钢琴是形式主义吗](http://www.share.minike.top/Article/details/578941898.shtml)
+- 2026-06-29 16:20 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/8345863.shtml)
+- 2026-06-29 16:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/4153333542.shtml)
+- 2026-06-29 16:20 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/904889177173.shtml)
+- 2026-06-29 16:32 - [当地回应林区违规放羊遭豹啃食](http://www.share.minike.top/Article/details/477553499555.shtml)
+- 2026-06-29 16:22 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/52139687304.shtml)
+- 2026-06-29 16:14 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/41343325895.shtml)
+- 2026-06-29 16:25 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/31104829624.shtml)
+- 2026-06-29 16:34 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/50334.shtml)

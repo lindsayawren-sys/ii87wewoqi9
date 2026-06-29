@@ -1,61 +1,58 @@
-# 地缘冲突反复，部分央行抛售黄金，黄金短期或仍维持承压态势
+# 亚太经合组织贸易部长会议苏州启幕 江南文创尽显姑苏韵味
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-文章来源：大众新闻-大众日报 过去一周，一方面，中东冲突反复冲击油价与金价；另一方面，多国央行买卖黄金的行动不一，金价走势震荡。广州日报全媒体记者留意到，4月3日至4月9日，伦敦金（现货黄金）收盘价在4600~4700美元/盎司的窄幅空间内震荡。受访业内人士认为，金价走势尚不明朗，短期黄金或仍维持承压态势。 伦敦金（现货黄金）近期走势图。 北京时间4月8日，中东地缘冲突缓解，国
+发布时间：2026年05月24日 00:05 来源：中国新闻网 5月22日至23日，亚太经合组织贸易部长会议在江苏苏州举办。活动期间，苏州特色文创产品集中亮相，以匠心佳作向各国嘉宾展现江南文化魅力。 展区内，宋锦文创产品备受青睐，融合传统纹样与现代设计的宋锦胸针、卡包精致典雅，经纬交织间尽显传统织造工艺的独特质感，兼具实用性与文化底蕴。苏式香包、香囊香气雅致，绣工精巧，传承传统
 
 ## 正文
 
-文章来源：大众新闻-大众日报 过去一周，一方面，中东冲突反复冲击油价与金价；另一方面，多国央行买卖黄金的行动不一，金价走势震荡。
+发布时间：2026年05月24日 00:05 来源：中国新闻网 5月22日至23日，亚太经合组织贸易部长会议在江苏苏州举办。
 
-广州日报全媒体记者留意到，4月3日至4月9日，伦敦金（现货黄金）收盘价在4600~4700美元/盎司的窄幅空间内震荡。
+活动期间，苏州特色文创产品集中亮相，以匠心佳作向各国嘉宾展现江南文化魅力。
 
-受访业内人士认为，金价走势尚不明朗，短期黄金或仍维持承压态势。
+展区内，宋锦文创产品备受青睐，融合传统纹样与现代设计的宋锦胸针、卡包精致典雅，经纬交织间尽显传统织造工艺的独特质感，兼具实用性与文化底蕴。
 
-伦敦金（现货黄金）近期走势图。
+苏式香包、香囊香气雅致，绣工精巧，传承传统民俗技艺，承载美好寓意，引得嘉宾驻足观赏、细细品鉴。
 
-北京时间4月8日，中东地缘冲突缓解，国际原油价格跳水，国际金价和银价迅速拉升，现货黄金一度涨破4800美元/盎司。
+此外，苏绣、缂丝等传统工艺衍生文创同步展出，一针一线尽显江南匠心。
 
-但4月9日，霍尔木兹海峡再度关闭。
+嘉宾们近距离体验传统工艺、品鉴特色好物，在互动交流中感受苏州深厚的文化底蕴。
 
-新华社发布消息称，伊朗议长表示，伊美谈判尚未开始，3项停战条款已遭违反，局势再升级。
-
-伦敦金（现货黄金）随即下探，伦敦金（现货黄金）自4850美元/盎司的高位跳水，至9日17时报4731美元/盎司，10日上午10时则报4748美元/盎司。
+(记者 尹倩芸 葛勇) 责任编辑：【张令旗】
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 16:20 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 16:29 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 16:19 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 16:07 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 16:08 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 16:29 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 16:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 16:21 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 16:20 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 16:25 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 16:28 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 16:14 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 16:07 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 16:27 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 16:28 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 16:31 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 16:31 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 16:11 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 16:18 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 16:25 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 16:19 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 16:20 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 16:07 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 16:30 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 16:19 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 16:15 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 16:14 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 16:13 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:11 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/537285.shtml)
-- 2026-06-29 16:24 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/23533.shtml)
-- 2026-06-29 16:02 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/79310230947.shtml)
-- 2026-06-29 16:10 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/38777.shtml)
-- 2026-06-29 16:28 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/2157883495.shtml)
-- 2026-06-29 16:05 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/3410055562.shtml)
-- 2026-06-29 16:19 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/481028541.shtml)
-- 2026-06-29 16:10 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/7395072.shtml)
-- 2026-06-29 16:01 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.kurohicncr.top/Article/details/704385236.shtml)
-- 2026-06-29 16:06 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/0179096053.shtml)
-- 2026-06-29 16:25 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/62714852657.shtml)
-- 2026-06-29 16:25 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/733754820.shtml)
-- 2026-06-29 16:28 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/184313281.shtml)
-- 2026-06-29 16:26 - [欧盟为什么越来越倾向贸易保护](http://www.share.minike.top/Article/details/685436391.shtml)
-- 2026-06-29 16:01 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/4873524.shtml)
+- 2026-06-29 16:28 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/08109780798.shtml)
+- 2026-06-29 16:06 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/4702020.shtml)
+- 2026-06-29 16:32 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/381234737125.shtml)
+- 2026-06-29 16:07 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/264756106130.shtml)
+- 2026-06-29 16:10 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/540834.shtml)
+- 2026-06-29 16:16 - [网警提醒4类高考查分陷阱考生速看](http://www.share.minike.top/Article/details/15462566.shtml)
+- 2026-06-29 16:07 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/84891.shtml)
+- 2026-06-29 16:30 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/777115339976.shtml)
+- 2026-06-29 16:23 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/04083563662.shtml)
+- 2026-06-29 16:27 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/616415281994.shtml)
+- 2026-06-29 16:14 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/30862253212.shtml)
+- 2026-06-29 16:30 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/984528111.shtml)
+- 2026-06-29 16:32 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/32277802536.shtml)
+- 2026-06-29 16:24 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/925411209710.shtml)
+- 2026-06-29 16:26 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.minike.top/Article/details/84476295908.shtml)

@@ -1,58 +1,57 @@
-# 网民希望支持更多中小企业参加广交会，商务部对外贸易司回应了
+# 中国凭祥—越南河内首届“中越BA”篮球联赛热身赛举行
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-网民“1306******3”说：我们经营东部沿海地区的一家小工厂，产品已经出口十多年，想参加广交会(中国进出口商品交易会)，但每年出口金额一直没达到75万美元，申请不到展位。有的企业只能通过中介花钱买展位。商务部能否在广交会展位分配上，给制造业中小企业提供扶持？商务部对外贸易司回复： 感谢您的留言。广交会自1957年创办。多年来，为满足广大企业拓市场、拿订单的需求，广交会多次
+中新网广西凭祥5月24日电 (杨陈 谢育明 梁晶莹)5月23日晚，中国凭祥—越南河内首届“中越BA”篮球联赛热身赛在广西凭祥市举行。本次赛事以体育为桥、以赛事为媒，旨在深化中越人文交流，推动跨境文旅、体育与经贸深度融合。 当晚7时30分，赛事暖场环节精彩启幕。现场主持人互动预热、炫酷灯光秀、高难度扣篮表演、啦啦操展演轮番登场，动感氛围瞬间点燃全场，充分展现新时代青春运动风采，赢
 
 ## 正文
 
-网民“1306******3”说：我们经营东部沿海地区的一家小工厂，产品已经出口十多年，想参加广交会(中国进出口商品交易会)，但每年出口金额一直没达到75万美元，申请不到展位。
+中新网广西凭祥5月24日电 (杨陈 谢育明 梁晶莹)5月23日晚，中国凭祥—越南河内首届“中越BA”篮球联赛热身赛在广西凭祥市举行。
 
-有的企业只能通过中介花钱买展位。
+本次赛事以体育为桥、以赛事为媒，旨在深化中越人文交流，推动跨境文旅、体育与经贸深度融合。
 
-商务部能否在广交会展位分配上，给制造业中小企业提供扶持？
+当晚7时30分，赛事暖场环节精彩启幕。
 
-商务部对外贸易司回复： 感谢您的留言。
+现场主持人互动预热、炫酷灯光秀、高难度扣篮表演、啦啦操展演轮番登场，动感氛围瞬间点燃全场，充分展现新时代青春运动风采，赢得现场观众阵阵掌声与欢呼。
 
-广交会自1957年创办。
+开赛仪式结束，比赛正式打响。
 
-多年来，为满足广大企业拓市场、拿订单的需求，广交会多次迁址扩建，目前展览面积已超155万平米，第139届广交会参展企业超3.2万家。
+越南河内创冠队迅速进入状态，凭借流畅进攻频频得分；随着赛事推进，中国广西凭祥队及时调整战术，逐渐掌控比赛节奏，多名队员命中精彩三分球，成功实现比分反超。
 
-但从展位供需情况看，广交会展位依然面临供不应求难题，不少企业难以参展，与广大企业借助广交会平台开拓国际市场的期待仍有差距。
+赛场上，中越双方队员精神饱满、奋勇争先，攻防转换紧凑流畅，精准传球、快速突破、果断投篮轮番上演。
 
-我们积极支持中小企业参展，对未达到最低出口额要求的中小企业提供了参展途径。
+经过四节激烈角逐，最终中国广西凭祥队以82比73战胜越南河内创冠队，拿下本场热身赛胜利。
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 16:28 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 16:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 16:05 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 16:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 16:25 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 16:15 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 16:05 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 16:08 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 16:27 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 16:07 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 16:20 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 16:10 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 16:21 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 16:21 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 16:32 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 16:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 16:14 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 16:20 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 16:09 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 16:07 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 16:08 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 16:20 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:20 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/601395.shtml)
-- 2026-06-29 16:23 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/882233053544.shtml)
-- 2026-06-29 16:04 - [四川宜宾地震](https://www.share.minike.top/Article/details/601074538.shtml)
-- 2026-06-29 16:22 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/150990.shtml)
-- 2026-06-29 16:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/07224846579.shtml)
-- 2026-06-29 16:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/336612288088.shtml)
-- 2026-06-29 16:08 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/880170627.shtml)
-- 2026-06-29 16:27 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/18140.shtml)
-- 2026-06-29 16:02 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/17096315.shtml)
-- 2026-06-29 16:05 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/548172009313.shtml)
-- 2026-06-29 16:10 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/983242.shtml)
-- 2026-06-29 16:04 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/423652245249.shtml)
-- 2026-06-29 16:02 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/61023233377.shtml)
-- 2026-06-29 16:21 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/81885.shtml)
-- 2026-06-29 16:03 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/853982164.shtml)
+- 2026-06-29 16:33 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/28817644.shtml)
+- 2026-06-29 16:16 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/0049857.shtml)
+- 2026-06-29 16:30 - [爸爸当家](http://www.blog.minike.top/Article/details/07863617794.shtml)
+- 2026-06-29 16:28 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/07313.shtml)
+- 2026-06-29 16:30 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/904713.shtml)
+- 2026-06-29 16:13 - [湖北钟祥市委书记张勇拟任新职](http://www.share.kurohicncr.top/Article/details/8455713.shtml)
+- 2026-06-29 16:22 - [啊啊啊](https://www.share.minike.top/Article/details/292099491315.shtml)
+- 2026-06-29 16:35 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/559110668.shtml)
+- 2026-06-29 16:27 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/824842919.shtml)
+- 2026-06-29 16:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/325200447.shtml)
+- 2026-06-29 16:17 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/11135916494.shtml)
+- 2026-06-29 16:22 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/0332497.shtml)
+- 2026-06-29 16:18 - [世界杯欧美八大豪强悉数出线](https://www.blog.minike.top/Article/details/96940991642.shtml)
+- 2026-06-29 16:33 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/66797523.shtml)
+- 2026-06-29 16:34 - [欧盟为什么越来越倾向贸易保护](http://www.share.minike.top/Article/details/2736441589.shtml)

@@ -1,59 +1,60 @@
-# 广东多举措应对今年汛期严峻复杂的三防形势
+# 心理疗愈需求攀升，职场“心防线”如何筑牢？
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新网广州4月10日电 (记者 王坚)2026年广东省防汛工作新闻发布会10日在广州举行。会上，广东省防总副总指挥、省应急管理厅厅长王再华介绍，根据广东省三防办、气象、水文、海洋等部门综合会商研判，广东今年汛期面临严峻复杂的三防形势。 发布会现场，王再华介绍，今年汛期，气温方面，全省气温总体偏高，气候不确定性进一步加剧，要做好应对极端性天气的各项准备；降雨方面，汛期降雨总体偏多
+热线电话来电增多、减压门诊一号难求……心理“工伤”引职场人“自救” 心理疗愈需求攀升，职场“心防线”如何筑牢？ 阅读提示 职业节奏加快、职场压力多元，心理健康逐渐成为职场人关注的热点议题。当下，越来越多职场人主动借助线上社群、专业门诊开展心理疏导与自我调节。社会认知提升、心理资源扩容为情绪纾解提供了支撑，而从根源上守护职场心理健康，离不开完善的制度兜底、企业人文关怀与劳动者合法
 
 ## 正文
 
-中新网广州4月10日电 (记者 王坚)2026年广东省防汛工作新闻发布会10日在广州举行。
+热线电话来电增多、减压门诊一号难求……心理“工伤”引职场人“自救” 心理疗愈需求攀升，职场“心防线”如何筑牢？
 
-会上，广东省防总副总指挥、省应急管理厅厅长王再华介绍，根据广东省三防办、气象、水文、海洋等部门综合会商研判，广东今年汛期面临严峻复杂的三防形势。
+阅读提示 职业节奏加快、职场压力多元，心理健康逐渐成为职场人关注的热点议题。
 
-发布会现场，王再华介绍，今年汛期，气温方面，全省气温总体偏高，气候不确定性进一步加剧，要做好应对极端性天气的各项准备；降雨方面，汛期降雨总体偏多，但时空分布不均，阶段性、局地性强降雨致灾风险较高；水情方面，中小河流可能发生洪水，需密切做好江河沿线安全防范。
+当下，越来越多职场人主动借助线上社群、专业门诊开展心理疏导与自我调节。
 
-当前，广东高度重视防汛备汛工作，多举措着力下好防汛“先手棋”。
+社会认知提升、心理资源扩容为情绪纾解提供了支撑，而从根源上守护职场心理健康，离不开完善的制度兜底、企业人文关怀与劳动者合法权益的坚实保障。
 
-王再华表示，广东省防总强化工作责任落实，7516座水库、2845段重点堤防、6144座重点水闸等关键防洪设施已全部落实行政、技术、巡查“三个责任人”；强化预案修编演练，全省各级修编三防应急预案3135个，2.64万个村(社区)全部修订“一页纸”预案；强化抢险救援准备，全省统筹各类救援队伍9036支、26.49万人，加强救援物资准备，1570个物资仓库储备物资2610.43万件。
+“早上去上班的路上，越靠近公司就越感觉压抑，有时坐在工位喘不上来气。
 
-同时，广东还进一步强化隐患排查整治。
+”5月17日正值周末，本应好好休息的雨霏到凌晨两点都无法入睡，内心的焦虑让她在社交平台发出这样一段文字。
 
-水利部门对2654公里主要河道、7136座小型水库进行了拉网式行洪排查，自然资源部门划定了1.6万多幅地质灾害重点防御图，住建部门更新改造了944公里的排水管渠。
+没过多久，留言陆陆续续出现：“去医院看看吧，听专业医生的”“你需要好好休息了”“这是职场焦虑，太有责任心的人就容易这样”……雨霏没想到，这么多人有类似的经历，更没想到自己应该去看医生。
 
-汛前，全省共排查整治各类风险隐患9.84万处，实现了“闭环管理”。
+随着大众对身心健康的认知不断升级，职场心理健康逐渐成为社会关注的热点议题。
 
 ## 相关推荐
 
-- 2026-06-29 16:05 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 16:01 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 16:08 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 16:13 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 16:05 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 16:21 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 16:15 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 16:05 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 16:23 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 16:17 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 16:23 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 16:27 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 16:17 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 16:14 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 16:27 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 16:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 16:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 16:27 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 16:08 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 16:22 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 16:08 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 16:25 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 16:14 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 16:09 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 16:21 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 16:20 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 16:35 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:22 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/951514606734.shtml)
-- 2026-06-29 16:12 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/1371993198.shtml)
-- 2026-06-29 16:22 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/810081.shtml)
-- 2026-06-29 16:15 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/4899937.shtml)
-- 2026-06-29 16:11 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/99514167.shtml)
-- 2026-06-29 16:24 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/774332.shtml)
-- 2026-06-29 16:14 - [沉睡花园](http://www.share.minike.top/Article/details/73295909162.shtml)
-- 2026-06-29 16:02 - [中国战机大片上新](https://www.share.minike.top/Article/details/303662.shtml)
-- 2026-06-29 16:17 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/75934687.shtml)
-- 2026-06-29 16:29 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/155209007510.shtml)
-- 2026-06-29 16:28 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/447457276852.shtml)
-- 2026-06-29 16:23 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/0418118922.shtml)
-- 2026-06-29 16:09 - [永远有话聊的原因](https://www.share.kurohicncr.top/Article/details/10925.shtml)
-- 2026-06-29 16:27 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/310473204.shtml)
-- 2026-06-29 16:18 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/6675830352.shtml)
+- 2026-06-29 16:29 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/46435667.shtml)
+- 2026-06-29 16:24 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.minike.top/Article/details/112273334952.shtml)
+- 2026-06-29 16:32 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/715814061701.shtml)
+- 2026-06-29 16:07 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/5001001761.shtml)
+- 2026-06-29 16:30 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/47968578239.shtml)
+- 2026-06-29 16:09 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/953715.shtml)
+- 2026-06-29 16:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/52018847.shtml)
+- 2026-06-29 16:33 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/54477.shtml)
+- 2026-06-29 16:16 - [王楚钦开门红](http://www.share.minike.top/Article/details/222328046033.shtml)
+- 2026-06-29 16:13 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/253173875250.shtml)
+- 2026-06-29 16:15 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/39563272527.shtml)
+- 2026-06-29 16:15 - [央视起底直播诈骗连环套](http://www.share.minike.top/Article/details/58174903877.shtml)
+- 2026-06-29 16:09 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/431626901.shtml)
+- 2026-06-29 16:06 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/12136351759.shtml)
+- 2026-06-29 16:17 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/541871057521.shtml)

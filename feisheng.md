@@ -1,59 +1,49 @@
-# 天马车载杨圣洁：座舱空间多元化发展，屏幕也需要相应升级
+# 两部门：落实野生动物致害补偿，探索建立保险赔偿制度
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 天马车载显示事业部产品副总经理杨圣洁表示，随着座舱空间的多元化，屏幕也需要相应地升级，满足新的标准和需求。 针对这一点，他提出了一个参考标准，称之为“五星好评”，主要涵盖五个方面：首先，安全
+5月22日金融一线消息，国家发展改革委、财政部关于印发《推进生态综合补偿实施方案》的通知。其中提出，加强野生动物致害监测预警防控，开展致害情况评估，落实野生动物致害补偿，探索建立保险赔偿制度。引导金融机构在依法合规、风险可控、商业可持续的前提下，开发与资源环境要素相关的绿色信贷、绿色保险、绿色债券等金融产品和服务，按照市场化法治化原则为符合条件的各类生态产业项目提供融资支持。责
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+5月22日金融一线消息，国家发展改革委、财政部关于印发《推进生态综合补偿实施方案》的通知。
 
-天马车载显示事业部产品副总经理杨圣洁表示，随着座舱空间的多元化，屏幕也需要相应地升级，满足新的标准和需求。
+其中提出，加强野生动物致害监测预警防控，开展致害情况评估，落实野生动物致害补偿，探索建立保险赔偿制度。
 
-针对这一点，他提出了一个参考标准，称之为“五星好评”，主要涵盖五个方面：首先，安全肯定是底线，要不断丰富安全的含义，持续强化安全保障；其次是可靠，可靠与安全相伴相生，要确保安全能够长期落地；再者是好用，这是用户最直接的感知，要追求操作顺滑、体验丰富；然后是个性，契合当下千人千面的时代，通过屏幕为座舱增添个性化特性；最后是健康，我们越来越以人为本，健康也是座舱体验的重要组成部分。
+引导金融机构在依法合规、风险可控、商业可持续的前提下，开发与资源环境要素相关的绿色信贷、绿色保险、绿色债券等金融产品和服务，按照市场化法治化原则为符合条件的各类生态产业项目提供融资支持。
 
-首先是安全部分，他表示，从应用角度来说，全景抬头显示、电子侧后视镜等，都能有效减少驾驶盲区，减少驾驶员低头操作的频率，而屏幕正是这些应用中的核心部分。
-
-另外，在功能上，我们要做到“该看屏幕时看屏幕，该集成时集成”，通过驾驶员监控摄像头感知驾驶员状态变化，同时在主驾区域屏蔽无关内容，不影响副驾驶使用，再配合环境自适应功能，全方位助力驾驶安全。
-
-关于可靠这一星，他指出，首先要适应车载极端环境，包括高强度随机震动、宽温环境等；其次，我们追求车载屏幕能够在车内稳定使用10到15年，无论屏幕尺寸多大、功能多集成，都要保证长期稳定运行。
-
-好用这一点，他表示，用户的直接感知最为明显。
-
-比如，我们希望驾驶员能清晰看清屏幕内容，后座乘客看电影能拥有舒适体验，这就要求我们提升画质，中控屏要达到3K标准，后排屏幕甚至要达到8K，画质媲美旗舰手机，同时操作要足够顺滑，带来极佳的使用体验。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 16:05 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 16:07 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 16:29 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 16:13 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 16:18 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 16:29 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 16:19 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 16:25 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 16:03 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 16:20 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 16:05 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 16:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 16:31 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 16:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 16:33 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 16:35 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 16:13 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 16:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 16:21 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 16:30 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 16:19 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 16:33 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 16:24 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:19 - [吴建豪老婆](http://www.blog.minike.top/Article/details/6378079133.shtml)
-- 2026-06-29 16:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/96470942.shtml)
-- 2026-06-29 16:12 - [急先锋](http://www.blog.kurohicncr.top/Article/details/6505480.shtml)
-- 2026-06-29 16:27 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/61177.shtml)
-- 2026-06-29 16:05 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/4409008100.shtml)
-- 2026-06-29 16:04 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/232722646.shtml)
-- 2026-06-29 16:19 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/6471526373.shtml)
-- 2026-06-29 16:27 - [天道](https://www.share.kurohicncr.top/Article/details/65167181.shtml)
-- 2026-06-29 16:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/429674353.shtml)
-- 2026-06-29 16:21 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/0852275.shtml)
-- 2026-06-29 16:27 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/18057.shtml)
-- 2026-06-29 16:15 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/589593.shtml)
-- 2026-06-29 16:18 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/4146336282.shtml)
-- 2026-06-29 16:20 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/88693189123.shtml)
-- 2026-06-29 16:12 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/16260880.shtml)
+- 2026-06-29 16:06 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/9179399.shtml)
+- 2026-06-29 16:28 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/79866926464.shtml)
+- 2026-06-29 16:24 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/16907694.shtml)
+- 2026-06-29 16:14 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/683161772508.shtml)
+- 2026-06-29 16:06 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/8297662793.shtml)
+- 2026-06-29 16:09 - [波兰创该国高温纪录](https://www.share.minike.top/Article/details/20088527.shtml)
+- 2026-06-29 16:27 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/8603181.shtml)
+- 2026-06-29 16:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/2911600989.shtml)
+- 2026-06-29 16:29 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/2646176.shtml)
+- 2026-06-29 16:15 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/75311846.shtml)
+- 2026-06-29 16:08 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/963921.shtml)
+- 2026-06-29 16:13 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/85993554.shtml)
+- 2026-06-29 16:18 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/00709.shtml)
+- 2026-06-29 16:09 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/70892661597.shtml)
+- 2026-06-29 16:17 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/11332747972.shtml)

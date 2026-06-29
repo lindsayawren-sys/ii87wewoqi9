@@ -1,54 +1,55 @@
-# 教育部等五部门：推动人工智能教育全面纳入地方课程体系
+# 白酒板块筑底明确 金徽酒4天2板
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电 近日，教育部等五部门发布关于印发《“人工智能+教育”行动计划》的通知。行动计划提到，加快普及中小学生的人工智能教育。持续完善《中小学人工智能通识教育指南》，开齐开足开好人工智能相关课程。推动人工智能教育全面纳入地方课程体系，指导各地研制人工智能课程指南，明确各学段课程目标、内容与课时要求。鼓励开展人工智能跨学科教学，推动人工智能教育融入课后服务、研学实践等环
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 （来源：财闻） 基于大众消费仍表现积极&商务消费逐步修复&政务消费预计仍受损，2026年白酒板块业绩均有望从Q2开始由负转正(环比持续向好)，进入底部拐点区间。 5月25日，白酒板块盘中异动拉升，金徽酒（603919.SH）直线涨停，走出4天2板，中锐股份（002374.SZ）、迎驾贡酒（603198.SH）、皇台酒业（
 
 ## 正文
 
-中新网4月10日电 近日，教育部等五部门发布关于印发《“人工智能+教育”行动计划》的通知。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 （来源：财闻） 基于大众消费仍表现积极&商务消费逐步修复&政务消费预计仍受损，2026年白酒板块业绩均有望从Q2开始由负转正(环比持续向好)，进入底部拐点区间。
 
-行动计划提到，加快普及中小学生的人工智能教育。
+5月25日，白酒板块盘中异动拉升，金徽酒（603919.SH）直线涨停，走出4天2板，中锐股份（002374.SZ）、迎驾贡酒（603198.SH）、皇台酒业（000995.SZ）、金种子酒（600199.SH）、泸州老窖（000568.SZ）跟涨。
 
-持续完善《中小学人工智能通识教育指南》，开齐开足开好人工智能相关课程。
+浙商证券发布研报称，基于大众消费仍表现积极&商务消费逐步修复&政务消费预计仍受损，2026年白酒板块业绩均有望从Q2开始由负转正(环比持续向好)，进入底部拐点区间。
 
-推动人工智能教育全面纳入地方课程体系，指导各地研制人工智能课程指南，明确各学段课程目标、内容与课时要求。
+板块筑底明确(开始有少量公司提前走出调整期)，区域酒降幅改善最为明显&后期或蓄能弹性向上，重点推荐：① 筑底明确&后续季度经营向上的强α全国性酒企;② 降幅收窄明显&全年前低后高的区域酒龙头;③ 强β标的。
 
-鼓励开展人工智能跨学科教学，推动人工智能教育融入课后服务、研学实践等环节。
-
-坚持科技教育与人文教育相结合，注重学生的启智、心灵的培养，引导学生科学认识、合理利用智能技术，提升学生智能素养，激发学生好奇心，培养创新思维，提高认知思考和解决复杂问题的能力。
-
-建强中小学人工智能教育基地，支持农村、边远地区学校利用国家平台开好人工智能课程。
+责任编辑：李思阳
 
 ## 相关推荐
 
-- 2026-06-29 16:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 16:10 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 16:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 16:27 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 16:01 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 16:14 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 16:25 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 16:12 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 16:25 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 16:06 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 16:21 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 16:25 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 16:28 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 16:09 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 16:22 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 16:17 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 16:12 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 16:19 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 16:32 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 16:35 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 16:26 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 16:07 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 16:06 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 16:21 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 16:24 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:09 - [天道](http://www.share.kurohicncr.top/Article/details/77937.shtml)
-- 2026-06-29 16:14 - [一生一世](http://www.share.kurohicncr.top/Article/details/8390444.shtml)
-- 2026-06-29 16:16 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/2752175.shtml)
-- 2026-06-29 16:07 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/2208949.shtml)
-- 2026-06-29 16:25 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/0169572.shtml)
-- 2026-06-29 16:11 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/7511634.shtml)
-- 2026-06-29 16:23 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/677357.shtml)
-- 2026-06-29 16:13 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/98361333406.shtml)
-- 2026-06-29 16:00 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/3978087.shtml)
-- 2026-06-29 16:00 - [葛军谈AI时代理科生出路](https://www.blog.kurohicncr.top/Article/details/310016.shtml)
-- 2026-06-29 16:29 - [永远有话聊的原因](https://www.share.minike.top/Article/details/89178985012.shtml)
-- 2026-06-29 16:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/818421031.shtml)
-- 2026-06-29 16:24 - [小鹏MONAL03预售定档7月2日](https://www.blog.kurohicncr.top/Article/details/793119508.shtml)
-- 2026-06-29 16:16 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/18556.shtml)
-- 2026-06-29 16:05 - [发反科学内容为何会有200万粉丝](http://www.blog.minike.top/Article/details/67493582.shtml)
+- 2026-06-29 16:21 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/21348492.shtml)
+- 2026-06-29 16:10 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/38524335.shtml)
+- 2026-06-29 16:29 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/276123361490.shtml)
+- 2026-06-29 16:30 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/5520189434.shtml)
+- 2026-06-29 16:32 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/6926777581.shtml)
+- 2026-06-29 16:21 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/31520197489.shtml)
+- 2026-06-29 16:26 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/32348344387.shtml)
+- 2026-06-29 16:23 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/608030007.shtml)
+- 2026-06-29 16:35 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/3602193877.shtml)
+- 2026-06-29 16:29 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/1430111.shtml)
+- 2026-06-29 16:13 - [滾石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/833388082926.shtml)
+- 2026-06-29 16:31 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/73097.shtml)
+- 2026-06-29 16:18 - [一生一世](http://www.share.kurohicncr.top/Article/details/3652040.shtml)
+- 2026-06-29 16:12 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.kurohicncr.top/Article/details/2897168177.shtml)
+- 2026-06-29 16:11 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/663727.shtml)

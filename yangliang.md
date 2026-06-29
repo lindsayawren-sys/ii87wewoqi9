@@ -1,47 +1,57 @@
-# 伊朗媒体称以军停止袭击黎巴嫩首都贝鲁特
+# 中国文化遗产保护融入现代生活 留住人间烟火
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-新华社德黑兰4月10日电 伊朗媒体援引一位伊方高级安全消息人士的话报道说，由于伊朗的坚持和施压，以军被迫停止了对黎巴嫩首都贝鲁特的袭击。
+中新社深圳5月22日电 (记者 程景伟)“古城保护，首在坚守初心，重在统筹兼顾，必须平衡好保护与开发、传统与现代、古韵与新风的关系。”云南省巍山县委书记丁洪涛22日于深圳举行的2026文化强国建设高峰论坛文化遗产保护传承论坛上，分享巍山古城保护实践体会。巍山古城始建于元代，现完整保留明清时期城池格局。丁洪涛称，巍山古城恢复保护文庙、南诏镇古建筑群，引入优质文化业态，对濒危老旧书
 
 ## 正文
 
-新华社德黑兰4月10日电 伊朗媒体援引一位伊方高级安全消息人士的话报道说，由于伊朗的坚持和施压，以军被迫停止了对黎巴嫩首都贝鲁特的袭击。
+中新社深圳5月22日电 (记者 程景伟)“古城保护，首在坚守初心，重在统筹兼顾，必须平衡好保护与开发、传统与现代、古韵与新风的关系。
+
+”云南省巍山县委书记丁洪涛22日于深圳举行的2026文化强国建设高峰论坛文化遗产保护传承论坛上，分享巍山古城保护实践体会。
+
+巍山古城始建于元代，现完整保留明清时期城池格局。
+
+丁洪涛称，巍山古城恢复保护文庙、南诏镇古建筑群，引入优质文化业态，对濒危老旧书院实施可逆式修缮，打造阅读文创等融合空间，培育民宿240余家。
+
+近年来，安徽徽州古城盘活近3万平方米的古建筑，植入夜游演出等新业态。
+
+“要留住街巷深处最可触可感的人间烟火，在守护千年肌理的同时让原住民共享发展红利。
+
+”安徽省歙县县长王奇勇称，徽州古城既要防止“空心化”，也要警惕“过度商业化”，实现文化传承与经济社会良性互动。
+
+中国从20世纪60年代公布第一批全国重点文物保护单位，1982年建立历史文化名城保护制度，并持续完善保护体系。
 
 ## 相关推荐
 
-- 2026-06-29 16:28 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 16:26 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 16:27 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 16:23 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 16:16 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 16:11 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 16:14 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 16:24 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 16:07 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 16:06 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 16:10 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 16:25 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 16:27 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 16:14 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 16:04 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 16:17 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 16:15 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 16:20 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 16:20 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 16:34 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 16:20 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 16:19 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 16:17 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 16:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 16:10 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 16:21 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:01 - [12所大学更正招生目录](https://www.blog.minike.top/Article/details/764024010.shtml)
-- 2026-06-29 16:22 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/394606442.shtml)
-- 2026-06-29 16:19 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/37094.shtml)
-- 2026-06-29 16:17 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/514514900.shtml)
-- 2026-06-29 16:14 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/9878837.shtml)
-- 2026-06-29 16:07 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/517905.shtml)
-- 2026-06-29 16:04 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/36012.shtml)
-- 2026-06-29 16:03 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/463447.shtml)
-- 2026-06-29 16:28 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/6185109.shtml)
-- 2026-06-29 16:28 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/65017672648.shtml)
-- 2026-06-29 16:10 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.kurohicncr.top/Article/details/528996.shtml)
-- 2026-06-29 16:25 - [女心理师](https://www.share.minike.top/Article/details/42044483.shtml)
-- 2026-06-29 16:18 - [德国VS巴拉圭前瞻](http://www.share.kurohicncr.top/Article/details/56563577552.shtml)
-- 2026-06-29 16:14 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/85672399031.shtml)
-- 2026-06-29 16:04 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/455085.shtml)
+- 2026-06-29 16:25 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/581508791.shtml)
+- 2026-06-29 16:21 - [新一代影后杨紫](https://www.share.kurohicncr.top/Article/details/84816525650.shtml)
+- 2026-06-29 16:12 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/05434101.shtml)
+- 2026-06-29 16:11 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/940715199022.shtml)
+- 2026-06-29 16:32 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/9111612293.shtml)
+- 2026-06-29 16:07 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/89662.shtml)
+- 2026-06-29 16:12 - [扬名立万](https://www.share.kurohicncr.top/Article/details/87180875.shtml)
+- 2026-06-29 16:07 - [东方风云榜红毯](https://www.share.minike.top/Article/details/37648.shtml)
+- 2026-06-29 16:34 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/0434263.shtml)
+- 2026-06-29 16:22 - [恋与深空失控领地](http://www.share.minike.top/Article/details/393607.shtml)
+- 2026-06-29 16:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/35037888481.shtml)
+- 2026-06-29 16:26 - [疑似吴建豪老婆正脸照](http://www.blog.kurohicncr.top/Article/details/8222452.shtml)
+- 2026-06-29 16:07 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/669081008529.shtml)
+- 2026-06-29 16:33 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/656496.shtml)
+- 2026-06-29 16:16 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/930137295715.shtml)

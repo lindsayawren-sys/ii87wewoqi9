@@ -1,61 +1,60 @@
-# 台盟中央2026年社会服务工作推进会在浙江召开
+# “跟着名著去旅行”交流活动在深圳举办
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新网宁波4月10日电(郭其钰 宋平)4月8日至10日，台盟中央2026年社会服务工作推进会在浙江宁波奉化召开。全国政协常委、台盟中央副主席孔令智出席会议并讲话。 会议深入学习贯彻习近平总书记系列重要讲话精神和全国两会精神，指出台盟要准确把握新形势新任务，认真贯彻统一战线助力乡村全面振兴联席会议精神，学习浙江“千万工程”先进经验，把思想和行动统一到台盟十一届四中全会部署上来，以
+中新网深圳5月22日电 (记者 程景伟)第二十二届中国(深圳)国际文化产业博览交易会期间，“活化经典赋能融合‘跟着名著去旅行’交流活动”22日在深圳国际会展中心举办。 活动聚焦经典名著IP活化利用与文旅产品创新发展路径，通过主题演讲分享、行业报告发布、资源项目推介等形式，邀请作家、业界机构代表、专家学者共话文学创作与地域文化相互滋养、IP赋能与文旅产品市场化运营，携手丰富优质文
 
 ## 正文
 
-中新网宁波4月10日电(郭其钰 宋平)4月8日至10日，台盟中央2026年社会服务工作推进会在浙江宁波奉化召开。
+中新网深圳5月22日电 (记者 程景伟)第二十二届中国(深圳)国际文化产业博览交易会期间，“活化经典赋能融合‘跟着名著去旅行’交流活动”22日在深圳国际会展中心举办。
 
-全国政协常委、台盟中央副主席孔令智出席会议并讲话。
+活动聚焦经典名著IP活化利用与文旅产品创新发展路径，通过主题演讲分享、行业报告发布、资源项目推介等形式，邀请作家、业界机构代表、专家学者共话文学创作与地域文化相互滋养、IP赋能与文旅产品市场化运营，携手丰富优质文旅产品供给，共同构建名著赋能文旅产业高质量发展的新生态。
 
-会议深入学习贯彻习近平总书记系列重要讲话精神和全国两会精神，指出台盟要准确把握新形势新任务，认真贯彻统一战线助力乡村全面振兴联席会议精神，学习浙江“千万工程”先进经验，把思想和行动统一到台盟十一届四中全会部署上来，以更加饱满的热情、更加务实的作风、更加有力的举措，推动台盟社会服务和专项民主监督工作再上新台阶。
+与会代表表示，读书与旅行承载着中国人“读万卷书、行万里路”的理想追求，文学为旅途赋予深厚底蕴，行走让经典走出书页、焕发新生，让文化根脉代代相传。
 
-会议强调，要着眼新形势，以高质量履职彰显台盟政治担当。
+要深化融合发展，做好“文旅+”文章，推动文学IP与演艺、文创、研学、乡村旅游、城市更新跨界融合。
 
-坚持政治引领、服务中心大局，切实做到党中央有部署、台盟见行动、工作见成效。
+政府、企业、机构、平台要凝聚强大合力，把“跟着名著去旅行”打造成重要的文旅品牌。
 
-牢固树立和践行正确政绩观，主动深入基层一线，在帮扶实践中显担当，在监督调研中建真言，在服务群众中践初心，在服务大局上出实绩。
+此次活动由文化和旅游部产业发展司主办、中国文化传媒集团承办、中国文化报社协办。
 
-严格落实“一盘棋、一股绳”工作要求，强化上下联动、全员参与、协同发力。
+来自全国22个省(区、市)文化和旅游部门代表，以及60多家出版发行机构、旅游景区、影视内容版权持有企业、数字科技企业、在线旅游电商平台、文化和旅游行业协会的代表共150余人参加活动。
 
-要聚焦新任务，推动专项民主监督工作提质增效。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:11 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 16:13 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 16:06 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 16:14 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 16:01 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 16:00 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 16:18 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 16:13 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 16:16 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 16:11 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 16:15 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 16:07 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 16:28 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 16:22 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 16:00 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 16:35 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 16:24 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 16:11 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 16:32 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 16:13 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 16:30 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 16:33 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 16:26 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 16:29 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 16:10 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 16:19 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 16:28 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 16:31 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 16:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:08 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/45065236.shtml)
-- 2026-06-29 16:03 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/88286110688.shtml)
-- 2026-06-29 16:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/1006428863.shtml)
-- 2026-06-29 16:02 - [崔韩率还以为韩娱来新人了](https://www.share.minike.top/Article/details/5114660048.shtml)
-- 2026-06-29 16:20 - [斗破苍穹](http://www.share.minike.top/Article/details/453773818.shtml)
-- 2026-06-29 16:23 - [工作靠AI算不算职场作弊](https://www.share.minike.top/Article/details/6188527630.shtml)
-- 2026-06-29 16:01 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/1010226491.shtml)
-- 2026-06-29 16:25 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/302012263770.shtml)
-- 2026-06-29 16:06 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/65560.shtml)
-- 2026-06-29 16:04 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/99460921019.shtml)
-- 2026-06-29 16:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/6913606.shtml)
-- 2026-06-29 16:20 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/87395.shtml)
-- 2026-06-29 16:15 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/7519664909.shtml)
-- 2026-06-29 16:05 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/014552971203.shtml)
-- 2026-06-29 16:04 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/90661943.shtml)
+- 2026-06-29 16:29 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/943195135.shtml)
+- 2026-06-29 16:12 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/823130595.shtml)
+- 2026-06-29 16:15 - [青春环游记第三季](https://www.blog.minike.top/Article/details/1374963.shtml)
+- 2026-06-29 16:26 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/179248.shtml)
+- 2026-06-29 16:06 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/3220272093.shtml)
+- 2026-06-29 16:19 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/383141.shtml)
+- 2026-06-29 16:18 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/41111822374.shtml)
+- 2026-06-29 16:18 - [请回答王牌2019](https://www.share.minike.top/Article/details/088824951.shtml)
+- 2026-06-29 16:33 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/4523654683.shtml)
+- 2026-06-29 16:26 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/05611436033.shtml)
+- 2026-06-29 16:22 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/27583.shtml)
+- 2026-06-29 16:08 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/473191126801.shtml)
+- 2026-06-29 16:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/0215170.shtml)
+- 2026-06-29 16:06 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/063804629.shtml)
+- 2026-06-29 16:09 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/724351959911.shtml)

@@ -1,61 +1,60 @@
-# OpenAI首席执行官住宅遭投掷燃烧瓶，嫌疑人被捕
+# 特朗普称白宫附近枪击案枪手“有暴力史”
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新网4月11日电 据路透社10日报道，美国加利福尼亚州旧金山警方逮捕了一名嫌疑人，该人涉嫌向OpenAI首席执行官萨姆·奥尔特曼的住宅投掷燃烧瓶，并在这家人工智能公司总部外实施威胁行为。OpenAI证实了这一消息。旧金山警察局在社交平台X上表示，一名身份不明的男子于凌晨4时12分向一处住宅投掷了一枚燃烧装置，随后步行逃离。约一小时后，警方接到报警，称一名男子威胁要烧毁另一栋建
+新华社华盛顿5月23日电 美国总统特朗普23日说，当天在白宫附近向美国特勤局人员开枪的男子“有暴力史”，“可能对我们国家最珍视的建筑怀有执念”。 特朗普当天夜间在社交媒体上发文证实，枪手在白宫大门附近与特勤局特工交火后死亡。 特朗普将此次枪击事件与上个月白宫记者协会晚宴枪击事件相联系，称“这恰恰说明为所有未来的总统打造华盛顿特区有史以来最安全、最可靠的专属空间是多么重要”。 美
 
 ## 正文
 
-中新网4月11日电 据路透社10日报道，美国加利福尼亚州旧金山警方逮捕了一名嫌疑人，该人涉嫌向OpenAI首席执行官萨姆·奥尔特曼的住宅投掷燃烧瓶，并在这家人工智能公司总部外实施威胁行为。
+新华社华盛顿5月23日电 美国总统特朗普23日说，当天在白宫附近向美国特勤局人员开枪的男子“有暴力史”，“可能对我们国家最珍视的建筑怀有执念”。
 
-OpenAI证实了这一消息。
+特朗普当天夜间在社交媒体上发文证实，枪手在白宫大门附近与特勤局特工交火后死亡。
 
-旧金山警察局在社交平台X上表示，一名身份不明的男子于凌晨4时12分向一处住宅投掷了一枚燃烧装置，随后步行逃离。
+特朗普将此次枪击事件与上个月白宫记者协会晚宴枪击事件相联系，称“这恰恰说明为所有未来的总统打造华盛顿特区有史以来最安全、最可靠的专属空间是多么重要”。
 
-约一小时后，警方接到报警，称一名男子威胁要烧毁另一栋建筑，随后将这名20岁的嫌疑人拘留。
+美国媒体稍早前表示，枪手为21岁男子纳西尔·贝斯特，来自马里兰州，有精神疾病史。
 
-警方尚未就嫌疑人的潜在动机发表评论。
+贝斯特此前多次与特勤局有过接触。
 
-“所幸无人受伤。
+2025年6月26日，他因拦停特工并发出威胁被特勤局拘留；同年7月10日，他又因闯入禁区再次被拘留。
 
-”OpenAI发言人表示。
+美国东部时间23日18时许，位于白宫西北角的一处美国特勤局检查站发生枪击案。
 
-该发言人补充称，公司正在协助执法机构开展调查。
+据特勤局发表的声明，一人向特勤局人员开枪，特勤局人员予以还击，击中枪手。
 
 ## 相关推荐
 
-- 2026-06-29 16:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 16:21 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 16:24 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 16:29 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 16:25 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 16:26 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 16:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 16:03 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 16:24 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 16:23 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 16:27 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 16:25 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 16:20 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 16:14 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 16:19 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 16:24 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 16:34 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 16:34 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 16:24 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 16:14 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 16:08 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 16:06 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 16:08 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 16:14 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 16:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 16:29 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 16:06 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 16:21 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 16:17 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:04 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/7030980084.shtml)
-- 2026-06-29 16:06 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/195638.shtml)
-- 2026-06-29 16:01 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/870379725.shtml)
-- 2026-06-29 16:11 - [急先锋](https://www.share.kurohicncr.top/Article/details/4064831.shtml)
-- 2026-06-29 16:25 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/690425316090.shtml)
-- 2026-06-29 16:17 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/92667674761.shtml)
-- 2026-06-29 16:26 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/8327697856.shtml)
-- 2026-06-29 16:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/6026824848.shtml)
-- 2026-06-29 16:08 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/86564875.shtml)
-- 2026-06-29 16:08 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/57942.shtml)
-- 2026-06-29 16:17 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/611515048.shtml)
-- 2026-06-29 16:14 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/169448402.shtml)
-- 2026-06-29 16:07 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/491615077922.shtml)
-- 2026-06-29 16:22 - [人形机器人](https://www.share.kurohicncr.top/Article/details/124946.shtml)
-- 2026-06-29 16:28 - [光与夜之恋](http://www.blog.minike.top/Article/details/2811594.shtml)
+- 2026-06-29 16:22 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/074477.shtml)
+- 2026-06-29 16:19 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/57736.shtml)
+- 2026-06-29 16:14 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/51490.shtml)
+- 2026-06-29 16:25 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/954342.shtml)
+- 2026-06-29 16:30 - [女心理师](https://www.share.minike.top/Article/details/56465.shtml)
+- 2026-06-29 16:35 - [端午节加班工资应该怎么算](http://www.share.kurohicncr.top/Article/details/695197551.shtml)
+- 2026-06-29 16:31 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/766370716.shtml)
+- 2026-06-29 16:07 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/383786083.shtml)
+- 2026-06-29 16:22 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/9485786998.shtml)
+- 2026-06-29 16:13 - [媒体：高考后消费应量力而行适度有度](https://www.blog.kurohicncr.top/Article/details/984121.shtml)
+- 2026-06-29 16:13 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/041911.shtml)
+- 2026-06-29 16:30 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/01385433937.shtml)
+- 2026-06-29 16:22 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/377193.shtml)
+- 2026-06-29 16:20 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/1578977996.shtml)
+- 2026-06-29 16:12 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/8188594410.shtml)

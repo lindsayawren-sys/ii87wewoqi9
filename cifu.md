@@ -1,57 +1,59 @@
-# xAI首席财务官安东尼·阿姆斯特朗离职
+# ST三木：9000万元债务逾期，主要账户冻结被叠加实施其他风险警示
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-据The Information于4月9日报道，埃隆·马斯克旗下人工智能公司xAI的首席财务官安东尼·阿姆斯特朗（Anthony Armstrong）已离职，此时距离他去年10月上任仅约六个月。 关于阿姆斯特朗 阿姆斯特朗于2025年10月加入xAI，此前他在摩根士丹利担任科技投行部董事总经理，曾为马斯克提供多项关键交易的咨询服务，包括2022年马斯克以440亿美元收购推特的交
+5月22日晚间，老牌上市国企ST三木（000632.SZ）发布风险警示公告，因公司主要银行账号被冻结，触及深交所上市规则相关条款，公司股票自2026年5月25日起叠加实施其他风险警示。 本次风险叠加后，公司股票简称维持“ST三木”不变，证券代码、5%涨跌幅限制均无调整，股票无需停牌。 据公告披露，此次风险警示触发依据为《深圳证券交易所股票上市规则》相关规定，公司核心银行账户被司
 
 ## 正文
 
-据The Information于4月9日报道，埃隆·马斯克旗下人工智能公司xAI的首席财务官安东尼·阿姆斯特朗（Anthony Armstrong）已离职，此时距离他去年10月上任仅约六个月。
+5月22日晚间，老牌上市国企ST三木（000632.SZ）发布风险警示公告，因公司主要银行账号被冻结，触及深交所上市规则相关条款，公司股票自2026年5月25日起叠加实施其他风险警示。
 
-关于阿姆斯特朗 阿姆斯特朗于2025年10月加入xAI，此前他在摩根士丹利担任科技投行部董事总经理，曾为马斯克提供多项关键交易的咨询服务，包括2022年马斯克以440亿美元收购推特的交易。
+本次风险叠加后，公司股票简称维持“ST三木”不变，证券代码、5%涨跌幅限制均无调整，股票无需停牌。
 
-加入xAI后，他直接向SpaceX首席财务官布雷特·约翰森（Bret Johnsen）汇报，这一架构反映了xAI财务职能已纳入SpaceX的更大框架之中。
+据公告披露，此次风险警示触发依据为《深圳证券交易所股票上市规则》相关规定，公司核心银行账户被司法冻结，直接影响企业资金流转与正常经营结算，符合其他风险警示实施条件。
 
-高层持续动荡 阿姆斯特朗的离职是xAI高管团队近期一系列变动中的最新一例。
+溯源风险起因，本次银行账户冻结系公司多笔债务逾期、合同纠纷引发司法保全所致。
 
-据媒体梳理，自2024年以来，xAI的11人创始团队已全部离开，包括今年3月最后一位联合创始人罗斯·诺丁（Ross Nordeen）的出走，标志着马斯克2023年7月亲手组建的“创始天团”已完全解散。
+公告称，ST三木与东山开投集团旗下两家企业存在多笔购销合同违约，未付款项合计4908.35万元，债权方已发起诉讼并申请财产保全，直接导致公司主要银行账户被冻结。
 
-在财务主管方面，阿姆斯特朗已是xAI的第三任CFO。
+此外，公司与福建云霄圣城经济发展有限责任公司的3笔购销合同也出现履约违约，涉及合同总金额 4106.59万元。
 
-其前任Mike Liberatore任职仅102天便离职加入OpenAI，据称经历了“每周工作超过120小时”的地狱模式。
+综上，ST三木本次逾期债务总额达9014.94万元，占公司2025年末经审计净资产比例74.72%。
 
-xAI未予置评 xAI尚未就阿姆斯特朗的离职公开发表评论。
+公告披露，公司共32个银行账号被冻结。
 
 ## 相关推荐
 
-- 2026-06-29 16:17 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 16:07 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 16:22 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 16:22 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 16:22 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 16:19 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 16:06 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 16:05 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 16:06 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 16:21 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 16:12 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 16:25 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 16:20 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 16:28 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 16:30 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 16:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 16:22 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 16:34 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 16:13 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 16:19 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 16:23 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 16:14 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 16:26 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 16:08 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:24 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/54720717814.shtml)
-- 2026-06-29 16:20 - [光与夜之恋](http://www.blog.kurohicncr.top/Article/details/20767.shtml)
-- 2026-06-29 16:27 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/0821941522.shtml)
-- 2026-06-29 16:09 - [驻日美军航母沦为“毒窝”](https://www.share.kurohicncr.top/Article/details/22187966.shtml)
-- 2026-06-29 16:11 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/567933.shtml)
-- 2026-06-29 16:23 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/646061404.shtml)
-- 2026-06-29 16:04 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/067560690.shtml)
-- 2026-06-29 16:12 - [媒体：网络测评不能只剩“生意”](http://www.share.kurohicncr.top/Article/details/814004915278.shtml)
-- 2026-06-29 16:00 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/967127.shtml)
-- 2026-06-29 16:11 - [女心理师](https://www.blog.kurohicncr.top/Article/details/32141454742.shtml)
-- 2026-06-29 16:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/236309675645.shtml)
-- 2026-06-29 16:12 - [人形机器人](http://www.share.kurohicncr.top/Article/details/3975281.shtml)
-- 2026-06-29 16:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/240624.shtml)
-- 2026-06-29 16:20 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/2307524.shtml)
-- 2026-06-29 16:13 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/6328192531.shtml)
+- 2026-06-29 16:11 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/17071284662.shtml)
+- 2026-06-29 16:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/08980488.shtml)
+- 2026-06-29 16:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/749050.shtml)
+- 2026-06-29 16:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/7391679307.shtml)
+- 2026-06-29 16:08 - [普京介绍前线战事](http://www.share.minike.top/Article/details/9179806101.shtml)
+- 2026-06-29 16:06 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/021024978297.shtml)
+- 2026-06-29 16:15 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/217913751709.shtml)
+- 2026-06-29 16:10 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/971301.shtml)
+- 2026-06-29 16:06 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/218386343.shtml)
+- 2026-06-29 16:17 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/1585191181.shtml)
+- 2026-06-29 16:12 - [南非老帅布罗斯的梦没能做完](https://www.share.kurohicncr.top/Article/details/151811372224.shtml)
+- 2026-06-29 16:26 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/84614.shtml)
+- 2026-06-29 16:26 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/890558517.shtml)
+- 2026-06-29 16:20 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/462205.shtml)
+- 2026-06-29 16:16 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/231328.shtml)

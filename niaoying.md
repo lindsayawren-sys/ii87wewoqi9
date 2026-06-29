@@ -1,56 +1,60 @@
-# 繁花伴逝者，绿色传思念：花坛葬集中安放仪式在广州举行
+# 成渝双城开展科技教育交流与合作 两地协同共育科创英才
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新网广州4月11日电 (记者 蔡敏婕)“父亲一生简朴，生前向往自然，选择花坛葬，繁花相伴、草木为邻，就是对亲人最好的思念寄托。”广州市民李先生11日表示，从最初心存顾虑到如今真心认可，感受到生态安葬既圆亲人回归自然之愿，又为后代留存更多绿色空间。 广州市银河革命公墓当天在生态葬区举行“生命融于自然 思念长留人间”2026年花坛葬集中安放暨祭扫仪式，通过节地生态安葬方式，让逝者
+中新网重庆5月23日电 (记者 钟旖)为持续深化成渝地区双城经济圈建设背景下的科技教育协同推进，促进两地交流，深化科技教育一体发展，“2026年成渝双城青少年科技教育交流与合作活动”近期在重庆顺利举办两期。 活动以“成渝融通科教 赓助英才繁茂”为主题，立足“融通共生、提质增效、共育英才”的核心目标，组织成都的92名中、小学科技辅导员，走进重庆开展沉浸式观摩、专业化研讨与深层次对
 
 ## 正文
 
-中新网广州4月11日电 (记者 蔡敏婕)“父亲一生简朴，生前向往自然，选择花坛葬，繁花相伴、草木为邻，就是对亲人最好的思念寄托。
+中新网重庆5月23日电 (记者 钟旖)为持续深化成渝地区双城经济圈建设背景下的科技教育协同推进，促进两地交流，深化科技教育一体发展，“2026年成渝双城青少年科技教育交流与合作活动”近期在重庆顺利举办两期。
 
-”广州市民李先生11日表示，从最初心存顾虑到如今真心认可，感受到生态安葬既圆亲人回归自然之愿，又为后代留存更多绿色空间。
+活动以“成渝融通科教 赓助英才繁茂”为主题，立足“融通共生、提质增效、共育英才”的核心目标，组织成都的92名中、小学科技辅导员，走进重庆开展沉浸式观摩、专业化研讨与深层次对接，旨在推动两地科技教育从“单向交流”向“双向融通”升级，从“经验分享”向“协同共建”跨越，为成渝地区双城经济圈科创人才培育筑牢基础教育根基。
 
-广州市银河革命公墓当天在生态葬区举行“生命融于自然 思念长留人间”2026年花坛葬集中安放暨祭扫仪式，通过节地生态安葬方式，让逝者安息于繁花绿茵间，引导民众树立文明祭扫、生态安葬的观念。
+首期活动面向小学科技辅导员。
 
-仪式现场简约肃穆，氛围庄重雅致。
+46名成都教师走进重庆科学城南开小学、南岸区南坪实验小学(康德校区)、重庆两江新区星湖学校，深度观摩科创教学示范、特色课程实践与体系化育人探索。
 
-在工作人员引导下，逝者亲属手持环保可降解骨灰容器，将骨灰缓缓放入花坛之中，覆土掩埋，让生命与自然相融共生。
+第二期活动聚焦中学科技教育，46名成都中学科技辅导员先后到访重庆巴蜀科学城中学校、重庆市第三十七中学校、重庆市第十一中学校，围绕数字赋能、科教融合、贯通式育人等主题交流互鉴。
 
-现场依次开展默哀追思、敬献鲜花、集体祭扫等环节，流程庄重有序、饱含人文温情，既赋予告别仪式满满的庄重感与仪式感，又守护民众“入土为安”的传统情感诉求。
+两期活动全程紧凑高效、内容充实，成都科技辅导员全程参与听课、说课、评课与经验分享，在座谈交流中碰撞思路、凝聚共识。
 
-当下，生态安葬已从社会新风尚转变为民众的新选择。
+参与教师表示，将把重庆优质教学经验转化为本土实践，助力本校科技教育提质升级。
 
-广州累计投入2446万元完善生态安葬设施，节地生态安葬率达90.5%。
+该活动由成都市科学技术协会指导，成都市科技创新服务中心(成都市青少年科技活动中心)主办。
 
 ## 相关推荐
 
-- 2026-06-29 16:19 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 16:17 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 16:10 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 16:06 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 16:15 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 16:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 16:16 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 16:11 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 16:13 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 16:14 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 16:13 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 16:12 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 16:22 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 16:25 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 16:10 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 16:21 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 16:06 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 16:20 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 16:28 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 16:32 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 16:30 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 16:18 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 16:15 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 16:09 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:00 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/1060813.shtml)
-- 2026-06-29 16:00 - [沉睡花园](https://www.blog.minike.top/Article/details/254916023.shtml)
-- 2026-06-29 16:08 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/49404778.shtml)
-- 2026-06-29 16:26 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/42593110601.shtml)
-- 2026-06-29 16:21 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/5127711165.shtml)
-- 2026-06-29 16:16 - [NBA交易](http://www.share.minike.top/Article/details/90581.shtml)
-- 2026-06-29 16:14 - [扫黑风暴](https://www.blog.minike.top/Article/details/9501911.shtml)
-- 2026-06-29 16:06 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/27257429292.shtml)
-- 2026-06-29 16:28 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/98570.shtml)
-- 2026-06-29 16:26 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/15307.shtml)
-- 2026-06-29 16:26 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/481512983.shtml)
-- 2026-06-29 16:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/954163960.shtml)
-- 2026-06-29 16:11 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/558279.shtml)
-- 2026-06-29 16:11 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/243781874339.shtml)
-- 2026-06-29 16:29 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/0225706.shtml)
+- 2026-06-29 16:14 - [《贺子珍》](http://www.share.minike.top/Article/details/78157204.shtml)
+- 2026-06-29 16:27 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/51313.shtml)
+- 2026-06-29 16:13 - [男孩复读一年减重20斤涨分111分](http://www.share.minike.top/Article/details/38450.shtml)
+- 2026-06-29 16:29 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.kurohicncr.top/Article/details/29612339.shtml)
+- 2026-06-29 16:11 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/9458808.shtml)
+- 2026-06-29 16:35 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/76884.shtml)
+- 2026-06-29 16:32 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/5146235.shtml)
+- 2026-06-29 16:23 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/65172429015.shtml)
+- 2026-06-29 16:11 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/08463.shtml)
+- 2026-06-29 16:17 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/558397.shtml)
+- 2026-06-29 16:12 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/749021794494.shtml)
+- 2026-06-29 16:14 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/175996.shtml)
+- 2026-06-29 16:07 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/626511122.shtml)
+- 2026-06-29 16:16 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/1205117117.shtml)
+- 2026-06-29 16:23 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/76934301064.shtml)

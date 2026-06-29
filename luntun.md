@@ -1,51 +1,58 @@
-# 浙江杭州：“骑士部落”为外卖小哥提供休憩港湾
+# 东西问｜彭裕超：文学这座“桥”如何让中塞两国走近彼此？
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月10日 16:16 来源：中国新闻网 在杭州市萧山区，河南小伙何流通为外卖骑手打造了一个“骑士部落”电瓶车维修店。50平方米的小店内，维修工具、备用轮胎、饮水机、冰柜、沙发一应俱全，不少外卖小哥趁着送餐间隙，来这里换电、歇脚、修车，“骑士部落”成为了附近外卖骑手温暖的“家”。 吴君毅 庄蕙语 浙江杭州报道 责任编辑：【于晓】
+中新社北京5月24日电 题：文学这座“桥”如何让中塞两国走近彼此？ 作者 李百加 杨程晨 谈及“桥”这一意象，北京外国语大学塞尔维亚语言文学学者、副教授彭裕超谈兴颇浓。“‘桥’成为塞尔维亚极具代表性的文化名片，‘桥’的内涵在中塞交往中持续积淀。” 他说，巴尔干扼守黑海—地中海咽喉，当地特色文化符号是“桥”。前南斯拉夫作家伊沃·安德里奇(Ivo Andrić)斩获诺贝尔文学奖的著
 
 ## 正文
 
-发布时间：2026年04月10日 16:16 来源：中国新闻网 在杭州市萧山区，河南小伙何流通为外卖骑手打造了一个“骑士部落”电瓶车维修店。
+中新社北京5月24日电 题：文学这座“桥”如何让中塞两国走近彼此？
 
-50平方米的小店内，维修工具、备用轮胎、饮水机、冰柜、沙发一应俱全，不少外卖小哥趁着送餐间隙，来这里换电、歇脚、修车，“骑士部落”成为了附近外卖骑手温暖的“家”。
+作者 李百加 杨程晨 谈及“桥”这一意象，北京外国语大学塞尔维亚语言文学学者、副教授彭裕超谈兴颇浓。
 
-吴君毅 庄蕙语 浙江杭州报道 责任编辑：【于晓】
+“‘桥’成为塞尔维亚极具代表性的文化名片，‘桥’的内涵在中塞交往中持续积淀。
+
+” 他说，巴尔干扼守黑海—地中海咽喉，当地特色文化符号是“桥”。
+
+前南斯拉夫作家伊沃·安德里奇(Ivo Andrić)斩获诺贝尔文学奖的著作是《德里纳河上的桥》。
+
+1977年风靡中国的东欧电影是《桥》。
+
+2014年中塞共建“一带一路”首个基建项目，也是一座横跨多瑙河的大桥。
+
+塞尔维亚总统武契奇(Aleksandar Vučić)5月24日至28日对中国进行国事访问，近年来两国关系高水平运行。
 
 ## 相关推荐
 
-- 2026-06-29 16:23 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 16:19 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 16:01 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 16:05 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 16:16 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 16:25 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 16:02 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 16:16 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 16:06 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 16:15 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 16:10 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 16:11 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 16:18 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 16:00 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 16:02 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 16:16 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 16:10 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 16:14 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 16:27 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 16:28 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 16:15 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 16:30 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 16:22 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 16:10 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 16:22 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 16:20 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 16:24 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:21 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/81419029.shtml)
-- 2026-06-29 16:12 - [东方风云榜红毯](http://www.blog.minike.top/Article/details/081551074.shtml)
-- 2026-06-29 16:12 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/024752162.shtml)
-- 2026-06-29 16:20 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/359809839543.shtml)
-- 2026-06-29 16:16 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/29448402106.shtml)
-- 2026-06-29 16:16 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/853999134.shtml)
-- 2026-06-29 16:06 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/7667225581.shtml)
-- 2026-06-29 16:15 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/383098905028.shtml)
-- 2026-06-29 16:09 - [四川宜宾地震](https://www.share.minike.top/Article/details/93862654.shtml)
-- 2026-06-29 16:08 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.minike.top/Article/details/035832175634.shtml)
-- 2026-06-29 16:17 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/983915761.shtml)
-- 2026-06-29 16:25 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/956509011517.shtml)
-- 2026-06-29 16:26 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/261362.shtml)
-- 2026-06-29 16:26 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/260437.shtml)
-- 2026-06-29 16:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/006413.shtml)
+- 2026-06-29 16:11 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/9388920623.shtml)
+- 2026-06-29 16:27 - [葛军谈AI时代理科生出路](http://www.share.kurohicncr.top/Article/details/93515107.shtml)
+- 2026-06-29 16:19 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/6201377353.shtml)
+- 2026-06-29 16:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/3189879831.shtml)
+- 2026-06-29 16:10 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/90690.shtml)
+- 2026-06-29 16:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/4592726.shtml)
+- 2026-06-29 16:30 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/130868.shtml)
+- 2026-06-29 16:08 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/0035703725.shtml)
+- 2026-06-29 16:18 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/3401699.shtml)
+- 2026-06-29 16:07 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/274062626392.shtml)
+- 2026-06-29 16:17 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.kurohicncr.top/Article/details/75163878781.shtml)
+- 2026-06-29 16:09 - [速度与激情9](http://www.share.minike.top/Article/details/12942326984.shtml)
+- 2026-06-29 16:33 - [存储三巨头被告了](http://www.share.minike.top/Article/details/629506793.shtml)
+- 2026-06-29 16:08 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/246146265837.shtml)
+- 2026-06-29 16:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/534074801469.shtml)

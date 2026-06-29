@@ -1,56 +1,56 @@
-# 一汽解放王建宇：海外法规适应性是商用车出海破局的关键
+# 斯特兰蒂斯CEO拟将中国品牌车型引入北美
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。一汽解放汽车有限公司副总经理兼商用车开发院院长、党委书记王建宇出席并演讲。 王建宇谈到，全球新能源商用车市场快速崛起，为中国商用车企业出海打开了广阔空间，也带来了全新发展机遇。围绕这一趋势，一
+核心要点 斯特兰蒂斯 CEO 安东尼奥・菲洛萨表示，公司计划扩大在北美的合作伙伴关系，以盘活工厂产能、提升销量；同时考虑在美国以外地区生产中国品牌车型。 菲洛萨周四表示，公司 “无疑” 看好与中国车企浙江零跑科技股份有限公司深化合作，将其车型生产与销售拓展至墨西哥，亦有可能落地加拿大。 “我认为墨西哥市场存在机会…… 加拿大或许也有空间，我们拭目以待。” 他在底特律附近的斯特兰
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+核心要点 斯特兰蒂斯 CEO 安东尼奥・菲洛萨表示，公司计划扩大在北美的合作伙伴关系，以盘活工厂产能、提升销量；同时考虑在美国以外地区生产中国品牌车型。
 
-一汽解放汽车有限公司副总经理兼商用车开发院院长、党委书记王建宇出席并演讲。
+菲洛萨周四表示，公司 “无疑” 看好与中国车企浙江零跑科技股份有限公司深化合作，将其车型生产与销售拓展至墨西哥，亦有可能落地加拿大。
 
-王建宇谈到，全球新能源商用车市场快速崛起，为中国商用车企业出海打开了广阔空间，也带来了全新发展机遇。
+“我认为墨西哥市场存在机会…… 加拿大或许也有空间，我们拭目以待。
 
-围绕这一趋势，一汽解放有两点认识： 第一，体系化出海是中国商用车实现全球化发展的必然选择。
+” 他在底特律附近的斯特兰蒂斯北美总部投资者日活动后的新闻发布会上表示，“但目前美国市场没有机会，我们不考虑。
 
-他提到，单纯依靠产品输出和贸易模式，很难实现长期可持续发展。
+” 传统车企，尤其是像斯特兰蒂斯这样在北美深耕多年的企业，一直对中国车企进军北美市场保持警惕。
 
-“企业必须构建涵盖研发、生产、营销、服务、供应链的全链条海外体系，才能真正适配海外市场需求，提升品牌核心竞争力，实现稳健长远的全球化发展。
+美国企业高管担忧，中国车企的布局可能成为进入美国消费者市场的跳板。
 
-” 第二，海外法规适应性是商用车出海破局的关键。
+斯特兰蒂斯合作动态一览 尽管美中贸易关系紧张，加拿大目前允许每年进口 4.9 万辆中国制造电动汽车用于零售销售，关税税率为 6.1%。
 
-王建宇表示，不同国家和地区法规差异显著，直接决定产品准入与市场推广。
+加拿大安大略省多伦多市郊的布兰普顿市，拥有斯特兰蒂斯一座大型装配厂。
 
 ## 相关推荐
 
-- 2026-06-29 16:07 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 16:21 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-29 16:10 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 16:19 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 16:02 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 16:03 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 16:08 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 16:09 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 16:14 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 16:14 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 16:12 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 16:23 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 16:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 16:33 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 16:06 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 16:21 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 16:27 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 16:30 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 16:13 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 16:13 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:05 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/555467799967.shtml)
-- 2026-06-29 16:26 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/917885786.shtml)
-- 2026-06-29 16:25 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.minike.top/Article/details/780833.shtml)
-- 2026-06-29 16:06 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/54446984.shtml)
-- 2026-06-29 16:04 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/1786131.shtml)
-- 2026-06-29 16:16 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/494705432.shtml)
-- 2026-06-29 16:13 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/12852399113.shtml)
-- 2026-06-29 16:05 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/8335730.shtml)
-- 2026-06-29 16:16 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/04199.shtml)
-- 2026-06-29 16:08 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/368745103.shtml)
-- 2026-06-29 16:16 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/36832.shtml)
-- 2026-06-29 16:21 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/69252719774.shtml)
-- 2026-06-29 16:18 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/3097567.shtml)
-- 2026-06-29 16:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/607824488587.shtml)
-- 2026-06-29 16:13 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/26310775939.shtml)
+- 2026-06-29 16:32 - [崔韩率还以为韩娱来新人了](https://www.blog.minike.top/Article/details/2857646718.shtml)
+- 2026-06-29 16:31 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/92648508.shtml)
+- 2026-06-29 16:15 - [中国战机大片上新](http://www.share.minike.top/Article/details/76279276129.shtml)
+- 2026-06-29 16:15 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/933651.shtml)
+- 2026-06-29 16:30 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/60528257.shtml)
+- 2026-06-29 16:17 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/1652005.shtml)
+- 2026-06-29 16:10 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/52042195959.shtml)
+- 2026-06-29 16:06 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/9788767868.shtml)
+- 2026-06-29 16:17 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/1721652107.shtml)
+- 2026-06-29 16:29 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/40706785.shtml)
+- 2026-06-29 16:14 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/97209.shtml)
+- 2026-06-29 16:12 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/372721500.shtml)
+- 2026-06-29 16:08 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/28323016016.shtml)
+- 2026-06-29 16:33 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/12253279.shtml)
+- 2026-06-29 16:06 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/3943923215.shtml)

@@ -1,57 +1,56 @@
-# 钠电池的时代快要来了吗
+# 宠物医疗亮相大理医博会 “它经济”成产业新风向
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-对于电池，你是否也有着朴素却迫切的期望？比如续航持久、充电飞快，能适应冷热环境，最重要的是安全可靠。从新能源汽车到家用电器储能，再到我们兜里的手机，电池作为提供动力的核心部件，始终离不开安全这一关键要求。4月6日，中国科学院物理研究所研究员胡勇胜团队在国际学术期刊《自然·能源》上发表了一项研究成果：全球首次实现安时级钠离子电池“无热失控”，成功研发出具备自保护功能的可聚合不燃电
+中新网云南大理5月22日电 (记者 韩帅南)宠物牙科X光机、迷你实验室、宠物用CT设备……22日，正在云南省大理州弥渡县举行的2026年第二届大理医疗器械产业博览会暨南亚东南亚国际医疗产业合作交流推介会(下称“大理医博会”)上，宠物大健康板块展示的各类宠物医疗器械和用品吸引众多民众参观，折射出中国“它经济”蓬勃发展的产业新风向。 中国是全球最具潜力的宠物消费市场之一。据《202
 
 ## 正文
 
-对于电池，你是否也有着朴素却迫切的期望？
+中新网云南大理5月22日电 (记者 韩帅南)宠物牙科X光机、迷你实验室、宠物用CT设备……22日，正在云南省大理州弥渡县举行的2026年第二届大理医疗器械产业博览会暨南亚东南亚国际医疗产业合作交流推介会(下称“大理医博会”)上，宠物大健康板块展示的各类宠物医疗器械和用品吸引众多民众参观，折射出中国“它经济”蓬勃发展的产业新风向。
 
-比如续航持久、充电飞快，能适应冷热环境，最重要的是安全可靠。
+中国是全球最具潜力的宠物消费市场之一。
 
-从新能源汽车到家用电器储能，再到我们兜里的手机，电池作为提供动力的核心部件，始终离不开安全这一关键要求。
+据《2026年中国宠物行业白皮书(消费报告)》，2025年中国城镇犬猫宠物数量突破1.26亿只，宠物消费市场规模达3126亿元，覆盖繁育、食品、用品、医疗等多个细分领域。
 
-4月6日，中国科学院物理研究所研究员胡勇胜团队在国际学术期刊《自然·能源》上发表了一项研究成果：全球首次实现安时级钠离子电池“无热失控”，成功研发出具备自保护功能的可聚合不燃电解质(PNE)。
+本届大理医博会展馆面积达10500平方米，共设置111个展位，参展企业169家。
 
-这项突破，破解了新能源电池安全的核心难题，这意味着钠离子电池规模化商业落地更近了一步。
+展区分为医疗器械展区和沪滇协作成果展区。
 
-据研究者解释，传统碳酸酯类有机电解质，虽然电化学性能优异，但有着“引发热失控”的隐患。
+其中，医疗器械展区主要涵盖医疗器械大健康、美丽大健康、康复大健康和宠物大健康板块。
 
-长期以来，相关行业普遍将“电解质不可燃”作为安全核心标准。
+“去年大理医博会上参展的宠物医疗企业还比较少，今年的参展企业明显多了。
 
-而胡勇胜团队研究首次证实，阻燃并不等于绝对安全，即便使用阻燃型磷酸酯电解质，电池仍可能发生热失控。
+”大理一家宠物医疗器械企业负责人李庆奇是第二次参加大理医博会，此次带来了宠物用全身X光机、CT设备及手术图像引导设备等全系列影像产品。
 
 ## 相关推荐
 
-- 2026-06-29 16:00 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 16:11 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 16:07 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 16:00 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 16:07 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 16:28 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 16:18 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 16:26 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 16:08 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 16:08 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 16:25 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 16:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 16:34 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 16:27 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 16:35 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 16:09 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 16:09 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 16:34 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 16:13 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 16:28 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 16:12 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:13 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/3650532027.shtml)
-- 2026-06-29 16:14 - [苹果ultra2阔折叠已开模测试](http://www.share.kurohicncr.top/Article/details/82126.shtml)
-- 2026-06-29 16:10 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/2442066893.shtml)
-- 2026-06-29 16:16 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/13558160.shtml)
-- 2026-06-29 16:06 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/136450478464.shtml)
-- 2026-06-29 16:24 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/63703325324.shtml)
-- 2026-06-29 16:06 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/16072.shtml)
-- 2026-06-29 16:00 - [当我回母校教书](http://www.blog.minike.top/Article/details/69181179.shtml)
-- 2026-06-29 16:20 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/5534281630.shtml)
-- 2026-06-29 16:28 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/420644143.shtml)
-- 2026-06-29 16:05 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/9735712973.shtml)
-- 2026-06-29 16:22 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/48585.shtml)
-- 2026-06-29 16:02 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/262531971.shtml)
-- 2026-06-29 16:18 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/32052812.shtml)
-- 2026-06-29 16:02 - [105年初心滚烫](http://www.share.minike.top/Article/details/986079.shtml)
+- 2026-06-29 16:14 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/997507507.shtml)
+- 2026-06-29 16:22 - [明星大侦探第一季](http://www.share.minike.top/Article/details/96740.shtml)
+- 2026-06-29 16:16 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/6304765.shtml)
+- 2026-06-29 16:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/68164910904.shtml)
+- 2026-06-29 16:32 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/532487110308.shtml)
+- 2026-06-29 16:06 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/1202524401.shtml)
+- 2026-06-29 16:14 - [BB大王横店拍戏](https://www.blog.kurohicncr.top/Article/details/8977557484.shtml)
+- 2026-06-29 16:06 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/50825.shtml)
+- 2026-06-29 16:07 - [逆天祖国人](https://www.blog.minike.top/Article/details/45798481.shtml)
+- 2026-06-29 16:12 - [12所大学更正招生目录](http://www.blog.minike.top/Article/details/58382047.shtml)
+- 2026-06-29 16:13 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/910327038.shtml)
+- 2026-06-29 16:29 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/91170.shtml)
+- 2026-06-29 16:16 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/56187506099.shtml)
+- 2026-06-29 16:18 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/88075913.shtml)
+- 2026-06-29 16:14 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/4543504.shtml)

@@ -1,58 +1,50 @@
-# 股价跌超10%！上市不足一年，绿茶集团二股东拟清仓离场
+# 多国外交官文创市集剪窗花开盲盒：中国文化如此多样
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-专题：科技成长主线贯穿二季度 震荡上行中布局细分龙头 上市不到一年，绿茶集团二股东拟清仓退出。 4月9日，休闲中式餐厅运营商绿茶集团（6831.HK）发布公告称，公司董事会收到公司主要股东Partners Group Gourmet House Limited（以下简称“Partners Gourmet”）通知，4月8日，Partners Gourmet宣布三项股份出售安排。配
+发布时间：2026年05月22日 12:04 来源：中国新闻网 5月21日，葡萄牙、意大利、波黑、冰岛等国驻华使节及使节夫人等嘉宾走进中国新文创市集暨潮玩游园会，近距离感受中国传统文化与创意、科技相融合的魅力。活动现场多国外交官体验了剪窗花、开潮玩盲盒等文创项目。冰岛驻华大使馆参赞裴英歌在活动现场接受中新社记者采访时表示，中国文化如此多样，十分迷人。(谢龙飞 林倬安 制作 侯诗
 
 ## 正文
 
-专题：科技成长主线贯穿二季度 震荡上行中布局细分龙头 上市不到一年，绿茶集团二股东拟清仓退出。
+发布时间：2026年05月22日 12:04 来源：中国新闻网 5月21日，葡萄牙、意大利、波黑、冰岛等国驻华使节及使节夫人等嘉宾走进中国新文创市集暨潮玩游园会，近距离感受中国传统文化与创意、科技相融合的魅力。
 
-4月9日，休闲中式餐厅运营商绿茶集团（6831.HK）发布公告称，公司董事会收到公司主要股东Partners Group Gourmet House Limited（以下简称“Partners Gourmet”）通知，4月8日，Partners Gourmet宣布三项股份出售安排。
+活动现场多国外交官体验了剪窗花、开潮玩盲盒等文创项目。
 
-配售事项及出售事项涉及的股份总数为1.06亿股，相当于公告日期已发行股份总数（不包括库存股份）的约15.96%。
+冰岛驻华大使馆参赞裴英歌在活动现场接受中新社记者采访时表示，中国文化如此多样，十分迷人。
 
-截至4月9日收盘，绿茶集团（6831.HK）股价报7.92港元/股，跌10.71%。
-
-具体来看，Partners Gourmet与摩根大通证券（亚太）有限公司及广发证券（香港）经纪有限公司（以下简称“配售代理”）订立大宗交易协议，配售代理同意以Partners Gourmet代理身份，按尽力基准促使承配人购买合共6004.4万股本公司普通股；Partners Gourmet同意向投资基金出售其持有的2304.84万股股份；Partners Gourmet同意与策略性企业买方订立买卖协议，以出售其持有的若干股份，出售所得款项总额不得超过3000万美元。
-
-公告指出，预计配售事项将于2026年4月13日完成。
-
-完成出售事项须待取得监管批准后才作实。
-
-配售事项及出售事项完成后，Partners Gourmet将不再持有任何股份，并将不再为本公司股东。
+(谢龙飞 林倬安 制作 侯诗蕊） 责任编辑：【李岩】
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 16:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 16:15 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 16:25 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 16:01 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 16:00 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 16:25 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 16:16 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 16:12 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 16:15 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 16:03 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 16:15 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 16:25 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 16:22 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 16:19 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 16:32 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 16:30 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 16:30 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 16:27 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 16:27 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 16:10 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 16:22 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 16:28 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 16:20 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:24 - [光与夜之恋](http://www.share.kurohicncr.top/Article/details/26687790672.shtml)
-- 2026-06-29 16:15 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/45210.shtml)
-- 2026-06-29 16:15 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.minike.top/Article/details/22569397205.shtml)
-- 2026-06-29 16:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/555891456936.shtml)
-- 2026-06-29 16:26 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/30274563.shtml)
-- 2026-06-29 16:11 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/1747102407.shtml)
-- 2026-06-29 16:27 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/104398843.shtml)
-- 2026-06-29 16:02 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/922697804.shtml)
-- 2026-06-29 16:25 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/16627226864.shtml)
-- 2026-06-29 16:12 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/252010.shtml)
-- 2026-06-29 16:19 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/67966934727.shtml)
-- 2026-06-29 16:06 - [明星大侦探第四季](http://www.share.minike.top/Article/details/9744248.shtml)
-- 2026-06-29 16:11 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/06889.shtml)
-- 2026-06-29 16:20 - [博主：美航母沦为毒品集散窝点](http://www.blog.minike.top/Article/details/562733332846.shtml)
-- 2026-06-29 16:19 - [流金岁月](https://www.share.kurohicncr.top/Article/details/1277708.shtml)
+- 2026-06-29 16:20 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/099594283719.shtml)
+- 2026-06-29 16:17 - [省市招考专家解读山西高考志愿政策](http://www.blog.kurohicncr.top/Article/details/907811.shtml)
+- 2026-06-29 16:22 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/6523791536.shtml)
+- 2026-06-29 16:17 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/222034373.shtml)
+- 2026-06-29 16:15 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/80188.shtml)
+- 2026-06-29 16:34 - [人类对空调和其他家电有多双标](http://www.blog.minike.top/Article/details/248707.shtml)
+- 2026-06-29 16:21 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/7004434386.shtml)
+- 2026-06-29 16:07 - [扬名立万](http://www.share.minike.top/Article/details/88759.shtml)
+- 2026-06-29 16:09 - [省市招考专家解读山西高考志愿政策](http://www.share.kurohicncr.top/Article/details/7389578.shtml)
+- 2026-06-29 16:22 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/6941216.shtml)
+- 2026-06-29 16:09 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.minike.top/Article/details/2122630753.shtml)
+- 2026-06-29 16:08 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/38406.shtml)
+- 2026-06-29 16:11 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/1387591.shtml)
+- 2026-06-29 16:32 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/53319240955.shtml)
+- 2026-06-29 16:21 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/5917429.shtml)

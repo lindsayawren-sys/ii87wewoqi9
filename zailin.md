@@ -1,56 +1,59 @@
-# 净利润下滑13%，美洲核心市场失速，Lululemon遭遇上市以来最慢增长
+# 国内单体最大智能组串式储能电站落地内蒙古
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-曾经在运动休闲市场风光无限的lululemon，如今正经历一场深刻的增长换挡。今年3月，lululemon发布了2025财年第四季度及全年财报。2025年第四季度，公司实现净收入36亿美元，同比微增1%；若剔除2024财年同期的第53周影响，单季净收入增速为6%，可比销售额增速为3%。尽管这一数据勉强落在公司前期指引范围内，但毛利率高达550个基点的锐减，以及净利润同比下滑约2
+中新网包头5月23日电 (记者 李爱平)2026储能高质量发展峰会22日在内蒙古自治区包头市举办。会上披露，当地投运的400兆瓦/2400兆瓦时储能电站，为目前国内单体规模最大的智能组串式储能电站，为内蒙古加快构建新型电力系统注入强劲动能。内蒙古是中国重要风光新能源基地，年均风光有效利用小时数超3000小时，新能源装机占比突破50%。依托丰富绿电资源，当地新能源发电量持续增长，
 
 ## 正文
 
-曾经在运动休闲市场风光无限的lululemon，如今正经历一场深刻的增长换挡。
+中新网包头5月23日电 (记者 李爱平)2026储能高质量发展峰会22日在内蒙古自治区包头市举办。
 
-今年3月，lululemon发布了2025财年第四季度及全年财报。
+会上披露，当地投运的400兆瓦/2400兆瓦时储能电站，为目前国内单体规模最大的智能组串式储能电站，为内蒙古加快构建新型电力系统注入强劲动能。
 
-2025年第四季度，公司实现净收入36亿美元，同比微增1%；若剔除2024财年同期的第53周影响，单季净收入增速为6%，可比销售额增速为3%。
+内蒙古是中国重要风光新能源基地，年均风光有效利用小时数超3000小时，新能源装机占比突破50%。
 
-尽管这一数据勉强落在公司前期指引范围内，但毛利率高达550个基点的锐减，以及净利润同比下滑约21.52%至5.87亿美元，都显示着公司经营压力的加剧。
+依托丰富绿电资源，当地新能源发电量持续增长，但长期受限于网架配套不足，存在绿电消纳难、外送不畅等问题，弃风弃光现象制约新能源高效利用。
 
-而在2025财年，lululemon实现营收111亿美元，同比增长5%，净利润同比下滑约13%至15.79亿美元，其中核心市场美洲的净收入同比下降1%，同店销售下降了3%，这也让市场清晰地看到：lululemon在这一核心地区的增长引擎已呈现“失速”。
+华为数字能源智能光伏业务副总裁、首席营销官钟明明表示，该电站每年可化解约10亿千瓦时新能源电力送出瓶颈。
 
-证券之星注意到，国际业务中，中国大陆虽保持两位数高增长，但体量尚小且面临日益激烈的本土竞争，短期内难以充当业绩的“安全垫”。
+项目可常态化开展电网调峰、调频，在风光出力波动、供电缺口出现时快速响应补能，平抑电网波动，保障当地重工业平稳连续生产，有效提升区域绿电利用效率与供电稳定性。
 
-公司管理层预计，2026年净收入将达到113.5亿美元至115亿美元，但增幅徘徊在低个位数。
+据介绍，电站自2025年12月底并网试运行以来，整体运行平稳高效。
 
-01. 核心市场失速，降价侵蚀品牌溢价2025财年，lululemon的营收虽维持正增长，但增速已降至上市以来的最低点。
+目前单日最高放电量突破200万千瓦时，设备在线率超99.5%，并网综合效率稳定在90%以上，各项核心运行指标表现优异。
 
 ## 相关推荐
 
-- 2026-06-29 16:01 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 16:16 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 16:04 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 16:20 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 16:23 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 16:05 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 16:17 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 16:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 16:24 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 16:29 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 16:17 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 16:14 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 16:12 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 16:24 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 16:32 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 16:13 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 16:31 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 16:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 16:13 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 16:16 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 16:10 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 16:21 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 16:33 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:20 - [和周杰伦在演唱会合唱了](https://www.blog.minike.top/Article/details/4370814044.shtml)
-- 2026-06-29 16:11 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.kurohicncr.top/Article/details/75951628.shtml)
-- 2026-06-29 16:28 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/39464685.shtml)
-- 2026-06-29 16:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/86996697.shtml)
-- 2026-06-29 16:03 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.minike.top/Article/details/27935049806.shtml)
-- 2026-06-29 16:27 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/6962698.shtml)
-- 2026-06-29 16:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/064819137.shtml)
-- 2026-06-29 16:09 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/2532012.shtml)
-- 2026-06-29 16:15 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/192563.shtml)
-- 2026-06-29 16:02 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/779105.shtml)
-- 2026-06-29 16:27 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/4400984622.shtml)
-- 2026-06-29 16:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/02259250911.shtml)
-- 2026-06-29 16:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/8386196.shtml)
-- 2026-06-29 16:18 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/38708403.shtml)
-- 2026-06-29 16:22 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/24550953994.shtml)
+- 2026-06-29 16:06 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/1965080430.shtml)
+- 2026-06-29 16:22 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/46175378075.shtml)
+- 2026-06-29 16:21 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/89139.shtml)
+- 2026-06-29 16:21 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/643335.shtml)
+- 2026-06-29 16:29 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/4595048357.shtml)
+- 2026-06-29 16:27 - [啊啊啊](http://www.blog.minike.top/Article/details/2909180669.shtml)
+- 2026-06-29 16:22 - [天道](https://www.blog.kurohicncr.top/Article/details/553143141128.shtml)
+- 2026-06-29 16:23 - [滾石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/706661827556.shtml)
+- 2026-06-29 16:29 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/63573599684.shtml)
+- 2026-06-29 16:29 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/158891846.shtml)
+- 2026-06-29 16:30 - [人类对空调和其他家电有多双标](http://www.share.kurohicncr.top/Article/details/6878572.shtml)
+- 2026-06-29 16:21 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/3548416.shtml)
+- 2026-06-29 16:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/623412.shtml)
+- 2026-06-29 16:14 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/22830794083.shtml)
+- 2026-06-29 16:27 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/453451738.shtml)

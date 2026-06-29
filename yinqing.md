@@ -1,59 +1,57 @@
-# 云南昭通筑牢防返贫底线 过渡期五年考核连续全省第一
+# 金融监管总局：做好汛期灾害保险理赔服务 应赔尽赔
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新网云南昭通4月11日电 题：云南昭通筑牢防返贫底线 过渡期五年考核连续全省第一 作者 时文枝 “要不是政府帮扶，我们家真不知道该怎么撑下去。”回忆起三年前丈夫重病、两个孩子尚在读书的日子，45岁的云南省昭通市镇雄县粉壁村村民李春琴难掩感慨。2023年，当地镇村干部走访发现家庭困难后，将其纳为动态识别防止返贫监测对象(以下简称监测对象)，通过办理低保、落实健康及教育帮扶政策，
+近日，金融监管总局印发《关于切实做好汛期相关灾害应对和保险理赔服务工作的通知》(以下简称《通知》)，要求各保险公司进一步强化风险意识、底线思维，有力有效做好灾前预警、灾中应急、灾后理赔等各项工作。《通知》强调，要提高工作主动性和前瞻性，实时关注应急管理、气象、水利、地震等相关部门发布的重要气象和灾害信息，强化应急响应联动。要主动做好保险客户风险预警，重点提示车辆转移、设备防护加
 
 ## 正文
 
-中新网云南昭通4月11日电 题：云南昭通筑牢防返贫底线 过渡期五年考核连续全省第一 作者 时文枝 “要不是政府帮扶，我们家真不知道该怎么撑下去。
+近日，金融监管总局印发《关于切实做好汛期相关灾害应对和保险理赔服务工作的通知》(以下简称《通知》)，要求各保险公司进一步强化风险意识、底线思维，有力有效做好灾前预警、灾中应急、灾后理赔等各项工作。
 
-”回忆起三年前丈夫重病、两个孩子尚在读书的日子，45岁的云南省昭通市镇雄县粉壁村村民李春琴难掩感慨。
+《通知》强调，要提高工作主动性和前瞻性，实时关注应急管理、气象、水利、地震等相关部门发布的重要气象和灾害信息，强化应急响应联动。
 
-2023年，当地镇村干部走访发现家庭困难后，将其纳为动态识别防止返贫监测对象(以下简称监测对象)，通过办理低保、落实健康及教育帮扶政策，帮助全家渡过难关。
+要主动做好保险客户风险预警，重点提示车辆转移、设备防护加固、人员避险等关键防汛、抗震等措施。
 
-这是2021至2025年，昭通市在巩固拓展脱贫攻坚成果同乡村振兴有效衔接5年过渡期里，筑牢防返贫底线的一个真实缩影。
+要积极督促被保险人对低洼厂区、地下空间、在建工程、农业大棚、养老院等重点区域开展隐患排查，及时采取措施消除风险隐患。
 
-昭通市地处云、贵、川三省交界处的乌蒙山腹地，是全国脱贫人口最多的地级市，635万户籍人口中有185.07万脱贫人口、26.85万监测对象，脱贫人口和监测对象均占全省四分之一。
+在应急保障方面，《通知》要求用好风险隐患排查成果，做好风险识别评估和动态分析，落实落细灾害应对预案。
 
-“过渡期里，我们以监测帮扶守底线，不让一户农村家庭返贫致贫。
+在理赔服务方面，《通知》要求开通绿色通道，简化理赔手续，优化理赔流程，做到能赔快赔、应赔尽赔、合理预赔。
 
-”昭通市农业农村局党组书记、局长罗光华介绍，五年来，该市累计识别监测对象6.36万户26.85万人。
+要结合受灾地区实际情况，突出工作重点，细化工作安排，主动靠前服务。
 
-其中，5.37万户23.54万人已消除返贫致贫风险，未消除风险对象均已落实帮扶措施。
+要密切跟进保险赔付和预赔付进度，及时回应客户诉求，进一步提升保险理赔质效。
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 16:14 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 16:09 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 16:20 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 16:19 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 16:15 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 16:07 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 16:05 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 16:26 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 16:07 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 16:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 16:13 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 16:08 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 16:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 16:27 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 16:18 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 16:25 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 16:33 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 16:15 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 16:13 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 16:19 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 16:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 16:27 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 16:10 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:22 - [世界杯欧美八大豪强悉数出线](http://www.share.kurohicncr.top/Article/details/388712.shtml)
-- 2026-06-29 16:15 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/738771495.shtml)
-- 2026-06-29 16:16 - [上班主打一个薪尽自然凉](https://www.share.kurohicncr.top/Article/details/97008510.shtml)
-- 2026-06-29 16:02 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/21351527.shtml)
-- 2026-06-29 16:23 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/5094716969.shtml)
-- 2026-06-29 16:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/6277991594.shtml)
-- 2026-06-29 16:26 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/01740313835.shtml)
-- 2026-06-29 16:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/717341454.shtml)
-- 2026-06-29 16:10 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.kurohicncr.top/Article/details/3213799.shtml)
-- 2026-06-29 16:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/04748920448.shtml)
-- 2026-06-29 16:10 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/108617271617.shtml)
-- 2026-06-29 16:28 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.minike.top/Article/details/47024329.shtml)
-- 2026-06-29 16:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/3718611.shtml)
-- 2026-06-29 16:27 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/28090168.shtml)
-- 2026-06-29 16:09 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/191549.shtml)
+- 2026-06-29 16:30 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/498381552320.shtml)
+- 2026-06-29 16:15 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/33377.shtml)
+- 2026-06-29 16:34 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/766146667.shtml)
+- 2026-06-29 16:34 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/9929029970.shtml)
+- 2026-06-29 16:12 - [请回答王牌2019](https://www.share.minike.top/Article/details/854167915.shtml)
+- 2026-06-29 16:20 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/697588267384.shtml)
+- 2026-06-29 16:16 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.kurohicncr.top/Article/details/461518.shtml)
+- 2026-06-29 16:10 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/21015627844.shtml)
+- 2026-06-29 16:32 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/359731898260.shtml)
+- 2026-06-29 16:26 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/8018893933.shtml)
+- 2026-06-29 16:31 - [首尔商铺禁止洪明甫入内](http://www.share.kurohicncr.top/Article/details/5741279890.shtml)
+- 2026-06-29 16:31 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/201830.shtml)
+- 2026-06-29 16:30 - [2026世界杯谁能一黑到底](https://www.share.minike.top/Article/details/8620784.shtml)
+- 2026-06-29 16:16 - [王楚钦3-0周启豪 晋级32强](https://www.blog.minike.top/Article/details/11976.shtml)
+- 2026-06-29 16:21 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/139391824740.shtml)

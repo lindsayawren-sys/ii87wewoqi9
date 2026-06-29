@@ -1,56 +1,59 @@
-# StarBridge:通胀预期升温压制贵金属走势
+# 美联储新主席宣誓！特朗普呼吁“要遏制通胀，不要遏制伟大”，沃什表态要做格林斯潘
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-4月10日，贵金属市场在周四早盘表现偏弱，金银价格小幅回落，市场整体情绪趋于谨慎。StarBridge认为，在关键通胀数据公布前，投资者倾向于降低风险敞口，使黄金与白银短线承压。从盘面来看，黄金价格维持在约4770美元附近震荡，白银则回落至约74美元区域，整体波动幅度有限，反映出市场观望情绪较为浓厚。 即将公布的通胀数据成为市场关注焦点。数据显示，核心个人消费支出指数月率预计维
+来源：华尔街见闻 美联储迎来新掌门人，但权力移交背后的政策博弈已悄然开始。 当地时间周五，凯文·沃什（Kevin Warsh）在美国白宫正式宣誓就任美联储掌门人，四年主席任期将于2030年5月21日届满。 特朗普在典礼上口称支持央行独立性，随即话锋一转，公开阐述其希望新主席奉行的经济理念——经济繁荣不应被约束，强劲增长不会引发通胀。 沃什随后发表简短讲话，称这是“被召回公共服务
 
 ## 正文
 
-4月10日，贵金属市场在周四早盘表现偏弱，金银价格小幅回落，市场整体情绪趋于谨慎。
+来源：华尔街见闻 美联储迎来新掌门人，但权力移交背后的政策博弈已悄然开始。
 
-StarBridge认为，在关键通胀数据公布前，投资者倾向于降低风险敞口，使黄金与白银短线承压。
+当地时间周五，凯文·沃什（Kevin Warsh）在美国白宫正式宣誓就任美联储掌门人，四年主席任期将于2030年5月21日届满。
 
-从盘面来看，黄金价格维持在约4770美元附近震荡，白银则回落至约74美元区域，整体波动幅度有限，反映出市场观望情绪较为浓厚。
+特朗普在典礼上口称支持央行独立性，随即话锋一转，公开阐述其希望新主席奉行的经济理念——经济繁荣不应被约束，强劲增长不会引发通胀。
 
-即将公布的通胀数据成为市场关注焦点。
+沃什随后发表简短讲话，称这是“被召回公共服务岗位的毕生荣幸”，他说： 为完成这一使命，我将领导一个以改革为导向的美联储，从过往的成功与失误中汲取教训，既摆脱僵化的框架和模型，又坚守清晰的诚信与绩效标准。
 
-数据显示，核心个人消费支出指数月率预计维持在约0.4%左右，与此前水平相当，而整体通胀年率大致维持在约2.8%左右，核心通胀则略低于此前水平，约在3%左右。
+沃什强调美联储应以“独立性、清晰判断与坚定立场”履行控制通胀和实现充分就业的职责。
 
-StarBridge认为，这一组合意味着通胀虽未进一步上行，但仍明显高于政策目标区间，价格压力依然存在。
+他还表示，美联储的使命是“维持价格稳定和实现最大就业”。
 
-在此背景下，市场对未来利率路径的预期变得更加复杂，贵金属作为无息资产的吸引力受到一定抑制。
+此时正值货币政策和美国经济的关键时刻。
 
-从政策层面来看，部分市场观点认为，持续的通胀压力可能促使央行维持较为谨慎的立场，甚至不排除在特定条件下重新收紧政策。
+他对现任美联储官员的广泛批评、降息方略以及与美国总统特朗普的关系，使他在领导美联储的角逐中力压其他竞争者脱颖而出。
 
 ## 相关推荐
 
-- 2026-06-29 16:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 16:25 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 16:25 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 16:04 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 16:15 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 16:14 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 16:18 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 16:20 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 16:28 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 16:01 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 16:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 16:21 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 16:24 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 16:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 16:15 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 16:18 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 16:17 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 16:27 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 16:23 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 16:23 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 16:09 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 16:17 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 16:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:18 - [博主：黄金和原油回落不等于风险消失](http://www.share.kurohicncr.top/Article/details/491444500344.shtml)
-- 2026-06-29 16:22 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/477548981446.shtml)
-- 2026-06-29 16:13 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.kurohicncr.top/Article/details/4103454255.shtml)
-- 2026-06-29 16:16 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.minike.top/Article/details/126648.shtml)
-- 2026-06-29 16:04 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/883394509430.shtml)
-- 2026-06-29 16:09 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/442105333.shtml)
-- 2026-06-29 16:23 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/73403847.shtml)
-- 2026-06-29 16:25 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/360893.shtml)
-- 2026-06-29 16:14 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/519741951.shtml)
-- 2026-06-29 16:15 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/45321312494.shtml)
-- 2026-06-29 16:07 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.minike.top/Article/details/756120047.shtml)
-- 2026-06-29 16:17 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/525817589.shtml)
-- 2026-06-29 16:22 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/624475234.shtml)
-- 2026-06-29 16:00 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/57035572355.shtml)
-- 2026-06-29 16:10 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/6011951.shtml)
+- 2026-06-29 16:22 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.minike.top/Article/details/51074687066.shtml)
+- 2026-06-29 16:09 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/2023267.shtml)
+- 2026-06-29 16:22 - [波兰创该国高温纪录](http://www.blog.minike.top/Article/details/99559512494.shtml)
+- 2026-06-29 16:12 - [12所大学更正招生目录](https://www.blog.kurohicncr.top/Article/details/11564865.shtml)
+- 2026-06-29 16:26 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/9401597013.shtml)
+- 2026-06-29 16:16 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/67574054.shtml)
+- 2026-06-29 16:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/65192.shtml)
+- 2026-06-29 16:32 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/30724827181.shtml)
+- 2026-06-29 16:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/531058938287.shtml)
+- 2026-06-29 16:06 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/5000854704.shtml)
+- 2026-06-29 16:13 - [博主：全球股市进入“AI极端共振”](https://www.blog.minike.top/Article/details/90758.shtml)
+- 2026-06-29 16:07 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/83495.shtml)
+- 2026-06-29 16:24 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/05017.shtml)
+- 2026-06-29 16:26 - [大六座SUV进入黄金时代](http://www.share.minike.top/Article/details/12020488.shtml)
+- 2026-06-29 16:35 - [南非老帅布罗斯的梦没能做完](http://www.blog.minike.top/Article/details/0899896.shtml)

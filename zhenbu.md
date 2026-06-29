@@ -1,61 +1,58 @@
-# 白宫紧急警告员工：不得在伊朗战争期间押注预测市场
+# 云南省水富市：探索“统战+法治”普法新路径
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——3月23日，美国总统特朗普突然宣布暂停对伊朗的军事打击行动，次日白宫便迅速向全体工作人员发出警告，要求不得利用职务之便在期货或预测市场上进行精准押注。 据知情人士透露，这封警告邮件由白宫管理办公室于3月24日发送给全体工作人员。就在这一政策突然转变大约15分钟前，期货市场出现了一波异常的巨额交易。 根据市场数据，在不到两分钟的时间内，价值超过7.6亿美元的石
+近年来，水富市以“普法强基补短板”专项行动为契机，充分发挥统一战线凝聚人心、汇聚力量的独特优势，将统战工作与法治建设深度融合，探索出一条“家庭需求导向、精准普法服务、多元主体参与”的常态化普法新路径。织密“统战+网格”融合网络，构建协同治理新格局 水富市将家庭作为社会治理的最小单元和统战工作的前沿阵地，推动法治建设与统战网格深度融合。市委统战部联合政法委、妇联、司法局等部门，将
 
 ## 正文
 
-汇通财经APP讯——3月23日，美国总统特朗普突然宣布暂停对伊朗的军事打击行动，次日白宫便迅速向全体工作人员发出警告，要求不得利用职务之便在期货或预测市场上进行精准押注。
+近年来，水富市以“普法强基补短板”专项行动为契机，充分发挥统一战线凝聚人心、汇聚力量的独特优势，将统战工作与法治建设深度融合，探索出一条“家庭需求导向、精准普法服务、多元主体参与”的常态化普法新路径。
 
-据知情人士透露，这封警告邮件由白宫管理办公室于3月24日发送给全体工作人员。
+织密“统战+网格”融合网络，构建协同治理新格局 水富市将家庭作为社会治理的最小单元和统战工作的前沿阵地，推动法治建设与统战网格深度融合。
 
-就在这一政策突然转变大约15分钟前，期货市场出现了一波异常的巨额交易。
+市委统战部联合政法委、妇联、司法局等部门，将“法治家庭”建设纳入平安建设与统战工作考核体系，与“平安家庭”“文明家庭”“民族团结进步示范家庭”等评选挂钩，引导包括党外人士、新的社会阶层人士、非公经济人士在内的各类统战成员家庭从“被动受教”转向“主动参与”，实现家庭“小细胞”与治理“大网络”的有机衔接。
 
-根据市场数据，在不到两分钟的时间内，价值超过7.6亿美元的石油期货合约完成成交。
+依托覆盖城乡的“家庭普法服务圈”，市综治中心与统战工作阵地联动发力，将“妇女儿童一站式服务站”“侨胞之家”“新的社会阶层人士实践创新基地”等统战元素融入市、镇、村三级普法网络。
 
-此外，预测平台Polymarket上的三个账户准确押中了这一周伊朗停火的时机，获利超过60万美元。
+由3410名微网格员(包含党外代表人士、乡贤能人、民族宗教界代表等)组成的人情网络，对高风险家庭实施重点普法和关爱帮扶，确保法律政策的种子播撒到田间地头、灶台客厅，同时也将党的统战政策传递到每个家庭。
 
-包括许多民主党人在内的批评者随即推测，可能有人提前掌握了政策变动信息并借此牟利。
+聚焦“统战+群体”精准服务，提升分类普法实效性 针对不同家庭成员的身份特点和实际需求，水富市制定并实施靶向普法计划，特别关注统一战线各领域成员的法治素养提升。
 
-白宫确认警告邮件真实性并回应质疑 白宫已证实这封警告邮件的真实性。
+面向儿童与家长：法治副校长与统战、教育、公检法等部门联动，在“护苗成长”行动中，将防性侵、防欺凌等关键知识送入校园，并特别关注少数民族学生、归侨侨眷子女等群体的权益保护，已惠及2.37万余名学生和2200余名家长。
 
-特朗普的发言人戴维斯·英格尔（Davis Ingle）表示：“唯一能指引特朗普总统的特殊利益，永远只会是美国人民的最大利益。
+面向妇女群体：“巾帼护航”行动与“三访四察五送”工作紧密结合，通过举办家庭教育主题宣讲、清廉家风亲子朗诵等活动，将《中华人民共和国民法典》知识融入生活。
 
 ## 相关推荐
 
-- 2026-06-29 16:27 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 16:20 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 16:14 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 16:26 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 16:13 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 16:15 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 16:11 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 16:09 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 16:13 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 16:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 16:15 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 16:06 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 16:29 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 16:23 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 16:17 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 16:26 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 16:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 16:14 - [驻日美军航母沦为“毒窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 16:13 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 16:24 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 16:35 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 16:10 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 16:12 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 16:17 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 16:28 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 16:22 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 16:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:16 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/210450047676.shtml)
-- 2026-06-29 16:16 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/818588219492.shtml)
-- 2026-06-29 16:00 - [扬名立万](https://www.share.minike.top/Article/details/7503909030.shtml)
-- 2026-06-29 16:04 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/2106260155.shtml)
-- 2026-06-29 16:25 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/632993393.shtml)
-- 2026-06-29 16:19 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/49907433953.shtml)
-- 2026-06-29 16:24 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/9278004.shtml)
-- 2026-06-29 16:24 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/7861148.shtml)
-- 2026-06-29 16:04 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/30875573.shtml)
-- 2026-06-29 16:02 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/94881835282.shtml)
-- 2026-06-29 16:20 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/4363707.shtml)
-- 2026-06-29 16:04 - [欧盟为什么越来越倾向贸易保护](http://www.share.kurohicncr.top/Article/details/933996.shtml)
-- 2026-06-29 16:15 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/634337.shtml)
-- 2026-06-29 16:19 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/25755423414.shtml)
-- 2026-06-29 16:24 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/50639761.shtml)
+- 2026-06-29 16:30 - [20年前的周杰伦](http://www.share.minike.top/Article/details/6689286641.shtml)
+- 2026-06-29 16:19 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/9110176756.shtml)
+- 2026-06-29 16:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/23953.shtml)
+- 2026-06-29 16:28 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/82613942388.shtml)
+- 2026-06-29 16:31 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/6577862798.shtml)
+- 2026-06-29 16:27 - [挪威王储妃长子2次强奸被判4年](https://www.share.kurohicncr.top/Article/details/7154023818.shtml)
+- 2026-06-29 16:30 - [女心理师](http://www.blog.minike.top/Article/details/01552340.shtml)
+- 2026-06-29 16:23 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/774730044.shtml)
+- 2026-06-29 16:34 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/61419839949.shtml)
+- 2026-06-29 16:17 - [南非老帅布罗斯的梦没能做完](https://www.share.minike.top/Article/details/360937380573.shtml)
+- 2026-06-29 16:12 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/069055696.shtml)
+- 2026-06-29 16:29 - [发反科学内容为何会有200万粉丝](https://www.share.kurohicncr.top/Article/details/4732091068.shtml)
+- 2026-06-29 16:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/54712385.shtml)
+- 2026-06-29 16:19 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/91899.shtml)
+- 2026-06-29 16:32 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/526269213.shtml)

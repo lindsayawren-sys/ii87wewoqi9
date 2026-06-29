@@ -1,59 +1,56 @@
-# 国家卫健委提醒老年人：当心直播间骗局，护好养老钱
+# 中小学基本办学条件底线要求有哪些？教育部详解
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月10日 08:07 来源：中国新闻网 4月9日，国家卫生健康委举行“时令节气与健康”发布会。国家卫生健康委新闻发言人胡强强提醒老年人，当心直播间骗局，护好养老钱。 胡强强表示，近期，一些私域直播、社群营销打着“健康讲座”“专家直播”等旗号，专门针对老年人进行保健产品等推销。有的由“演员”假扮成“医学专家”按稿宣讲，有的夸大、篡改保健产品的功效从而高价销
+近日，教育部、国家发展改革委、财政部、住房城乡建设部四部门办公厅联合印发《中小学基本办学条件底线要求》(以下简称《底线要求》)。教育部基础教育司负责人就《底线要求》有关问题回答了记者提问，跟教育小微一起来看——《底线要求》修订的背景是什么？ 习近平总书记在全国教育大会上强调，加强义务教育学校标准化建设，逐步缩小城乡、区域、校际、群体差距。当前我国学龄人口规模与分布呈现梯次变动、
 
 ## 正文
 
-发布时间：2026年04月10日 08:07 来源：中国新闻网 4月9日，国家卫生健康委举行“时令节气与健康”发布会。
+近日，教育部、国家发展改革委、财政部、住房城乡建设部四部门办公厅联合印发《中小学基本办学条件底线要求》(以下简称《底线要求》)。
 
-国家卫生健康委新闻发言人胡强强提醒老年人，当心直播间骗局，护好养老钱。
+教育部基础教育司负责人就《底线要求》有关问题回答了记者提问，跟教育小微一起来看——《底线要求》修订的背景是什么？
 
-胡强强表示，近期，一些私域直播、社群营销打着“健康讲座”“专家直播”等旗号，专门针对老年人进行保健产品等推销。
+习近平总书记在全国教育大会上强调，加强义务教育学校标准化建设，逐步缩小城乡、区域、校际、群体差距。
 
-有的由“演员”假扮成“医学专家”按稿宣讲，有的夸大、篡改保健产品的功效从而高价销售，还有的通过送礼品、听课领福利等方式引流，再以“健康焦虑”“情感陪伴”等话术层层诱导消费者，侵害老年人的健康权益和财产安全。
+当前我国学龄人口规模与分布呈现梯次变动、区域分化新特征，适应学龄人口变化、优化教育资源配置成为教育高质量发展的紧迫任务。
 
-国家卫生健康委提醒大家：第一，凡是打着“专家讲座”“白大褂推荐”等旗号销售相关产品的，都要提高警惕，更不要因所谓专家的“头衔包装”和虚假的“案例见证”而盲目下单。
+近年来，中央层面先后印发《关于进一步保障和改善民生 着力解决群众急难愁盼的意见》《关于构建优质均衡的基本公共教育服务体系的意见》等文件，紧扣改善民生、促进教育公平主线，明确提出推动义务教育优质均衡发展和城乡一体化，实施义务教育学校标准化建设工程，完善义务教育学校办学具体标准。
 
-所谓“专家”标榜的“头衔”越多越大，往往欺诈可能性越高。
+面向2035年建成教育强国目标，必须主动适配学龄人口发展新形势，全面改善办学条件，优化教育资源配置，为教育高质量发展提供坚实的基础保障。
 
-第二，警惕“送礼品、领红包、听课领福利”等引流手段。
+《底线要求》修订的目的与思路是什么？
 
-此类私域营销往往先以小恩小惠的形式获取信任，再通过反复宣讲、情感拉近、焦虑渲染等方式推销。
+适应城镇化发展和学龄人口变化，需要对学校布局调整，打通教育资源使用，满足新形势下教学、生活、安全等需求，推动各地加强学校标准化建设，保障学校办学条件达到基本要求，办好更加公平更高质量的基础教育。
 
 ## 相关推荐
 
-- 2026-06-29 16:28 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 16:13 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 16:16 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 16:20 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 16:06 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 16:19 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 16:18 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 16:16 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 16:02 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 16:23 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 16:11 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 16:27 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 16:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 16:08 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 16:20 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 16:09 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 16:25 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 16:26 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 16:09 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 16:10 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 16:14 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 16:18 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 16:10 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:15 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/31494.shtml)
-- 2026-06-29 16:06 - [光与夜之恋](http://www.blog.kurohicncr.top/Article/details/752378848095.shtml)
-- 2026-06-29 16:20 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/74441522.shtml)
-- 2026-06-29 16:12 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/13787811472.shtml)
-- 2026-06-29 16:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/42605.shtml)
-- 2026-06-29 16:01 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/9628995999.shtml)
-- 2026-06-29 16:16 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/46421413.shtml)
-- 2026-06-29 16:02 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.minike.top/Article/details/586680.shtml)
-- 2026-06-29 16:14 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/01987.shtml)
-- 2026-06-29 16:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/6507744391.shtml)
-- 2026-06-29 16:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/861943892.shtml)
-- 2026-06-29 16:24 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/55913670712.shtml)
-- 2026-06-29 16:08 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.minike.top/Article/details/30647.shtml)
-- 2026-06-29 16:19 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/95278.shtml)
-- 2026-06-29 16:09 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/738903.shtml)
+- 2026-06-29 16:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/73747.shtml)
+- 2026-06-29 16:11 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/9123484514.shtml)
+- 2026-06-29 16:29 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/916248136937.shtml)
+- 2026-06-29 16:26 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/68949976.shtml)
+- 2026-06-29 16:10 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/864508427.shtml)
+- 2026-06-29 16:32 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/360203632904.shtml)
+- 2026-06-29 16:16 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/7894675.shtml)
+- 2026-06-29 16:11 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/8200079871.shtml)
+- 2026-06-29 16:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/842065741.shtml)
+- 2026-06-29 16:28 - [速度与激情9](https://www.blog.minike.top/Article/details/562353.shtml)
+- 2026-06-29 16:30 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/37165892.shtml)
+- 2026-06-29 16:09 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/71254.shtml)
+- 2026-06-29 16:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/843859475484.shtml)
+- 2026-06-29 16:27 - [美人鱼](http://www.share.minike.top/Article/details/448804.shtml)
+- 2026-06-29 16:24 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/894936048077.shtml)

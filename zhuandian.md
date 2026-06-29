@@ -1,59 +1,47 @@
-# （文化中国行）壮族绣球“赶潮”“三月三”成流量新宠
+# 近镜头｜第一现场看中俄元首会晤
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新社广西百色4月12日电 (张广权)中国农历“三月三”临近，广西各地绣球进入销售旺季。今年“三月三”假期，广西各地计划举办上百场非遗展示活动，绣球制作体验被列为多个会场的重点互动项目。 “绣球不仅是工艺品，更是壮族人的‘无字情书’。”广西民族文化艺术研究院院长许晓明介绍，传统绣球内裹豆粟或棉籽，象征“多子多福”；外绣花卉、蝴蝶或吉祥文字，寄托美好祝愿。 王秀芬是靖西壮族绣球制
+欢迎仪式、小大范围会谈、签字仪式、共见记者、共同出席“中俄教育年”开幕式并致辞、共同参观“传承中俄世代友好 树立大国关系典范”图片展、欢迎宴会、茶叙……5月20日这一天，习近平主席同俄罗斯总统普京的交流互动，从上午11点开始，持续到夜晚。 中俄元首会晤现场，习近平主席用“栉风沐雨、与时俱进”阐释中俄关系发展；用“千磨万击还坚劲”“更上一层楼”“乱云飞渡仍从容”揭示两国关系实现跨
 
 ## 正文
 
-中新社广西百色4月12日电 (张广权)中国农历“三月三”临近，广西各地绣球进入销售旺季。
+欢迎仪式、小大范围会谈、签字仪式、共见记者、共同出席“中俄教育年”开幕式并致辞、共同参观“传承中俄世代友好 树立大国关系典范”图片展、欢迎宴会、茶叙……5月20日这一天，习近平主席同俄罗斯总统普京的交流互动，从上午11点开始，持续到夜晚。
 
-今年“三月三”假期，广西各地计划举办上百场非遗展示活动，绣球制作体验被列为多个会场的重点互动项目。
+中俄元首会晤现场，习近平主席用“栉风沐雨、与时俱进”阐释中俄关系发展；用“千磨万击还坚劲”“更上一层楼”“乱云飞渡仍从容”揭示两国关系实现跨越式发展的深层逻辑；用“为者常成，行者常至”指引新时代中俄关系不断向前，为世界持续注入宝贵的稳定性，一起来看。
 
-“绣球不仅是工艺品，更是壮族人的‘无字情书’。
-
-”广西民族文化艺术研究院院长许晓明介绍，传统绣球内裹豆粟或棉籽，象征“多子多福”；外绣花卉、蝴蝶或吉祥文字，寄托美好祝愿。
-
-王秀芬是靖西壮族绣球制作技艺市级代表性传承人，在她看来，如今的绣球已不再只是定情信物，钥匙扣、汽车挂饰、中草药香包等新形态让这门老手艺有了新市场。
-
-“‘三月三’临近，绣球订单激增，这款老手艺正成为节庆市场的流量‘新宠’。
-
-”王秀芬说。
-
-“85后”青年韦子莲在网上经营一家手工绣球饰品店，她把绣球元素融入耳环、车挂、背包挂饰。
+策划：张晓松 统筹：杨依军、邱红杰、饶力文 编导：杨牧、赵博 记者：张文、温馨、蒋志强 视觉：高松龄、陈浚武 新华社国内部制作 新华社第一工作室出品
 
 ## 相关推荐
 
-- 2026-06-29 16:15 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 16:04 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 16:21 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 16:29 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 16:23 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 16:24 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 16:06 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 16:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 16:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 16:28 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 16:13 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 16:07 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 16:14 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 16:26 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 16:21 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 16:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 16:35 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 16:07 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 16:09 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 16:18 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 16:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 16:16 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 16:13 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 16:19 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:26 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.minike.top/Article/details/012331884074.shtml)
-- 2026-06-29 16:16 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/99182.shtml)
-- 2026-06-29 16:14 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/688477300.shtml)
-- 2026-06-29 16:02 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/70171458854.shtml)
-- 2026-06-29 16:06 - [普京：俄面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/2090841.shtml)
-- 2026-06-29 16:07 - [工作靠AI算不算职场作弊](https://www.blog.kurohicncr.top/Article/details/88403780.shtml)
-- 2026-06-29 16:15 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/4080072484.shtml)
-- 2026-06-29 16:13 - [金牌调解](https://www.blog.minike.top/Article/details/420824963659.shtml)
-- 2026-06-29 16:24 - [未成年少女长期吸毒导致卧床不起](https://www.share.minike.top/Article/details/29702236.shtml)
-- 2026-06-29 16:19 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/87743105622.shtml)
-- 2026-06-29 16:06 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/15374259568.shtml)
-- 2026-06-29 16:11 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/036463888029.shtml)
-- 2026-06-29 16:20 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/860512206132.shtml)
-- 2026-06-29 16:20 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/664018.shtml)
-- 2026-06-29 16:07 - [世界杯十大帅哥必吃榜](https://www.share.minike.top/Article/details/18190085917.shtml)
+- 2026-06-29 16:14 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/57319.shtml)
+- 2026-06-29 16:10 - [扬名立万](http://www.share.minike.top/Article/details/144858.shtml)
+- 2026-06-29 16:28 - [爱很美味](http://www.blog.minike.top/Article/details/04059.shtml)
+- 2026-06-29 16:24 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/662511.shtml)
+- 2026-06-29 16:22 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/255986534104.shtml)
+- 2026-06-29 16:28 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/33625796689.shtml)
+- 2026-06-29 16:08 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/127971693862.shtml)
+- 2026-06-29 16:29 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/275756.shtml)
+- 2026-06-29 16:19 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/2262731.shtml)
+- 2026-06-29 16:20 - [首尔商铺禁止洪明甫入内](http://www.blog.kurohicncr.top/Article/details/27328277585.shtml)
+- 2026-06-29 16:26 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.minike.top/Article/details/879187.shtml)
+- 2026-06-29 16:10 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/663852.shtml)
+- 2026-06-29 16:33 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.kurohicncr.top/Article/details/779570416032.shtml)
+- 2026-06-29 16:08 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/0230196.shtml)
+- 2026-06-29 16:27 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/223706371429.shtml)

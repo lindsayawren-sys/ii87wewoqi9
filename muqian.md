@@ -1,58 +1,47 @@
-# 润泽科技2025年净利润大增182%，AIDC业务成核心增长引擎
+# 中央气象台发布暴雨橙色预警
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-4月9日晚间，国内领先的人工智能产业科技公司润泽科技（300442）发布2025年年度报告。财报显示，公司全年实现营业收入56.74亿元，同比增长29.99%；归属于上市公司股东的净利润达到50.50亿元，同比增幅高达182.07%。公司扣非后净利润为19.01亿元，同比增长6.87%，主业依旧保持稳健增长态势。从业务结构看，润泽科技已成功从传统IDC向AIDC战略升级。报告期
+中新网5月24日电 据中央气象台网站消息，中央气象台5月24日18时发布暴雨橙色预警： 预计，5月24日20时至25日20时，西北地区东部、华北西部、黄淮西部、江淮大部、江汉大部、江南北部、重庆中北部及西藏东南部等地部分地区有大到暴雨，其中，河南南部、安徽西部和南部、湖南西北部、江西东北部、重庆东北部等地部分地区有大暴雨，安徽西南部、湖北东部等地局地特大暴雨(250～300毫米
 
 ## 正文
 
-4月9日晚间，国内领先的人工智能产业科技公司润泽科技（300442）发布2025年年度报告。
+中新网5月24日电 据中央气象台网站消息，中央气象台5月24日18时发布暴雨橙色预警： 预计，5月24日20时至25日20时，西北地区东部、华北西部、黄淮西部、江淮大部、江汉大部、江南北部、重庆中北部及西藏东南部等地部分地区有大到暴雨，其中，河南南部、安徽西部和南部、湖南西北部、江西东北部、重庆东北部等地部分地区有大暴雨，安徽西南部、湖北东部等地局地特大暴雨(250～300毫米)。
 
-财报显示，公司全年实现营业收入56.74亿元，同比增长29.99%；归属于上市公司股东的净利润达到50.50亿元，同比增幅高达182.07%。
+上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过80毫米)，局地有雷暴大风或冰雹等强对流天气。
 
-公司扣非后净利润为19.01亿元，同比增长6.87%，主业依旧保持稳健增长态势。
-
-从业务结构看，润泽科技已成功从传统IDC向AIDC战略升级。
-
-报告期内，AIDC业务收入达25.10亿元，同比增长72.97%，占总营收比例跃升至44.24%，毛利率达到48.50%，高于公司整体毛利率水平。
-
-IDC业务实现收入31.64亿元，同比增长8.58%。
-
-公司方面表示，经过三年战略布局，在供应链多元化、智算集群组网技术储备及客户信任度积累方面已形成显著优势，AIDC业务核心财务指标已赶上或超越传统IDC业务。
-
-客户结构方面，报告期内公司前三大直接客户占比分别为48.59%、23.67%和21.44%，较上年明显优化。
+防御指南： 1、政府及相关部门按照职责做好防暴雨应急工作； 2、切断有危险的室外电源，暂停户外作业； 3、处于危险地带的单位应当停课、停业，采取专门措施保护已到校学生、幼儿和其他上班人员的安全； 4、做好城市、农田的排涝，注意防范可能引发的山洪、滑坡、泥石流等灾害。
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 16:07 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 16:21 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 16:29 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 16:24 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 16:04 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 16:10 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 16:07 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 16:23 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 16:22 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 16:13 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 16:15 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 16:28 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 16:09 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 16:15 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 16:24 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 16:10 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 16:19 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 16:27 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 16:26 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 16:29 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 16:19 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 16:18 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:15 - [唐艺昕告别浪姐千字长文](https://www.share.kurohicncr.top/Article/details/359168092.shtml)
-- 2026-06-29 16:05 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/63173712.shtml)
-- 2026-06-29 16:10 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/994628070.shtml)
-- 2026-06-29 16:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/441835772.shtml)
-- 2026-06-29 16:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/873962530.shtml)
-- 2026-06-29 16:28 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/244280587466.shtml)
-- 2026-06-29 16:15 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/171984.shtml)
-- 2026-06-29 16:05 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/39037185.shtml)
-- 2026-06-29 16:10 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/41600237.shtml)
-- 2026-06-29 16:09 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/88842.shtml)
-- 2026-06-29 16:23 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/94628611.shtml)
-- 2026-06-29 16:19 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/1793428080.shtml)
-- 2026-06-29 16:20 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/3199454320.shtml)
-- 2026-06-29 16:19 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/4280427902.shtml)
-- 2026-06-29 16:05 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/47611167159.shtml)
+- 2026-06-29 16:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/8745249838.shtml)
+- 2026-06-29 16:32 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/53492703763.shtml)
+- 2026-06-29 16:13 - [工作靠AI算不算职场作弊](https://www.share.kurohicncr.top/Article/details/616458090085.shtml)
+- 2026-06-29 16:12 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/49919706401.shtml)
+- 2026-06-29 16:23 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/9742004.shtml)
+- 2026-06-29 16:10 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/09300140.shtml)
+- 2026-06-29 16:27 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/34428888.shtml)
+- 2026-06-29 16:07 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.kurohicncr.top/Article/details/81577128.shtml)
+- 2026-06-29 16:27 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/902276715.shtml)
+- 2026-06-29 16:28 - [驻日美军航母沦为“毒窝”](https://www.blog.kurohicncr.top/Article/details/8200321.shtml)
+- 2026-06-29 16:08 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/96340.shtml)
+- 2026-06-29 16:15 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/39331.shtml)
+- 2026-06-29 16:20 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/0490216.shtml)
+- 2026-06-29 16:08 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/895762.shtml)
+- 2026-06-29 16:32 - [美国大满贯首日国乒主力均取胜](https://www.blog.minike.top/Article/details/4513317.shtml)

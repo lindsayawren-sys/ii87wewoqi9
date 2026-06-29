@@ -1,48 +1,56 @@
-# 三花智控获Schroders PLC增持216.97万股 每股作价约31.14港元
+# 蓝图绘就龙江新篇 黑龙江明晰“十五五”振兴发展路线图
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，4月8日，Schroders PLC增持三花智控（02050）216.97万股，每股作价31.1386港元，总金额约为6756.14万港元。增持后最新持股数目为5278.8万股，最新持股比例为11.08%。责任编辑：卢昱君
+中新网哈尔滨5月22日电 (记者 史轶夫 王妮娜)21日，黑龙江省政府新闻办公室举行“开局起步‘十五五’”专题新闻发布会。黑龙江省委副书记、省长梁惠玲全景解读《黑龙江省国民经济和社会发展第十五个五年规划纲要》(以下简称“《纲要》”)，清晰铺展未来五年龙江高质量振兴、现代化强省建设施工图与任务书。 发布会现场，一份承载龙江长远发展的五年蓝图徐徐展开。梁惠玲表示，“十五五”是黑龙江
 
 ## 正文
 
-香港联交所最新资料显示，4月8日，Schroders PLC增持三花智控（02050）216.97万股，每股作价31.1386港元，总金额约为6756.14万港元。
+中新网哈尔滨5月22日电 (记者 史轶夫 王妮娜)21日，黑龙江省政府新闻办公室举行“开局起步‘十五五’”专题新闻发布会。
 
-增持后最新持股数目为5278.8万股，最新持股比例为11.08%。
+黑龙江省委副书记、省长梁惠玲全景解读《黑龙江省国民经济和社会发展第十五个五年规划纲要》(以下简称“《纲要》”)，清晰铺展未来五年龙江高质量振兴、现代化强省建设施工图与任务书。
 
-责任编辑：卢昱君
+发布会现场，一份承载龙江长远发展的五年蓝图徐徐展开。
+
+梁惠玲表示，“十五五”是黑龙江重振雄风、再创佳绩的关键窗口期，黑龙江将牢牢锚定国家五大安全战略定位，接续“十四五”粮食高产、航天科创、冰雪出圈扎实成果，立足承前启后历史方位，坚守民生为本初心，把国家顶层设计转化为龙江实干举措。
+
+《纲要》围绕现代化强省建设，黑龙江设定26项核心发展指标，以研发投入、数字经济、生态保护等关键数据，锚定创新驱动、产业升级、绿色低碳发展方向。
+
+从广袤黑土粮仓到寒地科创高地，从沿边开放口岸到全域生态屏障，龙江发展路径清晰聚焦五转变一迈进。
+
+从资源驱动转向创新引领，依托81所高校、百余家科研院所，黑龙江聚力哈大齐自创区建设，加速科研成果就地转化；从初级产业迈向中高端制造，深耕装备制造、航空航天、生物经济，擦亮“龙江制造”金字招牌；从通道开放转向多元经贸，做强沿边口岸与自贸平台，筑牢向北开放新高地；从局部联动走向全域协同，做强哈尔滨都市圈，统筹城乡、区域均衡发展；从生态本底转化发展动能，深耕冰天雪地、绿水青山价值变现；更持续深耕民生福祉，让共同富裕落地百姓日常。
+
+蓝图落地靠实干抓手。
 
 ## 相关推荐
 
-- 2026-06-29 16:06 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 16:26 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 16:21 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 16:00 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 16:06 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 16:10 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 16:12 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 16:20 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 16:07 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 16:11 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 16:28 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 16:27 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 16:26 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 16:09 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 16:15 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 16:29 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 16:12 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 16:29 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 16:14 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 16:17 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 16:09 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 16:25 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:15 - [博主：黄金和原油回落不等于风险消失](http://www.blog.kurohicncr.top/Article/details/5669224892.shtml)
-- 2026-06-29 16:06 - [欧盟为什么越来越倾向贸易保护](https://www.blog.kurohicncr.top/Article/details/91868919.shtml)
-- 2026-06-29 16:06 - [恋与深空失控领地](https://www.share.minike.top/Article/details/64936.shtml)
-- 2026-06-29 16:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/671736.shtml)
-- 2026-06-29 16:20 - [当地回应林区违规放羊遭豹啃食](http://www.share.kurohicncr.top/Article/details/88771052086.shtml)
-- 2026-06-29 16:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/56084646156.shtml)
-- 2026-06-29 16:08 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/381136814875.shtml)
-- 2026-06-29 16:14 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/66396.shtml)
-- 2026-06-29 16:09 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.kurohicncr.top/Article/details/3732812.shtml)
-- 2026-06-29 16:00 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/4915390.shtml)
-- 2026-06-29 16:08 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/95073363.shtml)
-- 2026-06-29 16:23 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.minike.top/Article/details/4064150.shtml)
-- 2026-06-29 16:09 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/343347019278.shtml)
-- 2026-06-29 16:20 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.kurohicncr.top/Article/details/356746416.shtml)
-- 2026-06-29 16:22 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/15892449.shtml)
+- 2026-06-29 16:13 - [周生如故](https://www.share.kurohicncr.top/Article/details/6589658.shtml)
+- 2026-06-29 16:09 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/075515.shtml)
+- 2026-06-29 16:20 - [光与夜之恋](http://www.share.kurohicncr.top/Article/details/2270794.shtml)
+- 2026-06-29 16:30 - [省市招考专家解读山西高考志愿政策](http://www.share.kurohicncr.top/Article/details/4355335193.shtml)
+- 2026-06-29 16:33 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/90604.shtml)
+- 2026-06-29 16:25 - [上海一小区水池内出现一条鳄鱼](https://www.share.minike.top/Article/details/9817744740.shtml)
+- 2026-06-29 16:20 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/407245481185.shtml)
+- 2026-06-29 16:24 - [王安宇尊重田曦薇的一切选择](https://www.share.kurohicncr.top/Article/details/023699788.shtml)
+- 2026-06-29 16:33 - [东方风云榜](http://www.share.minike.top/Article/details/668685740.shtml)
+- 2026-06-29 16:28 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/721854.shtml)
+- 2026-06-29 16:26 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.kurohicncr.top/Article/details/62025126982.shtml)
+- 2026-06-29 16:18 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/88188367697.shtml)
+- 2026-06-29 16:35 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/818490292.shtml)
+- 2026-06-29 16:27 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/179338422.shtml)
+- 2026-06-29 16:25 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/887685452.shtml)

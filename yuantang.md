@@ -1,50 +1,61 @@
-# 东盟专家盛赞中国优质投资：双边合作结硕果 | 世界观
+# 美联储理事沃勒支持移除“宽松倾向”措辞 称降息与加息概率相当
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电 (陈天浩 吴辛茹)中国与东盟自1991年开启对话合作，历经三十余年深耕，已建立稳固的全面战略伙伴关系。以马来西亚为例，马来西亚亚太“一带一路”共策会执行董事、拿督翁忠义(Ong Chong Yi)对中国新闻网表示，自2011年马中签署双方关于扩大和深化经济贸易合作的协定和2013年签署双边经贸合作五年规划以来，马来西亚迎来大量优质中方投资，助力基建升级、为多
+随着伊朗战争引发的能源冲击推高价格，美联储理事沃勒表示，他支持明确表明美联储下一步加息与降息可能性相当。 沃勒表示，他目前的立场是耐心维持利率不变，直到战争的影响更加明朗。但他周五警告称，如果通胀没有很快开始放缓，他不排除未来加息的可能性。 “通胀并未朝着正确方向发展，”他在法兰克福的会议上发表题为“政策风险已经改变”的演讲时表示。“我支持在我们的政策声明中移除‘宽松倾向’措辞
 
 ## 正文
 
-中新网4月10日电 (陈天浩 吴辛茹)中国与东盟自1991年开启对话合作，历经三十余年深耕，已建立稳固的全面战略伙伴关系。
+随着伊朗战争引发的能源冲击推高价格，美联储理事沃勒表示，他支持明确表明美联储下一步加息与降息可能性相当。
 
-以马来西亚为例，马来西亚亚太“一带一路”共策会执行董事、拿督翁忠义(Ong Chong Yi)对中国新闻网表示，自2011年马中签署双方关于扩大和深化经济贸易合作的协定和2013年签署双边经贸合作五年规划以来，马来西亚迎来大量优质中方投资，助力基建升级、为多州青年毕业生创造充足就业岗位。
+沃勒表示，他目前的立场是耐心维持利率不变，直到战争的影响更加明朗。
 
-柬埔寨金边皇家大学国际研究与公共管理学院院长尼克·尚达里斯(Neak Chandarith)则介绍，中国资助建设的柬埔寨金港高速公路以及“钻石六边”合作框架下规划的“工业发展走廊”将完善物流网络、显著缩短运输时间并降低成本，极大地推动柬埔寨融入准时制供应链。
+但他周五警告称，如果通胀没有很快开始放缓，他不排除未来加息的可能性。
+
+“通胀并未朝着正确方向发展，”他在法兰克福的会议上发表题为“政策风险已经改变”的演讲时表示。
+
+“我支持在我们的政策声明中移除‘宽松倾向’措辞，以明确表明未来降息的可能性并不高于加息。
+
+” 沃勒表示，油价冲击可能很快消退，但他补充称：“如果通胀不能尽快缓解，我将不再排除往后会加息的可能性。
+
+” 联邦公开市场委员会在4月政策会议上决定将联邦基金利率目标区间维持在3.5%-3.75%不变。
+
+不过，该决定遭到三位政策制定者反对，他们不满会后声明中所谓“宽松倾向”的措辞，认为这暗示美联储最终将恢复降息。
 
 ## 相关推荐
 
-- 2026-06-29 16:03 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 16:13 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 16:01 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 16:06 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 16:10 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 16:25 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 16:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 16:00 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 16:13 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 16:18 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 16:23 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 16:19 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 16:07 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 16:01 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 16:33 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 16:18 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 16:18 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 16:07 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 16:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 16:12 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 16:10 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 16:33 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 16:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 16:09 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 16:24 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 16:27 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 16:29 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 16:25 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 16:33 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:19 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/377089919.shtml)
-- 2026-06-29 16:12 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/1150577661.shtml)
-- 2026-06-29 16:25 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.minike.top/Article/details/0548445.shtml)
-- 2026-06-29 16:05 - [欧洲人驾车200公里抢购中国空调](https://www.share.kurohicncr.top/Article/details/4715606933.shtml)
-- 2026-06-29 16:03 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/74821371.shtml)
-- 2026-06-29 16:13 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/490225403.shtml)
-- 2026-06-29 16:24 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/65277.shtml)
-- 2026-06-29 16:15 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/823714279.shtml)
-- 2026-06-29 16:25 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/65125779040.shtml)
-- 2026-06-29 16:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/35904667.shtml)
-- 2026-06-29 16:06 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/921717110715.shtml)
-- 2026-06-29 16:06 - [12所大学更正招生目录](https://www.share.kurohicncr.top/Article/details/501991510.shtml)
-- 2026-06-29 16:05 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/97706994724.shtml)
-- 2026-06-29 16:19 - [周生如故](https://www.share.minike.top/Article/details/2252455.shtml)
-- 2026-06-29 16:04 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/60664013.shtml)
+- 2026-06-29 16:21 - [20年前的周杰伦](https://www.share.minike.top/Article/details/791233.shtml)
+- 2026-06-29 16:10 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/9741247735.shtml)
+- 2026-06-29 16:28 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/182830751.shtml)
+- 2026-06-29 16:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/72179.shtml)
+- 2026-06-29 16:34 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/256137255.shtml)
+- 2026-06-29 16:25 - [广东一地发现极危植物新物种](http://www.share.kurohicncr.top/Article/details/601552098339.shtml)
+- 2026-06-29 16:28 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.kurohicncr.top/Article/details/507911.shtml)
+- 2026-06-29 16:33 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/109500843.shtml)
+- 2026-06-29 16:16 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/144437723.shtml)
+- 2026-06-29 16:26 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/15389159.shtml)
+- 2026-06-29 16:32 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/607242777003.shtml)
+- 2026-06-29 16:12 - [中国空间站为什么要升级扩容](http://www.share.minike.top/Article/details/57899.shtml)
+- 2026-06-29 16:09 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/5721429840.shtml)
+- 2026-06-29 16:06 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/333780.shtml)
+- 2026-06-29 16:30 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/4250069955.shtml)

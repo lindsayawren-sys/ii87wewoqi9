@@ -1,56 +1,58 @@
-# 荷兰籍华人寻根十三载终圆梦
+# 欧洲药品管理局对阿斯利康乳腺癌新药给予积极指导意见
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新网福建长泰4月9日电 (郑晓梅 戴李雯 马欣怡)“你们的祖籍地，就在戴墘村。”近日，在福建省漳州市长泰区戴氏宗祠内，当长泰戴氏理事会秘书戴国荣说出这句话时，50岁的荷兰籍华人Swanny(中文名“戴萱香”)眼眶里打转已久的泪水终于滚落下来。 为了这句话，她等了十三年。戴萱香回忆道，清朝末年，约1880年，她的祖先从长泰戴墘村出发，远渡重洋前往印尼，后又辗转迁居荷兰。六代人，
+欧洲药品管理局下属委员会22日发布评估结论，对阿斯利康公司研发的实验性乳腺癌药物camizestrant正式出具积极意见。 该决定与美国监管部门此前的初步立场形成对比。数周前，美国食品药品监督管理局顾问委员会曾投票否决该疗法的相关申请。美方否决原因主要集中在对该药物一项关键后期临床试验设计方案的担忧，但并未针对其安全性与有效性提出质疑。 加速新药获批是阿斯利康扩大全球市场份额的
 
 ## 正文
 
-中新网福建长泰4月9日电 (郑晓梅 戴李雯 马欣怡)“你们的祖籍地，就在戴墘村。
+欧洲药品管理局下属委员会22日发布评估结论，对阿斯利康公司研发的实验性乳腺癌药物camizestrant正式出具积极意见。
 
-”近日，在福建省漳州市长泰区戴氏宗祠内，当长泰戴氏理事会秘书戴国荣说出这句话时，50岁的荷兰籍华人Swanny(中文名“戴萱香”)眼眶里打转已久的泪水终于滚落下来。
+该决定与美国监管部门此前的初步立场形成对比。
 
-为了这句话，她等了十三年。
+数周前，美国食品药品监督管理局顾问委员会曾投票否决该疗法的相关申请。
 
-戴萱香回忆道，清朝末年，约1880年，她的祖先从长泰戴墘村出发，远渡重洋前往印尼，后又辗转迁居荷兰。
+美方否决原因主要集中在对该药物一项关键后期临床试验设计方案的担忧，但并未针对其安全性与有效性提出质疑。
 
-六代人，一百多年，故乡的名字在长辈们口中，渐渐模糊成了“长泰”二字。
+加速新药获批是阿斯利康扩大全球市场份额的核心战略。
 
-2013年，戴萱香下定决心，要找回这条断了百年的根。
+为达成至2030年实现800亿美元营收的战略目标，该公司计划在此期间推出多达20款新药。
 
-此后的十几年里，她执着地在浩如烟海的资料中探寻线索。
+据阿斯利康预测，camizestrant仍有望于今年内获得美国监管机构批准，其年销售额峰值预计将突破50亿美元。
 
-2018年，她的表哥曾专程来到长泰区戴墘村，翻遍族谱，却未能找到疑似祖先“戴彊”(音译)的名字。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-29 16:16 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 16:19 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 16:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 16:05 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 16:22 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 16:15 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 16:17 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 16:09 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 16:12 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 16:03 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 16:34 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 16:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 16:34 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 16:07 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 16:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 16:27 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 16:10 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 16:23 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 16:14 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 16:28 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 16:13 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 16:11 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:05 - [滾石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/2211611.shtml)
-- 2026-06-29 16:23 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/695766.shtml)
-- 2026-06-29 16:12 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.kurohicncr.top/Article/details/6696099.shtml)
-- 2026-06-29 16:16 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/20075.shtml)
-- 2026-06-29 16:13 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/53596658293.shtml)
-- 2026-06-29 16:19 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/150878514.shtml)
-- 2026-06-29 16:16 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/411260616.shtml)
-- 2026-06-29 16:26 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/031496.shtml)
-- 2026-06-29 16:18 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/1740359.shtml)
-- 2026-06-29 16:27 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/89825.shtml)
-- 2026-06-29 16:11 - [金牌调解](https://www.share.kurohicncr.top/Article/details/5878742364.shtml)
-- 2026-06-29 16:04 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/615751.shtml)
-- 2026-06-29 16:15 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/80061490515.shtml)
-- 2026-06-29 16:28 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/2826373989.shtml)
-- 2026-06-29 16:10 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/824108233.shtml)
+- 2026-06-29 16:26 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/023392.shtml)
+- 2026-06-29 16:06 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.kurohicncr.top/Article/details/560222641.shtml)
+- 2026-06-29 16:31 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/519746.shtml)
+- 2026-06-29 16:10 - [男孩复读一年减重20斤涨分111分](http://www.blog.minike.top/Article/details/16670190.shtml)
+- 2026-06-29 16:19 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/568274245.shtml)
+- 2026-06-29 16:18 - [TFING全员黑西装](http://www.share.minike.top/Article/details/232517.shtml)
+- 2026-06-29 16:15 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/588849945352.shtml)
+- 2026-06-29 16:23 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.minike.top/Article/details/210278083793.shtml)
+- 2026-06-29 16:13 - [急先锋](http://www.blog.kurohicncr.top/Article/details/60388.shtml)
+- 2026-06-29 16:25 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/030423925.shtml)
+- 2026-06-29 16:20 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/34003751.shtml)
+- 2026-06-29 16:13 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/4864194504.shtml)
+- 2026-06-29 16:25 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/92605969739.shtml)
+- 2026-06-29 16:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/98268.shtml)
+- 2026-06-29 16:14 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/313057.shtml)

@@ -1,51 +1,59 @@
-# 第六届消博会启动在即 布展进入收尾阶段
+# 俄罗斯眼科医生坐诊重庆 点亮患者“睛”彩人生
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月12日 13:26 来源：中国新闻网 以“开放引领全球消费，创新驱动美好生活”为主题的第六届中国国际消费品博览会将于4月13日至18日在海南举办。4月11日，记者在本届消博会的主会场海南国际会展中心内看到，各展区、展位搭建工作已全部结束，部分参展商正进行最后阶段的设备调试及展品陈列，各项工作有序推进。 作为海南自贸港全岛封关运作后的首届消博会，本届消博
+中新网重庆5月22日电 题：俄罗斯眼科医生坐诊重庆 点亮患者“睛”彩人生 作者 梁钦卿 左手轻扶设备，右手微调旋钮……在眼科门诊室里，来自俄罗斯的眼科医生欧蕾莎正专注地为患者进行眼部检查。自从2022年到中国从事眼科医疗工作以来，这位资深眼科医师已成功为上万名患者改善视力。 “每一台眼科手术都是精密的‘手工活’。”在眼科领域已工作15年的欧蕾莎，21日在重庆接受中新网专访表示，
 
 ## 正文
 
-发布时间：2026年04月12日 13:26 来源：中国新闻网 以“开放引领全球消费，创新驱动美好生活”为主题的第六届中国国际消费品博览会将于4月13日至18日在海南举办。
+中新网重庆5月22日电 题：俄罗斯眼科医生坐诊重庆 点亮患者“睛”彩人生 作者 梁钦卿 左手轻扶设备，右手微调旋钮……在眼科门诊室里，来自俄罗斯的眼科医生欧蕾莎正专注地为患者进行眼部检查。
 
-4月11日，记者在本届消博会的主会场海南国际会展中心内看到，各展区、展位搭建工作已全部结束，部分参展商正进行最后阶段的设备调试及展品陈列，各项工作有序推进。
+自从2022年到中国从事眼科医疗工作以来，这位资深眼科医师已成功为上万名患者改善视力。
 
-作为海南自贸港全岛封关运作后的首届消博会，本届消博会将有来自60多个国家和地区的超过3400个品牌参展。
+“每一台眼科手术都是精密的‘手工活’。
 
-(记者 李宇凡） 责任编辑：【卢岩】
+”在眼科领域已工作15年的欧蕾莎，21日在重庆接受中新网专访表示，能够帮助人们更清晰地看世界，是她工作中最大的收获。
+
+在治疗过程中，欧蕾莎特别重视医患沟通。
+
+虽然语言障碍曾是她初到中国时面临的挑战，但她坚持学习基础中文。
+
+“患者若无法与医生顺畅沟通，难免会产生顾虑，顺畅的交流对医疗至关重要。
+
+”她说。
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 16:27 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 16:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 16:12 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 16:18 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 16:26 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 16:07 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 16:19 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 16:12 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 16:24 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 16:06 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 16:27 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 16:20 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 16:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 16:06 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 16:18 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 16:06 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 16:06 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 16:20 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 16:19 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 16:32 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 16:13 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 16:08 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 16:16 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 16:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 16:13 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:22 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/24336.shtml)
-- 2026-06-29 16:17 - [AG冠军五人组轮换](http://www.blog.kurohicncr.top/Article/details/63557056.shtml)
-- 2026-06-29 16:02 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/3748592.shtml)
-- 2026-06-29 16:03 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/208315121122.shtml)
-- 2026-06-29 16:26 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/96867.shtml)
-- 2026-06-29 16:15 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/860995311638.shtml)
-- 2026-06-29 16:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/82060258169.shtml)
-- 2026-06-29 16:24 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/095411336.shtml)
-- 2026-06-29 16:13 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.minike.top/Article/details/3234596119.shtml)
-- 2026-06-29 16:03 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/482622.shtml)
-- 2026-06-29 16:04 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/35164969.shtml)
-- 2026-06-29 16:10 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/35398274.shtml)
-- 2026-06-29 16:04 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/190068001177.shtml)
-- 2026-06-29 16:25 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.minike.top/Article/details/4986114912.shtml)
-- 2026-06-29 16:06 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/4701155887.shtml)
+- 2026-06-29 16:26 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/597463009151.shtml)
+- 2026-06-29 16:29 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/987603748569.shtml)
+- 2026-06-29 16:26 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/950973.shtml)
+- 2026-06-29 16:08 - [斗破苍穹](https://www.share.minike.top/Article/details/5023568593.shtml)
+- 2026-06-29 16:11 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/61305.shtml)
+- 2026-06-29 16:29 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/436660.shtml)
+- 2026-06-29 16:28 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/34862848.shtml)
+- 2026-06-29 16:17 - [乔家的儿女](https://www.blog.minike.top/Article/details/37214829.shtml)
+- 2026-06-29 16:26 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/18206704191.shtml)
+- 2026-06-29 16:25 - [发反科学内容为何会有200万粉丝](https://www.share.kurohicncr.top/Article/details/6767670835.shtml)
+- 2026-06-29 16:08 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/905379753.shtml)
+- 2026-06-29 16:34 - [明星大侦探第一季](http://www.share.minike.top/Article/details/003024440.shtml)
+- 2026-06-29 16:33 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/22510.shtml)
+- 2026-06-29 16:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/705960942.shtml)
+- 2026-06-29 16:32 - [普京介绍前线战事](http://www.blog.minike.top/Article/details/4623985300.shtml)

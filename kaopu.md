@@ -1,60 +1,61 @@
-# 大宗商品综述：油价跌 聚焦美伊周末会谈 铜价三周连涨 金价震荡
+# 证监会有关部门负责人就《综合整治非法跨境证券期货基金经营活动实施方案》答记者问
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-投资者正在等待伊朗和美国周六的关键会谈，以判断两国之间脆弱的停火能否维持，原油下跌，交投相对清淡；单周跌幅为六年来最大。铜价上涨，而金价在涨跌之间震荡。 原油：WTI录得2020年以来最大单周跌幅 伊朗与美国会谈在即 原油下跌，交投相对清淡，市场正等待备受关注的美伊会谈，此次谈判将决定双方脆弱停火的未来走向。 WTI下跌1.3%，结算价在每桶97美元以下，本周累计跌幅约13.4
+专题：证监会严肃查处老虎富途长桥非法跨境展业案件 中国证监会有关部门负责人就《综合整治非法跨境证券期货基金经营活动实施方案》答记者问 近日，经国务院同意，中国证监会、工业和信息化部、公安部、中国人民银行、市场监管总局、金融监管总局、国家网信办、国家外汇局等八部门联合印发《综合整治非法跨境证券期货基金经营活动实施方案》（以下简称《整治方案》）。中国证监会有关部门负责人就《整治方案
 
 ## 正文
 
-投资者正在等待伊朗和美国周六的关键会谈，以判断两国之间脆弱的停火能否维持，原油下跌，交投相对清淡；单周跌幅为六年来最大。
+专题：证监会严肃查处老虎富途长桥非法跨境展业案件 中国证监会有关部门负责人就《综合整治非法跨境证券期货基金经营活动实施方案》答记者问 近日，经国务院同意，中国证监会、工业和信息化部、公安部、中国人民银行、市场监管总局、金融监管总局、国家网信办、国家外汇局等八部门联合印发《综合整治非法跨境证券期货基金经营活动实施方案》（以下简称《整治方案》）。
 
-铜价上涨，而金价在涨跌之间震荡。
+中国证监会有关部门负责人就《整治方案》回答了记者提问。
 
-原油：WTI录得2020年以来最大单周跌幅 伊朗与美国会谈在即 原油下跌，交投相对清淡，市场正等待备受关注的美伊会谈，此次谈判将决定双方脆弱停火的未来走向。
+一、《整治方案》出台的背景是什么？
 
-WTI下跌1.3%，结算价在每桶97美元以下，本周累计跌幅约13.4%，为六年来最大单周跌幅。
+境外证券期货基金经营机构（以下简称境外机构）未经批准，利用境内关联或合作主体在境内招揽客户，并通过网站、应用程序（APP）向境内投资者提供境外股票等开户、交易服务，严重扰乱我国金融市场秩序，危害投资者合法权益。
 
-布伦特原油收盘下跌，报约每桶95美元。
+2022年12月30日，中国证监会依法开展对境外机构非法跨境经营的整治工作，禁止境外机构违法招揽境内投资者及为其开立新账户。
 
-自2月底战争爆发以来，原油市场剧烈震荡，当前价格仍较冲突前高出逾30%。
+对整治中出现的个别境外机构规避整治要求、变相非法展业问题，中国证监会及时采取措施，遏制了相关风险蔓延势头。
 
-市场关注焦点正转向本周宣布的停火能否持续，以及是否能够达成持久和平，从而恢复经霍尔木兹海峡的能源运输。
+为建立健全防范和打击非法跨境证券期货基金经营活动长效机制，强化源头治理、标本兼治，切实维护金融市场秩序和投资者合法权益，中国证监会等八部门在总结前期整治工作经验的基础上制定了《整治方案》。
 
-目前，通过这一关键水道的运输仍主要限于与德黑兰有关联的船只。
+与前期整治工作相比，本次整治更加突出全链条治理，取缔要求覆盖营销招揽、开户、处理交易指令、资金划转等各业务环节，严禁境外机构以任何形式在境内非法提供开户和交易服务，并设置2年集中整治期清理非法存量业务，坚决将此类非法跨境经营活动逐出境内市场。
 
 ## 相关推荐
 
-- 2026-06-29 16:03 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 16:15 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 16:25 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 16:10 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 16:11 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 16:09 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 16:24 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 16:02 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 16:03 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 16:10 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 16:01 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 16:07 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 16:07 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 16:01 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 16:23 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 16:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 16:31 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 16:29 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 16:17 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 16:23 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 16:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 16:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 16:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 16:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 16:35 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 16:23 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 16:07 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 16:23 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 16:31 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:13 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/19179.shtml)
-- 2026-06-29 16:00 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/1770610.shtml)
-- 2026-06-29 16:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/545703846756.shtml)
-- 2026-06-29 16:21 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/677660.shtml)
-- 2026-06-29 16:13 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/325519882144.shtml)
-- 2026-06-29 16:25 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/98748705795.shtml)
-- 2026-06-29 16:10 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/7409102932.shtml)
-- 2026-06-29 16:09 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/352383159573.shtml)
-- 2026-06-29 16:05 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/492066.shtml)
-- 2026-06-29 16:24 - [世界杯超牛补水广告出现了](http://www.share.minike.top/Article/details/485057254775.shtml)
-- 2026-06-29 16:27 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/52937.shtml)
-- 2026-06-29 16:08 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/46240181.shtml)
-- 2026-06-29 16:24 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.minike.top/Article/details/596982390.shtml)
-- 2026-06-29 16:02 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/35803436.shtml)
-- 2026-06-29 16:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/088442364.shtml)
+- 2026-06-29 16:07 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/883711851642.shtml)
+- 2026-06-29 16:17 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/19028.shtml)
+- 2026-06-29 16:06 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/9819914.shtml)
+- 2026-06-29 16:13 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.minike.top/Article/details/0571859070.shtml)
+- 2026-06-29 16:34 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/800508.shtml)
+- 2026-06-29 16:24 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/221866.shtml)
+- 2026-06-29 16:16 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/63631.shtml)
+- 2026-06-29 16:18 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/010465184.shtml)
+- 2026-06-29 16:11 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/161727654022.shtml)
+- 2026-06-29 16:08 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/03469.shtml)
+- 2026-06-29 16:14 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/81971820.shtml)
+- 2026-06-29 16:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/5456010232.shtml)
+- 2026-06-29 16:16 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/286243080.shtml)
+- 2026-06-29 16:34 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/21640113770.shtml)
+- 2026-06-29 16:13 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/810964719167.shtml)

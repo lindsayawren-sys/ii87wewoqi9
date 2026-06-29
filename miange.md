@@ -1,60 +1,56 @@
-# 重庆医疗资源大区深耕医共体改革 擦亮“医生好”民生名片
+# 中国空间站将首次实现水稻的“二次播种”
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新网重庆4月11日电 (记者 钟旖)优质医疗直达基层、疑难检查就近可做、医患沟通一键直达……在重庆市沙坪坝区，一场以“让群众少跑路、看好病”为核心的医疗改革，正悄然改变着百万居民的就医体验。 记者近日采访获悉，作为重庆医疗资源大区，沙坪坝区近年来以紧密型医共体改革为抓手，系统构建“向上医联体、向下医共体、红岩家医进社区”的整合型卫生健康服务体系，串起全域医疗资源，把大医院的技
+发布时间：2026年05月23日 21:00 来源：中国新闻网 神舟二十三号载人飞船计划于5月24日发射。据悉，中国载人航天工程空间应用系统通过神舟二十三号载人飞船上行了9项科学实验，上行样品及装置总重量54.1千克，水稻种子、纳米酶、放线菌、钙钛矿电池等实验材料将被用于开展太空实验。 在空间生命科学领域，科研团队将利用未经过空间飞行实验的水稻种子在轨获得子代。这将是中国空间站
 
 ## 正文
 
-中新网重庆4月11日电 (记者 钟旖)优质医疗直达基层、疑难检查就近可做、医患沟通一键直达……在重庆市沙坪坝区，一场以“让群众少跑路、看好病”为核心的医疗改革，正悄然改变着百万居民的就医体验。
+发布时间：2026年05月23日 21:00 来源：中国新闻网 神舟二十三号载人飞船计划于5月24日发射。
 
-记者近日采访获悉，作为重庆医疗资源大区，沙坪坝区近年来以紧密型医共体改革为抓手，系统构建“向上医联体、向下医共体、红岩家医进社区”的整合型卫生健康服务体系，串起全域医疗资源，把大医院的技术、专家与服务送到群众身边，走出一条有温度、可复制的基层医改新路。
+据悉，中国载人航天工程空间应用系统通过神舟二十三号载人飞船上行了9项科学实验，上行样品及装置总重量54.1千克，水稻种子、纳米酶、放线菌、钙钛矿电池等实验材料将被用于开展太空实验。
 
-沙坪坝区地处重庆中心城区西部，医疗资源底蕴雄厚，既是医学教育高地、医学人才高地，也是医疗服务高地。
+在空间生命科学领域，科研团队将利用未经过空间飞行实验的水稻种子在轨获得子代。
 
-当地有各级各类医疗卫生机构758家，包括陆军军医大学第一附属医院、第二附属医院，重庆大学附属肿瘤医院等三级医院8家，区内的烧伤、肝胆、感染、呼吸、心血管等8个重点专科持续排名全国前10，全区年门诊量超1000万人次。
+这将是中国空间站首次在轨连续培养两代水稻，旨在解析长期空间微重力对水稻遗传稳定性的影响。
 
-2025年，沙坪坝区委、区政府牵头成立“紧密型医共体建设工作专班”，明确要举全区之力建设中国式现代化卫生健康强区。
+这项研究还将挖掘有重大应用价值的新基因。
 
-在具体举措上，沙坪坝区以大型三甲医院为龙头建立医联体6个，并将其中的48个国家级、市级临床重点专科与区内医院的100个临床科室结对建设“共建共管科室”，推行专家资源互通、医疗业务互融、病患双向互转等；同时，构建以沙坪坝区人民医院、陈家桥医院等4家医院为牵头，21家社区卫生服务中心(镇卫生院)为成员单位的紧密型医共体4个，推动管理下沉、技术下沉、资源下沉，促进区级优质资源反哺基层。
+(李佳悦 马帅莎) 【同期】中国科学院空间应用工程与技术中心研究员 仓怀兴 (空间应用系统)计划通过神舟二十三号载人飞船上行9项科学实验的物资，上行实验样品及装置的总重量有54.1千克，水稻种子、纳米酶、放线菌、钙钛矿电池等实验材料开展空间实验。
 
-此外，沙坪坝区还构建中医药服务、精神卫生、医养结合等专病专科联盟56个，开展业务指导、培训培养、技术帮扶等学科专科联动，实现区域医疗资源“纵向贯通、横向联动、全域覆盖”，逐步形成“日常疾病在基层解决、一般疾病在区级解决、危难重病在三甲解决”的三级诊疗服务体系。
+空间生命科学研究，水稻将在太空进行“二次播种”。
 
-备受群众认可的“红岩家医”则把服务落到细微处。
+项目一，“空间水稻多代遗传稳定性与环境适应性调控的分子机理研究”。
 
 ## 相关推荐
 
-- 2026-06-29 16:09 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 16:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 16:05 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 16:11 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 16:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 16:17 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 16:24 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 16:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 16:28 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 16:18 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 16:22 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 16:24 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 16:14 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 16:04 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 16:21 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 16:23 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 16:21 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 16:35 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 16:10 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 16:11 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 16:31 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 16:12 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 16:24 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 16:21 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/33606271.shtml)
-- 2026-06-29 16:21 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/935185.shtml)
-- 2026-06-29 16:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/38161146299.shtml)
-- 2026-06-29 16:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/288202834.shtml)
-- 2026-06-29 16:12 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/7130656054.shtml)
-- 2026-06-29 16:13 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/9884713192.shtml)
-- 2026-06-29 16:07 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/1645812751.shtml)
-- 2026-06-29 16:21 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/320087.shtml)
-- 2026-06-29 16:18 - [小说《无悔追踪》翻红](http://www.share.minike.top/Article/details/339316927.shtml)
-- 2026-06-29 16:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/53911670187.shtml)
-- 2026-06-29 16:18 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/06190358392.shtml)
-- 2026-06-29 16:27 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/447988384.shtml)
-- 2026-06-29 16:23 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/6217339.shtml)
-- 2026-06-29 16:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/76017.shtml)
-- 2026-06-29 16:08 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/79535760.shtml)
+- 2026-06-29 16:27 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/94979571194.shtml)
+- 2026-06-29 16:23 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/204110156837.shtml)
+- 2026-06-29 16:13 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/65651435066.shtml)
+- 2026-06-29 16:25 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/22610285.shtml)
+- 2026-06-29 16:24 - [TLAW vs DCG MSI](https://www.share.kurohicncr.top/Article/details/86189679.shtml)
+- 2026-06-29 16:11 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/774450021432.shtml)
+- 2026-06-29 16:25 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/207835446.shtml)
+- 2026-06-29 16:18 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/33818534108.shtml)
+- 2026-06-29 16:28 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/842011894.shtml)
+- 2026-06-29 16:08 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/783862692.shtml)
+- 2026-06-29 16:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/615121546972.shtml)
+- 2026-06-29 16:26 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/219676.shtml)
+- 2026-06-29 16:21 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/9955015.shtml)
+- 2026-06-29 16:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/47565.shtml)
+- 2026-06-29 16:13 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/03685.shtml)

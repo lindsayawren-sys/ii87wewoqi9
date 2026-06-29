@@ -1,61 +1,52 @@
-# 5月裁员1.4万人？中国区整体被裁撤？亚马逊回应：消息不属实
+# 消息人士：印度央行不支持通过加息来捍卫卢比，将通胀管控列为优先事项
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-亚马逊否认新一轮全球裁员传闻。 近日，有消息称亚马逊将在5月开启新一轮裁员，预计将裁员14000人，涉及部门多为核心业务部门，包括AWS云部门、零售业务和人力资源部门等，中国区部分团队甚至可能被整体裁撤。 对此，4月10日，亚马逊方面对澎湃新闻记者表示，该消息并不属实。 今年年初，亚马逊已进行一轮大规模裁员。1月28日，亚马逊宣布调整组织架构，确认将裁减约1.6万个工作岗位，这
+三位消息人士称，印度央行并不认为加息是保卫承压卢比的最优手段，该立场与市场预期相悖，也表明借贷成本政策将以通胀而非汇率为核心依据。熟知印度央行思路的知情人士表示，该行仍持有尚未动用的调控工具。媒体此前披露，相关举措包括推出印侨美元存款计划、调整债券投资者相关税收等。一名消息人士补充，所有备选方案均在考量范围内，且央行正与政府协同研判。其表示，央行暂无迫切加息的必要性。责任编辑：
 
 ## 正文
 
-亚马逊否认新一轮全球裁员传闻。
+三位消息人士称，印度央行并不认为加息是保卫承压卢比的最优手段，该立场与市场预期相悖，也表明借贷成本政策将以通胀而非汇率为核心依据。
 
-近日，有消息称亚马逊将在5月开启新一轮裁员，预计将裁员14000人，涉及部门多为核心业务部门，包括AWS云部门、零售业务和人力资源部门等，中国区部分团队甚至可能被整体裁撤。
+熟知印度央行思路的知情人士表示，该行仍持有尚未动用的调控工具。
 
-对此，4月10日，亚马逊方面对澎湃新闻记者表示，该消息并不属实。
+媒体此前披露，相关举措包括推出印侨美元存款计划、调整债券投资者相关税收等。
 
-今年年初，亚马逊已进行一轮大规模裁员。
+一名消息人士补充，所有备选方案均在考量范围内，且央行正与政府协同研判。
 
-1月28日，亚马逊宣布调整组织架构，确认将裁减约1.6万个工作岗位，这是公司继2025年10月裁减1.4万个岗位后的第二轮大规模裁员。
+其表示，央行暂无迫切加息的必要性。
 
-亚马逊高级副总裁贝丝·加莱蒂表示，此举是为了持续“精简管理层级、强化权责归属”，公司将继续在战略领域和职能部门招聘及投资。
-
-进行大规模裁员的不止亚马逊一家科技巨头。
-
-近日，云服务供应商甲骨文（Oracle）公司宣布在全球范围内进行裁员，将有3万名员工受到影响，其中包括在印度的1.2万名员工。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 16:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 16:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 16:05 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 16:04 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 16:24 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 16:21 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 16:03 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 16:07 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 16:11 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 16:29 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 16:24 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 16:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 16:20 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 16:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 16:10 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 16:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 16:35 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 16:07 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 16:31 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 16:22 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 16:28 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 16:28 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 16:18 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 16:13 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:02 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/56865284.shtml)
-- 2026-06-29 16:00 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/4843630346.shtml)
-- 2026-06-29 16:03 - [极限挑战第一季](https://www.blog.minike.top/Article/details/92739066.shtml)
-- 2026-06-29 16:04 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.kurohicncr.top/Article/details/1438935.shtml)
-- 2026-06-29 16:01 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/753037.shtml)
-- 2026-06-29 16:10 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/230481336625.shtml)
-- 2026-06-29 16:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/364047452380.shtml)
-- 2026-06-29 16:04 - [世界杯十大帅哥必吃榜](https://www.blog.kurohicncr.top/Article/details/875275079.shtml)
-- 2026-06-29 16:25 - [周生如故](https://www.blog.kurohicncr.top/Article/details/5960203.shtml)
-- 2026-06-29 16:29 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/8615228.shtml)
-- 2026-06-29 16:05 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/359055.shtml)
-- 2026-06-29 16:13 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/653366.shtml)
-- 2026-06-29 16:05 - [广东一地发现极危植物新物种](http://www.share.kurohicncr.top/Article/details/01594516.shtml)
-- 2026-06-29 16:26 - [给阿嬷的情书海外口碑](https://www.share.minike.top/Article/details/206312626.shtml)
-- 2026-06-29 16:27 - [复盘曾沛慈浪姐夺冠之路](http://www.blog.minike.top/Article/details/11386955845.shtml)
+- 2026-06-29 16:33 - [国家体育总局政策法规司原副司长获刑](http://www.share.kurohicncr.top/Article/details/8514564543.shtml)
+- 2026-06-29 16:17 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/60978680676.shtml)
+- 2026-06-29 16:23 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/5826658.shtml)
+- 2026-06-29 16:24 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/91105.shtml)
+- 2026-06-29 16:29 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/540862.shtml)
+- 2026-06-29 16:21 - [媒体：网络测评不能只剩“生意”](https://www.share.minike.top/Article/details/9358012010.shtml)
+- 2026-06-29 16:32 - [美人鱼](https://www.blog.minike.top/Article/details/043467.shtml)
+- 2026-06-29 16:14 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/6763350535.shtml)
+- 2026-06-29 16:07 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/552976727.shtml)
+- 2026-06-29 16:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/8710823756.shtml)
+- 2026-06-29 16:35 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/303639.shtml)
+- 2026-06-29 16:33 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/293787.shtml)
+- 2026-06-29 16:21 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/7761329.shtml)
+- 2026-06-29 16:14 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/8546553992.shtml)
+- 2026-06-29 16:32 - [业内：全球市场迎来结构性投资窗口](http://www.share.minike.top/Article/details/793954054.shtml)

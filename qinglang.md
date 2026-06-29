@@ -1,60 +1,58 @@
-# C4 Therapeutics与罗氏扩大合作，达成逾10亿美元新癌症药物协议
+# 经济热点快评｜这封“情书”里，有金融强国的梦想
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-C4 Therapeutics（CCCC.O）周四（4月9日）宣布，已与瑞士制药巨头罗氏（ROPC.S）签署一项新的合作协议，共同研发新型癌症药物，交易总价值有望超过10亿美元。 协议核心内容 此次合作将聚焦于一种新兴的癌症疗法——降解剂-抗体偶联物。该技术结合了抗体-药物偶联物与靶向蛋白质降解技术，旨在利用降解剂的催化效率和特异性，以及抗体的精准递送能力，开发新型抗癌疗法。
+最近，电影《给阿嬷的情书》热映，一句“做人一定要有情有义”感动了无数人。潮汕方言里，“阿嬷”是对奶奶的称谓，电影里的“情书”却不是孙子对阿嬷的告白，而是一段饱含侠义与善意的守护。远在南洋的女子谢南枝，为感念恩情，提笔代书，给远在潮汕故土的另一位坚韧女子——阿嬷，写下一封封跨越山海的书信。这就是侨批。侨批，俗称“银信”，是海外华侨寄回中国家乡、集家书与汇款凭证于一体的特殊信函，盛
 
 ## 正文
 
-C4 Therapeutics（CCCC.O）周四（4月9日）宣布，已与瑞士制药巨头罗氏（ROPC.S）签署一项新的合作协议，共同研发新型癌症药物，交易总价值有望超过10亿美元。
+最近，电影《给阿嬷的情书》热映，一句“做人一定要有情有义”感动了无数人。
 
-协议核心内容 此次合作将聚焦于一种新兴的癌症疗法——降解剂-抗体偶联物。
+潮汕方言里，“阿嬷”是对奶奶的称谓，电影里的“情书”却不是孙子对阿嬷的告白，而是一段饱含侠义与善意的守护。
 
-该技术结合了抗体-药物偶联物与靶向蛋白质降解技术，旨在利用降解剂的催化效率和特异性，以及抗体的精准递送能力，开发新型抗癌疗法。
+远在南洋的女子谢南枝，为感念恩情，提笔代书，给远在潮汕故土的另一位坚韧女子——阿嬷，写下一封封跨越山海的书信。
 
-根据协议，双方将就两个未公开的肿瘤靶点开发DAC药物，并保留增加第三个靶点的选择权。
+这就是侨批。
 
-具体分工如下： C4 Therapeutics：利用其专有的TORPEDO平台设计具有payload特性的降解剂候选分子。
+侨批，俗称“银信”，是海外华侨寄回中国家乡、集家书与汇款凭证于一体的特殊信函，盛行于19世纪中叶至上世纪70年代。
 
-罗氏：负责筛选和设计抗体，将抗体与降解剂payload进行偶联，并主导后续的临床前研究、临床开发及商业化推广。
+凭借独一无二的历史价值与文化内涵，“侨批档案——海外华侨银信”于2013年入选《世界记忆名录》，成为人类共同的文化财富。
 
-财务条款 C4 Therapeutics将获得2000万美元的预付款。
+侨批既是一张跨越重洋的汇款单，也是一封饱含深情的家书，金融功能与情感表达就这样写在了同一页纸上。
 
-若罗氏行使增加第三个靶点的选择权，C4T还将获得额外付款。
+当我们把目光从胶片里的泪点移向那一张张“银信合一”的侨批，会发现这些穿越百年的“情书”里，正传来坚实而温厚的足音——那是中国金融业服务民生、从金融大国迈向金融强国的历史回响。
 
 ## 相关推荐
 
-- 2026-06-29 16:27 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 16:22 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 16:16 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 16:25 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 16:26 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 16:21 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 16:27 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 16:21 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 16:23 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 16:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 16:00 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 16:04 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 16:22 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 16:08 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 16:23 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 16:16 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 16:17 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 16:20 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 16:28 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 16:35 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 16:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 16:14 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 16:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 16:11 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 16:25 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 16:29 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:08 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/82988762.shtml)
-- 2026-06-29 16:11 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/6356078643.shtml)
-- 2026-06-29 16:19 - [人形机器人](http://www.share.minike.top/Article/details/8245134935.shtml)
-- 2026-06-29 16:04 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/6026722886.shtml)
-- 2026-06-29 16:15 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/2623723.shtml)
-- 2026-06-29 16:17 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/748342041882.shtml)
-- 2026-06-29 16:12 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/93055546630.shtml)
-- 2026-06-29 16:30 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/802472792.shtml)
-- 2026-06-29 16:20 - [第一炉香](http://www.blog.minike.top/Article/details/765829677475.shtml)
-- 2026-06-29 16:29 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/8487143.shtml)
-- 2026-06-29 16:07 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/88029.shtml)
-- 2026-06-29 16:04 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/315973.shtml)
-- 2026-06-29 16:19 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/5836771.shtml)
-- 2026-06-29 16:26 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/309185.shtml)
-- 2026-06-29 16:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/9507273.shtml)
+- 2026-06-29 16:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/27660.shtml)
+- 2026-06-29 16:06 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/761295629.shtml)
+- 2026-06-29 16:34 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/13785.shtml)
+- 2026-06-29 16:32 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/913669987495.shtml)
+- 2026-06-29 16:17 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/7818489821.shtml)
+- 2026-06-29 16:13 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/0598394489.shtml)
+- 2026-06-29 16:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/12145.shtml)
+- 2026-06-29 16:14 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/371802299.shtml)
+- 2026-06-29 16:16 - [普京介绍前线战事](http://www.blog.kurohicncr.top/Article/details/944781698134.shtml)
+- 2026-06-29 16:10 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/022670.shtml)
+- 2026-06-29 16:27 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/27501693418.shtml)
+- 2026-06-29 16:34 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/47227316.shtml)
+- 2026-06-29 16:10 - [智界V9成为高端圈层共同选择](http://www.blog.minike.top/Article/details/3054815.shtml)
+- 2026-06-29 16:21 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/271571107.shtml)
+- 2026-06-29 16:33 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/59270.shtml)

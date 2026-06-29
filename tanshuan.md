@@ -1,61 +1,58 @@
-# 千元童鞋把脚穿肿？泰兰尼斯遭家长“围攻”，医生警惕影响发育，90%专利竟是外观设计
+# 唐登杰卢东亮赶赴长治市沁源县煤矿瓦斯爆炸事故现场指挥应急处置工作
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-文 丨 《BUG》栏目 周文猛 从电梯到顶级商圈，泰兰尼斯正通过狂砸广告的方式，包围家长及儿童用户。 近日，不少网友突然在社交平台发文称，自己正被泰兰尼斯的广告强势“包围”，北上广深等核心商圈几乎都遍布着泰兰尼斯身影，核心广告位高达100万/周。 然而，狂砸广告的同时，泰兰尼斯主打的碳板鞋“伤脚”的投诉却层出不穷。多位家长在与《BUG》栏目沟通中表示：“这么贵竟然还磨脚”“孩子
+坚决贯彻落实习近平总书记重要指示精神 全力做好事故救援和善后处置工作 唐登杰卢东亮赶赴长治市沁源县煤矿瓦斯爆炸事故现场指挥应急处置工作 本报讯 5月22日19时29分，我省长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。事故发生后，习近平总书记高度重视并作出重要指示，对应急救援、善后处置、事故调查等工作提出明确要求。李强总理作出批示。根据习近平
 
 ## 正文
 
-文 丨 《BUG》栏目 周文猛 从电梯到顶级商圈，泰兰尼斯正通过狂砸广告的方式，包围家长及儿童用户。
+坚决贯彻落实习近平总书记重要指示精神 全力做好事故救援和善后处置工作 唐登杰卢东亮赶赴长治市沁源县煤矿瓦斯爆炸事故现场指挥应急处置工作 本报讯 5月22日19时29分，我省长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。
 
-近日，不少网友突然在社交平台发文称，自己正被泰兰尼斯的广告强势“包围”，北上广深等核心商圈几乎都遍布着泰兰尼斯身影，核心广告位高达100万/周。
+事故发生后，习近平总书记高度重视并作出重要指示，对应急救援、善后处置、事故调查等工作提出明确要求。
 
-然而，狂砸广告的同时，泰兰尼斯主打的碳板鞋“伤脚”的投诉却层出不穷。
+李强总理作出批示。
 
-多位家长在与《BUG》栏目沟通中表示：“这么贵竟然还磨脚”“孩子脚都穿肿了”。
+根据习近平总书记重要指示和李强总理要求，张国清副总理率有关部门负责同志赶赴现场指导应急处置工作。
 
-尤其是公司主推的碳板童鞋，声称可增强稳定性、减少崴脚风险，但被医学人士警告：“刚性结构会限制儿童足部自然弯曲，会干扰足弓和下肢肌肉正常发育”。
+省委、省政府第一时间作出救援部署，省、市、县三级立即启动应急响应，应急、公安、医疗等力量全力做好伤员救治、现场救援等工作，事故调查和遇难者善后工作同步开展。
 
-值得一提的是，泰兰尼斯创始人丁飞透露，泰兰尼斯每年会将至少一成营收用于研发，是营销费用的1.2倍以上。
+23日凌晨，省委书记唐登杰、省长卢东亮赶赴事故现场，详细了解事故处置情况，与有关方面专家一起研究完善救援方案，对人员搜救、伤员救治、事故调查、善后处置等工作作出安排部署。
 
-其表示，如此高的研发投入，目的在于“希望孩子在任何场景下都穿得稳、穿得安心”。
+随后，唐登杰、卢东亮陪同张国清副总理察看事故现场情况，看望受伤人员，慰问救援队伍，并汇报了救援处置等相关工作情况。
 
-然而从目前公布的专利构成看，其研发重心并非聚焦产品，其148项有效专利中约90%为外观设计专利，涉及鞋底科技、足部护足的核心发明专利寥寥无几，且部分发明专利已处于撤回状态。
+唐登杰、卢东亮表示，我们要坚决贯彻落实习近平总书记关于安全生产的重要论述和对长治市沁源县煤矿瓦斯爆炸事故作出的重要指示精神，认真落实李强总理批示精神和张国清副总理现场指导工作要求，牢固树立安全发展理念，深刻汲取教训，坚持以案为戒、举一反三，从严从实抓好安全生产工作，落细落实安全生产责任措施，坚决防范遏制重特大事故发生。
 
 ## 相关推荐
 
-- 2026-06-29 16:03 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 16:11 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 16:10 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 16:07 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 16:13 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 16:07 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 16:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 16:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 16:17 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 16:03 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 16:27 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 16:21 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 16:26 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 16:07 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 16:12 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 16:18 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 16:12 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 16:35 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 16:17 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 16:29 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 16:23 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 16:08 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 16:08 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 16:13 - [吴建豪老婆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 16:17 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 16:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 16:35 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:25 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/4321997.shtml)
-- 2026-06-29 16:09 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/60936248.shtml)
-- 2026-06-29 16:13 - [王安宇尊重田曦薇的一切选择](https://www.blog.kurohicncr.top/Article/details/701600818846.shtml)
-- 2026-06-29 16:08 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/191873.shtml)
-- 2026-06-29 16:07 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/969354105798.shtml)
-- 2026-06-29 16:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/30232259.shtml)
-- 2026-06-29 16:19 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/261592.shtml)
-- 2026-06-29 16:22 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/88685.shtml)
-- 2026-06-29 16:01 - [博主：全球股市进入“AI极端共振”](http://www.blog.minike.top/Article/details/8473686.shtml)
-- 2026-06-29 16:18 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/99321107765.shtml)
-- 2026-06-29 16:18 - [博主：美航母沦为毒品集散窝点](https://www.share.minike.top/Article/details/899950125716.shtml)
-- 2026-06-29 16:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/4235295.shtml)
-- 2026-06-29 16:29 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.minike.top/Article/details/55197.shtml)
-- 2026-06-29 16:14 - [撒旦的腋窝是什么比喻](http://www.share.kurohicncr.top/Article/details/51858.shtml)
-- 2026-06-29 16:07 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/65419404.shtml)
+- 2026-06-29 16:06 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/94329092.shtml)
+- 2026-06-29 16:33 - [给阿嬷的情书海外口碑](https://www.share.kurohicncr.top/Article/details/496251586.shtml)
+- 2026-06-29 16:35 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/990345935.shtml)
+- 2026-06-29 16:35 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/978577369323.shtml)
+- 2026-06-29 16:30 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/46370574852.shtml)
+- 2026-06-29 16:31 - [刘扬任湖南省副省长](http://www.blog.minike.top/Article/details/7418072852.shtml)
+- 2026-06-29 16:20 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/4412350.shtml)
+- 2026-06-29 16:14 - [端午节加班工资应该怎么算](https://www.share.minike.top/Article/details/8246544941.shtml)
+- 2026-06-29 16:10 - [博主：黄金和原油回落不等于风险消失](https://www.blog.minike.top/Article/details/50125.shtml)
+- 2026-06-29 16:14 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/1070398.shtml)
+- 2026-06-29 16:08 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/088606999.shtml)
+- 2026-06-29 16:35 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/988155033.shtml)
+- 2026-06-29 16:17 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/234797420.shtml)
+- 2026-06-29 16:25 - [省市招考专家解读山西高考志愿政策](http://www.share.minike.top/Article/details/170284696.shtml)
+- 2026-06-29 16:14 - [端午节加班工资应该怎么算](http://www.blog.kurohicncr.top/Article/details/1968532.shtml)

@@ -1,57 +1,59 @@
-# 郑丽文谈国共两党领导人会面：展现和平发展共同心愿
+# 养老服务从“补缺”迈向“普惠”
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新社北京4月10日电 (记者 路梅)中共中央总书记习近平10日上午在北京会见了郑丽文主席率领的中国国民党访问团。郑丽文当天稍晚在北京召开的记者会上表示，此次会面展现两岸对和平发展的共同心愿、善意与诚意。 “今天是大家期待已久的重头戏，一大早天气就特别好，阳光和煦，也印证了在时隔10年之后，两党领导人的会面依旧是真情流露、坦率、诚挚。”这场记者会，郑丽文如是开场。 她指出，在两
+当前，我国60岁及以上人口超过3.23亿人，银发经济规模接近10万亿元。我国养老服务正加快从“补缺”向“普惠”转型。持续提升普惠养老服务的有效供给，充分释放老年群体消费潜力，带动相关产业发展，可以为银发经济培育壮大与高质量发展注入持久动力。普惠养老的推进，为扩大内需开辟了新空间，有效激发银发消费的巨大潜力。这种拉动作用主要通过3条路径落地。 一是以消费补贴撬动市场活力。目前实施
 
 ## 正文
 
-中新社北京4月10日电 (记者 路梅)中共中央总书记习近平10日上午在北京会见了郑丽文主席率领的中国国民党访问团。
+当前，我国60岁及以上人口超过3.23亿人，银发经济规模接近10万亿元。
 
-郑丽文当天稍晚在北京召开的记者会上表示，此次会面展现两岸对和平发展的共同心愿、善意与诚意。
+我国养老服务正加快从“补缺”向“普惠”转型。
 
-“今天是大家期待已久的重头戏，一大早天气就特别好，阳光和煦，也印证了在时隔10年之后，两党领导人的会面依旧是真情流露、坦率、诚挚。
+持续提升普惠养老服务的有效供给，充分释放老年群体消费潜力，带动相关产业发展，可以为银发经济培育壮大与高质量发展注入持久动力。
 
-”这场记者会，郑丽文如是开场。
+普惠养老的推进，为扩大内需开辟了新空间，有效激发银发消费的巨大潜力。
 
-她指出，在两岸关系日趋紧张、恶意螺旋上升的背景下，当天的会面具有重大关键意义，为两岸、为台湾、为全世界释出清楚讯息。
+这种拉动作用主要通过3条路径落地。
 
-“两岸人民可以相信，只要出发点是好的、是对的，两岸关系可以朝着乐观正向发展。
+一是以消费补贴撬动市场活力。
 
-”她说，“今天成功地迈出这一步，接下来需要更多人的共同努力。
+目前实施的中度以上失能老年人养老服务消费补贴项目政策，通过“钱随人走”的方式，直接提升老年人消费能力，同时倒逼服务机构提质调价，带动康复辅具、专业照护等相关消费市场扩容。
 
-” 郑丽文说，坚持“九二共识”、反对“台独”这个基础，就可以看到春暖花开和彼此的笑容。
+二是以基础保障释放潜在消费需求。
 
 ## 相关推荐
 
-- 2026-06-29 16:14 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 16:11 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 16:01 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 16:22 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 16:29 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 16:26 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 16:24 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 16:01 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 16:06 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 16:13 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 16:10 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 16:06 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 16:29 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 16:16 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 16:33 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 16:15 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 16:17 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 16:21 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 16:30 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 16:18 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 16:09 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 16:24 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 16:25 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 16:25 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:17 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/3013543.shtml)
-- 2026-06-29 16:06 - [流金岁月](https://www.blog.minike.top/Article/details/533460878477.shtml)
-- 2026-06-29 16:23 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/072017353.shtml)
-- 2026-06-29 16:13 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/746490479507.shtml)
-- 2026-06-29 16:13 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/56492587687.shtml)
-- 2026-06-29 16:10 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/033438814514.shtml)
-- 2026-06-29 16:13 - [急先锋](http://www.blog.kurohicncr.top/Article/details/1384350806.shtml)
-- 2026-06-29 16:03 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/9952294061.shtml)
-- 2026-06-29 16:20 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/92110488.shtml)
-- 2026-06-29 16:04 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/89680.shtml)
-- 2026-06-29 16:12 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/66508.shtml)
-- 2026-06-29 16:12 - [女心理师](http://www.share.kurohicncr.top/Article/details/548087053.shtml)
-- 2026-06-29 16:12 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/898722789.shtml)
-- 2026-06-29 16:12 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/16380649247.shtml)
-- 2026-06-29 16:18 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/80338856669.shtml)
+- 2026-06-29 16:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/46025414.shtml)
+- 2026-06-29 16:10 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/45614.shtml)
+- 2026-06-29 16:09 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/60391757.shtml)
+- 2026-06-29 16:06 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.minike.top/Article/details/68216247220.shtml)
+- 2026-06-29 16:16 - [疑似吴建豪老婆正脸照](http://www.share.minike.top/Article/details/0240167.shtml)
+- 2026-06-29 16:18 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/78613062.shtml)
+- 2026-06-29 16:16 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/067076.shtml)
+- 2026-06-29 16:19 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/61677268956.shtml)
+- 2026-06-29 16:11 - [金刚川](https://www.blog.minike.top/Article/details/045705995.shtml)
+- 2026-06-29 16:06 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/462021.shtml)
+- 2026-06-29 16:27 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/479991265.shtml)
+- 2026-06-29 16:19 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/967892511.shtml)
+- 2026-06-29 16:07 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/360804457230.shtml)
+- 2026-06-29 16:30 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/90466235.shtml)
+- 2026-06-29 16:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/477713647225.shtml)

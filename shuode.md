@@ -1,59 +1,58 @@
-# 日产汽车马智欣：去年很多中国用户反馈日产的产品更新慢了，竞争力不足
+# 辽宁省首个集成电路产业创新中心落地运营
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 日产汽车全球执委会委员、中国区主席马智欣谈到，去年回到中国，深入一线做调研，很多用户反馈日产的产品更新慢了，竞争力不足。“这让我感受到了压力，也让我深刻意识到转型的紧迫性。”他说。 马智欣表
+中新网沈阳5月22日电 (李晛)记者22日自沈阳市国资委获悉，辽宁省首个集成电路产业创新中心日前正式落地运营。 该中心是产投集团在沈阳市政府国资委大力支持下，历经四年跟进对接、系统谋划，与国内集成电路龙头企业拓荆科技共同牵头，遴选11家薄膜设备、零部件供应商及合作伙伴投资设立。 该中心定位于实体化运作的产学研用协同平台，紧扣薄膜设备核心赛道，重点围绕应用于先进制程领域的高端集成
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+中新网沈阳5月22日电 (李晛)记者22日自沈阳市国资委获悉，辽宁省首个集成电路产业创新中心日前正式落地运营。
 
-日产汽车全球执委会委员、中国区主席马智欣谈到，去年回到中国，深入一线做调研，很多用户反馈日产的产品更新慢了，竞争力不足。
+该中心是产投集团在沈阳市政府国资委大力支持下，历经四年跟进对接、系统谋划，与国内集成电路龙头企业拓荆科技共同牵头，遴选11家薄膜设备、零部件供应商及合作伙伴投资设立。
 
-“这让我感受到了压力，也让我深刻意识到转型的紧迫性。
+该中心定位于实体化运作的产学研用协同平台，紧扣薄膜设备核心赛道，重点围绕应用于先进制程领域的高端集成电路装备新产品、新技术的需求，开展关键零部件的核心技术开发、验证与应用，并搭建设备及零部件研发、测试平台，孵化相关技术实现产业化。
 
-”他说。
+依托各股东方的产业链资源，中心将构建“研发—中试—产业化”的完整闭环，打造集技术供给、人才汇聚、关键零部件孵化与验证于一体的产业核心引擎，为全省集成电路产业高质量发展提供坚实支撑。
 
-马智欣表示，在交流中，也看到了日产的优势：在中国有超过1900万的用户，无论市场如何变化，用户口中“可靠、安全、品质好”的口碑依然存在，这是我们重要的品牌资产，也是我们进一步深耕中国市场的信心所在。
+为确保创新中心的实体化运作与市场化生命力，产投集团以“长期资本护航、耐心资本赋能”的理念，携手拓荆科技共同推进中心组建。
 
-他介绍，在中国，日产有三大战略支柱：品牌、产品、出海。
+通过“以企引企、以资引资”模式，精准引入9家来自江苏、上海等长三角地区的优质零部件企业。
 
-品牌上，换新“尽信由你”主张，打造年轻、创新、充满激情的品牌形象；产品上，围绕中国消费者需求，加速新能源车型布局；出海上，将中国优秀的车型，通过日产全球网络丰富全球产品线。
+着眼于产业链的长期培育，集团通过股权纽带将各股东方结为利益共同体，有效打破地域壁垒，将原本松散的供需关系转化为紧密的战略合作关系，以资本的温度陪伴入辽企业从孵化走向成熟，也为产业链的自主可控提供稳定可靠的资本支撑。
 
-他介绍，2025年至今，已上市五款新能源产品，涵盖纯电、插混、增程，覆盖轿车、SUV、皮卡，并在各自细分市场收获了用户的认可。
+下一步，创新中心将持续整合优质资源、夯实创新实力，全力冲刺申报国家级。
 
 ## 相关推荐
 
-- 2026-06-29 16:03 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 16:04 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 16:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 16:03 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 16:20 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 16:02 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 16:28 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 16:26 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 16:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 16:13 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 16:05 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 16:04 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 16:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 16:30 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 16:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 16:16 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 16:22 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 16:15 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 16:25 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 16:23 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 16:20 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 16:08 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 16:27 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 16:12 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 16:09 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:19 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/167813555867.shtml)
-- 2026-06-29 16:13 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/14587.shtml)
-- 2026-06-29 16:12 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/701070.shtml)
-- 2026-06-29 16:20 - [国家体育总局政策法规司原副司长获刑](https://www.share.kurohicncr.top/Article/details/102680.shtml)
-- 2026-06-29 16:29 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/1435891.shtml)
-- 2026-06-29 16:04 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.minike.top/Article/details/172374.shtml)
-- 2026-06-29 16:19 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/78595725.shtml)
-- 2026-06-29 16:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/72899.shtml)
-- 2026-06-29 16:08 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.minike.top/Article/details/1129221257.shtml)
-- 2026-06-29 16:07 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/189442295593.shtml)
-- 2026-06-29 16:12 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/786432.shtml)
-- 2026-06-29 16:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/32309822.shtml)
-- 2026-06-29 16:25 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/951326008.shtml)
-- 2026-06-29 16:08 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/094281.shtml)
-- 2026-06-29 16:18 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/8443830.shtml)
+- 2026-06-29 16:16 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/07247763.shtml)
+- 2026-06-29 16:18 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/73726596779.shtml)
+- 2026-06-29 16:13 - [12所大学更正招生目录](https://www.share.minike.top/Article/details/00473.shtml)
+- 2026-06-29 16:06 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/209065519.shtml)
+- 2026-06-29 16:14 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/036438007920.shtml)
+- 2026-06-29 16:27 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/78769.shtml)
+- 2026-06-29 16:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/056274117598.shtml)
+- 2026-06-29 16:26 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/6857131935.shtml)
+- 2026-06-29 16:13 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/87740.shtml)
+- 2026-06-29 16:28 - [人形机器人](https://www.share.minike.top/Article/details/890838195.shtml)
+- 2026-06-29 16:17 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/10254.shtml)
+- 2026-06-29 16:09 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/188147146988.shtml)
+- 2026-06-29 16:21 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/77603996.shtml)
+- 2026-06-29 16:16 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/252046851.shtml)
+- 2026-06-29 16:23 - [上班主打一个薪尽自然凉](https://www.share.kurohicncr.top/Article/details/26457.shtml)

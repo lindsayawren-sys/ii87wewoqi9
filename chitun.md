@@ -1,56 +1,54 @@
-# 侨韵骑楼牵乡愁 凝心聚力助招商——海口民革积极参与“侨见骑楼 南洋寻迹”暨招商推介活动
+# 从便携设备到远程诊疗 大理医疗展上的“中国方案”惠及南亚东南亚
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-4月4日，“侨见骑楼 南洋寻迹”暨招商推介活动在海口骑楼历史文化街区启幕。民革海口市委会充分发挥参政党优势，组织党员参与筹备及现场推介，挖掘骑楼百年侨乡文化底蕴，精准对接侨胞投资需求，助力海南自贸港招商引资与海口文旅产业升级，彰显履职尽责、服务地方发展的使命与担当。活动现场，民革海口市直属二支部副主委、骑楼街区妇联副主席羊一丹结合实践感悟，向侨胞们详细介绍了骑楼老街的历史底蕴、
+发布时间：2026年05月22日 19:25 来源：中国新闻网 5月20日至22日，2026年第二届大理医疗器械产业博览会暨南亚东南亚国际医疗产业合作交流推介会，在云南民歌《小河淌水》的故乡——云南省大理州弥渡县举行。本届博览会吸引169家企业参展，并邀请缅甸、泰国、孟加拉国、柬埔寨等9个国家的官方代表团与医疗机构共商共建“健康丝绸之路”。 自共建“一带一路”倡议提出以来，卫生
 
 ## 正文
 
-4月4日，“侨见骑楼 南洋寻迹”暨招商推介活动在海口骑楼历史文化街区启幕。
+发布时间：2026年05月22日 19:25 来源：中国新闻网 5月20日至22日，2026年第二届大理医疗器械产业博览会暨南亚东南亚国际医疗产业合作交流推介会，在云南民歌《小河淌水》的故乡——云南省大理州弥渡县举行。
 
-民革海口市委会充分发挥参政党优势，组织党员参与筹备及现场推介，挖掘骑楼百年侨乡文化底蕴，精准对接侨胞投资需求，助力海南自贸港招商引资与海口文旅产业升级，彰显履职尽责、服务地方发展的使命与担当。
+本届博览会吸引169家企业参展，并邀请缅甸、泰国、孟加拉国、柬埔寨等9个国家的官方代表团与医疗机构共商共建“健康丝绸之路”。
 
-活动现场，民革海口市直属二支部副主委、骑楼街区妇联副主席羊一丹结合实践感悟，向侨胞们详细介绍了骑楼老街的历史底蕴、发展现状、业态布局。
+自共建“一带一路”倡议提出以来，卫生健康合作成为重要内容。
 
-作为深耕骑楼街区多年的从业者，她结合自身经历，生动讲述了骑楼商户的发展故事，以及街区在“人气、文气、商气”三气融合发展中的探索与成效。
+十余年来，中国与南亚东南亚国家围绕传染病防控、医疗援助、人才培养等领域开展合作项目，逐步构建互惠共赢的医疗合作格局。
 
-讲述兼具历史厚重感与现实前瞻性，触动在场侨胞。
+依托云南面向南亚东南亚辐射中心的区位优势，本次展会成为跨境医疗合作、AI诊疗设备等板块的前沿窗口。
 
-大家重温侨乡记忆，感受自贸港建设活力，认可骑楼保护成果与投资价值，纷纷表达返乡投资意愿，搭建起侨胞与家乡合作共赢的桥梁。
-
-参与此次活动是民革海南省委会持续深化“2024民革党员企业家海南行”活动成果具体举措，也是民革海口市委会践行参政履职、服务社会大局的生动实践。
-
-下一步，民革海口市委会将持续聚焦骑楼街区保护与高质量发展，当好自贸港招商的宣传员、服务员与联络员，用心用情讲好海口故事，为推动海口文旅产业提质升级，打造“六个之城”贡献更多民革智慧和力量。
+(白玲 云南弥渡报道 部分视频来源 弥渡县融媒体中心） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 16:22 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 16:21 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 16:01 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 16:23 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 16:27 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 16:24 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 16:12 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 16:06 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 16:29 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 16:10 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 16:31 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 16:33 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 16:31 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 16:21 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 16:21 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 16:24 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 16:10 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 16:08 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 16:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 16:16 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 16:30 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 16:35 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/10915138723.shtml)
-- 2026-06-29 16:21 - [崔韩率还以为韩娱来新人了](http://www.blog.minike.top/Article/details/4895786158.shtml)
-- 2026-06-29 16:13 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/26744110392.shtml)
-- 2026-06-29 16:26 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/90943.shtml)
-- 2026-06-29 16:20 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/32996241.shtml)
-- 2026-06-29 16:21 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/9568494.shtml)
-- 2026-06-29 16:25 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/62470465024.shtml)
-- 2026-06-29 16:07 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/078399988.shtml)
-- 2026-06-29 16:08 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/610050005.shtml)
-- 2026-06-29 16:13 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/381598733779.shtml)
-- 2026-06-29 16:27 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/2652729.shtml)
-- 2026-06-29 16:17 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/9540330.shtml)
-- 2026-06-29 16:21 - [爱很美味](https://www.blog.minike.top/Article/details/9064433.shtml)
-- 2026-06-29 16:23 - [新一代影后杨紫](http://www.blog.minike.top/Article/details/257448.shtml)
-- 2026-06-29 16:26 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/6915799866.shtml)
+- 2026-06-29 16:34 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/6700799417.shtml)
+- 2026-06-29 16:26 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/60134804.shtml)
+- 2026-06-29 16:13 - [第一炉香](http://www.share.kurohicncr.top/Article/details/07409700945.shtml)
+- 2026-06-29 16:30 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/75790.shtml)
+- 2026-06-29 16:22 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/687892431.shtml)
+- 2026-06-29 16:08 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/99461.shtml)
+- 2026-06-29 16:20 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/938787556236.shtml)
+- 2026-06-29 16:27 - [AG冠军五人组轮换](https://www.share.minike.top/Article/details/50610.shtml)
+- 2026-06-29 16:07 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/5397443.shtml)
+- 2026-06-29 16:32 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/594922707992.shtml)
+- 2026-06-29 16:11 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/487809.shtml)
+- 2026-06-29 16:27 - [三星与SK集团或将投资2000万亿韩元](https://www.share.kurohicncr.top/Article/details/59215696885.shtml)
+- 2026-06-29 16:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/277414.shtml)
+- 2026-06-29 16:27 - [机器人学校开学了](http://www.blog.minike.top/Article/details/635934.shtml)
+- 2026-06-29 16:13 - [TFING全员黑西装](https://www.share.minike.top/Article/details/90942683.shtml)

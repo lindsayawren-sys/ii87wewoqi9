@@ -1,46 +1,44 @@
-# 3·15晚会曝光“万能神药”涉事企业被吊销营业执照并罚200万元
+# “晚上11点没人来买东西，我才确定出事了”山西留神峪煤矿附近商户发声
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-总台报道有反馈丨3·15晚会曝光“万能神药”涉事企业被吊销营业执照并罚200万元 记者从天津市市场监管部门了解到，被总台3·15晚会曝光的灏麟(天津)生物科技有限公司因涉嫌虚假宣传，近日被天津市市场监管部门罚款200万，并被吊销营业执照。 行政处罚决定书显示，经核查，当事人所提供的证据材料无法证明其销售的“轻”系列产品具有宣传所述的功效，属于对所售商品功能进行虚假的商业宣传，该
+发布时间：2026年05月23日 20:50 来源：中国新闻网 “晚上11点没人来买东西，我才确定出事了”山西留神峪煤矿附近商户发声 责任编辑：【郭梦媛】
 
 ## 正文
 
-总台报道有反馈丨3·15晚会曝光“万能神药”涉事企业被吊销营业执照并罚200万元 记者从天津市市场监管部门了解到，被总台3·15晚会曝光的灏麟(天津)生物科技有限公司因涉嫌虚假宣传，近日被天津市市场监管部门罚款200万，并被吊销营业执照。
-
-行政处罚决定书显示，经核查，当事人所提供的证据材料无法证明其销售的“轻”系列产品具有宣传所述的功效，属于对所售商品功能进行虚假的商业宣传，该行为对消费者和其他经营者的购买决策产生实质性影响，依法应当认定为虚假宣传违法行为。
-
-(总台记者 陈庆滨 贾立梁 )
+发布时间：2026年05月23日 20:50 来源：中国新闻网 “晚上11点没人来买东西，我才确定出事了”山西留神峪煤矿附近商户发声 责任编辑：【郭梦媛】
 
 ## 相关推荐
 
-- 2026-06-29 16:16 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 16:29 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 16:10 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 16:15 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 16:16 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 16:11 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 16:12 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 16:06 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 16:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 16:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 16:16 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 16:26 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 16:17 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 16:25 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 16:30 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 16:32 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 16:17 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 16:20 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 16:32 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 16:15 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 16:13 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 16:34 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:14 - [一见倾心](https://www.share.minike.top/Article/details/703863135.shtml)
-- 2026-06-29 16:27 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/55523.shtml)
-- 2026-06-29 16:03 - [恋与深空评分暴跌至1.8](http://www.blog.kurohicncr.top/Article/details/050803497481.shtml)
-- 2026-06-29 16:20 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/4968911779.shtml)
-- 2026-06-29 16:10 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/838674972123.shtml)
-- 2026-06-29 16:11 - [TLAW vs DCG MSI](https://www.blog.minike.top/Article/details/28497408954.shtml)
-- 2026-06-29 16:00 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/530080.shtml)
-- 2026-06-29 16:10 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/61593202.shtml)
-- 2026-06-29 16:24 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/28772.shtml)
-- 2026-06-29 16:21 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/394556603.shtml)
-- 2026-06-29 16:27 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/70992.shtml)
-- 2026-06-29 16:18 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/423439135891.shtml)
-- 2026-06-29 16:24 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/8664545.shtml)
-- 2026-06-29 16:27 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/340914.shtml)
-- 2026-06-29 16:12 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/3256923.shtml)
+- 2026-06-29 16:15 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/346001885.shtml)
+- 2026-06-29 16:16 - [起风了](https://www.share.kurohicncr.top/Article/details/0353440838.shtml)
+- 2026-06-29 16:31 - [当我回母校教书](https://www.share.minike.top/Article/details/879331595004.shtml)
+- 2026-06-29 16:17 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/962844516.shtml)
+- 2026-06-29 16:24 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/5654247.shtml)
+- 2026-06-29 16:35 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/26539456621.shtml)
+- 2026-06-29 16:35 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/64077362.shtml)
+- 2026-06-29 16:29 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/815745915689.shtml)
+- 2026-06-29 16:14 - [起风了](https://www.share.kurohicncr.top/Article/details/20865795.shtml)
+- 2026-06-29 16:25 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/96612115.shtml)
+- 2026-06-29 16:24 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/0882273.shtml)
+- 2026-06-29 16:12 - [世界杯看到肖战了](http://www.blog.kurohicncr.top/Article/details/06534447364.shtml)
+- 2026-06-29 16:21 - [梅朗雄主张法国退出北约](https://www.blog.kurohicncr.top/Article/details/78796668678.shtml)
+- 2026-06-29 16:28 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/9921952.shtml)
+- 2026-06-29 16:23 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/3343554691.shtml)

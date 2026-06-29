@@ -1,60 +1,57 @@
-# AI是抢走文科生“饭碗”，还是让文科生更吃香
+# 中国驻墨尔本总领馆提醒领区中国公民防范威胁恐吓及私下交易类网络诈骗
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-观 察 AI是抢走文科生“饭碗”，还是让文科生更吃香 临近毕业季，中青报·中青网记者梳理多家知名企业实习招聘信息时发现，相关岗位需求出现明显变化：新增了不少与文科相关的AI岗位。例如TikTok正在招聘“内容策略产品实习生(AI方向)”，要求能精准理解规则并高效执行标注工作；腾讯则在寻找“内容培训生”，要求参与数字资产库建设与维护，梳理角色AI模型、风格化提示词库、经典镜头素材
+中新网5月22日电 据中国驻墨尔本总领事馆微信公众号消息，近日，已有多名领区中国留学生反映，不幸遭遇线上交友后被要挟勒索和交易转款后被骗等网络骗局。中国驻墨尔本总领馆整理上述真实案例，供领区留学生及同胞参考。一、网络交友后威胁类诈骗案例 留学生小张(化名)通过网络聊天软件结识一女生，双方经常视频聊天，对方已了解到小张的身份信息，并曾将其隐私照片和视频截图保存。两人约定某日见面，
 
 ## 正文
 
-观 察 AI是抢走文科生“饭碗”，还是让文科生更吃香 临近毕业季，中青报·中青网记者梳理多家知名企业实习招聘信息时发现，相关岗位需求出现明显变化：新增了不少与文科相关的AI岗位。
+中新网5月22日电 据中国驻墨尔本总领事馆微信公众号消息，近日，已有多名领区中国留学生反映，不幸遭遇线上交友后被要挟勒索和交易转款后被骗等网络骗局。
 
-例如TikTok正在招聘“内容策略产品实习生(AI方向)”，要求能精准理解规则并高效执行标注工作；腾讯则在寻找“内容培训生”，要求参与数字资产库建设与维护，梳理角色AI模型、风格化提示词库、经典镜头素材库等内容。
+中国驻墨尔本总领馆整理上述真实案例，供领区留学生及同胞参考。
 
-此类岗位具备一个共同特点：必须具备AI相关技能。
+一、网络交友后威胁类诈骗案例 留学生小张(化名)通过网络聊天软件结识一女生，双方经常视频聊天，对方已了解到小张的身份信息，并曾将其隐私照片和视频截图保存。
 
-不久前，“AI大厂月薪3万元疯抢文科生”登上热搜，提示词工程师、AI训练师等岗位被媒体广泛报道。
+两人约定某日见面，见面前该女生突称需要交钱给自己的老板才能见面，之后对方老板威胁让小张交钱，否则将会曝光小张身份信息和隐私图片。
 
-不少人在网络上讨论：AI是抢走了文科生的“饭碗”，还是让文科生更吃香了？
+小张给对方转账7000澳元，但仍未见到对方，还被持续勒索敲诈。
 
-中青报·中青网记者在采访中发现，不少文科毕业生早已主动投身AI赛道。
+对方宣称和澳警方有联系，在当地还有黑社会背景，不给钱就要绑架小张。
 
-华南师范大学新闻传播学硕士张曼(化名)毕业后便入职国内互联网大厂，从事AI相关工作。
+小张极度恐惧，致电我馆寻求帮助。
 
-与传统产品运营岗位不同，她主要参与AI产品的内容生态搭建、用户需求调研与分析，并结合自然语言优化AI内容，提高生成产品的场景适配性，加快AI产品的市场传播。
+二、私下交易类诈骗案例 (一)留学生小王(化名)在某APP内刷到“折扣价转卖某商家礼品卡”的帖子，称卡内可用金额为500澳元，但只需450澳元就买到此卡。
 
 ## 相关推荐
 
-- 2026-06-29 16:03 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 16:06 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 16:21 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 16:23 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 16:01 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 16:06 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 16:03 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 16:08 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 16:07 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 16:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 16:01 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 16:19 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 16:12 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 16:13 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 16:31 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 16:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 16:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 16:08 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 16:17 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 16:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 16:29 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 16:15 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 16:13 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 16:09 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 16:35 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:24 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/94947.shtml)
-- 2026-06-29 16:26 - [女心理师](https://www.blog.minike.top/Article/details/11394931151.shtml)
-- 2026-06-29 16:01 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/0365322408.shtml)
-- 2026-06-29 16:21 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/2677254.shtml)
-- 2026-06-29 16:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/5371181495.shtml)
-- 2026-06-29 16:08 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/4819604.shtml)
-- 2026-06-29 16:21 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/48045968.shtml)
-- 2026-06-29 16:23 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/603243350419.shtml)
-- 2026-06-29 16:07 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/55944.shtml)
-- 2026-06-29 16:23 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/49165971.shtml)
-- 2026-06-29 16:12 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/2566547.shtml)
-- 2026-06-29 16:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/184327372465.shtml)
-- 2026-06-29 16:01 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/528086581.shtml)
-- 2026-06-29 16:14 - [美国大满贯首日国乒主力均取胜](http://www.blog.minike.top/Article/details/29066309.shtml)
-- 2026-06-29 16:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/39657444463.shtml)
+- 2026-06-29 16:29 - [媒体：中国田径压力与期待并存](https://www.blog.kurohicncr.top/Article/details/195554765.shtml)
+- 2026-06-29 16:17 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/99724.shtml)
+- 2026-06-29 16:27 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/26043.shtml)
+- 2026-06-29 16:30 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/6814591.shtml)
+- 2026-06-29 16:09 - [专家建议城乡居民养老金增至每月千元](http://www.share.kurohicncr.top/Article/details/3756680.shtml)
+- 2026-06-29 16:35 - [机器人学校开学了](https://www.blog.minike.top/Article/details/3601706039.shtml)
+- 2026-06-29 16:06 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/590199.shtml)
+- 2026-06-29 16:09 - [我和我的家乡](https://www.share.minike.top/Article/details/07095894.shtml)
+- 2026-06-29 16:08 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.kurohicncr.top/Article/details/26507911802.shtml)
+- 2026-06-29 16:35 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/652207973.shtml)
+- 2026-06-29 16:30 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/80345305.shtml)
+- 2026-06-29 16:09 - [中国战机大片上新](https://www.blog.minike.top/Article/details/03626342.shtml)
+- 2026-06-29 16:20 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/063188661.shtml)
+- 2026-06-29 16:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/89738328342.shtml)
+- 2026-06-29 16:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/850500885.shtml)

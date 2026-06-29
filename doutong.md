@@ -1,57 +1,56 @@
-# 计划举办40余场赛事 浙江湖州开启“户外运动狂飙”模式
+# 德国2026年第一季度经济环比增长0.3%
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新网湖州4月12日电(胡丰盛)12日上午，2026湖州马拉松鸣枪开跑，1.6万名跑者在江南春光中踏上赛道。以此为高潮，本周末浙江湖州迎来四场户外赛事，开启“户外运动狂飙”模式。 此次赛事首次实行“四枪发令”分区起跑，半马终点设“亲友挂奖牌”区，200名完赛选手将由家人亲手加冕。共有3834名跑者连续两年报名参赛。1700名警力、865名医护全程护航。 来自上海的曹先生已是第五
+德国联邦统计局日前公布的最终数据显示，2026年第一季度德国国内生产总值（GDP）环比增长0.3%，与此前公布的初步统计数据保持一致。 出口强劲回暖成为提振当季德国经济的核心动力。德国联邦统计局局长露丝·布兰德（Ruth Brand）指出，今年年初出口出现显著增长，为德国整体经济表现提供了重要支撑。具体数据显示，在经历2025年第四季度的下滑后，德国今年一季度商品和服务出口总额
 
 ## 正文
 
-中新网湖州4月12日电(胡丰盛)12日上午，2026湖州马拉松鸣枪开跑，1.6万名跑者在江南春光中踏上赛道。
+德国联邦统计局日前公布的最终数据显示，2026年第一季度德国国内生产总值（GDP）环比增长0.3%，与此前公布的初步统计数据保持一致。
 
-以此为高潮，本周末浙江湖州迎来四场户外赛事，开启“户外运动狂飙”模式。
+出口强劲回暖成为提振当季德国经济的核心动力。
 
-此次赛事首次实行“四枪发令”分区起跑，半马终点设“亲友挂奖牌”区，200名完赛选手将由家人亲手加冕。
+德国联邦统计局局长露丝·布兰德（Ruth Brand）指出，今年年初出口出现显著增长，为德国整体经济表现提供了重要支撑。
 
-共有3834名跑者连续两年报名参赛。
+具体数据显示，在经历2025年第四季度的下滑后，德国今年一季度商品和服务出口总额环比反弹3.3%，而同期进口额仅微增0.1%。
 
-1700名警力、865名医护全程护航。
+在各项内需指标中，政府消费支出环比增长1.1%，但家庭消费支出表现疲软，基本处于停滞状态。
 
-来自上海的曹先生已是第五次站上湖马赛道，他难掩期待：“春日跑湖州，别有一番风味。
+此外，第一季度固定资本投资表现不佳，环比下降1.5%。
 
-” 马拉松之外，山野间的极限挑战同步上演。
-
-4月10日至12日，2026莫干山越野赛by UTMB首次登陆德清莫干山。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-29 16:23 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 16:08 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 16:20 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 16:20 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 16:02 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 16:11 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 16:28 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 16:18 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 16:07 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 16:28 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 16:27 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 16:14 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 16:30 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 16:26 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 16:19 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 16:30 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 16:16 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 16:25 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 16:19 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 16:06 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-29 16:18 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 16:15 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 16:23 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:18 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/190988750.shtml)
-- 2026-06-29 16:03 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/22912.shtml)
-- 2026-06-29 16:27 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/6076666.shtml)
-- 2026-06-29 16:29 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/32477518.shtml)
-- 2026-06-29 16:02 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/84201.shtml)
-- 2026-06-29 16:15 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/4807465799.shtml)
-- 2026-06-29 16:27 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/8531230.shtml)
-- 2026-06-29 16:14 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/72261501.shtml)
-- 2026-06-29 16:20 - [毒液2](https://www.blog.minike.top/Article/details/66529813.shtml)
-- 2026-06-29 16:07 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/04851423511.shtml)
-- 2026-06-29 16:02 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/26656700648.shtml)
-- 2026-06-29 16:04 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/483630237.shtml)
-- 2026-06-29 16:12 - [滾石唱片要求万豪酒店道歉](http://www.share.minike.top/Article/details/51670825282.shtml)
-- 2026-06-29 16:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/37090079.shtml)
-- 2026-06-29 16:28 - [一见倾心](https://www.blog.minike.top/Article/details/844216.shtml)
+- 2026-06-29 16:23 - [王楚钦首轮赢下国乒德比](http://www.share.minike.top/Article/details/407403.shtml)
+- 2026-06-29 16:21 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/4687221359.shtml)
+- 2026-06-29 16:11 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/31911995001.shtml)
+- 2026-06-29 16:17 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/792622793682.shtml)
+- 2026-06-29 16:10 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/761665928.shtml)
+- 2026-06-29 16:13 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/01983754466.shtml)
+- 2026-06-29 16:31 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/860503129.shtml)
+- 2026-06-29 16:35 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/97476527.shtml)
+- 2026-06-29 16:10 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/8529022702.shtml)
+- 2026-06-29 16:16 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/41097479226.shtml)
+- 2026-06-29 16:11 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/68971.shtml)
+- 2026-06-29 16:09 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/97378.shtml)
+- 2026-06-29 16:08 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/367162048.shtml)
+- 2026-06-29 16:14 - [毒液2](https://www.share.kurohicncr.top/Article/details/296033.shtml)
+- 2026-06-29 16:32 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/6796962671.shtml)

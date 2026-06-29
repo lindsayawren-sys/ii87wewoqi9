@@ -1,57 +1,59 @@
-# 上汽大众陶海龙：反对低水平内卷，坚决抵制无底线价格战
+# 美官员透露伊朗同意放弃高浓缩铀库存 伊官方尚未证实
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。上汽大众汽车有限公司党委书记、总经理陶海龙出席并演讲。 陶海龙指出，中国汽车产业正经历“极速重构”，技术迭代与模式创新远超以往。他直言，行业对“自研与采购”存在两极认知，而上汽大众的解法是“自
+据美国方面23日消息，作为美国与伊朗即将达成的协议中的一个关键内容，伊朗已同意放弃其拥有的高浓缩铀库存。 两名美国官员透露，该协议并未解决伊朗究竟将如何放弃其浓缩铀库存的问题，而是将具体细节留到下一阶段关于伊朗核计划的谈判中解决。 消息称，美国长期以来一直希望伊朗放弃高浓缩铀库存，因此即便现在还只是一个“原则性承诺”，这一点对协议也非常关键。消息还显示，伊朗最初拒绝将任何关于其
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+据美国方面23日消息，作为美国与伊朗即将达成的协议中的一个关键内容，伊朗已同意放弃其拥有的高浓缩铀库存。
 
-上汽大众汽车有限公司党委书记、总经理陶海龙出席并演讲。
+两名美国官员透露，该协议并未解决伊朗究竟将如何放弃其浓缩铀库存的问题，而是将具体细节留到下一阶段关于伊朗核计划的谈判中解决。
 
-陶海龙指出，中国汽车产业正经历“极速重构”，技术迭代与模式创新远超以往。
+消息称，美国长期以来一直希望伊朗放弃高浓缩铀库存，因此即便现在还只是一个“原则性承诺”，这一点对协议也非常关键。
 
-他直言，行业对“自研与采购”存在两极认知，而上汽大众的解法是“自主研发+合作共创”。
+消息还显示，伊朗最初拒绝将任何关于其高浓缩铀库存的协议纳入“初期阶段”谈判，并要求将其推迟至“第二阶段”谈判。
 
-陶海龙强调，上汽大众反对低水平内卷，坚决抵制无底线价格战。
+但美国谈判代表已通过中间人向伊朗明确指出，若无法在初期阶段就相关问题达成某种共识，美方将退出谈判并恢复军事行动。
 
-他认为，认为无序竞争会伤害创新与用户利益，国家政策正引导市场回归“价值竞争”。
+美国总统特朗普23日在社交媒体发文，称美国与伊朗已基本谈成一份协议，有待美伊双方及相关国家最终敲定。
 
-他指出，用户需求已从“单一功能”转向“稳定可靠、全面好用”的综合体验，而这正是合资品牌的底蕴所在： 陶海龙透露，2026年是上汽大众的“反攻年”，将密集推出7款全新新能源车型，覆盖纯电、混动、增程三大技术路线。
+特朗普在帖文中未提及他此前一直强调的包括浓缩铀库存在内的核问题。
 
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+伊朗外交部发言人巴加埃23日表示，经过数周的对话，“伊美双方的观点正朝着更加一致的方向发展”，双方目前正处于一份谅解备忘录的最终敲定阶段。
 
 ## 相关推荐
 
-- 2026-06-29 16:25 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 16:23 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 16:05 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 16:26 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 16:00 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 16:28 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 16:25 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 16:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 16:19 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 16:18 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 16:14 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 16:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 16:23 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 16:33 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 16:24 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 16:30 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 16:15 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 16:16 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 16:11 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 16:08 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 16:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 16:19 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 16:08 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 16:31 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:02 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/54327237.shtml)
-- 2026-06-29 16:02 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/3361403.shtml)
-- 2026-06-29 16:23 - [世界杯十大帅哥必吃榜](https://www.share.kurohicncr.top/Article/details/31110528.shtml)
-- 2026-06-29 16:07 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/64751924350.shtml)
-- 2026-06-29 16:29 - [李在镕：计划将光州作为芯片生产基地](https://www.share.kurohicncr.top/Article/details/2531814845.shtml)
-- 2026-06-29 16:18 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/34256.shtml)
-- 2026-06-29 16:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/601573655.shtml)
-- 2026-06-29 16:17 - [毒液2](https://www.blog.minike.top/Article/details/44048787947.shtml)
-- 2026-06-29 16:26 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/931674715.shtml)
-- 2026-06-29 16:12 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/61130628.shtml)
-- 2026-06-29 16:19 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.kurohicncr.top/Article/details/63686277526.shtml)
-- 2026-06-29 16:14 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/044556.shtml)
-- 2026-06-29 16:02 - [爱很美味](http://www.blog.minike.top/Article/details/6495740.shtml)
-- 2026-06-29 16:13 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/411845492556.shtml)
-- 2026-06-29 16:00 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/40179.shtml)
+- 2026-06-29 16:29 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/090111020.shtml)
+- 2026-06-29 16:15 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/126635581.shtml)
+- 2026-06-29 16:20 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/253791.shtml)
+- 2026-06-29 16:16 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/80119502312.shtml)
+- 2026-06-29 16:07 - [博主：美航母沦为毒品集散窝点](http://www.share.kurohicncr.top/Article/details/70280681.shtml)
+- 2026-06-29 16:14 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/53096384.shtml)
+- 2026-06-29 16:17 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/9043292239.shtml)
+- 2026-06-29 16:20 - [当地回应林区违规放羊遭豹啃食](https://www.share.kurohicncr.top/Article/details/4464554.shtml)
+- 2026-06-29 16:24 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/487537343257.shtml)
+- 2026-06-29 16:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/52397.shtml)
+- 2026-06-29 16:33 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/32567833.shtml)
+- 2026-06-29 16:23 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/1740688566.shtml)
+- 2026-06-29 16:33 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/329321989424.shtml)
+- 2026-06-29 16:34 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/7085613.shtml)
+- 2026-06-29 16:27 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/1463975733.shtml)

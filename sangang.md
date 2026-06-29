@@ -1,57 +1,55 @@
-# 中国篮协正在核查篮坛新秀年龄存疑一事
+# 中国2030年实现航天员登月 空间站将从这三方面支持
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-新华社北京4月11日电(记者王镜宇、曹奕博)针对11日网上爆出的U18中国男篮球员李沂泽年龄存疑的问题，中国篮协已经关注并展开调查。 中国篮协相关人士说：“中国篮球协会已经注意到这个事情，目前正联合有关部门开展核查工作。协会将本着严肃认真、实事求是的态度进行处理，相关调查和处理结果将及时向社会公众公布。” 11日，多家网络媒体、自媒体爆料称，国青球员李沂泽的外貌与一名参加过国内
+今天(5月23日)上午，神舟二十三号载人飞行任务新闻发布会在酒泉卫星发射中心召开。 发言人介绍，中国空间站作为国家级太空实验室，主要从三个方面有力支撑月球探测工程。 一是空间站任务培养了一支执行过空间任务、拥有丰富太空飞行经验的航天员队伍，可为后续载人登月任务航天员乘组选拔提供坚实人才储备； 二是空间站已在轨稳定运行近4年，部署并验证了一系列面向载人登月关键技术，如：刚实施的天
 
 ## 正文
 
-新华社北京4月11日电(记者王镜宇、曹奕博)针对11日网上爆出的U18中国男篮球员李沂泽年龄存疑的问题，中国篮协已经关注并展开调查。
+今天(5月23日)上午，神舟二十三号载人飞行任务新闻发布会在酒泉卫星发射中心召开。
 
-中国篮协相关人士说：“中国篮球协会已经注意到这个事情，目前正联合有关部门开展核查工作。
+发言人介绍，中国空间站作为国家级太空实验室，主要从三个方面有力支撑月球探测工程。
 
-协会将本着严肃认真、实事求是的态度进行处理，相关调查和处理结果将及时向社会公众公布。
+一是空间站任务培养了一支执行过空间任务、拥有丰富太空飞行经验的航天员队伍，可为后续载人登月任务航天员乘组选拔提供坚实人才储备； 二是空间站已在轨稳定运行近4年，部署并验证了一系列面向载人登月关键技术，如：刚实施的天舟十号货运飞船任务中，就搭载了微重力环境下表面张力贮箱液体晃动试验项目，主要是验证载人登月相关飞行器技术指标要求设置的准确性及合理性；三是空间站任务中由长征十号甲运载火箭和梦舟飞船组成的新一代近地载人天地往返运输系统，与月球探测工程所需的长征十号运载火箭和梦舟登月飞船系统采用了一体化设计与研制，未来两年通过多次空间站飞行任务验证，将全面提升其技术成熟度与任务可靠性，为首次载人登月打下坚实基础。
 
-” 11日，多家网络媒体、自媒体爆料称，国青球员李沂泽的外貌与一名参加过国内青少年赛事的名叫张涵泊的球员高度相似，疑似是同一个人。
+此外，空间站长期在轨运营还可为未来月球科研开发和深空探测等任务提供更多更大空间在轨平台服务作用。
 
-在代表国青队参赛以及代表湖北队参加2024年首届全国青少年三大球运动会时，李沂泽注册的出生日期是2008年3月27日。
-
-而张涵泊在代表湖北青年男篮参加2022年U17青少年篮球联赛时的注册出生日期为2006年3月19日。
+(央视新闻客户端 总台央视记者 王刚 李昊)
 
 ## 相关推荐
 
-- 2026-06-29 16:14 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 16:03 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 16:12 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 16:27 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 16:19 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 16:23 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 16:28 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 16:15 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 16:25 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 16:27 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 16:21 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 16:18 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 16:03 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 16:21 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 16:07 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 16:23 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 16:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 16:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 16:20 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 16:13 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 16:30 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 16:12 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 16:33 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 16:29 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 16:24 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 16:24 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 16:09 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 16:19 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 16:12 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 16:30 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:12 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/22019670.shtml)
-- 2026-06-29 16:18 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/05880.shtml)
-- 2026-06-29 16:18 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/65012.shtml)
-- 2026-06-29 16:28 - [逃狱兄弟](https://www.share.minike.top/Article/details/44602806.shtml)
-- 2026-06-29 16:11 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/998022.shtml)
-- 2026-06-29 16:09 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/392054.shtml)
-- 2026-06-29 16:17 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.kurohicncr.top/Article/details/320409081406.shtml)
-- 2026-06-29 16:18 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/5139404526.shtml)
-- 2026-06-29 16:25 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/59848768.shtml)
-- 2026-06-29 16:18 - [毒液2](https://www.blog.kurohicncr.top/Article/details/38983380747.shtml)
-- 2026-06-29 16:15 - [天道](http://www.blog.minike.top/Article/details/23084022.shtml)
-- 2026-06-29 16:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/29765437.shtml)
-- 2026-06-29 16:19 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/13438110.shtml)
-- 2026-06-29 16:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/45986875323.shtml)
-- 2026-06-29 16:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/40838.shtml)
+- 2026-06-29 16:15 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/5091993835.shtml)
+- 2026-06-29 16:12 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/5513787233.shtml)
+- 2026-06-29 16:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/91080277383.shtml)
+- 2026-06-29 16:21 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/1165301.shtml)
+- 2026-06-29 16:33 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/382108.shtml)
+- 2026-06-29 16:30 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/71015246691.shtml)
+- 2026-06-29 16:20 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/35970.shtml)
+- 2026-06-29 16:16 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/768119772.shtml)
+- 2026-06-29 16:14 - [小娘惹](http://www.share.kurohicncr.top/Article/details/1018396752.shtml)
+- 2026-06-29 16:20 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.kurohicncr.top/Article/details/03741302476.shtml)
+- 2026-06-29 16:09 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.minike.top/Article/details/530956.shtml)
+- 2026-06-29 16:12 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/852140444.shtml)
+- 2026-06-29 16:26 - [日本主帅：对战胜巴西很有信心](https://www.blog.minike.top/Article/details/285012037.shtml)
+- 2026-06-29 16:25 - [博主：美航母沦为毒品集散窝点](https://www.share.minike.top/Article/details/03733503999.shtml)
+- 2026-06-29 16:32 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/900719368.shtml)

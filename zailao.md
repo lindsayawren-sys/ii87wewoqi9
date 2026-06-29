@@ -1,61 +1,46 @@
-# 宝马印度公司称一季度销量增长17%，但豪华车型需求仍显谨慎
+# 黎家盈博士时期导师回忆：她工作谨慎、关心同事，面对大量数据她会耐心分析
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-受波斯湾地缘政治紧张局势影响消费者情绪，BMWYY>宝马在印度的业务开始显现初步压力迹象。持续的伊朗战争可能对可自由支配支出构成压力。宝马印度业务负责人哈迪普·辛格·布拉尔指出，富裕买家正变得更加谨慎，部分消费者选择推迟高价值消费，直到全球增长前景更加明朗。这一模式可能与新冠疫情期间的情况相似，当时高端消费先是放缓，随后随着宏观环境稳定而逐步恢复。 这一转变发生之前，宝马今年开
+发布时间：2026年05月23日 10:04 来源：中国新闻网 责任编辑：【李骏】
 
 ## 正文
 
-受波斯湾地缘政治紧张局势影响消费者情绪，BMWYY>宝马在印度的业务开始显现初步压力迹象。
-
-持续的伊朗战争可能对可自由支配支出构成压力。
-
-宝马印度业务负责人哈迪普·辛格·布拉尔指出，富裕买家正变得更加谨慎，部分消费者选择推迟高价值消费，直到全球增长前景更加明朗。
-
-这一模式可能与新冠疫情期间的情况相似，当时高端消费先是放缓，随后随着宏观环境稳定而逐步恢复。
-
-这一转变发生之前，宝马今年开局强劲。
-
-宝马报告第一季度在印度销量为4567辆，创下其最佳第一季度表现，同比增长17%。
-
-虽然印度豪华车市场仍仅占乘用车总销量的约1%，但即将发布的行业数据可能更清晰地反映整体需求在当前环境下是否开始走软。
-
-与此同时，宝马似乎正受益于消费者向电动汽车的稳步转型，部分买家希望借此对冲潜在的燃油成本上涨。
+发布时间：2026年05月23日 10:04 来源：中国新闻网 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-29 16:16 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 16:14 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 16:22 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 16:22 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 16:21 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 16:28 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 16:28 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 16:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 16:11 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 16:11 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 16:04 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 16:03 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 16:10 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 16:07 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 16:29 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 16:32 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 16:09 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 16:19 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 16:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 16:27 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 16:19 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 16:35 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 16:24 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 16:34 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 16:09 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 16:29 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 16:28 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 16:20 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 16:10 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:13 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/7541332155.shtml)
-- 2026-06-29 16:14 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/0944266211.shtml)
-- 2026-06-29 16:23 - [哈兰德这该死的胜负欲](http://www.share.minike.top/Article/details/23565.shtml)
-- 2026-06-29 16:22 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/5490718080.shtml)
-- 2026-06-29 16:01 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/125115381603.shtml)
-- 2026-06-29 16:16 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/37763.shtml)
-- 2026-06-29 16:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/813212652197.shtml)
-- 2026-06-29 16:05 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/9615604499.shtml)
-- 2026-06-29 16:28 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/8372299940.shtml)
-- 2026-06-29 16:04 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/681433.shtml)
-- 2026-06-29 16:18 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/70303521027.shtml)
-- 2026-06-29 16:11 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/91071947270.shtml)
-- 2026-06-29 16:13 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/86148224.shtml)
-- 2026-06-29 16:07 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.minike.top/Article/details/24439471.shtml)
-- 2026-06-29 16:27 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/45709.shtml)
+- 2026-06-29 16:22 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/19200204474.shtml)
+- 2026-06-29 16:14 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/518531055.shtml)
+- 2026-06-29 16:19 - [南非老帅布罗斯的梦没能做完](https://www.blog.minike.top/Article/details/05738.shtml)
+- 2026-06-29 16:22 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/261849380327.shtml)
+- 2026-06-29 16:09 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/7775757093.shtml)
+- 2026-06-29 16:23 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/20867.shtml)
+- 2026-06-29 16:07 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/6842702508.shtml)
+- 2026-06-29 16:11 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/488695510090.shtml)
+- 2026-06-29 16:35 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/40808407.shtml)
+- 2026-06-29 16:28 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/6048415527.shtml)
+- 2026-06-29 16:31 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/712482.shtml)
+- 2026-06-29 16:07 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/06849228015.shtml)
+- 2026-06-29 16:20 - [明星大侦探第一季](http://www.share.minike.top/Article/details/7205271.shtml)
+- 2026-06-29 16:08 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/527361.shtml)
+- 2026-06-29 16:25 - [和周杰伦在演唱会合唱了](http://www.share.minike.top/Article/details/64284616.shtml)

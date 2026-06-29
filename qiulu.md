@@ -1,60 +1,58 @@
-# 直播海报：2026北京半程马拉松
+# 特朗普为司法部基金辩护，遭参议院共和党人反对
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中东战火搅乱全球体育产业美国和伊朗谈判，为何选在巴基斯坦专家解析中国“保持制造业合理比重”背后深意从一场高规格座谈会看中国经济工作新动向手抖=衰老？这些信号，早发现能救命！美伊今日开始谈判：谁来谈？谈什么？谈崩了怎么办？中美“乒乓外交”在当下有何特殊意义？“脆弱的停火”增添变数 多国政要谴责以色列袭击黎巴嫩打造“智能经济新形态” 中国物流驶入智慧“快车道”美伊“临时停火”的现实
+核心要点 唐纳德・特朗普总统为颇具争议的司法部新设 “反武器化基金” 辩护，该基金或用于向其盟友支付赔偿金 —— 这些盟友声称在拜凳政府时期成为司法不当行为的受害者。 特朗普在 “真相社交” 平台发文称：“为让刚宣布的反武器化基金顺利推进，我放弃了巨额资金。” 此前，代理司法部长托德・布兰奇就该基金向参议院共和党人进行简报后，后者取消了原定投票计划。 参议院共和党人强烈反对后，
 
 ## 正文
 
-中东战火搅乱全球体育产业美国和伊朗谈判，为何选在巴基斯坦专家解析中国“保持制造业合理比重”背后深意从一场高规格座谈会看中国经济工作新动向手抖=衰老？
+核心要点 唐纳德・特朗普总统为颇具争议的司法部新设 “反武器化基金” 辩护，该基金或用于向其盟友支付赔偿金 —— 这些盟友声称在拜凳政府时期成为司法不当行为的受害者。
 
-这些信号，早发现能救命！
+特朗普在 “真相社交” 平台发文称：“为让刚宣布的反武器化基金顺利推进，我放弃了巨额资金。
 
-美伊今日开始谈判：谁来谈？
+” 此前，代理司法部长托德・布兰奇就该基金向参议院共和党人进行简报后，后者取消了原定投票计划。
 
-谈什么？
+参议院共和党人强烈反对后，唐纳德・特朗普总统于周五为司法部颇具争议的新设 “反武器化基金” 进行辩护。
 
-谈崩了怎么办？
+特朗普的前刑事辩护律师、现任代理司法部长托德・布兰奇本周早些时候表示，设立这笔 18 亿美元基金，是为和解特朗普对美国国家税务局（IRS）提起的 100 亿美元诉讼。
 
-中美“乒乓外交”在当下有何特殊意义？
+特朗普在该和解中未获分文，但基金旨在赔偿其众多支持者 —— 他们声称在拜凳政府时期，成为司法部过度执法行为的受害者。
 
-“脆弱的停火”增添变数 多国政要谴责以色列袭击黎巴嫩打造“智能经济新形态” 中国物流驶入智慧“快车道”美伊“临时停火”的现实困境与未来前景花粉过敏为何越来越普遍？
+特朗普在 “真相社交” 平台发文称：“为让刚宣布的反武器化基金顺利推进，我放弃了巨额资金。
 
-致敏树种能否一砍了之？
+” 他表示：“我本可以就我的案件达成和解 —— 包括非法泄露我的纳税申报表、以及同样非法闯入海湖庄园的行为 —— 从而获得一笔巨款。
 
 ## 相关推荐
 
-- 2026-06-29 16:27 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 16:17 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 16:08 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 16:19 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 16:20 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 16:17 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 16:20 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 16:13 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 16:28 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 16:17 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 16:26 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 16:22 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 16:21 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 16:07 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 16:15 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 16:10 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 16:34 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 16:32 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 16:28 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 16:11 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 16:21 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 16:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 16:15 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 16:15 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 16:11 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 16:06 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:17 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.minike.top/Article/details/95086.shtml)
-- 2026-06-29 16:16 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/237819.shtml)
-- 2026-06-29 16:14 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/077829113.shtml)
-- 2026-06-29 16:14 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/413160.shtml)
-- 2026-06-29 16:13 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/0131794.shtml)
-- 2026-06-29 16:04 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/520760471753.shtml)
-- 2026-06-29 16:27 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/5946744.shtml)
-- 2026-06-29 16:23 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/909975308200.shtml)
-- 2026-06-29 16:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/636554273.shtml)
-- 2026-06-29 16:19 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/7925781887.shtml)
-- 2026-06-29 16:06 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/7202787.shtml)
-- 2026-06-29 16:27 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.minike.top/Article/details/058919304.shtml)
-- 2026-06-29 16:29 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/824300408.shtml)
-- 2026-06-29 16:03 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/5917279959.shtml)
-- 2026-06-29 16:12 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/91695.shtml)
+- 2026-06-29 16:27 - [崔韩率还以为韩娱来新人了](https://www.blog.minike.top/Article/details/87608105.shtml)
+- 2026-06-29 16:18 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/159609.shtml)
+- 2026-06-29 16:32 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/08319955.shtml)
+- 2026-06-29 16:24 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/24267692.shtml)
+- 2026-06-29 16:23 - [媒体：网络测评不能只剩“生意”](http://www.blog.kurohicncr.top/Article/details/181765214952.shtml)
+- 2026-06-29 16:31 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/88187447049.shtml)
+- 2026-06-29 16:12 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/32563412.shtml)
+- 2026-06-29 16:24 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/70477.shtml)
+- 2026-06-29 16:19 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/02575.shtml)
+- 2026-06-29 16:08 - [驻日美军航母沦为“毒窝”](https://www.share.kurohicncr.top/Article/details/05601.shtml)
+- 2026-06-29 16:23 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/13499589.shtml)
+- 2026-06-29 16:06 - [上班主打一个薪尽自然凉](http://www.share.kurohicncr.top/Article/details/674552.shtml)
+- 2026-06-29 16:30 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/24405545643.shtml)
+- 2026-06-29 16:34 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/0511554.shtml)
+- 2026-06-29 16:29 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/21017.shtml)

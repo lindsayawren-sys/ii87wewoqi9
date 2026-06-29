@@ -1,57 +1,61 @@
-# 重现抗战峥嵘岁月 《长城1933》新书发布会在长沙举行
+# 港股收评：恒指涨0.86% 科指涨2.11% 科网股普涨 人工智能板块强势 智谱涨超26% 丹诺医药上市首日涨超178%
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新网长沙4月11日电 (张雪盈)为凝聚民族奋进力量、传承中华民族共御外侮的坚韧品格，湖南作家黄亮斌长篇抗战力作《长城1933》新书发布会10日下午在长沙举行，书中重现1933年长城抗战的峥嵘岁月。 九一八事变以后，东北沦陷，热河失守。在长城危急、华北危急的紧要关头，国民政府派出了中央军十七军赴密云县古北口参与长城保卫战，与共同驻守在此的东北军、西北军和晋绥军等一起，浴血奋战，
+5月22日消息，港股三大指数集体上涨。截至收盘，恒生指数涨0.86%，报25606.03，恒生科技指数涨2.11%，国企指数涨0.89%。盘面上，科网股普涨，联想绩后涨超19%，网易涨超5%，百度、小米、快手涨超1%；半导体板块走强，兆易创新涨超12%；人工智能板块全天强势，智谱涨超26%；今日丹诺医药上市，首日涨超178%。 半导体板块走强，兆易创新涨超12%。周四，美股存储
 
 ## 正文
 
-中新网长沙4月11日电 (张雪盈)为凝聚民族奋进力量、传承中华民族共御外侮的坚韧品格，湖南作家黄亮斌长篇抗战力作《长城1933》新书发布会10日下午在长沙举行，书中重现1933年长城抗战的峥嵘岁月。
+5月22日消息，港股三大指数集体上涨。
 
-九一八事变以后，东北沦陷，热河失守。
+截至收盘，恒生指数涨0.86%，报25606.03，恒生科技指数涨2.11%，国企指数涨0.89%。
 
-在长城危急、华北危急的紧要关头，国民政府派出了中央军十七军赴密云县古北口参与长城保卫战，与共同驻守在此的东北军、西北军和晋绥军等一起，浴血奋战，阻滞了日军的南侵。
+盘面上，科网股普涨，联想绩后涨超19%，网易涨超5%，百度、小米、快手涨超1%；半导体板块走强，兆易创新涨超12%；人工智能板块全天强势，智谱涨超26%；今日丹诺医药上市，首日涨超178%。
 
-据了解，长城抗战是长达14年抗日战争期间较早的一次重大战役。
+半导体板块走强，兆易创新涨超12%。
 
-《长城1933》全景还原古北口、喜峰口等战场的殊死搏杀，刻画中国军队及民间志士同仇敌忾、共御外侮的壮阔群像，既写炮火硝烟里的英勇牺牲，也记贤达救国的赤诚丹心，让长城精神跃然纸上。
+周四，美股存储板块走强，闪迪涨超10%，希捷科技涨近8%，西部数据涨超5%，美光科技涨超4%。
 
-团结出版社副总编辑李可指出，《长城1933》一书既生动再现了古北口长城抗战波澜壮阔的历史画卷，又没有止步于对战争场面的书写，而是借用长城这个特殊意象，思考国家与民众的关系，使作品在思想层面达到了相当的高度，在历史、文学、教育和社会等方面具有重要意义，是一部立得住、传得开、留得下的优秀作品。
+闪迪首席执行官戴维・戈克勒向投资者表示，闪存市场将在“很长一段时间内”持续供不应求，这为这家存储器制造商改造其业务创造了绝佳契机。
 
-中南大学文学院教授聂茂表示，该书追问了一个民族于存亡绝续关头爆发的生命伟力，既是对一段可歌可泣抗战史的深情回望，亦是一部承载家族荣光与个人情感的记忆之书，在宏大叙事中注入了真切的血脉温度。
+人工智能板块全天强势，智谱涨超26%。
 
-“我从小就听先辈们抗敌御侮的英雄故事，很早就有了把这些故事写出来的想法，这次创作终于圆梦。
+恒生指数公司正进行季度审议，智谱和MiniMax被视为纳入恒生科技指数的头号候选。
 
 ## 相关推荐
 
-- 2026-06-29 16:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 16:26 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 16:21 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 16:29 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 16:15 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 16:14 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 16:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 16:26 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 16:24 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 16:24 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 16:14 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 16:19 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 16:06 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 16:18 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 16:21 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 16:23 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 16:33 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 16:18 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 16:34 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 16:26 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 16:13 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 16:21 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 16:16 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 16:34 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 16:35 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 16:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:24 - [世界杯欧美八大豪强悉数出线](https://www.blog.minike.top/Article/details/724024.shtml)
-- 2026-06-29 16:06 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/17112.shtml)
-- 2026-06-29 16:02 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/38380.shtml)
-- 2026-06-29 16:17 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/9458644550.shtml)
-- 2026-06-29 16:04 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/62526544.shtml)
-- 2026-06-29 16:22 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/03914217342.shtml)
-- 2026-06-29 16:07 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/863031979.shtml)
-- 2026-06-29 16:20 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/2764398.shtml)
-- 2026-06-29 16:22 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/635225.shtml)
-- 2026-06-29 16:01 - [南非老帅布罗斯的梦没能做完](http://www.share.minike.top/Article/details/6081243196.shtml)
-- 2026-06-29 16:18 - [美的“卡bug”空调在欧洲卖爆](https://www.share.minike.top/Article/details/00269613757.shtml)
-- 2026-06-29 16:07 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/06967.shtml)
-- 2026-06-29 16:09 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/1323909.shtml)
-- 2026-06-29 16:20 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/739259091.shtml)
-- 2026-06-29 16:07 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/6495738931.shtml)
+- 2026-06-29 16:10 - [天道](https://www.share.minike.top/Article/details/32314336.shtml)
+- 2026-06-29 16:31 - [送你一朵小红花](http://www.blog.minike.top/Article/details/7821845.shtml)
+- 2026-06-29 16:09 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/51549.shtml)
+- 2026-06-29 16:28 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/31794.shtml)
+- 2026-06-29 16:07 - [中方将20家日本实体列入关注名单](https://www.share.kurohicncr.top/Article/details/51414.shtml)
+- 2026-06-29 16:12 - [普京承认俄出现燃料危机](https://www.blog.minike.top/Article/details/7908738.shtml)
+- 2026-06-29 16:30 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/806294026.shtml)
+- 2026-06-29 16:07 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/926778562.shtml)
+- 2026-06-29 16:25 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/44008.shtml)
+- 2026-06-29 16:23 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/78327413880.shtml)
+- 2026-06-29 16:19 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/40073539849.shtml)
+- 2026-06-29 16:27 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/10874233956.shtml)
+- 2026-06-29 16:18 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/026095420.shtml)
+- 2026-06-29 16:22 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/830588.shtml)
+- 2026-06-29 16:14 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/81134906.shtml)

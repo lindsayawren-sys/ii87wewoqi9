@@ -1,44 +1,61 @@
-# 黑龙江、四川、青海3省国省干线3个路段因雪封闭管控
+# 2026年上海科技节开幕
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-记者从交通运输部路网中心了解到，截至8时，因降雪，黑龙江、四川、青海3省国省干线共有3个路段采取主动封闭管控措施，其中1个路段封闭主线，2个路段关闭收费站。 (央视新闻客户端 总台央视记者 唐颖)
+中新社上海5月23日电 (记者 郑莹莹)为期一周的2026年上海科技节23日开幕，延续“科技让生活更美好”主题，以全民参与的科技嘉年华形式，搭建前沿科技与城市生活深度交融的互动平台，共设置开幕式、专题会议、科普开放、科普赛事、科普文旅融合、媒体科普、闭幕活动七大板块，全方位展现上海科创活力，让科学走近大众。 科技节期间，外滩FTC、西岸、上海科技馆等六大城市地标全新推出6家科技
 
 ## 正文
 
-记者从交通运输部路网中心了解到，截至8时，因降雪，黑龙江、四川、青海3省国省干线共有3个路段采取主动封闭管控措施，其中1个路段封闭主线，2个路段关闭收费站。
+中新社上海5月23日电 (记者 郑莹莹)为期一周的2026年上海科技节23日开幕，延续“科技让生活更美好”主题，以全民参与的科技嘉年华形式，搭建前沿科技与城市生活深度交融的互动平台，共设置开幕式、专题会议、科普开放、科普赛事、科普文旅融合、媒体科普、闭幕活动七大板块，全方位展现上海科创活力，让科学走近大众。
 
-(央视新闻客户端 总台央视记者 唐颖)
+科技节期间，外滩FTC、西岸、上海科技馆等六大城市地标全新推出6家科技主题快闪咖啡馆，构建面向大众的科学互动社区。
+
+中国科学院院士、中国科学院上海技术物理研究所研究员褚君浩在受访时鼓励中国青少年融入人工智能发展。
+
+他表示：“青少年要打好学科基础，理解人工智能，长大后发展人工智能。
+
+” 世界科技传播学会主席法比安·梅德维基(Fabien Medvecky)表示，在中国，人们对人工智能的态度非常积极，这里的人工智能发展速度极快。
+
+法比安·梅德维基告诉中新社记者，中国在人工智能领域的成果非常卓越，“我有时候也会用DeepSeek，为什么不呢？
+
+” 自1991年创办以来，上海科技节历经30多年的发展，已成为上海市民走近科学、体验创新的重要平台。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:20 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 16:04 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 16:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 16:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 16:23 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 16:28 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 16:29 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 16:04 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 16:13 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 16:05 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 16:29 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 16:16 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 16:32 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 16:21 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 16:17 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 16:14 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 16:10 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 16:12 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 16:09 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 16:09 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 16:20 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 16:21 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 16:11 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 16:23 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 16:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:28 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/2220571706.shtml)
-- 2026-06-29 16:16 - [央视曝光涉黄App诈骗陷阱](https://www.blog.kurohicncr.top/Article/details/16975060632.shtml)
-- 2026-06-29 16:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/8828132.shtml)
-- 2026-06-29 16:15 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/426056.shtml)
-- 2026-06-29 16:12 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/806394.shtml)
-- 2026-06-29 16:04 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/05547577.shtml)
-- 2026-06-29 16:02 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/91593.shtml)
-- 2026-06-29 16:02 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/5998407778.shtml)
-- 2026-06-29 16:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/585639.shtml)
-- 2026-06-29 16:20 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/5431034.shtml)
-- 2026-06-29 16:02 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/027674288.shtml)
-- 2026-06-29 16:07 - [起风了](http://www.share.kurohicncr.top/Article/details/10921015.shtml)
-- 2026-06-29 16:10 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/08542562.shtml)
-- 2026-06-29 16:27 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/6267748.shtml)
-- 2026-06-29 16:23 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/9761471946.shtml)
+- 2026-06-29 16:19 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/39971676230.shtml)
+- 2026-06-29 16:13 - [上班主打一个薪尽自然凉](http://www.share.minike.top/Article/details/18373594.shtml)
+- 2026-06-29 16:15 - [请回答王牌2019](http://www.blog.minike.top/Article/details/65652.shtml)
+- 2026-06-29 16:30 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/30144777141.shtml)
+- 2026-06-29 16:20 - [速度与激情9](https://www.share.minike.top/Article/details/926336.shtml)
+- 2026-06-29 16:31 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/29440901.shtml)
+- 2026-06-29 16:24 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/198218.shtml)
+- 2026-06-29 16:23 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/6569725.shtml)
+- 2026-06-29 16:23 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/673704574.shtml)
+- 2026-06-29 16:10 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/5541743880.shtml)
+- 2026-06-29 16:14 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/8091838126.shtml)
+- 2026-06-29 16:32 - [欧盟为什么越来越倾向贸易保护](http://www.blog.kurohicncr.top/Article/details/25033.shtml)
+- 2026-06-29 16:26 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/71979.shtml)
+- 2026-06-29 16:22 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/25531255.shtml)
+- 2026-06-29 16:34 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/13517070.shtml)

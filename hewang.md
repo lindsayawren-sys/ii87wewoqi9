@@ -1,59 +1,54 @@
-# 崔东树：建议购车支出纳入个税专项抵扣
+# “科技馆体系协同开展区域性科学教育中心建设项目”进行总结交流
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 中国汽车流通协会乘用车市场信息联席分会（乘联分会）秘书长崔东树表示，整个中国车市的增长具有可持续增长潜力，不要用中国的人口变化状态去理解中国车市。中国的人口虽然面临下降的态势，但中国的司机规
+中新网北京5月22日电 (记者 孙自法)中国科技馆5月22日向媒体通报说，“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动5月21日至22日在郑州科技馆举办，郑州、包头、绍兴、武威、滨州、日照、合肥、泉州、遵义、曲靖等10家科技馆分别汇报项目完成情况和取得成效。 “科技馆体系协同开展区域性科学教育中心建设项目”自2024年启动以来，中国科技馆联动10所地市级科技馆，
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+中新网北京5月22日电 (记者 孙自法)中国科技馆5月22日向媒体通报说，“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动5月21日至22日在郑州科技馆举办，郑州、包头、绍兴、武威、滨州、日照、合肥、泉州、遵义、曲靖等10家科技馆分别汇报项目完成情况和取得成效。
 
-中国汽车流通协会乘用车市场信息联席分会（乘联分会）秘书长崔东树表示，整个中国车市的增长具有可持续增长潜力，不要用中国的人口变化状态去理解中国车市。
+“科技馆体系协同开展区域性科学教育中心建设项目”自2024年启动以来，中国科技馆联动10所地市级科技馆，充分发挥区域性枢纽作用，聚焦机制模式探索、资源研发供给、科学教师研修、专家库资源库共建共享、科学教育研究实践五大核心任务，立足区域特色、深耕实践创新，在体制机制上破局、在资源供给上提质、在师资培养上赋能、在平台共建上聚力、在研究实践上深耕。
 
-中国的人口虽然面临下降的态势，但中国的司机规模正以每年两千万的速度增长，所以汽车仍然是消费增长的核心动力，潜力比较大。
+目前，该项目不仅形成一批可复制、可推广的建设成果与典型经验，丰富了科技馆行业智库资源，而且有效开拓了科技馆联合教育部门、大中小学及社会资源单位协同开展科学教育的新路径，初步形成家校社创新合作与多元协同育人的新局面。
 
-而且中国的消费现在来看，呈现出以中老年人消费为主的特征。
+“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动现场，还举行建设成果展示和优质科普活动展演，10所地市级科技馆分别展示项目周期内开发的优质科教资源，涵盖科学课资源包、活动教具、活动手册等，不仅内容丰富、形式多样，而且地域特色鲜明。
 
-所以，推动中国中老年人购车，是我们行业发展的重要推动方向，而国家政策在这方面起到了很好的作用，尤其是金融拉动消费，起到了重大的推动作用。
+在科普展演环节，各馆则带来科学与文化融合的科普课程。
 
-此外，他认为未来政策在稳增长方面要做好更多支撑，而且不能光靠短期政策，需要长效政策的支撑。
+中国科技馆称，下一步将继续发挥示范引领作用，加强经验总结与顶层谋划，持续强化体系协同，通过区域联动筑牢教育强国建设根基，开创“十五五”科学教育发展新局面。
 
-比如今年给两千亿、去年给三千亿、明年给1500亿，再往后可能就没有了，这种短期政策难以支撑行业长期稳定发展。
-
-他表示，长效政策需要给予一定支持，比如购车支出纳入个税专项抵扣，汽车消费信贷的利息要进行税前扣除，这两个是比较关键的长效措施。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:27 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 16:15 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 16:17 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 16:00 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 16:04 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 16:04 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 16:08 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 16:18 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 16:02 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 16:26 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 16:15 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 16:14 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 16:19 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 16:28 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 16:09 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 16:34 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 16:31 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 16:13 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 16:33 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 16:23 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 16:15 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 16:30 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 16:17 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:05 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/77811.shtml)
-- 2026-06-29 16:18 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/8884553618.shtml)
-- 2026-06-29 16:18 - [业内：全球市场迎来结构性投资窗口](http://www.share.minike.top/Article/details/03623061918.shtml)
-- 2026-06-29 16:14 - [每代父母都困在自己的时代里](http://www.share.kurohicncr.top/Article/details/992174738261.shtml)
-- 2026-06-29 16:04 - [一生一世](http://www.blog.kurohicncr.top/Article/details/9865591.shtml)
-- 2026-06-29 16:28 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/5449146.shtml)
-- 2026-06-29 16:05 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/246631747376.shtml)
-- 2026-06-29 16:26 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/206291.shtml)
-- 2026-06-29 16:12 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/58207965.shtml)
-- 2026-06-29 16:17 - [金刚川](http://www.blog.minike.top/Article/details/35037.shtml)
-- 2026-06-29 16:21 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/760612495376.shtml)
-- 2026-06-29 16:14 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/590133.shtml)
-- 2026-06-29 16:11 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/6081289083.shtml)
-- 2026-06-29 16:14 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.kurohicncr.top/Article/details/5591506.shtml)
-- 2026-06-29 16:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/67238.shtml)
+- 2026-06-29 16:08 - [青春环游记第三季](http://www.blog.minike.top/Article/details/854393453.shtml)
+- 2026-06-29 16:11 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/169669948.shtml)
+- 2026-06-29 16:10 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/568979165191.shtml)
+- 2026-06-29 16:32 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/2906156.shtml)
+- 2026-06-29 16:18 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/77735810946.shtml)
+- 2026-06-29 16:29 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/357354615565.shtml)
+- 2026-06-29 16:23 - [挪威王储妃长子2次强奸被判4年](http://www.share.kurohicncr.top/Article/details/16488.shtml)
+- 2026-06-29 16:16 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/60856155278.shtml)
+- 2026-06-29 16:18 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/001067.shtml)
+- 2026-06-29 16:29 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/57433493706.shtml)
+- 2026-06-29 16:29 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/06232365741.shtml)
+- 2026-06-29 16:22 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/2279368.shtml)
+- 2026-06-29 16:09 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/695775465.shtml)
+- 2026-06-29 16:11 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.minike.top/Article/details/52894272111.shtml)
+- 2026-06-29 16:22 - [人形机器人](https://www.blog.minike.top/Article/details/281209087589.shtml)

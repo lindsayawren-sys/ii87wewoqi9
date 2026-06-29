@@ -1,57 +1,44 @@
-# 宠物专用CT、AI诊断心脏病……“黑科技”争抢宠物经济机遇
+# 公司G5级别电子级氢氟酸产能多少，未来是否扩产？多氟多回应
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新经纬4月10日电 (王玉玲)“宠物医疗的快速发展体现在供给端技术进步、合规能力强化与专业人才梯队建设，叠加消费端宠物保有量增加、人宠情感纽带加强，共同推动行业发展。”在第93届中国国际医疗器械博览会(CMEF，下称医博会)期间，上海汉维生物医药科技有限公司(汉维宠仕)首席科学家阮林高在接受中新经纬采访时表示。 “宠物经济”近年来持续火热。根据派读宠物行业大数据平台发布的《2
+有投资者向多氟多（002407.SZ）提问，请问公司G5级别电子级氢氟酸产能、产量是多少，在当下国内晶圆厂扩产的情况下未来是否扩产、增产电子级氢氟酸？5月22日，公司回答表示，公司现有半导体级氢氟酸产能4万吨/年，未来公司将根据市场需求逐步建设、释放新增产能。
 
 ## 正文
 
-中新经纬4月10日电 (王玉玲)“宠物医疗的快速发展体现在供给端技术进步、合规能力强化与专业人才梯队建设，叠加消费端宠物保有量增加、人宠情感纽带加强，共同推动行业发展。
+有投资者向多氟多（002407.SZ）提问，请问公司G5级别电子级氢氟酸产能、产量是多少，在当下国内晶圆厂扩产的情况下未来是否扩产、增产电子级氢氟酸？
 
-”在第93届中国国际医疗器械博览会(CMEF，下称医博会)期间，上海汉维生物医药科技有限公司(汉维宠仕)首席科学家阮林高在接受中新经纬采访时表示。
-
-“宠物经济”近年来持续火热。
-
-根据派读宠物行业大数据平台发布的《2026年中国宠物行业白皮书》，2025年，中国城镇宠物(犬猫)消费市场规模达3126亿元，较2024年增长4.1%。
-
-消费方面，单只宠物消费持续提升，单只犬年均消费3006元、单只猫年均消费2085元，均创历史新高。
-
-宠物经济也驱动了宠物医疗的发展。
-
-中新经纬在医博会现场看到，医疗器械厂家带来了许多宠物专用医疗器械，包括AI驱动宠物心脏诊断设备、宠物专用CT、宠物雾化器等。
-
-从跨国企业到本土厂商，企业正在争抢“毛孩子”经济的新机遇。
+5月22日，公司回答表示，公司现有半导体级氢氟酸产能4万吨/年，未来公司将根据市场需求逐步建设、释放新增产能。
 
 ## 相关推荐
 
-- 2026-06-29 16:17 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 16:14 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 16:05 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 16:14 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 16:28 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 16:10 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 16:14 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 16:04 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 16:07 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 16:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 16:24 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 16:14 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 16:29 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 16:29 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 16:34 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 16:28 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 16:27 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 16:33 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 16:21 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 16:30 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 16:30 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:02 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/31428170883.shtml)
-- 2026-06-29 16:17 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/361377648.shtml)
-- 2026-06-29 16:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/79642696.shtml)
-- 2026-06-29 16:09 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/86387.shtml)
-- 2026-06-29 16:14 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/59393.shtml)
-- 2026-06-29 16:28 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/587626349.shtml)
-- 2026-06-29 16:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/09267331.shtml)
-- 2026-06-29 16:11 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/642113.shtml)
-- 2026-06-29 16:13 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/2133381574.shtml)
-- 2026-06-29 16:22 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/4564674799.shtml)
-- 2026-06-29 16:09 - [驻日美军航母沦为“毒窝”](http://www.share.minike.top/Article/details/4698362537.shtml)
-- 2026-06-29 16:22 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/768907107698.shtml)
-- 2026-06-29 16:19 - [周杰伦演唱会真的好多人啊](http://www.share.minike.top/Article/details/33706464683.shtml)
-- 2026-06-29 16:14 - [急先锋](https://www.blog.kurohicncr.top/Article/details/34015184.shtml)
-- 2026-06-29 16:07 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/99426495.shtml)
+- 2026-06-29 16:30 - [世界杯看到肖战了](http://www.blog.kurohicncr.top/Article/details/30388951267.shtml)
+- 2026-06-29 16:27 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/007852652.shtml)
+- 2026-06-29 16:14 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/188869709961.shtml)
+- 2026-06-29 16:08 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/666573124.shtml)
+- 2026-06-29 16:22 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/76412.shtml)
+- 2026-06-29 16:31 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/903497047.shtml)
+- 2026-06-29 16:25 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/2443882274.shtml)
+- 2026-06-29 16:20 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/1415035.shtml)
+- 2026-06-29 16:34 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/98007.shtml)
+- 2026-06-29 16:30 - [《贺子珍》](https://www.blog.minike.top/Article/details/182883.shtml)
+- 2026-06-29 16:24 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/921729400467.shtml)
+- 2026-06-29 16:09 - [省市招考专家解读山西高考志愿政策](http://www.share.kurohicncr.top/Article/details/75756917597.shtml)
+- 2026-06-29 16:15 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/8815105.shtml)
+- 2026-06-29 16:11 - [德国VS巴拉圭前瞻](http://www.blog.kurohicncr.top/Article/details/524731730632.shtml)
+- 2026-06-29 16:29 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/0487130302.shtml)

@@ -1,60 +1,53 @@
-# 90后“羊倌”当代表：把“一只羊”的文章做成“一片富”的事业
+# 在霍尔木兹海峡有望重新开放之际油价下跌
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-把“一只羊”的文章做成“一片富”的事业—— 九〇后“羊倌”当代表(人大代表在基层) 养群羊，为啥还得配上职业经理人？一只羊，能细分成50多个部位销售？大山深处的围栏里，还要给羊做B超？ 在培育羊产业链的过程中，甘肃临夏回族自治州东乡族自治县伊菲种植养殖农民专业合作社理事长张忠山有着自己的思考。日常工作围着羊圈转，为了把产品卖出去，养殖基地、生产车间都是他的直播间，不时有小羊闯入
+在霍尔木兹海峡有望重新开放之际，油价在亚洲早盘交易中下跌；霍尔木兹海峡是一条关键水道，全球五分之一的石油通常经此运输。媒体援引一名美国官员周日的话称，已达成一项原则性协议，根据该协议，伊朗将重新开放霍尔木兹海峡。与此同时，美国总统特朗普周日表示，他不急于与伊朗达成结束战争的协议。近月西得州中质油期货下跌5.1%，至每桶91.71美元；近月布伦特原油期货下跌5.1%，至每桶98.
 
 ## 正文
 
-把“一只羊”的文章做成“一片富”的事业—— 九〇后“羊倌”当代表(人大代表在基层) 养群羊，为啥还得配上职业经理人？
+在霍尔木兹海峡有望重新开放之际，油价在亚洲早盘交易中下跌；霍尔木兹海峡是一条关键水道，全球五分之一的石油通常经此运输。
 
-一只羊，能细分成50多个部位销售？
+媒体援引一名美国官员周日的话称，已达成一项原则性协议，根据该协议，伊朗将重新开放霍尔木兹海峡。
 
-大山深处的围栏里，还要给羊做B超？
+与此同时，美国总统特朗普周日表示，他不急于与伊朗达成结束战争的协议。
 
-在培育羊产业链的过程中，甘肃临夏回族自治州东乡族自治县伊菲种植养殖农民专业合作社理事长张忠山有着自己的思考。
+近月西得州中质油期货下跌5.1%，至每桶91.71美元；近月布伦特原油期货下跌5.1%，至每桶98.29美元。
 
-日常工作围着羊圈转，为了把产品卖出去，养殖基地、生产车间都是他的直播间，不时有小羊闯入镜头，网友亲切地称他为90后“羊倌”。
-
-张忠山是土生土长的“东乡娃”，东乡是甘肃最后摘帽的8个深度贫困县之一，也是国家乡村振兴重点帮扶县。
-
-“从小看着家家户户养羊，但过去每家最多也就养几十只羊。
-
-”张忠山回忆，东乡群众做好“羊文章”，得打开更多路子。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 16:07 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 16:16 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 16:21 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 16:14 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 16:20 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 16:08 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 16:14 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 16:07 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 16:14 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 16:00 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 16:23 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 16:21 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 16:02 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 16:14 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 16:23 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 16:23 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 16:14 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 16:22 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 16:11 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 16:26 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 16:35 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 16:16 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 16:16 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 16:33 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 16:08 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 16:10 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 16:12 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:16 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/31744861429.shtml)
-- 2026-06-29 16:27 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/7739917.shtml)
-- 2026-06-29 16:05 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/47144530.shtml)
-- 2026-06-29 16:08 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/41177613949.shtml)
-- 2026-06-29 16:26 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/034865944.shtml)
-- 2026-06-29 16:11 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/25849160818.shtml)
-- 2026-06-29 16:03 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.minike.top/Article/details/796019.shtml)
-- 2026-06-29 16:26 - [7款商保创新药“转道”](http://www.blog.kurohicncr.top/Article/details/435009340644.shtml)
-- 2026-06-29 16:02 - [小娘惹](http://www.share.kurohicncr.top/Article/details/9506108305.shtml)
-- 2026-06-29 16:22 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/6789905099.shtml)
-- 2026-06-29 16:07 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/877468557.shtml)
-- 2026-06-29 16:17 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/002572933.shtml)
-- 2026-06-29 16:01 - [东方风云榜红毯](https://www.blog.minike.top/Article/details/86564102.shtml)
-- 2026-06-29 16:17 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/8136359258.shtml)
-- 2026-06-29 16:06 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.minike.top/Article/details/445912612495.shtml)
+- 2026-06-29 16:33 - [当我回母校教书](http://www.blog.minike.top/Article/details/89099389915.shtml)
+- 2026-06-29 16:28 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/137888423.shtml)
+- 2026-06-29 16:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/5954134096.shtml)
+- 2026-06-29 16:30 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/835846.shtml)
+- 2026-06-29 16:21 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/673076701487.shtml)
+- 2026-06-29 16:26 - [和周杰伦在演唱会合唱了](https://www.share.minike.top/Article/details/64481848971.shtml)
+- 2026-06-29 16:27 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/601171152742.shtml)
+- 2026-06-29 16:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/57374383.shtml)
+- 2026-06-29 16:25 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/8926783376.shtml)
+- 2026-06-29 16:16 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/4613380674.shtml)
+- 2026-06-29 16:29 - [叠纸](https://www.share.minike.top/Article/details/55720967238.shtml)
+- 2026-06-29 16:34 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/15011163227.shtml)
+- 2026-06-29 16:22 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/5855308350.shtml)
+- 2026-06-29 16:07 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/21093364.shtml)
+- 2026-06-29 16:13 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/5398013.shtml)

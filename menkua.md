@@ -1,48 +1,60 @@
-# 美军称在霍尔木兹海峡启动扫雷作业
+# 渣打行政总裁就“低价值人力资本”言论道歉
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-新华社华盛顿4月11日电(记者施春 徐兴堂)美东时间11日中午，美军中央司令部在社交媒体发文，称两艘美国海军导弹驱逐舰当天穿越霍尔木兹海峡，美军开始为霍尔木兹海峡扫雷创造条件。 美军中央司令部表示，“弗兰克·E·彼得森”号和“迈克尔·墨菲”号驱逐舰穿过霍尔木兹海峡，并在波斯湾行动，这是为彻底清理伊朗伊斯兰革命卫队在该海峡布设的水雷任务的一部分。 中央司令部司令布拉德·库珀说：“
+就本周早些时候发表有关人工智能将如何影响“低价值人力资本”的言论，渣打行政总裁温拓思为此道歉，此番言论之前引发了公众强烈反应。 温拓思周五在LinkedIn上写道，他意识到自己的“措辞”已经“引起了一些同事的不满”。他补充道，“对此我很抱歉。” 温拓思发布上述帖子的几个小时前，他试图在LinkedIn的另一则帖子中坚定自己的言论。他写道，多年来，该银行一直致力于帮助那些因自动化
 
 ## 正文
 
-新华社华盛顿4月11日电(记者施春 徐兴堂)美东时间11日中午，美军中央司令部在社交媒体发文，称两艘美国海军导弹驱逐舰当天穿越霍尔木兹海峡，美军开始为霍尔木兹海峡扫雷创造条件。
+就本周早些时候发表有关人工智能将如何影响“低价值人力资本”的言论，渣打行政总裁温拓思为此道歉，此番言论之前引发了公众强烈反应。
 
-美军中央司令部表示，“弗兰克·E·彼得森”号和“迈克尔·墨菲”号驱逐舰穿过霍尔木兹海峡，并在波斯湾行动，这是为彻底清理伊朗伊斯兰革命卫队在该海峡布设的水雷任务的一部分。
+温拓思周五在LinkedIn上写道，他意识到自己的“措辞”已经“引起了一些同事的不满”。
 
-中央司令部司令布拉德·库珀说：“今天，我们启动开辟一条新航道的进程。
+他补充道，“对此我很抱歉。
 
-” 中央司令部称，接下来几天，包括水下无人潜航器在内的更多美军力量将加入扫雷作业。
+” 温拓思发布上述帖子的几个小时前，他试图在LinkedIn的另一则帖子中坚定自己的言论。
+
+他写道，多年来，该银行一直致力于帮助那些因自动化而工作岗位发生颠覆性变化的员工。
+
+“在这种背景下，我说了低价值岗位更容易被自动化取代，我们有责任帮助同事们转型到更高价值的岗位上，”他写道。
+
+“我们将继续坦诚地讨论技术变革的影响，并将继续以负责任的态度帮助员工适应并取得成功。
+
+” 本周早些时候，温拓思发表了一些引发争议的言论，他当时谈到在该银行裁减数千个职位的计划中人工智能将产生影响。
 
 ## 相关推荐
 
-- 2026-06-29 16:14 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 16:29 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 16:10 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 16:18 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 16:25 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 16:02 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 16:26 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 16:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 16:15 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 16:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 16:33 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 16:17 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 16:13 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 16:08 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 16:11 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 16:15 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 16:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 16:08 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 16:21 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 16:32 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 16:20 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 16:12 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 16:33 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 16:25 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:00 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/557755173.shtml)
-- 2026-06-29 16:22 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/105949413857.shtml)
-- 2026-06-29 16:02 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/759552935.shtml)
-- 2026-06-29 16:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/554949040.shtml)
-- 2026-06-29 16:03 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/199609143955.shtml)
-- 2026-06-29 16:03 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/30391567.shtml)
-- 2026-06-29 16:21 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/269433491.shtml)
-- 2026-06-29 16:09 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/918059223209.shtml)
-- 2026-06-29 16:10 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/9678121.shtml)
-- 2026-06-29 16:20 - [央视曝光涉黄App诈骗陷阱](https://www.share.kurohicncr.top/Article/details/58099650696.shtml)
-- 2026-06-29 16:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/7571021943.shtml)
-- 2026-06-29 16:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/544067639.shtml)
-- 2026-06-29 16:03 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/73364875.shtml)
-- 2026-06-29 16:12 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.kurohicncr.top/Article/details/314273.shtml)
-- 2026-06-29 16:01 - [7款商保创新药“转道”](http://www.share.minike.top/Article/details/56708506.shtml)
+- 2026-06-29 16:29 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/3304333647.shtml)
+- 2026-06-29 16:26 - [省市招考专家解读山西高考志愿政策](https://www.blog.minike.top/Article/details/87190.shtml)
+- 2026-06-29 16:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/78435.shtml)
+- 2026-06-29 16:18 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/055811.shtml)
+- 2026-06-29 16:27 - [高市早苗口齿不清被质疑醉酒](https://www.blog.minike.top/Article/details/642409306700.shtml)
+- 2026-06-29 16:31 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/4244569.shtml)
+- 2026-06-29 16:14 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/09449.shtml)
+- 2026-06-29 16:12 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/925374459.shtml)
+- 2026-06-29 16:27 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/993139.shtml)
+- 2026-06-29 16:11 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/714463820.shtml)
+- 2026-06-29 16:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/27968749161.shtml)
+- 2026-06-29 16:14 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/926992661697.shtml)
+- 2026-06-29 16:09 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/203137.shtml)
+- 2026-06-29 16:19 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/440220019259.shtml)
+- 2026-06-29 16:10 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/4961989.shtml)

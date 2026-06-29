@@ -1,60 +1,55 @@
-# 证监会新闻发言人就《关于深化创业板改革 更好服务新质生产力发展的意见》答记者问
+# 浙江省三大科创高地2025年度发展报告发布
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-专题：证监会发布！深化创业板改革总体方案出炉 中国证监会新闻发言人就《关于深化创业板改革 更好服务新质生产力发展的意见》答记者问 4月10日，经国务院同意，中国证监会发布《关于深化创业板改革 更好服务新质生产力发展的意见》（以下简称《创业板意见》）。中国证监会新闻发言人就《创业板意见》回答了记者提问。 一、问：《创业板意见》出台的背景是什么，如何理解深化创业板改革的重要意义？
+发布时间：2026年05月22日 20:30 来源：中国新闻网 5月21日，2026年“智江南”智库研讨会在浙江义乌举办，现场发布浙江省三大科创高地2025年度发展报告。 报告指出，2025年，浙江省规上人工智能核心产业营收达7131亿元，数字经济核心产业增加值占GDP比重达13%；生物医药与医疗器械集群营业收入达3235.8亿元，研发费用占营业收入比重达6.0%；绿色石化、高
 
 ## 正文
 
-专题：证监会发布！
+发布时间：2026年05月22日 20:30 来源：中国新闻网 5月21日，2026年“智江南”智库研讨会在浙江义乌举办，现场发布浙江省三大科创高地2025年度发展报告。
 
-深化创业板改革总体方案出炉 中国证监会新闻发言人就《关于深化创业板改革 更好服务新质生产力发展的意见》答记者问 4月10日，经国务院同意，中国证监会发布《关于深化创业板改革 更好服务新质生产力发展的意见》（以下简称《创业板意见》）。
+报告指出，2025年，浙江省规上人工智能核心产业营收达7131亿元，数字经济核心产业增加值占GDP比重达13%；生物医药与医疗器械集群营业收入达3235.8亿元，研发费用占营业收入比重达6.0%；绿色石化、高端新材料、新能源装备等相关产业营业收入分别达17568、8425、4558亿元。
 
-中国证监会新闻发言人就《创业板意见》回答了记者提问。
+近年来，浙江陆续提出着力打造“互联网+”、生命健康和新材料等科创高地。
 
-一、问：《创业板意见》出台的背景是什么，如何理解深化创业板改革的重要意义？
+2025年，浙江将三大科创高地迭代升级为人工智能、生命健康、新材料新能源，创新体系效能加快提升。
 
-答：党中央、国务院高度重视资本市场工作。
-
-党的二十届三中全会强调，健全因地制宜发展新质生产力体制机制，健全投资和融资相协调的资本市场功能。
-
-党的二十届四中全会提出，提高资本市场制度包容性、适应性，积极发展股权、债券等直接融资。
-
-中央经济工作会议、“十五五”规划纲要、2026年政府工作报告均要求，持续深化资本市场投融资综合改革。
+(鲍梦妮) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 16:00 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 16:04 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 16:02 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 16:04 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 16:14 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 16:00 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 16:29 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 16:17 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 16:08 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 16:21 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 16:05 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 16:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 16:12 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 16:07 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 16:14 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 16:11 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 16:22 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 16:19 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 16:33 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 16:32 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 16:32 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 16:11 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 16:21 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 16:13 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 16:32 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 16:26 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 16:11 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 16:35 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 16:06 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:26 - [抓特务票房破亿](http://www.share.minike.top/Article/details/2412159.shtml)
-- 2026-06-29 16:00 - [小鹏MONAL03预售定档7月2日](https://www.share.kurohicncr.top/Article/details/913493.shtml)
-- 2026-06-29 16:26 - [李在镕：计划将光州作为芯片生产基地](https://www.share.minike.top/Article/details/9168915.shtml)
-- 2026-06-29 16:14 - [84岁英国教授成中国网红](http://www.share.minike.top/Article/details/5382370587.shtml)
-- 2026-06-29 16:24 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/84685.shtml)
-- 2026-06-29 16:11 - [明星大侦探第四季](http://www.share.minike.top/Article/details/33412472503.shtml)
-- 2026-06-29 16:28 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/0329044.shtml)
-- 2026-06-29 16:25 - [105年初心滚烫](http://www.blog.minike.top/Article/details/402453474.shtml)
-- 2026-06-29 16:15 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/850269278411.shtml)
-- 2026-06-29 16:23 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/11556778273.shtml)
-- 2026-06-29 16:09 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/880286402629.shtml)
-- 2026-06-29 16:05 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/652260694.shtml)
-- 2026-06-29 16:17 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/2556976529.shtml)
-- 2026-06-29 16:14 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/1031111.shtml)
-- 2026-06-29 16:19 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/174530213.shtml)
+- 2026-06-29 16:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/837142863068.shtml)
+- 2026-06-29 16:23 - [当地回应林区违规放羊遭豹啃食](https://www.share.kurohicncr.top/Article/details/3684420.shtml)
+- 2026-06-29 16:27 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/6927629549.shtml)
+- 2026-06-29 16:29 - [网友飞机上偶遇肖战](https://www.blog.minike.top/Article/details/3815783131.shtml)
+- 2026-06-29 16:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/258653084.shtml)
+- 2026-06-29 16:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/767079564469.shtml)
+- 2026-06-29 16:15 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/9319744.shtml)
+- 2026-06-29 16:18 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/68513108399.shtml)
+- 2026-06-29 16:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/241786154.shtml)
+- 2026-06-29 16:10 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/0157253.shtml)
+- 2026-06-29 16:35 - [众星恭喜吴建豪](http://www.blog.kurohicncr.top/Article/details/6505755.shtml)
+- 2026-06-29 16:35 - [把古诗里的动作换成加班](https://www.share.minike.top/Article/details/534690.shtml)
+- 2026-06-29 16:15 - [周生如故](https://www.blog.minike.top/Article/details/22821.shtml)
+- 2026-06-29 16:11 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/70313257.shtml)
+- 2026-06-29 16:31 - [12所大学更正招生目录](https://www.share.minike.top/Article/details/859730109921.shtml)

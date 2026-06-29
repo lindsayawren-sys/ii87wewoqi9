@@ -1,56 +1,60 @@
-# 1900亿“医械茅”，净利润大降30%
+# 深度｜6456亿分红创历史新高，银行高分红盛宴能持续多久？
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！作者丨杨坪 编辑丨郑世凤 江佩霞 张明艳 近日，中国医疗器械行业的“一哥”，迈瑞医疗在2025年遭遇了上市以来的首次年度营收下滑。 年报数据显示，迈瑞医疗全年实现营业收入332.82亿元，同比下降9.38%；归母净利润81.36亿元，同比下降30.28%；扣非归母净利润80.69亿元，同比下降29.48%。
+21世纪经济报道记者 张欣 冯紫彤 “此消彼长。”东方金诚金融业务部执行总监张丽用这四个字，概括了当前银行高分红背后的核心矛盾——一边是股东对高回报的热切期待，一边是资本积累空间的一再收窄。 21世纪经济报道记者注意到，2025年，A股上市银行的现金分红规模再创历史新高。Wind数据显示，41家A股上市银行已实施现金分红的规模合计达到6456.36亿元，较2024年增加约130
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+21世纪经济报道记者 张欣 冯紫彤 “此消彼长。
 
-作者丨杨坪 编辑丨郑世凤 江佩霞 张明艳 近日，中国医疗器械行业的“一哥”，迈瑞医疗在2025年遭遇了上市以来的首次年度营收下滑。
+”东方金诚金融业务部执行总监张丽用这四个字，概括了当前银行高分红背后的核心矛盾——一边是股东对高回报的热切期待，一边是资本积累空间的一再收窄。
 
-年报数据显示，迈瑞医疗全年实现营业收入332.82亿元，同比下降9.38%；归母净利润81.36亿元，同比下降30.28%；扣非归母净利润80.69亿元，同比下降29.48%。
+21世纪经济报道记者注意到，2025年，A股上市银行的现金分红规模再创历史新高。
 
-公司传统的三大核心主业均受到不同程度影响，行业“以量补价”的逻辑正在弱化。
+Wind数据显示，41家A股上市银行已实施现金分红的规模合计达到6456.36亿元，较2024年增加约130.43亿元。
 
-其中，体外诊断业务实现营业收入122.41亿元，同比下降9.41%；生命信息与支持业务实现营业收入98.37亿元，同比下降19.80%；医学影像实现营业收入57.17亿元，同比下降18.02%。
+其中，国有六大行以4274.24亿元的分红总额，扛起了66.2%的份额。
 
-拖累迈瑞医疗的主要是国内市场，其国内业务实现收入156.32亿元，同比下降22.97%。
+工商银行更是以1105.93亿元的分红规模，连续19年领跑A股上市公司。
 
-公司在年报中指出，国内受DRG/DIP支付方式改革、试剂集中带量采购、检验结果互认、医疗服务价格治理等多重政策影响，行业进入调整收缩期，试剂用量和价格均出现了不同程度的下滑。
+光鲜数据的另一面，正是一场关于“生存”与“回报”的艰难平衡。
 
-截至4月10日收盘，迈瑞医疗报158.18元/股，最新市值1918亿。
+当前，商业银行净息差正跌至1.40%的历史冰点。
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 16:16 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 16:05 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 16:02 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 16:16 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 16:29 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 16:19 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 16:14 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 16:17 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 16:09 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 16:21 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 16:15 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 16:34 - [7款商保创新药“转道”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 16:12 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 16:24 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 16:24 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 16:15 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 16:16 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 16:29 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 16:29 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 16:26 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 16:14 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 16:07 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 16:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:22 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/3655764.shtml)
-- 2026-06-29 16:03 - [T1 KC](https://www.share.kurohicncr.top/Article/details/2485717.shtml)
-- 2026-06-29 16:15 - [起风了](http://www.blog.minike.top/Article/details/451303.shtml)
-- 2026-06-29 16:20 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/56095.shtml)
-- 2026-06-29 16:03 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/27770348.shtml)
-- 2026-06-29 16:20 - [中国战机大片上新](http://www.blog.minike.top/Article/details/440374.shtml)
-- 2026-06-29 16:29 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/56412.shtml)
-- 2026-06-29 16:03 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/089959.shtml)
-- 2026-06-29 16:28 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/1743310.shtml)
-- 2026-06-29 16:05 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.minike.top/Article/details/472324125.shtml)
-- 2026-06-29 16:14 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/875567864110.shtml)
-- 2026-06-29 16:20 - [女心理师](http://www.blog.minike.top/Article/details/38116341869.shtml)
-- 2026-06-29 16:20 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/913567.shtml)
-- 2026-06-29 16:28 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/442722554452.shtml)
-- 2026-06-29 16:12 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/695348575789.shtml)
+- 2026-06-29 16:14 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/99485.shtml)
+- 2026-06-29 16:28 - [20年前的周杰伦](http://www.blog.kurohicncr.top/Article/details/2144580.shtml)
+- 2026-06-29 16:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/81042010680.shtml)
+- 2026-06-29 16:11 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/2834030889.shtml)
+- 2026-06-29 16:18 - [第一炉香](http://www.share.minike.top/Article/details/0159803029.shtml)
+- 2026-06-29 16:16 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/95825578.shtml)
+- 2026-06-29 16:33 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/955886.shtml)
+- 2026-06-29 16:24 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/5925408320.shtml)
+- 2026-06-29 16:16 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/1827909.shtml)
+- 2026-06-29 16:23 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/93004849.shtml)
+- 2026-06-29 16:33 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/18023553276.shtml)
+- 2026-06-29 16:16 - [我和我的家乡](http://www.blog.minike.top/Article/details/65870080.shtml)
+- 2026-06-29 16:35 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/59375.shtml)
+- 2026-06-29 16:14 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/46520136057.shtml)
+- 2026-06-29 16:17 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/953479168.shtml)

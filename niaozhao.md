@@ -1,49 +1,58 @@
-# *ST声迅（003004）：中标绍兴京越地铁有限公司采购项目，中标金额为390.00万元
+# 招转培、培训贷……@找工作的你，遇到这些求职陷阱请绕行
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-同壁财经讯，企查查数据显示，根据《绍兴市城市轨道交通1号线工程运营2025年安检机功能模块采购项目（重新招标）中标结果公示》，北京声迅电子股份有限公司于2026年4月9日公告中标绍兴京越地铁有限公司采购项目，中标金额为390.00万元。相关上市公司：*ST声迅（维权）(003004.SZ)同壁财经小贴士：*ST声迅（003004.SZ）2024年营业收入为3.02亿元，营业收入
+招转培、培训贷、保录直签、强制注册个体户…… @找工作的你，遇到这些求职陷阱请绕行 就业是最基本的民生，关乎职工群众切身利益。近期，一些不法分子以招聘为幌子，诱导求职者办理“培训贷”，打着“保录直签”旗号骗取财物，通过模糊用工形式等隐蔽手段规避用工责任。 眼下，清理整顿人力资源市场秩序专项行动正在开展，各地人社部门会同网信、教育、公安等部门汇总梳理了一批2025年以来查处的侵害
 
 ## 正文
 
-同壁财经讯，企查查数据显示，根据《绍兴市城市轨道交通1号线工程运营2025年安检机功能模块采购项目（重新招标）中标结果公示》，北京声迅电子股份有限公司于2026年4月9日公告中标绍兴京越地铁有限公司采购项目，中标金额为390.00万元。
+招转培、培训贷、保录直签、强制注册个体户…… @找工作的你，遇到这些求职陷阱请绕行 就业是最基本的民生，关乎职工群众切身利益。
 
-相关上市公司：*ST声迅（维权）(003004.SZ)同壁财经小贴士：*ST声迅（003004.SZ）2024年营业收入为3.02亿元，营业收入增长率为7.85%，归属母公司净利润为-0.51亿元，归属母公司净利润增长率为-304.23%，净资产收益率为-6.58%。
+近期，一些不法分子以招聘为幌子，诱导求职者办理“培训贷”，打着“保录直签”旗号骗取财物，通过模糊用工形式等隐蔽手段规避用工责任。
 
-2025年上半年公司营业收入为0.73亿元，营业收入增长率为27.51%，归属母公司净利润为-0.10亿元，归属母公司净利润增长率为58.50%。
+眼下，清理整顿人力资源市场秩序专项行动正在开展，各地人社部门会同网信、教育、公安等部门汇总梳理了一批2025年以来查处的侵害劳动者就业权益典型案例，提醒求职者提高警惕，防范各类求职陷阱。
 
-目前公司属于信息技术行业，主要产品类型为监控器材及系统，2024年报主营构成为监控报警系统:47.26%;安检系统:25.61%;监控报警服务:14.48%;安检服务:11.84%;其他业务:0.82%。
+有求职者“未挣钱先负债” “零门槛、高薪资、面试即入职”——这类招聘广告，正成为不法分子实施“招转培”诈骗的诱饵。
+
+2025年9月，求职者古某通过北京某传媒科技有限公司运营助理岗的面试后，公司口头承诺月薪8000元，但未签订书面劳动合同。
+
+随后，公司以入职实训为由，诱导古某签订协议并收取费用1.88万元。
+
+因古某无力支付，公司便诱导其在某小贷平台办理分期贷款，每月还款1777元。
+
+古某因无力偿还贷款发帖求助，监测到相关舆情后，北京市朝阳区有关部门展开联合处置，责令该单位停止相关业务，解除古某贷款并退还所收费用。
 
 ## 相关推荐
 
-- 2026-06-29 16:17 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 16:18 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 16:08 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 16:03 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 16:14 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 16:28 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 16:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 16:10 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 16:05 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 16:01 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 16:01 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 16:07 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 16:06 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 16:29 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 16:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 16:09 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 16:14 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 16:21 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-29 16:19 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 16:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 16:08 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 16:11 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 16:19 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:10 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/29101893666.shtml)
-- 2026-06-29 16:09 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/41825.shtml)
-- 2026-06-29 16:23 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/53038642837.shtml)
-- 2026-06-29 16:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/908090.shtml)
-- 2026-06-29 16:19 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/49073691358.shtml)
-- 2026-06-29 16:26 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/100489929747.shtml)
-- 2026-06-29 16:12 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/284195915312.shtml)
-- 2026-06-29 16:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/95870898.shtml)
-- 2026-06-29 16:18 - [评论员：日菲勾连各有盘算](https://www.blog.kurohicncr.top/Article/details/039689277.shtml)
-- 2026-06-29 16:10 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/9643712.shtml)
-- 2026-06-29 16:16 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/7129817.shtml)
-- 2026-06-29 16:28 - [周生如故](http://www.blog.minike.top/Article/details/2576179035.shtml)
-- 2026-06-29 16:29 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.minike.top/Article/details/9000500742.shtml)
-- 2026-06-29 16:27 - [恋与深空 731](http://www.blog.minike.top/Article/details/4987844300.shtml)
-- 2026-06-29 16:14 - [沙丘](http://www.share.kurohicncr.top/Article/details/74435654532.shtml)
+- 2026-06-29 16:21 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/31499.shtml)
+- 2026-06-29 16:10 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/62696686896.shtml)
+- 2026-06-29 16:14 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/837881239.shtml)
+- 2026-06-29 16:33 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/067856691.shtml)
+- 2026-06-29 16:23 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/69210.shtml)
+- 2026-06-29 16:07 - [千与千寻](https://www.blog.minike.top/Article/details/630187.shtml)
+- 2026-06-29 16:27 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/3253544.shtml)
+- 2026-06-29 16:15 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/1068875915.shtml)
+- 2026-06-29 16:13 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/5612291969.shtml)
+- 2026-06-29 16:07 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/44898330.shtml)
+- 2026-06-29 16:17 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/16365.shtml)
+- 2026-06-29 16:23 - [世界杯上那些封神的门将](http://www.blog.minike.top/Article/details/04154.shtml)
+- 2026-06-29 16:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/756561.shtml)
+- 2026-06-29 16:08 - [起风了](http://www.share.minike.top/Article/details/739883493835.shtml)
+- 2026-06-29 16:20 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/558569947791.shtml)

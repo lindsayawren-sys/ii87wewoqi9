@@ -1,60 +1,56 @@
-# 贝莱德的Jewell表示市场对美股的盈利预期过于乐观
+# 吃喝板块加速回调，华宝基金食品饮料ETF（515710）跌0.78%！机构喊话：龙头公司低基数下或迎触底回升
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-贝莱德的Helen Jewell表示，由于中东战争带来的通胀影响，市场需要下调对企业盈利的预期。 “如果你看看目前对今年盈利的预测，它们仍然处于相当高的两位数区间——15%、16%、17%、18%——因此有相当大的下降一点的空间，”在全球最大资产管理公司贝莱德担任基本面股票国际首席投资官的Jewell在接受采访时说。 她表示，市场对消费行业盈利持稳的预测“很难站得住脚，尤其是如
+吃喝板块今日（5月22日）继续回调。反映吃喝板块整体走势的食品饮料ETF华宝（515710）开盘后震荡走弱，截至发稿，场内价格跌0.78%。 成份股方面，白酒跌幅居前。截至发稿，酒鬼酒、金种子酒、水井坊跌超3%，今世缘、老白干酒、金徽酒等多股跌超2%，拖累板块走势。 有分析认为，白酒行业目前仍处于深度调整期，酒企更加理性务实，茅五以价换量，行业分化加剧，呈现头部化、C端化、低度
 
 ## 正文
 
-贝莱德的Helen Jewell表示，由于中东战争带来的通胀影响，市场需要下调对企业盈利的预期。
+吃喝板块今日（5月22日）继续回调。
 
-“如果你看看目前对今年盈利的预测，它们仍然处于相当高的两位数区间——15%、16%、17%、18%——因此有相当大的下降一点的空间，”在全球最大资产管理公司贝莱德担任基本面股票国际首席投资官的Jewell在接受采访时说。
+反映吃喝板块整体走势的食品饮料ETF华宝（515710）开盘后震荡走弱，截至发稿，场内价格跌0.78%。
 
-她表示，市场对消费行业盈利持稳的预测“很难站得住脚，尤其是如果你考虑到利率以及我们在中东看到的局势所带来的通胀影响”。
+成份股方面，白酒跌幅居前。
 
-一些乐观盈利预期发生变化的早期迹象已经出现。
+截至发稿，酒鬼酒、金种子酒、水井坊跌超3%，今世缘、老白干酒、金徽酒等多股跌超2%，拖累板块走势。
 
-在经历数周分析师上调预期后，花旗集团的美国盈利动能指数上周五转为负，下调预期超过上调预期的幅度创接近一年来最大。
+有分析认为，白酒行业目前仍处于深度调整期，酒企更加理性务实，茅五以价换量，行业分化加剧，呈现头部化、C端化、低度化趋势；预计2026年上半年需求端冰点已过，库存、报表端仍待出清，2026年下半年低基数下有望迎来边际改善。
 
-即便如此，在不确定性高企且价格压力可能飙升之际，分析师的预期仍然保持在高位。
+禁酒令带来短期消费场景受限，预计2026年二季度至三季度龙头公司或将在低基数下迎来触底回升。
 
-根据行业研究汇编的数据，市场对标普500指数成分股今年每股收益增幅的普遍预期为16%，这将是自2021年以来最强劲的表现。
+从估值方面来看，吃喝板块当前仍处估值低位。
 
-第一季度财报季将于下周正式拉开帷幕，届时摩根大通将于周二公布业绩。
+数据显示，截至昨日（5月21日）收盘，食品饮料ETF华宝（515710）标的指数细分食品指数市盈率为21.08倍，位于近10年来15.88%分位点的低位，中长期配置性价比凸显。
 
 ## 相关推荐
 
-- 2026-06-29 16:19 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 16:09 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 16:19 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 16:19 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 16:05 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 16:05 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 16:25 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 16:03 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 16:12 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 16:20 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 16:06 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 16:29 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 16:06 - [抓特务票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 16:14 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 16:27 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 16:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 16:22 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 16:07 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 16:17 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 16:10 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 16:14 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 16:17 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 16:26 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 16:17 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:03 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/73549.shtml)
-- 2026-06-29 16:21 - [我国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/24378792.shtml)
-- 2026-06-29 16:15 - [媒体：中国田径压力与期待并存](https://www.blog.kurohicncr.top/Article/details/678346096165.shtml)
-- 2026-06-29 16:23 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/0400092.shtml)
-- 2026-06-29 16:11 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/34448692629.shtml)
-- 2026-06-29 16:04 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/04069142.shtml)
-- 2026-06-29 16:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/76479915.shtml)
-- 2026-06-29 16:10 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/49048059.shtml)
-- 2026-06-29 16:22 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.kurohicncr.top/Article/details/882672175580.shtml)
-- 2026-06-29 16:20 - [起风了](https://www.blog.minike.top/Article/details/173690026.shtml)
-- 2026-06-29 16:08 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.minike.top/Article/details/4071531.shtml)
-- 2026-06-29 16:27 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/8246325797.shtml)
-- 2026-06-29 16:21 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/37111784800.shtml)
-- 2026-06-29 16:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/3921229907.shtml)
-- 2026-06-29 16:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/01363510303.shtml)
+- 2026-06-29 16:20 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/06310971548.shtml)
+- 2026-06-29 16:15 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/485978.shtml)
+- 2026-06-29 16:26 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/07240179.shtml)
+- 2026-06-29 16:28 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/5553615.shtml)
+- 2026-06-29 16:32 - [爱很美味](https://www.share.kurohicncr.top/Article/details/95306193.shtml)
+- 2026-06-29 16:07 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/628079326.shtml)
+- 2026-06-29 16:10 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/73562176.shtml)
+- 2026-06-29 16:23 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/769102366.shtml)
+- 2026-06-29 16:13 - [男孩复读一年减重20斤涨分111分](http://www.blog.minike.top/Article/details/1423355211.shtml)
+- 2026-06-29 16:35 - [世界杯上那些封神的门将](https://www.blog.minike.top/Article/details/475830.shtml)
+- 2026-06-29 16:34 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/8088242955.shtml)
+- 2026-06-29 16:33 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/371508.shtml)
+- 2026-06-29 16:26 - [苹果回应恋与深空低分](https://www.share.kurohicncr.top/Article/details/1255424187.shtml)
+- 2026-06-29 16:29 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/09465.shtml)
+- 2026-06-29 16:24 - [端午节加班工资应该怎么算](http://www.share.kurohicncr.top/Article/details/081243581816.shtml)

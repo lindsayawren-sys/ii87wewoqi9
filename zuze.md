@@ -1,61 +1,52 @@
-# 金观平：投资于人不是“政绩秀”
+# 原安徽省民族事务委员会党组成员、副主任邵郁被开除党籍
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-育儿补贴加力提效、城乡居民基础养老金标准继续提高、长护险从试点阶段迈向全面建制阶段、职称评审迎来重大调整……在当前的发展任务清单上，群众关心的领域就是政策发力的方向，成为“投资于人”的生动注脚。谈到投资，以前多见的是“投资于物”，修路架桥、盖楼建厂、更新设备，效果立竿见影，极大助力了我国经济快速发展。步入高质量发展阶段，随着人口结构变化、外部环境趋紧，物质资本投入的边际效益递减
+中新网合肥5月22日电 日前，经中共安徽省委批准，安徽省纪委监委对原安徽省民族事务委员会党组成员、副主任邵郁严重违纪违法问题进行了立案审查调查。 经查，邵郁丧失理想信念，背弃初心使命，对党不忠诚、不老实，对抗组织审查；违反中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡，违规接受旅游活动安排，违规借用管理和服务对象车辆；违背组织原则，在组织函询时不如实说明问题；廉
 
 ## 正文
 
-育儿补贴加力提效、城乡居民基础养老金标准继续提高、长护险从试点阶段迈向全面建制阶段、职称评审迎来重大调整……在当前的发展任务清单上，群众关心的领域就是政策发力的方向，成为“投资于人”的生动注脚。
+中新网合肥5月22日电 日前，经中共安徽省委批准，安徽省纪委监委对原安徽省民族事务委员会党组成员、副主任邵郁严重违纪违法问题进行了立案审查调查。
 
-谈到投资，以前多见的是“投资于物”，修路架桥、盖楼建厂、更新设备，效果立竿见影，极大助力了我国经济快速发展。
+经查，邵郁丧失理想信念，背弃初心使命，对党不忠诚、不老实，对抗组织审查；违反中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡，违规接受旅游活动安排，违规借用管理和服务对象车辆；违背组织原则，在组织函询时不如实说明问题；廉洁底线失守，将本人费用交由他人支付；利用职务便利为他人在项目承揽、融资贷款等方面谋利，并非法收受巨额财物。
 
-步入高质量发展阶段，随着人口结构变化、外部环境趋紧，物质资本投入的边际效益递减，发展动能更多依赖于创新驱动、效率提升和产业竞争。
+邵郁严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-这一切的核心支撑在于“人”。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经安徽省纪委常委会会议研究并报省委批准，决定给予邵郁开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
-“十四五”以来，我国民生领域支出持续增长，正是为了将人力资源转化为可持续增值的人力资本，将人口红利转化为人才红利。
-
-从偏向于“投资于物”，转向“投资于物”和“投资于人”紧密结合，不是账本科目的微调，而是发展动能与发展逻辑的重构。
-
-其核心在于全生命周期的人力资本培育——从教育筑基、医疗护航到养老托底，无论哪一项都是慢变量，都需要系统性投入。
-
-这绝非简单的民生保障，而是关乎国家竞争力、社会凝聚力与发展可持续性的战略抉择。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:00 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 16:29 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 16:21 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 16:10 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 16:12 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 16:17 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 16:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 16:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 16:00 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 16:13 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 16:14 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 16:06 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 16:28 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 16:12 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 16:10 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 16:24 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 16:08 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 16:18 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 16:12 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 16:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 16:34 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 16:31 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 16:25 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 16:34 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 16:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 16:25 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 16:08 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:15 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/7970826678.shtml)
-- 2026-06-29 16:24 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/17051031998.shtml)
-- 2026-06-29 16:00 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/143165988.shtml)
-- 2026-06-29 16:00 - [勇敢的心第二部](https://www.share.minike.top/Article/details/26199429.shtml)
-- 2026-06-29 16:19 - [爱很美味](https://www.blog.minike.top/Article/details/22075598.shtml)
-- 2026-06-29 16:29 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/20475.shtml)
-- 2026-06-29 16:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/1585867.shtml)
-- 2026-06-29 16:28 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/81223314.shtml)
-- 2026-06-29 16:11 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/959867556.shtml)
-- 2026-06-29 16:25 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/403772.shtml)
-- 2026-06-29 16:25 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/82429568.shtml)
-- 2026-06-29 16:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/1804137.shtml)
-- 2026-06-29 16:18 - [请回答王牌2019](http://www.share.minike.top/Article/details/164196471118.shtml)
-- 2026-06-29 16:06 - [当我回母校教书](https://www.blog.minike.top/Article/details/957137166448.shtml)
-- 2026-06-29 16:04 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/79557650.shtml)
+- 2026-06-29 16:14 - [T1零封KC MSI](http://www.share.minike.top/Article/details/32979.shtml)
+- 2026-06-29 16:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/96135902880.shtml)
+- 2026-06-29 16:31 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/673378840.shtml)
+- 2026-06-29 16:33 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/772882882.shtml)
+- 2026-06-29 16:12 - [普京介绍前线战事](http://www.share.kurohicncr.top/Article/details/6431042384.shtml)
+- 2026-06-29 16:14 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/0445200501.shtml)
+- 2026-06-29 16:13 - [第一炉香](http://www.share.kurohicncr.top/Article/details/524006.shtml)
+- 2026-06-29 16:16 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/994846556899.shtml)
+- 2026-06-29 16:15 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/271868607.shtml)
+- 2026-06-29 16:30 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/52883692739.shtml)
+- 2026-06-29 16:34 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/33780724098.shtml)
+- 2026-06-29 16:06 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/43935594092.shtml)
+- 2026-06-29 16:28 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/881039376854.shtml)
+- 2026-06-29 16:11 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/57193511.shtml)
+- 2026-06-29 16:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/80481.shtml)

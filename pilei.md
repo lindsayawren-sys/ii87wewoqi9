@@ -1,61 +1,58 @@
-# 卓驭科技CEO沈劭劼：未来两年，全球辅助驾驶行业将全面拥抱基础模型
+# 多名借地震灾情造谣传谣者已被广西柳州警方查处
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 卓驭科技CEO沈劭劼判断：未来两年，全球辅助驾驶行业将会告别分垂类、分地域的单一功能交付时代，全面拥抱基础模型。 他表示再补充一个判断：自动驾驶其实只是物理AI的最初形态，绝非终局。甚至往后
+自5月17日以来，广西柳州连续发生多次地震之后，一些涉及预警、灾情等的谣言也出现在网络上。目前，柳州警方已对30起造谣传谣情况依法处置，多名造谣传谣者已被警方依法查处。 广西地震局最新官方通报？谣言！ 经公安机关调查，微信网民“刘某某”是谣言的首发者。 据刘某某交代，其看到地震后群组成员都在讨论，便在手机上询问AI软件与地震相关的问题，并将AI生成的文字转发到群里继续讨论，导致
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+自5月17日以来，广西柳州连续发生多次地震之后，一些涉及预警、灾情等的谣言也出现在网络上。
 
-卓驭科技CEO沈劭劼判断：未来两年，全球辅助驾驶行业将会告别分垂类、分地域的单一功能交付时代，全面拥抱基础模型。
+目前，柳州警方已对30起造谣传谣情况依法处置，多名造谣传谣者已被警方依法查处。
 
-他表示再补充一个判断：自动驾驶其实只是物理AI的最初形态，绝非终局。
+广西地震局最新官方通报？
 
-甚至往后，像我们这样未来能够存活下来的智能驾驶公司，都将转型为移动物理AI公司。
+谣言！
 
-“我想说，这并不是一个战略判断，而更像是一个生存判断。
+经公安机关调查，微信网民“刘某某”是谣言的首发者。
 
-现在模型越来越强大、越来越大，训练费用也越来越高。
+据刘某某交代，其看到地震后群组成员都在讨论，便在手机上询问AI软件与地震相关的问题，并将AI生成的文字转发到群里继续讨论，导致不实信息被大量转发。
 
-但与此同时，这样的模型也具备了跨垂类应用能力，能够分担成本，我们没有理由不这么做。
+目前，公安机关对刘某某依法处以行政拘留处罚。
 
-”他说。
+发布被困废墟下视频？
 
 ## 相关推荐
 
-- 2026-06-29 16:11 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 16:06 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 16:17 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 16:18 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 16:26 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 16:26 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 16:07 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 16:23 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 16:04 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 16:29 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 16:18 - [光与夜之恋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 16:06 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 16:12 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 16:04 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 16:22 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 16:13 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 16:07 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 16:32 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 16:18 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 16:16 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 16:15 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 16:25 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 16:13 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 16:11 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 16:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 16:21 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 16:32 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:19 - [人形机器人](http://www.share.kurohicncr.top/Article/details/450229202.shtml)
-- 2026-06-29 16:27 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/57656920.shtml)
-- 2026-06-29 16:13 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/65304827.shtml)
-- 2026-06-29 16:24 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/32214970022.shtml)
-- 2026-06-29 16:17 - [爸爸当家](http://www.share.minike.top/Article/details/401787972.shtml)
-- 2026-06-29 16:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/258309.shtml)
-- 2026-06-29 16:24 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/181828547.shtml)
-- 2026-06-29 16:01 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/832509933740.shtml)
-- 2026-06-29 16:21 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/32266178728.shtml)
-- 2026-06-29 16:23 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/7679620866.shtml)
-- 2026-06-29 16:09 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/95186400042.shtml)
-- 2026-06-29 16:28 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/197354225004.shtml)
-- 2026-06-29 16:04 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.kurohicncr.top/Article/details/012426266368.shtml)
-- 2026-06-29 16:13 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/5861279318.shtml)
-- 2026-06-29 16:08 - [中国战机大片上新](https://www.share.minike.top/Article/details/45425.shtml)
+- 2026-06-29 16:07 - [T1零封KC MSI](https://www.share.minike.top/Article/details/44619738.shtml)
+- 2026-06-29 16:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/7234542973.shtml)
+- 2026-06-29 16:14 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/53723356.shtml)
+- 2026-06-29 16:14 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/002847.shtml)
+- 2026-06-29 16:07 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.minike.top/Article/details/44377641958.shtml)
+- 2026-06-29 16:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/590827.shtml)
+- 2026-06-29 16:30 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/6297815115.shtml)
+- 2026-06-29 16:30 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/467669132638.shtml)
+- 2026-06-29 16:23 - [20年前的周杰伦](http://www.share.kurohicncr.top/Article/details/105321.shtml)
+- 2026-06-29 16:24 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/134397205968.shtml)
+- 2026-06-29 16:27 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/536722598.shtml)
+- 2026-06-29 16:25 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/986823385880.shtml)
+- 2026-06-29 16:29 - [我国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/7942755.shtml)
+- 2026-06-29 16:18 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/798644.shtml)
+- 2026-06-29 16:23 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/2782988470.shtml)

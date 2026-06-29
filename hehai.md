@@ -1,57 +1,57 @@
-# 欧盟拟将ChatGPT纳入《数字服务法案》严格监管
+# “脂包骨”看似柔弱其实暗藏风险 专家建议
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-据德国《商报》4月10日援引欧盟委员会消息人士报道，欧盟委员会计划将OpenAI及其聊天机器人ChatGPT纳入《数字服务法案》的管辖范围，并将其归类为“超大型在线搜索引擎”，从而面临更严格的监管。 监管门槛：用户数量远超阈值 《数字服务法案》是欧盟针对大型互联网平台的一项重要法规，旨在确保平台更快删除非法内容、方便用户举报此类内容，并加强对青少年的保护。 该法案对“超大型在线
+“脂包骨”看似柔弱其实暗藏风险 专家称肌肉少脂肪多易出现脂肪肝、高脂血症等病 “摸着软软糯糯，捏一捏晃一晃还像水一样会流动”。这不是在形容甜品，而是一种身材。记者注意到，这种明明体重秤上的数字不算高，整个人“又软又纤细”却缺乏线条感的体型，如今被网友形象地称为“脂包骨”。有人觉得它“像棉花糖一样可爱”，也有人觉得这种畸形审美其实是“最差体质”。事实究竟如何？ “脂包骨”其实是一
 
 ## 正文
 
-据德国《商报》4月10日援引欧盟委员会消息人士报道，欧盟委员会计划将OpenAI及其聊天机器人ChatGPT纳入《数字服务法案》的管辖范围，并将其归类为“超大型在线搜索引擎”，从而面临更严格的监管。
+“脂包骨”看似柔弱其实暗藏风险 专家称肌肉少脂肪多易出现脂肪肝、高脂血症等病 “摸着软软糯糯，捏一捏晃一晃还像水一样会流动”。
 
-监管门槛：用户数量远超阈值 《数字服务法案》是欧盟针对大型互联网平台的一项重要法规，旨在确保平台更快删除非法内容、方便用户举报此类内容，并加强对青少年的保护。
+这不是在形容甜品，而是一种身材。
 
-该法案对“超大型在线平台”或“超大型在线搜索引擎”设定了额外的合规要求，其认定门槛为在欧盟境内月活跃用户超过4500万。
+记者注意到，这种明明体重秤上的数字不算高，整个人“又软又纤细”却缺乏线条感的体型，如今被网友形象地称为“脂包骨”。
 
-OpenAI此前公布的数据显示，截至2025年9月底的六个月内，ChatGPT搜索功能在欧盟的平均月活跃用户约为1.204亿，远超监管门槛。
+有人觉得它“像棉花糖一样可爱”，也有人觉得这种畸形审美其实是“最差体质”。
 
-正是基于这一数据，欧盟委员会正在推进将其纳入严格监管框架的进程。
+事实究竟如何？
 
-监管程序：正在进行最终评估 报道称，欧盟委员会发言人告诉《商报》，目前正在审查可用的用户数据。
+“脂包骨”其实是一种肌肉“缺席”南京鼓楼医院临床营养科临床营养师李相睿告诉记者，所谓“脂包骨”，并不是正式的医学诊断，是一种肌肉量不足，虽然体重可能在正常范围内，但脂肪含量偏高的体型状态，与肌少症风险高度相关。
 
-根据欧盟委员会此前在2月份的声明，关于ChatGPT是否被指定的最终决定预计将在2026年第一季度作出。
+记者了解到，正常情况下，肌肉附着于骨骼之上，是人体活动的动力系统，而脂肪则包裹在肌肉表面和内脏间隙。
 
-欧盟委员会技术主权专员 Henna Virkkunen 曾表示，指定的过程不仅依赖于对服务功能的定量和定性评估，还会参考成员国立场的协商结果。
+然而，多种不良生活方式会打破这一平衡：长期缺乏力量训练会导致肌肉逐渐流失；盲目节食减肥(少食或高糖高碳饮食，只追求体重下降而忽视营养均衡)也会使肌肉难以维持；久坐不动的办公族和学生党，因活动量少、不晒太阳，容易出现缺钙、缺维生素D，间接影响肌肉和骨骼健康；此外，睡眠不足与高压状态还会干扰激素分泌，不利于肌肉合成。
 
 ## 相关推荐
 
-- 2026-06-29 16:01 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 16:11 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 16:16 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 16:10 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 16:22 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 16:19 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 16:00 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 16:11 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 16:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 16:25 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 16:19 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 16:27 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 16:13 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 16:32 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 16:09 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 16:20 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 16:14 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 16:17 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 16:32 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 16:35 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 16:18 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 16:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:08 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/096082502190.shtml)
-- 2026-06-29 16:15 - [周生如故](https://www.share.minike.top/Article/details/153335383149.shtml)
-- 2026-06-29 16:20 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/1640376.shtml)
-- 2026-06-29 16:29 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/871023817.shtml)
-- 2026-06-29 16:19 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/00829719190.shtml)
-- 2026-06-29 16:02 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/4417099407.shtml)
-- 2026-06-29 16:09 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/319809855645.shtml)
-- 2026-06-29 16:21 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/142313695731.shtml)
-- 2026-06-29 16:22 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/73824.shtml)
-- 2026-06-29 16:09 - [女心理师](http://www.blog.minike.top/Article/details/31420161.shtml)
-- 2026-06-29 16:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/75346685951.shtml)
-- 2026-06-29 16:21 - [青春环游记第三季](http://www.blog.minike.top/Article/details/56511068547.shtml)
-- 2026-06-29 16:20 - [世界杯超牛补水广告出现了](http://www.share.kurohicncr.top/Article/details/0386622601.shtml)
-- 2026-06-29 16:22 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/59359.shtml)
-- 2026-06-29 16:19 - [未成年少女长期吸毒导致卧床不起](http://www.blog.minike.top/Article/details/289456253.shtml)
+- 2026-06-29 16:27 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/235756427.shtml)
+- 2026-06-29 16:21 - [我国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/53163406.shtml)
+- 2026-06-29 16:12 - [苹果回应恋与深空低分](https://www.share.kurohicncr.top/Article/details/251891.shtml)
+- 2026-06-29 16:34 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/061077.shtml)
+- 2026-06-29 16:11 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/397364137.shtml)
+- 2026-06-29 16:18 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/24283.shtml)
+- 2026-06-29 16:24 - [极限挑战第一季](http://www.share.minike.top/Article/details/85506.shtml)
+- 2026-06-29 16:31 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/3859924576.shtml)
+- 2026-06-29 16:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/5443984835.shtml)
+- 2026-06-29 16:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/4598264541.shtml)
+- 2026-06-29 16:25 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/10562404844.shtml)
+- 2026-06-29 16:23 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/0120889325.shtml)
+- 2026-06-29 16:28 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/90204.shtml)
+- 2026-06-29 16:23 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/402377388195.shtml)
+- 2026-06-29 16:27 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/47880690241.shtml)

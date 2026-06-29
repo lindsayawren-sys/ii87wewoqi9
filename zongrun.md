@@ -1,57 +1,58 @@
-# “村麦争霸2026”海选开唱 打造广西“三月三”民间歌手大舞台
+# 葫芦娃信披违法预处罚落地 受损投资者可预登记索赔
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新网崇左4月11日电 (记者 杨陈)4月10日晚，广西崇左太平古城灯火璀璨，歌声飞扬。作为2026年“广西三月三·八桂嘉年华”的重点项目之一，“村麦争霸2026”首场海选在此火热开唱，为广西民间歌手搭建起一个零门槛、全民参与的“大舞台”。 本届赛事由广西壮族自治区党委宣传部主办、广西广播电视台承办，旨在填补广西乡村音乐赛事空白。赛事紧扣“新时代村歌”核心，打破专业门槛，不限演
+登录新浪财经APP 搜索【信披】查看更多考评等级 根据最新消息，海南葫芦娃药业集团股份有限公司（以下简称“葫芦娃”）因信披违法违规，收到海南证监局下发的行政处罚事先告知书，上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2024年8月29日—2025年4月22日期间买入且有持仓，无论在2025年4月23日及之后是否卖出的投资者，可通过“新浪
 
 ## 正文
 
-中新网崇左4月11日电 (记者 杨陈)4月10日晚，广西崇左太平古城灯火璀璨，歌声飞扬。
+登录新浪财经APP 搜索【信披】查看更多考评等级 根据最新消息，海南葫芦娃药业集团股份有限公司（以下简称“葫芦娃”）因信披违法违规，收到海南证监局下发的行政处罚事先告知书，上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2024年8月29日—2025年4月22日期间买入且有持仓，无论在2025年4月23日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。
 
-作为2026年“广西三月三·八桂嘉年华”的重点项目之一，“村麦争霸2026”首场海选在此火热开唱，为广西民间歌手搭建起一个零门槛、全民参与的“大舞台”。
+（赵敬国律师专栏） 回顾本案，2025年12月26日葫芦娃收到中国证监会下发的《立案告知书》，因公司及董事长刘景萍女士涉嫌信息披露违法违规，中国证监会决定对其立案。
 
-本届赛事由广西壮族自治区党委宣传部主办、广西广播电视台承办，旨在填补广西乡村音乐赛事空白。
+2026年5月20日，葫芦娃及相关人员收到海南证监局下发的《行政处罚事先告知书》。
 
-赛事紧扣“新时代村歌”核心，打破专业门槛，不限演唱风格，原生态山歌、流行音乐、摇滚、说唱、原创村歌均可登台，让散落在田间地头的天籁之音通过全网直播走向更广阔舞台。
+告知书显示：经查明，ST葫芦娃（维权）2023年年度报告、2024年半年度报告及《募集说明书》存在虚假记载。
 
-当晚，来自广西各地的12组民间歌手轮番登台，用质朴而真挚的歌声点燃古城春夜，也开启了这场属于广西人的音乐版“村BA”。
+信本股民索赔团队提醒，葫芦娃预处罚落地，因此受损投资者可通过“新浪股民维权平台”自愿预登记索赔。
 
-海选全程采用网友实时投票赛制，历经五轮激烈比拼，来自广西梧州的选手龙桢凭借稳定发挥摘得本场冠军，来自广西百色的绿水母乐队获得亚军，来自广西南宁上林的农村二表哥斩获季军。
+索赔条件： 葫芦娃：于2024年8月29日—2025年4月22日期间买入且有持仓，无论在2025年4月23日及之后是否卖出（具体赔付范围由法院确定）（葫芦娃维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
 
-三强选手成功晋级总决赛，来自南宁的蔡孟耘通过评审推荐进入决赛舞台，其他优秀选手也将有机会通过人气复活通道继续冲击决赛舞台。
+赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
 
-据悉，自3月27日启动以来，“村麦争霸2026”得到了广西各地音乐爱好者的热烈响应，累计上百位来自各行各业的民间麦霸报名参与。
+2004年起开始律师执业，承办过千余起各类诉讼案件，积累了十分丰富的争议处理经验，尤其擅长处理证券纠纷、金融、不良资产等方面的业务。
 
 ## 相关推荐
 
-- 2026-06-29 16:15 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 16:24 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 16:00 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 16:19 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 16:21 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 16:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 16:04 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 16:08 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 16:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 16:20 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 16:26 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 16:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 16:08 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 16:33 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 16:12 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 16:11 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 16:33 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 16:15 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 16:08 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 16:25 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 16:20 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 16:10 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 16:22 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:23 - [差点没看懂白鹿丞磊这段意识流](http://www.share.kurohicncr.top/Article/details/390865384056.shtml)
-- 2026-06-29 16:28 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/43968528342.shtml)
-- 2026-06-29 16:02 - [当我回母校教书](https://www.share.minike.top/Article/details/504733280558.shtml)
-- 2026-06-29 16:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/5080275613.shtml)
-- 2026-06-29 16:21 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/17870.shtml)
-- 2026-06-29 16:00 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/236010866596.shtml)
-- 2026-06-29 16:29 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/23438507451.shtml)
-- 2026-06-29 16:17 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.minike.top/Article/details/93406580.shtml)
-- 2026-06-29 16:19 - [端午节加班工资应该怎么算](http://www.blog.kurohicncr.top/Article/details/21647.shtml)
-- 2026-06-29 16:11 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/86838448.shtml)
-- 2026-06-29 16:00 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/6662359.shtml)
-- 2026-06-29 16:13 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/697951216966.shtml)
-- 2026-06-29 16:24 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/63761630.shtml)
-- 2026-06-29 16:10 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/9109039.shtml)
-- 2026-06-29 16:12 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/9389499.shtml)
+- 2026-06-29 16:08 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/666986369.shtml)
+- 2026-06-29 16:23 - [当我回母校教书](https://www.share.minike.top/Article/details/702264976.shtml)
+- 2026-06-29 16:21 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/17636.shtml)
+- 2026-06-29 16:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/0233711849.shtml)
+- 2026-06-29 16:34 - [国家体育总局政策法规司原副司长获刑](http://www.blog.minike.top/Article/details/92895912.shtml)
+- 2026-06-29 16:25 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/83969795951.shtml)
+- 2026-06-29 16:33 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/21282752.shtml)
+- 2026-06-29 16:21 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/1935136.shtml)
+- 2026-06-29 16:20 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/7596742.shtml)
+- 2026-06-29 16:12 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/867141586106.shtml)
+- 2026-06-29 16:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/6191964437.shtml)
+- 2026-06-29 16:15 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/898134763470.shtml)
+- 2026-06-29 16:24 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/0241552886.shtml)
+- 2026-06-29 16:27 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/36193780.shtml)
+- 2026-06-29 16:22 - [AG 宫斗](https://www.blog.minike.top/Article/details/072464.shtml)

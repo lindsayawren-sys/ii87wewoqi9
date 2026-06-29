@@ -1,48 +1,57 @@
-# 特朗普称伊朗在允许石油通过霍尔木兹海峡一事上表现糟糕
+# 英媒：中国工厂正在成为全球电动汽车制造基地
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普在Truth Social上发帖称，“伊朗在允许石油通过霍尔木兹海峡方面做得非常糟糕，有些人甚至会说很不光彩。” 特朗普：“这不是我们之间的协议。” 注：特朗普看好达成协议 但就霍尔木兹海峡过路费施压伊朗。责任编辑：陈钰嘉
+全球媒体聚焦︱英媒：中国工厂正在成为全球电动汽车制造基地 5月22日，英国《金融时报》刊文称，在成本高昂的电动车转型浪潮中苦苦挣扎求存的国际汽车制造商，正纷纷将技术先进、成本更低的中国工厂作为自身全球业务的生产基地。 文章介绍说，欧洲一家知名汽车制造集团正与中国的一家车企进行合作，计划为中国、中东和东南亚的消费者打造一款全新的电动轻型多功能汽车。文章认为，这次合作是重塑全球汽车
 
 ## 正文
 
-美国总统特朗普在Truth Social上发帖称，“伊朗在允许石油通过霍尔木兹海峡方面做得非常糟糕，有些人甚至会说很不光彩。
+全球媒体聚焦︱英媒：中国工厂正在成为全球电动汽车制造基地 5月22日，英国《金融时报》刊文称，在成本高昂的电动车转型浪潮中苦苦挣扎求存的国际汽车制造商，正纷纷将技术先进、成本更低的中国工厂作为自身全球业务的生产基地。
 
-” 特朗普：“这不是我们之间的协议。
+文章介绍说，欧洲一家知名汽车制造集团正与中国的一家车企进行合作，计划为中国、中东和东南亚的消费者打造一款全新的电动轻型多功能汽车。
 
-” 注：特朗普看好达成协议 但就霍尔木兹海峡过路费施压伊朗。
+文章认为，这次合作是重塑全球汽车行业趋势的最新例证。
 
-责任编辑：陈钰嘉
+汇丰银行资深中国汽车分析师表示，这样的合作趋势反映出“全球生产基地的重新调整”。
+
+她补充说：“中国正扮演着越来越重要的角色，不仅仅是一个具有成本优势的生产中心，更重要的是具有技术领先地位和庞大的供应链优势。
+
+” 文章以欧洲市场为例，根据美国咨询公司荣鼎集团的介绍，如果将与中国合资的企业也算在内，外国车企已经占到中国对欧洲汽车出口的五分之二左右。
+
+文章说，包括欧洲最大的汽车制造商大众汽车在内，众多的汽车制造商都在积极应对，计划向欧洲大陆出口在中国制造的汽车。
+
+西方汽车行业的高管们认为，利用全球最大的汽车市场作为出口基地，能降低成本和采用更先进的技术，使自身的业务受益，并帮助传统汽车制造商提高竞争力并赢回消费者。
 
 ## 相关推荐
 
-- 2026-06-29 16:10 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 16:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 16:03 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 16:17 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 16:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 16:26 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 16:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 16:16 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 16:06 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 16:04 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 16:24 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 16:09 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 16:25 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 16:15 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 16:20 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 16:14 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 16:13 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 16:13 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 16:13 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 16:17 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 16:20 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:18 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/857737.shtml)
-- 2026-06-29 16:24 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/16138.shtml)
-- 2026-06-29 16:21 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/6138370881.shtml)
-- 2026-06-29 16:18 - [省市招考专家解读山西高考志愿政策](https://www.blog.minike.top/Article/details/8134859.shtml)
-- 2026-06-29 16:06 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/08699989816.shtml)
-- 2026-06-29 16:29 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/176779.shtml)
-- 2026-06-29 16:20 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/88368.shtml)
-- 2026-06-29 16:17 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/6272259.shtml)
-- 2026-06-29 16:10 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/859842.shtml)
-- 2026-06-29 16:12 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.minike.top/Article/details/433737.shtml)
-- 2026-06-29 16:02 - [内马尔能上场15分钟](https://www.share.kurohicncr.top/Article/details/038865911.shtml)
-- 2026-06-29 16:08 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/57516.shtml)
-- 2026-06-29 16:27 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/0330108150.shtml)
-- 2026-06-29 16:26 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/974532758242.shtml)
-- 2026-06-29 16:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/43635409.shtml)
+- 2026-06-29 16:19 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/38717446.shtml)
+- 2026-06-29 16:17 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/1422483737.shtml)
+- 2026-06-29 16:30 - [女心理师](http://www.blog.kurohicncr.top/Article/details/56629569.shtml)
+- 2026-06-29 16:17 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/489579142.shtml)
+- 2026-06-29 16:19 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/16070245896.shtml)
+- 2026-06-29 16:24 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.minike.top/Article/details/37485677.shtml)
+- 2026-06-29 16:19 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/131939094855.shtml)
+- 2026-06-29 16:16 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/08398873.shtml)
+- 2026-06-29 16:32 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/8410662.shtml)
+- 2026-06-29 16:31 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/9654365387.shtml)
+- 2026-06-29 16:24 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/77498412.shtml)
+- 2026-06-29 16:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/21535326420.shtml)
+- 2026-06-29 16:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/647443543993.shtml)
+- 2026-06-29 16:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/35954013201.shtml)
+- 2026-06-29 16:08 - [机器人学校开学了](https://www.share.minike.top/Article/details/41311739.shtml)

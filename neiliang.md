@@ -1,60 +1,59 @@
-# 重磅！证监会最新发布！创业板新规，提出八大改革举措
+# 回归后首次！香港全体立法会议员将于7月赴京研修
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-专题：证监会发布！深化创业板改革总体方案出炉 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月10日，经国务院同意，证监会发布《关于深化创业板改革 更好服务新质生产力发展的意见》（以下简称《创业板意见》），这是进一步提高资本市场制度包容性、适应性，健全投资和融资相协调的资本市场功能的重要举措，标志着新一轮全面深化资本市场改革向纵深推进。 具体来看，《
+中新网5月22日电 综合香港媒体报道，21日，香港立法会主席李慧琼在社交网页发文表示，立法会全体议员将于今年7月19日至25日，到北京参加国家事务研修考察。这将是香港自回归祖国以来，首次全体议员到北京研修，历史意义重大。 李慧琼表示，根据初步安排，研修考察行程相当丰富紧凑，包括拜访中央港澳办等；参与多个专题讲座并与专家交流，内容涵盖国家指导思想、国家五年规划制定、国际地缘政治格
 
 ## 正文
 
-专题：证监会发布！
+中新网5月22日电 综合香港媒体报道，21日，香港立法会主席李慧琼在社交网页发文表示，立法会全体议员将于今年7月19日至25日，到北京参加国家事务研修考察。
 
-深化创业板改革总体方案出炉 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+这将是香港自回归祖国以来，首次全体议员到北京研修，历史意义重大。
 
-4月10日，经国务院同意，证监会发布《关于深化创业板改革 更好服务新质生产力发展的意见》（以下简称《创业板意见》），这是进一步提高资本市场制度包容性、适应性，健全投资和融资相协调的资本市场功能的重要举措，标志着新一轮全面深化资本市场改革向纵深推进。
+李慧琼表示，根据初步安排，研修考察行程相当丰富紧凑，包括拜访中央港澳办等；参与多个专题讲座并与专家交流，内容涵盖国家指导思想、国家五年规划制定、国际地缘政治格局、国家安全、数字中国建设等。
 
-具体来看，《创业板意见》深入贯彻党中央、国务院决策部署，牢牢把握防风险、强监管、促高质量发展的工作主线，围绕持续深化资本市场投融资改革，优化创业板全链条创新和监管制度体系，进一步提高制度包容性、适应性，提出了八大针对性的改革举措。
+议员亦会走访不同机关及企业，实地考察多个新质生产力产业的最新发展情况，包括航天航空、信息技术应用、传统工业绿色转型、新能源交通、人工智能等。
 
-一是突出板块功能定位，更好服务实体经济高质量发展。
+李慧琼指出，议员作为香港特区立法机关及管治团队的一员，也会借此机会了解全国人大的立法过程和执法监督工作，以及中国共产党奋斗历程、基层治理经验等。
 
-进一步发挥创业板主要服务成长型创新创业企业的特色和优势，加力支持新产业、新业态、新技术企业发展和传统产业转型升级。
+香港立法会秘书处提交文件指，本次活动旨在让议员更好掌握中央的治国理念和发展战略，并更了解国家五年规划制定、多个重要领域的最新发展情况和当前国际地缘政治格局。
 
-积极支持优质未盈利创新企业和新型消费、现代服务业等领域优质创新企业发行上市。
+此外，通过走访不同机关和企业、实地调研，议员可借鉴经验，加强推动香港经济高质量发展，更有效主动对接国家“十五五”规划，更好融入并服务国家发展大局。
 
-二是优化发行上市标准，提高包容性和吸引力。
+全国港澳研究会港澳问题专家李晓兵表示，此次考察行程丰富多样，包括国家五年规划制定及国际地缘政治格局等方面。
 
 ## 相关推荐
 
-- 2026-06-29 16:06 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 16:23 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 16:07 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 16:22 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 16:29 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 16:27 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 16:05 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 16:12 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 16:20 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 16:14 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 16:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 16:08 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 16:29 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 16:24 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 16:13 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 16:08 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 16:20 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 16:27 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 16:21 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 16:15 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 16:29 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 16:20 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 16:07 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 16:34 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 16:13 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 16:28 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 16:18 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:00 - [美的空调 卡bug](http://www.share.minike.top/Article/details/4602958.shtml)
-- 2026-06-29 16:20 - [滾石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/1038088.shtml)
-- 2026-06-29 16:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/41748005054.shtml)
-- 2026-06-29 16:27 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/3960389.shtml)
-- 2026-06-29 16:12 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/712036481573.shtml)
-- 2026-06-29 16:19 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/0455208714.shtml)
-- 2026-06-29 16:30 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.kurohicncr.top/Article/details/39073032057.shtml)
-- 2026-06-29 16:03 - [大范围炎热天气将至](https://www.blog.kurohicncr.top/Article/details/73319075933.shtml)
-- 2026-06-29 16:17 - [流金岁月](http://www.share.kurohicncr.top/Article/details/64684852.shtml)
-- 2026-06-29 16:13 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/060301527.shtml)
-- 2026-06-29 16:14 - [欧盟为什么越来越倾向贸易保护](http://www.share.kurohicncr.top/Article/details/05547484.shtml)
-- 2026-06-29 16:29 - [博主：黄金和原油回落不等于风险消失](https://www.share.kurohicncr.top/Article/details/78118.shtml)
-- 2026-06-29 16:12 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/0270445.shtml)
-- 2026-06-29 16:12 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/00563176471.shtml)
-- 2026-06-29 16:29 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/69357804.shtml)
+- 2026-06-29 16:14 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/55050614453.shtml)
+- 2026-06-29 16:10 - [张雪机车杀向海外](https://www.blog.minike.top/Article/details/4426893898.shtml)
+- 2026-06-29 16:19 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/5277520.shtml)
+- 2026-06-29 16:12 - [中国战机大片上新](https://www.share.minike.top/Article/details/729318.shtml)
+- 2026-06-29 16:10 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/61937.shtml)
+- 2026-06-29 16:08 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/3638788.shtml)
+- 2026-06-29 16:31 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/403059.shtml)
+- 2026-06-29 16:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/85658001.shtml)
+- 2026-06-29 16:19 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/67152389.shtml)
+- 2026-06-29 16:19 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/1171097.shtml)
+- 2026-06-29 16:10 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/882188528.shtml)
+- 2026-06-29 16:23 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/78547302.shtml)
+- 2026-06-29 16:08 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/98006.shtml)
+- 2026-06-29 16:25 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/8420326639.shtml)
+- 2026-06-29 16:16 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/95047012709.shtml)

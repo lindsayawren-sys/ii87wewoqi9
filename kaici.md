@@ -1,50 +1,56 @@
-# 博泰车联与上海交大订立战略合作框架协议
+# 美国政府下一步会入股哪家公司？交易员这样看
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-博泰车联（02889）发布公告，为整合公司智能汽车产业优势与上海交通大学人工智能操作系统研究院（上海交大）计算技术科研实力，共同推动开源鸿蒙具身智能创新、转化与落地，公司与上海交大于2026年4月10日订立战略合作框架协议。双方将通过“产学研用”深度融合，共同推动基于开源鸿蒙（OpenHarmony）的具身智能领域创新突破，构建全自主可控的具身智能创新生态。责任编辑：卢昱君
+核心要点 本周，美国政府宣布入股包括 IBM 在内的九家量子计算公司，受此消息推动，量子板块个股大涨。特朗普政府持续推进收购私营企业股份的策略。 那么，政府的 “收购清单” 下一站会指向哪里？预测市场平台 Kalshi 上的交易员正纷纷押注。 交易员认为，IonQ 在 2026 年获得政府入股的概率为 32%。IonQ 是量子计算企业，虽未出现在周四的入股名单中，但消息公布后其
 
 ## 正文
 
-博泰车联（02889）发布公告，为整合公司智能汽车产业优势与上海交通大学人工智能操作系统研究院（上海交大）计算技术科研实力，共同推动开源鸿蒙具身智能创新、转化与落地，公司与上海交大于2026年4月10日订立战略合作框架协议。
+核心要点 本周，美国政府宣布入股包括 IBM 在内的九家量子计算公司，受此消息推动，量子板块个股大涨。
 
-双方将通过“产学研用”深度融合，共同推动基于开源鸿蒙（OpenHarmony）的具身智能领域创新突破，构建全自主可控的具身智能创新生态。
+特朗普政府持续推进收购私营企业股份的策略。
 
-责任编辑：卢昱君
+那么，政府的 “收购清单” 下一站会指向哪里？
+
+预测市场平台 Kalshi 上的交易员正纷纷押注。
+
+交易员认为，IonQ 在 2026 年获得政府入股的概率为 32%。
+
+IonQ 是量子计算企业，虽未出现在周四的入股名单中，但消息公布后其股价仍暴涨超 12%，周五再涨超 7%。
+
+紧随其后的是Anduril Industries，交易员给出的今年获美国政府入股概率为 31%。
+
+Anduril 是总部位于加州的私营防务科技公司。
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 16:03 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 16:04 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 16:20 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 16:23 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 16:09 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 16:17 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 16:02 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 16:21 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 16:03 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 16:08 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 16:02 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 16:22 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 16:25 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 16:33 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 16:06 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 16:16 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 16:35 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 16:25 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 16:29 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 16:31 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 16:09 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 16:14 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 16:15 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:07 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/540813434.shtml)
-- 2026-06-29 16:01 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/0101415527.shtml)
-- 2026-06-29 16:23 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/6202605.shtml)
-- 2026-06-29 16:15 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/941556767602.shtml)
-- 2026-06-29 16:00 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/09835162.shtml)
-- 2026-06-29 16:17 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/2314795740.shtml)
-- 2026-06-29 16:18 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/247754118289.shtml)
-- 2026-06-29 16:13 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/471021952.shtml)
-- 2026-06-29 16:13 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.kurohicncr.top/Article/details/57831105.shtml)
-- 2026-06-29 16:18 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/9947788845.shtml)
-- 2026-06-29 16:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/463690.shtml)
-- 2026-06-29 16:16 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/1377729661.shtml)
-- 2026-06-29 16:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/653586907.shtml)
-- 2026-06-29 16:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/309968825.shtml)
-- 2026-06-29 16:17 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.minike.top/Article/details/122890.shtml)
+- 2026-06-29 16:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/95743983.shtml)
+- 2026-06-29 16:19 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/3496757770.shtml)
+- 2026-06-29 16:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/71871280003.shtml)
+- 2026-06-29 16:16 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/2011959.shtml)
+- 2026-06-29 16:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/4219665.shtml)
+- 2026-06-29 16:22 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/79094851473.shtml)
+- 2026-06-29 16:20 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/67746927.shtml)
+- 2026-06-29 16:33 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/3271904.shtml)
+- 2026-06-29 16:14 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/95282723.shtml)
+- 2026-06-29 16:21 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/669066138995.shtml)
+- 2026-06-29 16:06 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/1288852.shtml)
+- 2026-06-29 16:24 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/45163216.shtml)
+- 2026-06-29 16:09 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/64179113.shtml)
+- 2026-06-29 16:12 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/46607153.shtml)
+- 2026-06-29 16:24 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/65528.shtml)

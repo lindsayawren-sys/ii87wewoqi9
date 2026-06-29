@@ -1,61 +1,57 @@
-# 美联储寻求银行业提供对私募信贷公司的风险敞口详情
+# 从欧洲到甘肃：“洋弟子”爱上中医学
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-知情人士称，在私募信贷基金赎回激增、行业不良贷款上升之际，美联储正要求美国大型银行提供它们的私募信贷敞口详细情况。 知情人士表示，美联储检查人员提出的问题旨在评估私募信贷行业的压力程度及其向更广泛金融体系传导的可能性。 在纳入日常监管流程的一系列问题中，美联储尤其关注私募信贷基金从银行获取的贷款情况。在市场环境良好时，这类行动可以放大回报，使私募信贷基金更具吸引力；但在不利环境
+发布时间：2026年05月24日 14:45 来源：中国新闻网 连日来，在甘肃中医药大学附属医院，15位来自捷克、斯洛伐克等国家的中医学员，通过辨识中草药，交流经典中医医方，系统学习针灸、推拿、拔罐等实用中医适宜技术。切身感受中医精细分科、辨证施治的独特智慧。捷克中医学员何俊良期许未来能深耕中欧文化交流领域，当好互通往来的使者。 近年来，素有“千年药乡”美誉的甘肃，依托深厚中医
 
 ## 正文
 
-知情人士称，在私募信贷基金赎回激增、行业不良贷款上升之际，美联储正要求美国大型银行提供它们的私募信贷敞口详细情况。
+发布时间：2026年05月24日 14:45 来源：中国新闻网 连日来，在甘肃中医药大学附属医院，15位来自捷克、斯洛伐克等国家的中医学员，通过辨识中草药，交流经典中医医方，系统学习针灸、推拿、拔罐等实用中医适宜技术。
 
-知情人士表示，美联储检查人员提出的问题旨在评估私募信贷行业的压力程度及其向更广泛金融体系传导的可能性。
+切身感受中医精细分科、辨证施治的独特智慧。
 
-在纳入日常监管流程的一系列问题中，美联储尤其关注私募信贷基金从银行获取的贷款情况。
+捷克中医学员何俊良期许未来能深耕中欧文化交流领域，当好互通往来的使者。
 
-在市场环境良好时，这类行动可以放大回报，使私募信贷基金更具吸引力；但在不利环境下，可能使银行面临损失风险。
+近年来，素有“千年药乡”美誉的甘肃，依托深厚中医药底蕴，让古老医术跨越山海，成为链接全球的文化桥梁。
 
-知情人士称，美国财政部也在就保险业对私募信贷的敞口进行问询。
+甘肃中医药大学附属医院作为国家中医药服务贸易出口基地，近年来已与巴西、泰国、捷克、西班牙等12个国家构建长期合作关系，累计举办国际研修项目40期，培训外籍学员600余人。
 
-美联储和财政部的代表目前均未置评。
-
-这些问询表明美国监管机构正努力掌握来自私募信贷领域的潜在压力。
-
-该行业规模已膨胀至1.8万亿美元，最初面向机构投资者，如今也越来越多地向个人投资者推广。
+(田鹏鹤 甘肃兰州报道） 责任编辑：【王凯】
 
 ## 相关推荐
 
-- 2026-06-29 16:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 16:27 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 16:25 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 16:22 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 16:02 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 16:18 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 16:30 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 16:17 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 16:27 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 16:09 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 16:08 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 16:01 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 16:27 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 16:13 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 16:21 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 16:19 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 16:14 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 16:31 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 16:19 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 16:11 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 16:23 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 16:14 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 16:06 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 16:15 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 16:32 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 16:25 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 16:33 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 16:26 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 16:17 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 16:20 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:14 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.kurohicncr.top/Article/details/3978244985.shtml)
-- 2026-06-29 16:17 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.minike.top/Article/details/652020875329.shtml)
-- 2026-06-29 16:05 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/98693.shtml)
-- 2026-06-29 16:14 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.minike.top/Article/details/9671386.shtml)
-- 2026-06-29 16:11 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/9766202.shtml)
-- 2026-06-29 16:09 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/802196.shtml)
-- 2026-06-29 16:25 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/471146365349.shtml)
-- 2026-06-29 16:00 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/9336952853.shtml)
-- 2026-06-29 16:14 - [欧盟为什么越来越倾向贸易保护](http://www.share.minike.top/Article/details/1619827.shtml)
-- 2026-06-29 16:12 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/0114238697.shtml)
-- 2026-06-29 16:15 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/1107295.shtml)
-- 2026-06-29 16:12 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/4681745066.shtml)
-- 2026-06-29 16:12 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/645024381.shtml)
-- 2026-06-29 16:05 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/90258076429.shtml)
-- 2026-06-29 16:21 - [陈靖可虞书欣领衔主演](http://www.share.kurohicncr.top/Article/details/3853943.shtml)
+- 2026-06-29 16:27 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/157726063728.shtml)
+- 2026-06-29 16:30 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/972772.shtml)
+- 2026-06-29 16:24 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/9438516.shtml)
+- 2026-06-29 16:10 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/11461.shtml)
+- 2026-06-29 16:23 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/75430542.shtml)
+- 2026-06-29 16:11 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/17012.shtml)
+- 2026-06-29 16:27 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/8641385193.shtml)
+- 2026-06-29 16:19 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.minike.top/Article/details/29449491.shtml)
+- 2026-06-29 16:31 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.minike.top/Article/details/270015.shtml)
+- 2026-06-29 16:29 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/91309373734.shtml)
+- 2026-06-29 16:26 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/97599668.shtml)
+- 2026-06-29 16:32 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/761593189836.shtml)
+- 2026-06-29 16:27 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/89992012128.shtml)
+- 2026-06-29 16:34 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/76002259.shtml)
+- 2026-06-29 16:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/80510057176.shtml)

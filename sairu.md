@@ -1,53 +1,48 @@
-# 美国3月预算赤字为1641亿美元 经济学家预估赤字为1533亿美元
+# 野村证券预测：随着通胀上升 美联储2026年不会降息
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-美国3月预算赤字高于经济学家的预期。 根据美国财政部的数据，3月预算赤字为1641亿美元（经济学家预期为赤字1533亿美元）。 8位经济学家的预测区间为赤字2280亿美元至赤字1390亿美元。责任编辑：陈钰嘉
+野村证券预计，美联储将在2026年维持利率不变，因为通胀走高以及美联储官员对宽松政策的支持力度减弱，降低了短期内降息的可能性。野村证券在5月21日发布的报告中表示：“即将上任的美联储主席沃什可能仍有放松政策的意愿，但近期数据及美联储官员的表态，让我们对其能否说服联邦公开市场委员会（FOMC）多数成员支持降息持怀疑态度。”该券商此前曾预测，美联储今年9月和12月将分别降息25个基
 
 ## 正文
 
-美国3月预算赤字高于经济学家的预期。
+野村证券预计，美联储将在2026年维持利率不变，因为通胀走高以及美联储官员对宽松政策的支持力度减弱，降低了短期内降息的可能性。
 
-根据美国财政部的数据，3月预算赤字为1641亿美元（经济学家预期为赤字1533亿美元）。
+野村证券在5月21日发布的报告中表示：“即将上任的美联储主席沃什可能仍有放松政策的意愿，但近期数据及美联储官员的表态，让我们对其能否说服联邦公开市场委员会（FOMC）多数成员支持降息持怀疑态度。
 
-8位经济学家的预测区间为赤字2280亿美元至赤字1390亿美元。
+”该券商此前曾预测，美联储今年9月和12月将分别降息25个基点。
 
-责任编辑：陈钰嘉
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 16:03 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 16:20 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 16:18 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 16:13 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 16:05 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 16:07 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 16:23 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 16:13 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 16:10 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 16:12 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 16:29 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 16:07 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 16:17 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 16:02 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 16:12 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 16:06 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 16:24 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 16:11 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 16:35 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 16:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 16:15 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 16:20 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 16:06 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 16:07 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:05 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/571465226512.shtml)
-- 2026-06-29 16:26 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.minike.top/Article/details/9072264.shtml)
-- 2026-06-29 16:29 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/67749200425.shtml)
-- 2026-06-29 16:20 - [美的“卡bug”空调在欧洲卖爆](https://www.share.minike.top/Article/details/2980177139.shtml)
-- 2026-06-29 16:11 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/291030691486.shtml)
-- 2026-06-29 16:00 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/0346277.shtml)
-- 2026-06-29 16:05 - [天道](https://www.blog.kurohicncr.top/Article/details/136241414.shtml)
-- 2026-06-29 16:02 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/971121.shtml)
-- 2026-06-29 16:18 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/56972509005.shtml)
-- 2026-06-29 16:20 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/4872816614.shtml)
-- 2026-06-29 16:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/536438032923.shtml)
-- 2026-06-29 16:03 - [女心理师](http://www.share.minike.top/Article/details/0250492.shtml)
-- 2026-06-29 16:10 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/64635.shtml)
-- 2026-06-29 16:11 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/96557.shtml)
-- 2026-06-29 16:25 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/0017945.shtml)
+- 2026-06-29 16:23 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/837837288.shtml)
+- 2026-06-29 16:08 - [千与千寻](https://www.blog.minike.top/Article/details/389335.shtml)
+- 2026-06-29 16:16 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/288645.shtml)
+- 2026-06-29 16:09 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/58649.shtml)
+- 2026-06-29 16:12 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/116627864233.shtml)
+- 2026-06-29 16:27 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/605142.shtml)
+- 2026-06-29 16:14 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/8573680991.shtml)
+- 2026-06-29 16:35 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/724485.shtml)
+- 2026-06-29 16:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/543372492303.shtml)
+- 2026-06-29 16:07 - [抓特务票房破亿](http://www.share.minike.top/Article/details/22944.shtml)
+- 2026-06-29 16:20 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/059639052756.shtml)
+- 2026-06-29 16:24 - [天道](https://www.blog.kurohicncr.top/Article/details/227071.shtml)
+- 2026-06-29 16:25 - [内马尔能上场15分钟](https://www.blog.minike.top/Article/details/959337942.shtml)
+- 2026-06-29 16:12 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/71384682324.shtml)
+- 2026-06-29 16:35 - [一见倾心](https://www.share.minike.top/Article/details/619127.shtml)

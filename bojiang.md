@@ -1,54 +1,61 @@
-# Truist下调Tronox评级，股价跌幅超5%
+# 暴雨里的“突袭刺客”，近期频发、注意防范！
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-在2026年股价已上涨逾一倍之后，Truist认为现在或许是时候暂缓买入Tronox了。 该银行将这家钛产品生产商的评级从“买入”下调至“持有”，同时将其目标价上调至9美元，这意味着较周三收盘价下跌1%。分析师Peter Osterland在周四的一份报告中写道，虽然大宗商品价格上涨帮助该公司自美伊战争爆发以来股价上涨了20%，但投资者可能忽视了公司面临的风险。 Osterla
+每年到了夏秋季，总会遇到那么几场暴雨，又急又大，雨水落点还很奇怪——同一个地区这边不下那边下，而且很难提前预报……那要注意了，你可能遇上了“暖区暴雨”。 5月16日到20日，我国江南以及华南地区多次出现“暖区暴雨”，极端短时强降雨1小时内超过100毫米，堪称暴雨里的“突袭刺客”。 什么是暖区暴雨？ 有何特点？怎样防范？ 国家应急广播专访中央气象台首席预报员陈涛，一起揭秘这个行踪
 
 ## 正文
 
-在2026年股价已上涨逾一倍之后，Truist认为现在或许是时候暂缓买入Tronox了。
+每年到了夏秋季，总会遇到那么几场暴雨，又急又大，雨水落点还很奇怪——同一个地区这边不下那边下，而且很难提前预报……那要注意了，你可能遇上了“暖区暴雨”。
 
-该银行将这家钛产品生产商的评级从“买入”下调至“持有”，同时将其目标价上调至9美元，这意味着较周三收盘价下跌1%。
+5月16日到20日，我国江南以及华南地区多次出现“暖区暴雨”，极端短时强降雨1小时内超过100毫米，堪称暴雨里的“突袭刺客”。
 
-分析师Peter Osterland在周四的一份报告中写道，虽然大宗商品价格上涨帮助该公司自美伊战争爆发以来股价上涨了20%，但投资者可能忽视了公司面临的风险。
+什么是暖区暴雨？
 
-Osterland写道：“我们确实认为，成本压力和不利的地域组合对TROX近期盈利和现金流产生影响的 risk 有所升高。
+有何特点？
 
-虽然我们认为在‘正常化’条件下，TROX较高程度的垂直整合是一个优势，但我们确实认为，由于运费和物流成本上升，这在短期内可能成为一个相对劣势。
+怎样防范？
 
-” 周四午后交易中，Tronox股价跌幅超过5%。
+国家应急广播专访中央气象台首席预报员陈涛，一起揭秘这个行踪难测的“突袭者”。
 
-责任编辑：张俊 SF065
+什么是暖区暴雨？
+
+暖区暴雨，是由中国气象学家黄士松在研究华南暴雨时首次提出。
 
 ## 相关推荐
 
-- 2026-06-29 16:14 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 16:13 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 16:01 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 16:02 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 16:05 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 16:29 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 16:23 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 16:17 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 16:17 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 16:21 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 16:12 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 16:33 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 16:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 16:29 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 16:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 16:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 16:07 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 16:13 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 16:09 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 16:29 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 16:34 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 16:17 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 16:27 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 16:17 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 16:28 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:10 - [恋与深空 731](http://www.share.minike.top/Article/details/5756475.shtml)
-- 2026-06-29 16:20 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.minike.top/Article/details/02054578.shtml)
-- 2026-06-29 16:05 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/11339039797.shtml)
-- 2026-06-29 16:01 - [发反科学内容为何会有200万粉丝](https://www.blog.minike.top/Article/details/98437.shtml)
-- 2026-06-29 16:13 - [把古诗里的动作换成加班](http://www.blog.minike.top/Article/details/631196.shtml)
-- 2026-06-29 16:19 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/40877525705.shtml)
-- 2026-06-29 16:29 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/3053411.shtml)
-- 2026-06-29 16:23 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/504481230084.shtml)
-- 2026-06-29 16:26 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/38008498121.shtml)
-- 2026-06-29 16:13 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/75314798.shtml)
-- 2026-06-29 16:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/455370.shtml)
-- 2026-06-29 16:16 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/73928754250.shtml)
-- 2026-06-29 16:23 - [沙丘](http://www.share.minike.top/Article/details/646952593350.shtml)
-- 2026-06-29 16:00 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/242487302.shtml)
-- 2026-06-29 16:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/798771.shtml)
+- 2026-06-29 16:08 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/99901057.shtml)
+- 2026-06-29 16:30 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/09013.shtml)
+- 2026-06-29 16:18 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/988960910.shtml)
+- 2026-06-29 16:15 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/72097394939.shtml)
+- 2026-06-29 16:17 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/326576152345.shtml)
+- 2026-06-29 16:14 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/88952572.shtml)
+- 2026-06-29 16:21 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/1643775.shtml)
+- 2026-06-29 16:17 - [小娘惹](http://www.blog.minike.top/Article/details/16969354879.shtml)
+- 2026-06-29 16:31 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/351433.shtml)
+- 2026-06-29 16:11 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/46568948.shtml)
+- 2026-06-29 16:09 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/316119.shtml)
+- 2026-06-29 16:06 - [NBA交易](http://www.blog.minike.top/Article/details/85159598.shtml)
+- 2026-06-29 16:22 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/470042309956.shtml)
+- 2026-06-29 16:06 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/40063007.shtml)
+- 2026-06-29 16:29 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/8647122.shtml)

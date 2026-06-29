@@ -1,57 +1,57 @@
-# 安克创新年营收首破300亿，存货压身致现金流骤降82.49%
+# “儿药明星”葫芦娃财务造假领千万罚单，索赔通道已开启
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 宋佳楠 规模与现金流的背离，正在成为消费电子出海龙头最现实的考验。 4月9日晚，安克创新发布2025年全年财报，其营收首次突破300亿元大关，达到305.14亿元，同比增长23.49%；归母净利润25.45亿元，同比增长20.37%，营收与利润双双创下历史新高。但公司经营活动产生的现金流量净额仅4.81亿元，较上年同期的27.45亿元大幅下滑82.49%。 从
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月20日，ST葫芦娃（维权）发布公告，公司及相关责任人收到了中国证监会海南监管局下发的《行政处罚事先告知书》。 随着处罚的落地，ST葫芦娃长达两年的财务造假被坐实，而因此受损的股民，索赔窗口已开启。 这家以小儿肺热咳喘颗粒等产品闻名的药企，在财报上进行了造假。 据海南证监局查明，ST葫芦娃的财务造假手段主要包括“提前
 
 ## 正文
 
-界面新闻记者 | 宋佳楠 规模与现金流的背离，正在成为消费电子出海龙头最现实的考验。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月20日，ST葫芦娃（维权）发布公告，公司及相关责任人收到了中国证监会海南监管局下发的《行政处罚事先告知书》。
 
-4月9日晚，安克创新发布2025年全年财报，其营收首次突破300亿元大关，达到305.14亿元，同比增长23.49%；归母净利润25.45亿元，同比增长20.37%，营收与利润双双创下历史新高。
+随着处罚的落地，ST葫芦娃长达两年的财务造假被坐实，而因此受损的股民，索赔窗口已开启。
 
-但公司经营活动产生的现金流量净额仅4.81亿元，较上年同期的27.45亿元大幅下滑82.49%。
+这家以小儿肺热咳喘颗粒等产品闻名的药企，在财报上进行了造假。
 
-从财报来看，安克创新现金流骤减的核心原因在于存货规模激增与备货策略调整。
+据海南证监局查明，ST葫芦娃的财务造假手段主要包括“提前确认收入”、“虚增药品价格”以及“未准确计提费用”。
 
-为应对海外旺季需求、关税政策变化与供应链波动，该公司加大备货力度，年末存货达49.97亿元，较年初32.34亿元增长54.53%，大量资金沉淀在库存环节。
+这种操作导致其2023年年报和2024年半年报出现了严重的失真。
 
-叠加应收账款18.73亿元，较年初增长13.20%，以及产品召回、物流与薪酬支出增加，共同导致经营性现金流大幅承压。
+具体来看，2023年年度报告虚增营业收入1.1亿元，占当期披露营业收入的5.77%；虚增利润总额8958.03万元，占当期披露利润总额的66.11%。
 
-这种“增收增利不增现金流”的状态，短期内将加剧资金周转压力，提升财务成本，若库存周转效率未能及时改善，可能影响后续研发投入与扩张节奏，给财务稳健性带来一定挑战。
+2024年半年度报告虚减营业收入4260.1万元，占当期披露营业收入的5.03%；虚减利润总额2766.11万元，占当期披露利润总额的29.35%。
 
-具体到各项业务来看，充电储能类产品仍是安克创新的基本盘，全年实现收入154.02亿元，同比增长21.59%，占总营收比重达50.47%。
+直至2025年4月29日，ST葫芦娃披露《关于前期会计差错更正的公告》，对前述事项进行了追溯调整。
 
 ## 相关推荐
 
-- 2026-06-29 16:04 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 16:28 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 16:15 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 16:16 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 16:07 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 16:18 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 16:00 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 16:11 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 16:26 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 16:21 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 16:29 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 16:28 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 16:21 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 16:06 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 16:33 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 16:21 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 16:34 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 16:12 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 16:31 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 16:27 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 16:14 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 16:28 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:11 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/083174.shtml)
-- 2026-06-29 16:04 - [T1 KC](http://www.share.kurohicncr.top/Article/details/82832.shtml)
-- 2026-06-29 16:27 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.minike.top/Article/details/364540982.shtml)
-- 2026-06-29 16:08 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/59050429583.shtml)
-- 2026-06-29 16:09 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/546006007.shtml)
-- 2026-06-29 16:20 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/83038785648.shtml)
-- 2026-06-29 16:10 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/385637063.shtml)
-- 2026-06-29 16:15 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/31342336.shtml)
-- 2026-06-29 16:09 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/8638969.shtml)
-- 2026-06-29 16:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/82421586284.shtml)
-- 2026-06-29 16:29 - [智界V9成为高端圈层共同选择](http://www.blog.minike.top/Article/details/072152.shtml)
-- 2026-06-29 16:05 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/25445.shtml)
-- 2026-06-29 16:17 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/42956280716.shtml)
-- 2026-06-29 16:16 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/460669552.shtml)
-- 2026-06-29 16:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/961151042352.shtml)
+- 2026-06-29 16:18 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/33690.shtml)
+- 2026-06-29 16:09 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/30323828663.shtml)
+- 2026-06-29 16:27 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/967052479.shtml)
+- 2026-06-29 16:26 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/068453.shtml)
+- 2026-06-29 16:23 - [业内：全球市场迎来结构性投资窗口](https://www.blog.kurohicncr.top/Article/details/4832884.shtml)
+- 2026-06-29 16:22 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/9186546.shtml)
+- 2026-06-29 16:34 - [一生一世](http://www.share.kurohicncr.top/Article/details/946626913345.shtml)
+- 2026-06-29 16:31 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/966447252838.shtml)
+- 2026-06-29 16:17 - [端午节加班工资应该怎么算](https://www.share.minike.top/Article/details/73754928955.shtml)
+- 2026-06-29 16:09 - [媒体：中国田径压力与期待并存](https://www.blog.minike.top/Article/details/962081469130.shtml)
+- 2026-06-29 16:29 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/16201243040.shtml)
+- 2026-06-29 16:20 - [网约车司机转账15000元后被乘客拉黑](http://www.share.minike.top/Article/details/2294141294.shtml)
+- 2026-06-29 16:24 - [工作靠AI算不算职场作弊](http://www.share.kurohicncr.top/Article/details/244289.shtml)
+- 2026-06-29 16:18 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/676696.shtml)
+- 2026-06-29 16:31 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/1217721.shtml)

@@ -1,57 +1,61 @@
-# 岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势
+# 中国科学家领衔国际研究：全球海洋“神经系统”非常脆弱
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 岚图汽车科技股份有限公司总经理蒋焘表示，智能电动汽车的最终形态目前还没有形成，这就像2000年初的手机一样，从传统功能机向智能手机进化的过程中，其最终形态经历了巨大的变化，而现在的汽车，实际
+中新网北京5月22日电 (记者 孙自法)占地球面积71%的海洋对人类社会发展影响巨大而深远。被科学家们形象称为全球海洋“神经系统”的全球海洋观测系统(GOOS)，就像一张铺在全球海洋中的大网，其一举一动备受关注。 不过，由中国科学家领衔开展的一项最新国际合作研究却对此敲响了警钟：全球海洋“神经系统”这张人类离不开的网，目前的脆弱程度远超想象。 首次定量算出观测网“破洞”冲击 5
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+中新网北京5月22日电 (记者 孙自法)占地球面积71%的海洋对人类社会发展影响巨大而深远。
 
-岚图汽车科技股份有限公司总经理蒋焘表示，智能电动汽车的最终形态目前还没有形成，这就像2000年初的手机一样，从传统功能机向智能手机进化的过程中，其最终形态经历了巨大的变化，而现在的汽车，实际上也还没有达到最终的成熟状态。
+被科学家们形象称为全球海洋“神经系统”的全球海洋观测系统(GOOS)，就像一张铺在全球海洋中的大网，其一举一动备受关注。
 
-汽车智能化必将对整个行业带来巨大影响，也会深刻改变用户的消费选择。
+不过，由中国科学家领衔开展的一项最新国际合作研究却对此敲响了警钟：全球海洋“神经系统”这张人类离不开的网，目前的脆弱程度远超想象。
 
-在他看来，未来的汽车，有可能变得非常简单，也有可能变得非常复杂。
+首次定量算出观测网“破洞”冲击 5月22日，中国科学院大气物理研究所(大气所)成里京研究员联合法国、美国等高校及研究机构的合作者，在国际专业学术期刊《自然-气候变化》(Nature Climate Change)发表研究论文，首次定量算出这张观测网一旦“破洞”会给全球海洋增暖测算的准确性带来多大的冲击。
 
-说它简单，是因为未来汽车可能只包含两个大的智能体：第一个智能体是控制车辆本身，负责将车辆从A点安全移动到B点，它会把现在的智能驾驶、自动测控、车灯控制等功能全部融合在一起；第二个智能体就是智能座舱，主要负责与用户进行沟通和交互，满足用户的个性化需求。
+论文第一作者、中国科学院大气所博士生朱雨静介绍说，海洋是地球的热库，储存了全球增暖90%以上的净能量盈余。
 
-说它复杂，是因为要实现这样的智能水平，需要高度的集成化，每个功能模块下，都会把智能座舱、自动驾驶、测控系统、智能底盘等全部融合在一起，车辆的内部架构会越来越复杂，但对于用户而言，呈现出来的操作和体验却会越来越简单。
+温暖的海水会给台风、强风暴提供能量，鱼群的迁徙路线会跟着海水温度变化，就连让珊瑚白化的海洋热浪，也得靠海洋观测数据才能提前发现并预警。
 
-他指出，这种变化会带来三个核心问题。
+同时，台风登陆预报、渔船出海前海况判断、厄尔尼诺预测预警……依靠Argo浮标(一种可在海中自动下潜、上浮并传回温盐数据的观测设备)、科考船、锚系浮标等无数“眼睛”，全球海洋观测系统紧盯海洋温度、盐度等基本要素，为天气气候预测、灾害预警托底。
 
-第一个问题，就是要重新定义“什么是一辆好车”。
+为定量测算观测数据缺失造成的影响，本项研究进行一系列模拟实验发现，随机减少20%的观测数据，全球海洋增暖速率的估算误差会增加33%；随机减少80%的观测数据，误差会增加97%。
 
 ## 相关推荐
 
-- 2026-06-29 16:12 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 16:04 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 16:23 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 16:27 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 16:24 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 16:12 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 16:15 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 16:17 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 16:07 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 16:09 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 16:24 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 16:30 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 16:06 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 16:10 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 16:32 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 16:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 16:21 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 16:06 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 16:15 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 16:10 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 16:16 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 16:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 16:10 - [7款商保创新药“转道”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 16:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 16:24 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 16:08 - [媒体：网络测评不能只剩“生意”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:02 - [欧盟为什么越来越倾向贸易保护](http://www.blog.kurohicncr.top/Article/details/29368.shtml)
-- 2026-06-29 16:14 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/784915004.shtml)
-- 2026-06-29 16:05 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/3747520026.shtml)
-- 2026-06-29 16:01 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/25779803.shtml)
-- 2026-06-29 16:26 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/920201114727.shtml)
-- 2026-06-29 16:08 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/84101550649.shtml)
-- 2026-06-29 16:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/342114329617.shtml)
-- 2026-06-29 16:19 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.kurohicncr.top/Article/details/619859813.shtml)
-- 2026-06-29 16:10 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/88665.shtml)
-- 2026-06-29 16:00 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/8467798.shtml)
-- 2026-06-29 16:11 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/8584552333.shtml)
-- 2026-06-29 16:13 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/23265972.shtml)
-- 2026-06-29 16:18 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/787755060.shtml)
-- 2026-06-29 16:25 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/32101.shtml)
-- 2026-06-29 16:28 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/2463243.shtml)
+- 2026-06-29 16:25 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/71865.shtml)
+- 2026-06-29 16:21 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/514516142437.shtml)
+- 2026-06-29 16:22 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/14765332452.shtml)
+- 2026-06-29 16:24 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/781895500703.shtml)
+- 2026-06-29 16:07 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/55836.shtml)
+- 2026-06-29 16:17 - [光与夜之恋](http://www.share.minike.top/Article/details/8849441.shtml)
+- 2026-06-29 16:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/618683.shtml)
+- 2026-06-29 16:28 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.kurohicncr.top/Article/details/7212662316.shtml)
+- 2026-06-29 16:16 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/9186842.shtml)
+- 2026-06-29 16:32 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/900744897.shtml)
+- 2026-06-29 16:19 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/224166488.shtml)
+- 2026-06-29 16:20 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/5261347.shtml)
+- 2026-06-29 16:29 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.minike.top/Article/details/66694611.shtml)
+- 2026-06-29 16:17 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/4204829032.shtml)
+- 2026-06-29 16:20 - [把古诗里的动作换成加班](https://www.share.minike.top/Article/details/796398353.shtml)

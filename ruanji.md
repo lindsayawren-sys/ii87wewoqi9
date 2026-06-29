@@ -1,55 +1,42 @@
-# 广西财政推动科创融资担保 赋能新质生产力发展
+# 中东局势致材料短缺 日本畅销零食停售
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新网南宁4月10日电(韦佳秀)广西壮族自治区财政厅近日发布消息称，2025年，广西政府性融资担保体系新增支持科创企业担保贷款62.46亿元(人民币)、1266户，同比(下同)分别增长15.05%和52.68%，实现科创融资担保覆盖范围与业务规模双增长，有效赋能新质生产力发展。近年来，广西财政厅通过“拨改担”方式注入专项资金，累计向广西融资担保集团注入2亿元。同时联合广西科技厅
+发布时间：2026年05月22日 08:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网南宁4月10日电(韦佳秀)广西壮族自治区财政厅近日发布消息称，2025年，广西政府性融资担保体系新增支持科创企业担保贷款62.46亿元(人民币)、1266户，同比(下同)分别增长15.05%和52.68%，实现科创融资担保覆盖范围与业务规模双增长，有效赋能新质生产力发展。
-
-近年来，广西财政厅通过“拨改担”方式注入专项资金，累计向广西融资担保集团注入2亿元。
-
-同时联合广西科技厅建立科创企业“白名单”共享机制，2025年新增支持担保贷款26亿元、705户，累计投放规模77.87亿元，专项资金放大倍数近39倍。
-
-在落实国家“科技创新专项担保计划”后，2025年广西新增专项业务22.09亿元、460户，分别增长4.44倍和3.14倍。
-
-为构建上下联动、协同高效的科创担保服务格局，广西将科创担保核心指标纳入绩效考核，推动形成以省级融资担保机构为“头雁”引领，市县担保机构为支撑的一体化服务梯队，重点支持高新技术企业、科技型中小企业、“专精特新”中小企业发展，三类主体业务规模占比分别达51.72%、24.13%、19.21%，重点科创企业服务覆盖面稳步扩大、支持质效持续提升。
-
-在产品创新方面，广西大力推广知识产权质押担保业务，2025年相关领域新增业务10亿元、237户；推出“人工智能担”等专项产品服务，2025年支持109户相关企业获贷8.37亿元。
-
-(完)
+发布时间：2026年05月22日 08:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 16:03 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 16:13 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 16:03 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 16:20 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 16:09 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 16:13 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 16:24 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 16:01 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 16:14 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 16:17 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 16:19 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 16:26 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 16:25 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 16:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 16:08 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 16:26 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 16:21 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 16:10 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 16:15 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 16:14 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 16:26 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:26 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/5161372459.shtml)
-- 2026-06-29 16:06 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/102836956894.shtml)
-- 2026-06-29 16:10 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/472224248.shtml)
-- 2026-06-29 16:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/995371124001.shtml)
-- 2026-06-29 16:24 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/3868791089.shtml)
-- 2026-06-29 16:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/904502.shtml)
-- 2026-06-29 16:18 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/766809425457.shtml)
-- 2026-06-29 16:24 - [金刚川](https://www.share.minike.top/Article/details/758497601770.shtml)
-- 2026-06-29 16:01 - [《贺子珍》](https://www.share.minike.top/Article/details/28829.shtml)
-- 2026-06-29 16:03 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/293975293.shtml)
-- 2026-06-29 16:19 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/70062.shtml)
-- 2026-06-29 16:26 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/84767871.shtml)
-- 2026-06-29 16:14 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/713312394666.shtml)
-- 2026-06-29 16:29 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/72348.shtml)
-- 2026-06-29 16:19 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/3231780.shtml)
+- 2026-06-29 16:17 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/09887718522.shtml)
+- 2026-06-29 16:14 - [中国战机大片上新](http://www.blog.kurohicncr.top/Article/details/658497.shtml)
+- 2026-06-29 16:08 - [上海一小区水池内出现一条鳄鱼](https://www.share.kurohicncr.top/Article/details/63779.shtml)
+- 2026-06-29 16:23 - [人形机器人](http://www.share.kurohicncr.top/Article/details/77592630822.shtml)
+- 2026-06-29 16:23 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/549418.shtml)
+- 2026-06-29 16:17 - [挪威王储妃长子2次强奸被判4年](https://www.share.kurohicncr.top/Article/details/01424.shtml)
+- 2026-06-29 16:32 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/98384054.shtml)
+- 2026-06-29 16:30 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.kurohicncr.top/Article/details/834356.shtml)
+- 2026-06-29 16:17 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/589627.shtml)
+- 2026-06-29 16:32 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/833993.shtml)
+- 2026-06-29 16:33 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/51726986.shtml)
+- 2026-06-29 16:20 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/93975.shtml)
+- 2026-06-29 16:12 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/99851.shtml)
+- 2026-06-29 16:19 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/9160204845.shtml)
+- 2026-06-29 16:13 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/549750969.shtml)

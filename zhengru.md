@@ -1,61 +1,57 @@
-# 强制员工自费买礼物？海底捞致歉：基本属实，已沟通赔偿
+# 天天学习｜习近平见证的“天路”传奇
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-4月11日，近日有自称在海底捞工作6年的员工发布长文称，其在海底捞北京某门店长期遭受的违规管理。“但凡出现顾客投诉，不分缘由，强制要求员工自费500元购买礼物作为处罚，多次违规罚款，无任何合规依据。” 此外，其还指控海底捞门店存在管理粗暴、辱骂员工、克扣工资、侵犯隐私、恶意阻挠调店逼迫离职等问题。 4月11日，海底捞发布《关于“海底捞伙伴因顾客投诉被强制自费买礼物事件”的说明》
+｜天天学习｜“当时的路况非常险，还好没有遇到滑坡”“福建派去援藏的，到墨脱那都是骑着马进去的”……回想起第一次进藏的情景，时隔多年，习近平依然历历在目。 那是1998年6月的一天清晨，乘机抵达拉萨贡嘎机场后，时任福建省委副书记的习近平就马不停蹄地带队奔赴福建对口支援的林芝地区。 从机场去往当时林芝行政公署所在地八一镇需要翻过海拔5000多米的米拉雪山，一路人烟罕见、崎岖颠簸。5
 
 ## 正文
 
-4月11日，近日有自称在海底捞工作6年的员工发布长文称，其在海底捞北京某门店长期遭受的违规管理。
+｜天天学习｜“当时的路况非常险，还好没有遇到滑坡”“福建派去援藏的，到墨脱那都是骑着马进去的”……回想起第一次进藏的情景，时隔多年，习近平依然历历在目。
 
-“但凡出现顾客投诉，不分缘由，强制要求员工自费500元购买礼物作为处罚，多次违规罚款，无任何合规依据。
+那是1998年6月的一天清晨，乘机抵达拉萨贡嘎机场后，时任福建省委副书记的习近平就马不停蹄地带队奔赴福建对口支援的林芝地区。
 
-” 此外，其还指控海底捞门店存在管理粗暴、辱骂员工、克扣工资、侵犯隐私、恶意阻挠调店逼迫离职等问题。
+从机场去往当时林芝行政公署所在地八一镇需要翻过海拔5000多米的米拉雪山，一路人烟罕见、崎岖颠簸。
 
-4月11日，海底捞发布《关于“海底捞伙伴因顾客投诉被强制自费买礼物事件”的说明》。
+500多公里的路程，习近平一行乘车整整走了一天，抵达八一镇已是当晚8点多。
 
-海底捞称，“4月8号一9号，公司对该伙伴反馈问题进行核查，并于9号确认该伙伴反映情况基本属实。
+那些崎岖难行的道路，习近平始终牵挂于心。
 
-4月10号，公司与该伙伴探讨了赔偿事宜。
+正如来自墨脱的全国人大代表白玛曲珍所说，“西藏的路……都装在总书记心里”。
 
-” 海底捞表示，“我们在这里郑重承诺一定依法对该伙伴进行赔偿，并当面或按照该伙伴的意愿通过其他渠道致以诚挚的歉意。
+2013年3月，习近平担任总书记后首次出席全国两会，在参加西藏代表团审议时，再次关切询问起西藏的路：“现在到墨脱的路通了没有？
 
-由于我们担心在其它门店存在类似情况，在4月10号早上10点，我们通知一千多家门店进行内部排查，相关排查工作仍在持续进行中，一旦发现类似情况，我们一定依法妥善处理。
+” 从墨脱到北京参会的白玛曲珍难掩激动地回答：“2013年底有望全线通车。
 
 ## 相关推荐
 
-- 2026-06-29 16:03 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 16:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 16:22 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 16:09 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 16:17 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 16:21 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 16:15 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 16:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 16:01 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 16:25 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 16:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 16:04 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 16:20 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 16:00 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 16:23 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 16:25 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 16:31 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 16:35 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 16:14 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 16:25 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 16:17 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 16:16 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 16:35 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 16:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 16:32 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 16:19 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:21 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/25582.shtml)
-- 2026-06-29 16:12 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/397588081.shtml)
-- 2026-06-29 16:19 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.minike.top/Article/details/07168191.shtml)
-- 2026-06-29 16:22 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/756609.shtml)
-- 2026-06-29 16:26 - [84岁英国教授成中国网红](https://www.share.minike.top/Article/details/51917.shtml)
-- 2026-06-29 16:00 - [发反科学内容为何会有200万粉丝](http://www.blog.kurohicncr.top/Article/details/719758.shtml)
-- 2026-06-29 16:19 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/5697401.shtml)
-- 2026-06-29 16:00 - [东方风云榜红毯](https://www.share.minike.top/Article/details/8606213.shtml)
-- 2026-06-29 16:19 - [啊啊啊](http://www.blog.minike.top/Article/details/77297370.shtml)
-- 2026-06-29 16:24 - [王楚钦3-0周启豪 晋级32强](http://www.blog.minike.top/Article/details/4531616556.shtml)
-- 2026-06-29 16:21 - [世界杯十大帅哥必吃榜](https://www.blog.kurohicncr.top/Article/details/583370353.shtml)
-- 2026-06-29 16:24 - [BB大王横店拍戏](https://www.blog.minike.top/Article/details/78769.shtml)
-- 2026-06-29 16:08 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/283971.shtml)
-- 2026-06-29 16:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/643062682818.shtml)
-- 2026-06-29 16:00 - [起风了](http://www.blog.kurohicncr.top/Article/details/052213.shtml)
+- 2026-06-29 16:06 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/819083538.shtml)
+- 2026-06-29 16:17 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/3167687286.shtml)
+- 2026-06-29 16:12 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/81924388696.shtml)
+- 2026-06-29 16:35 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/17376915.shtml)
+- 2026-06-29 16:07 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/205053744.shtml)
+- 2026-06-29 16:22 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/950227.shtml)
+- 2026-06-29 16:18 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/730054.shtml)
+- 2026-06-29 16:11 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/63166881.shtml)
+- 2026-06-29 16:33 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/1145327.shtml)
+- 2026-06-29 16:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/0207439111.shtml)
+- 2026-06-29 16:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/9690345.shtml)
+- 2026-06-29 16:21 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/16236651330.shtml)
+- 2026-06-29 16:13 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/82704.shtml)
+- 2026-06-29 16:24 - [当地回应林区违规放羊遭豹啃食](http://www.share.minike.top/Article/details/002764264824.shtml)
+- 2026-06-29 16:30 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/117500.shtml)

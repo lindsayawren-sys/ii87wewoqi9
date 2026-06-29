@@ -1,60 +1,61 @@
-# 广东计划5年内为200万名女职工提供“两癌”免费筛查服务
+# 香港经典话剧西安开演 方言艺术架起两地文化桥梁
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新网广州4月10日电 (记者 张璐)广东省总工会第八届女职工委员会9日正式发布未来五年工作蓝图。 据悉，广东工会将积极参与女职工权益相关法律法规的修订，持续推动《广东省实施〈女职工劳动保护特别规定〉办法》等地方性法规的落地见效与评估监督。针对新就业形态女性劳动者、女农民工等群体，加强专项集体合同签订与履约监督，推广应用“一函两书”制度，探索参与女职工权益保障公益诉讼。 在婚育
+中新网西安5月24日电 (张一辰 杨英琦)23日晚，香港话剧团经典话剧作品《都是龙袍惹的祸》在西安开演，拉开本轮全国巡演收官站的序幕。作为此次巡演在中国中西部地区的唯一站点，西安观众得以欣赏原汁原味的粤语演绎和港式舞台叙事，零距离领略港派话剧艺术的独特魅力。《都是龙袍惹的祸》以清朝历史为背景，聚焦权力漩涡中的个体命运与人性思辨。该剧2013年首演即斩获六项香港舞台剧大奖，此番复
 
 ## 正文
 
-中新网广州4月10日电 (记者 张璐)广东省总工会第八届女职工委员会9日正式发布未来五年工作蓝图。
+中新网西安5月24日电 (张一辰 杨英琦)23日晚，香港话剧团经典话剧作品《都是龙袍惹的祸》在西安开演，拉开本轮全国巡演收官站的序幕。
 
-据悉，广东工会将积极参与女职工权益相关法律法规的修订，持续推动《广东省实施〈女职工劳动保护特别规定〉办法》等地方性法规的落地见效与评估监督。
+作为此次巡演在中国中西部地区的唯一站点，西安观众得以欣赏原汁原味的粤语演绎和港式舞台叙事，零距离领略港派话剧艺术的独特魅力。
 
-针对新就业形态女性劳动者、女农民工等群体，加强专项集体合同签订与履约监督，推广应用“一函两书”制度，探索参与女职工权益保障公益诉讼。
+《都是龙袍惹的祸》以清朝历史为背景，聚焦权力漩涡中的个体命运与人性思辨。
 
-在婚育支持方面，广东工会积极打造“会聚良缘”婚恋服务品牌，建设全省职工线上交友平台“粤会吧”；示范性开展青年职工集体婚礼活动，构建全省工会线上线下联动的婚恋服务体系，提高工会婚恋服务质效。
+该剧2013年首演即斩获六项香港舞台剧大奖，此番复演自香港启程，至北京、上海等地，所到之处均一票难求。
 
-在生育保障方面，广东工会计划五年内新建省级“工会爱心妈妈小屋”350家，为200万名包括困难企业女职工、新就业形态女性劳动者和女农民工在内的女职工提供免费“两癌”筛查，推动200万名女职工参保安康互助保障。
+该剧全程采用粤语原声演绎，搭配普通话字幕同步呈现，加之沉浸式创新舞台设计，还原了港派话剧质感。
 
-在托育服务方面，广东工会探索多种方式推动用人单位开展福利性托育服务，规范发展工会爱心托管班，推动5年内建设工会爱心托管班1万个，省级工会爱心托管班300个。
+首演前，主创分享会在西安开元大剧院举行，编剧潘惠森、主演刘守正等主创人员与观众热情交流。
 
-同时，加强女职工心理健康服务与家庭友好型工作场所建设。
+当被问及使用粤语在内地巡演是不是“冒险”时，潘惠森笑道：“我最爱这种‘冒险’。
 
-未来五年，广东工会计划建设女职工创新工作室1000个，其中省级工作室150个，并搭建创新成果展示平台，推动群众性创新活动。
+”在他看来，粤语与陕西方言一脉相通，用粤语读唐诗格外流畅且富有音乐感。
 
 ## 相关推荐
 
-- 2026-06-29 16:07 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 16:05 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 16:11 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 16:01 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 16:22 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 16:22 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 16:26 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 16:08 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 16:28 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 16:03 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 16:21 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 16:19 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 16:17 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 16:12 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 16:16 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 16:13 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 16:18 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 16:21 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 16:15 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 16:25 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 16:30 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 16:18 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 16:13 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 16:32 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 16:35 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 16:12 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 16:16 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 16:29 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 16:10 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:08 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.minike.top/Article/details/18646815.shtml)
-- 2026-06-29 16:09 - [逆天祖国人](http://www.share.minike.top/Article/details/5178243745.shtml)
-- 2026-06-29 16:06 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/58438219509.shtml)
-- 2026-06-29 16:29 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/1537677.shtml)
-- 2026-06-29 16:14 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/4155510791.shtml)
-- 2026-06-29 16:19 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.minike.top/Article/details/138090753793.shtml)
-- 2026-06-29 16:21 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/63606928.shtml)
-- 2026-06-29 16:15 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/9684750.shtml)
-- 2026-06-29 16:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/68028646.shtml)
-- 2026-06-29 16:12 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/02064.shtml)
-- 2026-06-29 16:21 - [NBA交易](http://www.blog.minike.top/Article/details/48139827.shtml)
-- 2026-06-29 16:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/127363211.shtml)
-- 2026-06-29 16:10 - [我和我的家乡](https://www.blog.minike.top/Article/details/37154204503.shtml)
-- 2026-06-29 16:05 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/64489.shtml)
-- 2026-06-29 16:26 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/20581.shtml)
+- 2026-06-29 16:11 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/38608183.shtml)
+- 2026-06-29 16:23 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/58300.shtml)
+- 2026-06-29 16:17 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/39551239723.shtml)
+- 2026-06-29 16:33 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/32713.shtml)
+- 2026-06-29 16:33 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/34914393.shtml)
+- 2026-06-29 16:06 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/053986189.shtml)
+- 2026-06-29 16:24 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/434286.shtml)
+- 2026-06-29 16:30 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/746652077185.shtml)
+- 2026-06-29 16:30 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/83917.shtml)
+- 2026-06-29 16:30 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/95344.shtml)
+- 2026-06-29 16:17 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/71989843380.shtml)
+- 2026-06-29 16:27 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/1029693.shtml)
+- 2026-06-29 16:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/804530257965.shtml)
+- 2026-06-29 16:06 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/261601990.shtml)
+- 2026-06-29 16:08 - [沉睡花园](https://www.blog.minike.top/Article/details/770619226568.shtml)

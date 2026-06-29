@@ -1,58 +1,56 @@
-# 第93届CMEF在沪举行 AI医疗应用引关注
+# 专家：方言用字读音应尊重方言本源 守护乡土文脉
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-中新社上海4月11日电 (记者 陈静)正在上海举行的第93届中国国际医疗器械博览会(CMEF)上，多款人工智能(AI)医疗应用引关注。 由GE医疗中国团队主导研发、全球资源协同的创新成果—— Allia Celeo Max朱雀旗舰型血管造影系统(下称：朱雀)亮相现场。作为一款创新型碳纤维大孔径介入平台，朱雀将AI无缝嵌入到介入诊疗的全流程，实现了从“看见”到“看清”，再到“预见
+发布时间：2026年05月22日 17:16 来源：中国新闻网 潮汕方言电影《给阿嬷的情书》持续引发热议，除真挚的侨乡故事、写实的本土表达收获大众好评外，片名中“阿嬷”的用字、读音差异，也在社会引发讨论。 在5月22日深圳举行的2026文化强国建设高峰论坛冷门绝学传承与创新论坛上，暨南大学文学院教授甘于恩表示，方言用字读音应遵循两大核心原则，一是尊重当地原生发音与语言习惯，二是
 
 ## 正文
 
-中新社上海4月11日电 (记者 陈静)正在上海举行的第93届中国国际医疗器械博览会(CMEF)上，多款人工智能(AI)医疗应用引关注。
+发布时间：2026年05月22日 17:16 来源：中国新闻网 潮汕方言电影《给阿嬷的情书》持续引发热议，除真挚的侨乡故事、写实的本土表达收获大众好评外，片名中“阿嬷”的用字、读音差异，也在社会引发讨论。
 
-由GE医疗中国团队主导研发、全球资源协同的创新成果—— Allia Celeo Max朱雀旗舰型血管造影系统(下称：朱雀)亮相现场。
+在5月22日深圳举行的2026文化强国建设高峰论坛冷门绝学传承与创新论坛上，暨南大学文学院教授甘于恩表示，方言用字读音应遵循两大核心原则，一是尊重当地原生发音与语言习惯，二是遵循民间约定俗成的使用传统。
 
-作为一款创新型碳纤维大孔径介入平台，朱雀将AI无缝嵌入到介入诊疗的全流程，实现了从“看见”到“看清”，再到“预见”的跨越。
+甘于恩详细阐释了阿嬷(a ma)和(a mo)的核心语义区别。
 
-GE医疗大中华区副总裁、先进可视化诊疗业务总经理徐悦表示，朱雀是“全球资源+中国创新”双轮驱动的典型。
+在普通话语境中，“嬷嬷”多指年长妇女，但潮汕方言属于典型南方方言体系，亲属普遍采用“阿+前缀”的称谓结构，这也是南北方言亲属称谓的差异。
 
-中国高水平的医疗中心和专家以及巨大的手术量，大大缩短了研发周期。
+在他看来，应该是念阿嬷(a ma)。
 
-“中国智造”正深度参与全球高端医疗装备的创新发展。
-
-明日像素携自主研发的“AI医美大脑”全栈技术体系亮相。
-
-“AI医美大脑”依托高速马达、智能算法、AI芯片，构建起集感知、分析、决策于一体的专属技术体系，包含多个自研核心技术，比如：皮肤像素级分割算法实现微米级精细评估；术后效果预测大模型降低医患纠纷等。
+(记者 蔡敏婕 制作 王佳琪) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 16:01 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 16:16 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 16:01 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 16:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 16:05 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 16:08 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 16:18 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 16:28 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 16:07 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 16:29 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 16:06 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 16:16 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 16:19 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 16:15 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 16:33 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 16:22 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 16:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 16:34 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 16:11 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 16:27 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 16:12 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 16:26 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 16:32 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 16:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 16:31 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 16:23 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:10 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/5114908.shtml)
-- 2026-06-29 16:25 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/927948510592.shtml)
-- 2026-06-29 16:02 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/523537896450.shtml)
-- 2026-06-29 16:15 - [曝歌手第七期帮唱阵容](http://www.share.minike.top/Article/details/9824945789.shtml)
-- 2026-06-29 16:22 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/7865639250.shtml)
-- 2026-06-29 16:27 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/9948317347.shtml)
-- 2026-06-29 16:20 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/03125.shtml)
-- 2026-06-29 16:23 - [光与夜之恋](http://www.share.kurohicncr.top/Article/details/240545.shtml)
-- 2026-06-29 16:27 - [12所大学更正招生目录](https://www.share.minike.top/Article/details/96585325938.shtml)
-- 2026-06-29 16:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/105036973303.shtml)
-- 2026-06-29 16:13 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/098477.shtml)
-- 2026-06-29 16:17 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/43496019968.shtml)
-- 2026-06-29 16:01 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/27803.shtml)
-- 2026-06-29 16:24 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/710660.shtml)
-- 2026-06-29 16:18 - [啊啊啊](https://www.share.minike.top/Article/details/497134.shtml)
+- 2026-06-29 16:17 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/81157.shtml)
+- 2026-06-29 16:29 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/4579409.shtml)
+- 2026-06-29 16:17 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/61183354239.shtml)
+- 2026-06-29 16:29 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/231853.shtml)
+- 2026-06-29 16:17 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/746049694.shtml)
+- 2026-06-29 16:20 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.minike.top/Article/details/8157187.shtml)
+- 2026-06-29 16:28 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/2677763923.shtml)
+- 2026-06-29 16:12 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/55268541.shtml)
+- 2026-06-29 16:14 - [20年前的周杰伦](http://www.share.minike.top/Article/details/194713316.shtml)
+- 2026-06-29 16:32 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/05400717.shtml)
+- 2026-06-29 16:11 - [毒液2](https://www.blog.minike.top/Article/details/7472805.shtml)
+- 2026-06-29 16:08 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/662914084849.shtml)
+- 2026-06-29 16:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/345922774.shtml)
+- 2026-06-29 16:11 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/14825407350.shtml)
+- 2026-06-29 16:31 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/821746412395.shtml)

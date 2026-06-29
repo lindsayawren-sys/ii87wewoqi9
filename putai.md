@@ -1,46 +1,56 @@
-# 永达汽车于4月9日斥资68.19万港元回购55万股
+# 花旗：联想集团给予“买入”评级 目标价12.60港元
 
-> 更新时间：2026-06-29 16:30:02 UTC+8
+> 更新时间：2026-06-29 16:36:02 UTC+8
 
 ## 摘要
 
-永达汽车（03669）发布公告，于2026年4月9日斥资68.19万港元回购55万股。责任编辑：卢昱君
+花旗发布研报称，联想集团（00992）近期股价强势已反映市场对今次亮眼业绩的正面预期。目标价12.6港元，评级“买入”。 联想第四财季业绩胜预期。收入215.6亿美元，同比增长27%，创五年来最高季度增长率，较该行预测高出19%，较市场预测高出13%。毛利率为16.4%，与去年持平，但较该行预测高出1.5个百分点、较市场预测高出1.6个百分点，主要受惠于更好的产品组合及ISG毛
 
 ## 正文
 
-永达汽车（03669）发布公告，于2026年4月9日斥资68.19万港元回购55万股。
+花旗发布研报称，联想集团（00992）近期股价强势已反映市场对今次亮眼业绩的正面预期。
+
+目标价12.6港元，评级“买入”。
+
+联想第四财季业绩胜预期。
+
+收入215.6亿美元，同比增长27%，创五年来最高季度增长率，较该行预测高出19%，较市场预测高出13%。
+
+毛利率为16.4%，与去年持平，但较该行预测高出1.5个百分点、较市场预测高出1.6个百分点，主要受惠于更好的产品组合及ISG毛利率转正。
+
+营运开支同比上升8%，较该行及市场预测分别高出19%及18%，主要来自员工成本及研发投入增加，但被强劲收入增长充分抵销。
+
+净利润5.21亿美元，同比增479%，较该行预测高出127%，较市场预测高出79%。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:19 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 16:03 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 16:02 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 16:00 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 16:15 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 16:24 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 16:12 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 16:29 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 16:04 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 16:26 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 16:01 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 16:11 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 16:23 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 16:22 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 16:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 16:25 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 16:18 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 16:27 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 16:27 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 16:10 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 16:18 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 16:34 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:17 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/19320.shtml)
-- 2026-06-29 16:13 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/9615724.shtml)
-- 2026-06-29 16:06 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/4172106047.shtml)
-- 2026-06-29 16:20 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/733531966397.shtml)
-- 2026-06-29 16:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/4466495523.shtml)
-- 2026-06-29 16:07 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/03697.shtml)
-- 2026-06-29 16:13 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/0746692.shtml)
-- 2026-06-29 16:24 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/401127543726.shtml)
-- 2026-06-29 16:25 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/8355018838.shtml)
-- 2026-06-29 16:23 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/48117514859.shtml)
-- 2026-06-29 16:05 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/74426793299.shtml)
-- 2026-06-29 16:09 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/839792.shtml)
-- 2026-06-29 16:29 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/902911529.shtml)
-- 2026-06-29 16:09 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/654315943.shtml)
-- 2026-06-29 16:12 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/128118849135.shtml)
+- 2026-06-29 16:06 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/14342.shtml)
+- 2026-06-29 16:07 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/02829334474.shtml)
+- 2026-06-29 16:29 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/849346381.shtml)
+- 2026-06-29 16:14 - [如何“亲菌子”又“远小人儿”](https://www.blog.minike.top/Article/details/36116002.shtml)
+- 2026-06-29 16:25 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/0663348.shtml)
+- 2026-06-29 16:17 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/713330.shtml)
+- 2026-06-29 16:30 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/30453853.shtml)
+- 2026-06-29 16:27 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/0250678.shtml)
+- 2026-06-29 16:18 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/506451872836.shtml)
+- 2026-06-29 16:32 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/2755435813.shtml)
+- 2026-06-29 16:10 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/74816041.shtml)
+- 2026-06-29 16:08 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/08848353.shtml)
+- 2026-06-29 16:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/250494821.shtml)
+- 2026-06-29 16:34 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/353658780.shtml)
+- 2026-06-29 16:29 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/40600109.shtml)
