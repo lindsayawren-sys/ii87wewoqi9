@@ -1,48 +1,57 @@
-# 6月12日增减持汇总：交大昂立、上海凯宝披露增持情况，智新电子等9股拟减持（表）
+# “行走河南·读懂中国”暑期文化旅游消费季在古都安阳启动
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据不完全统计，6月12日盘后，交大昂立、上海凯宝披露增持情况，包括智新电子、中瓷电子、北京文化、博瑞医药（维权）、美迪西、南亚新材、达实智能、九州一轨、海阳科技在内的9家A股上市公司披露拟减持情况。 责任编辑：孙同怀
+中新网安阳5月23日电 (王宇赵梦阳)5月22日晚，2026河南省文化旅游发展大会“行走河南·读懂中国”暑期文化旅游消费季在古都安阳启动，来自文旅领域知名专家学者和头部企业负责人等嘉宾齐聚甲骨之乡，共赴一场中华文明之约。 当晚，开幕式演出以《溯·文脉》《览·山河》《见·风骨》《迎·宾朋》四大篇章层层铺陈。伴着开场舞《玄鸟迎宾》的翩跹身姿，一只玄鸟承载着“天命玄鸟，降而生商”的远
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网安阳5月23日电 (王宇赵梦阳)5月22日晚，2026河南省文化旅游发展大会“行走河南·读懂中国”暑期文化旅游消费季在古都安阳启动，来自文旅领域知名专家学者和头部企业负责人等嘉宾齐聚甲骨之乡，共赴一场中华文明之约。
 
-据不完全统计，6月12日盘后，交大昂立、上海凯宝披露增持情况，包括智新电子、中瓷电子、北京文化、博瑞医药（维权）、美迪西、南亚新材、达实智能、九州一轨、海阳科技在内的9家A股上市公司披露拟减持情况。
+当晚，开幕式演出以《溯·文脉》《览·山河》《见·风骨》《迎·宾朋》四大篇章层层铺陈。
 
-责任编辑：孙同怀
+伴着开场舞《玄鸟迎宾》的翩跹身姿，一只玄鸟承载着“天命玄鸟，降而生商”的远古记忆在光影中苏醒。
+
+在AI互动视频《阿邑的时代旅行》中，古人“阿邑”穿越千年，漫步沿黄大遗址走廊，打卡文明足迹、品味美食、体验科技，震撼全场。
+
+“只有河南·戏剧幻城”的创新演绎、清明上河园的东京梦华、万岁山的沉浸式体验、云台山的精细化服务、宝泉的山水新玩法……近年来，河南立足文旅资源优势，擦亮“行走河南·读懂中国”文旅品牌，文旅融合生机勃发。
+
+为什么是河南？
+
+中国旅游协会秘书长葛磊从文化的高度、情绪的浓度、人心的温度三个方面诠释河南文旅的“出圈密码”。
+
+他认为，河南文旅走出了一条从“看景”到“入戏”，从卷“资源”到卷“创新”，从“流量至上”到“游客至上”的转型之路。
 
 ## 相关推荐
 
-- 2026-06-29 18:38 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 19:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 18:41 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 18:51 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 18:43 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 18:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 18:39 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 19:00 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 18:52 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 18:42 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 18:38 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 18:57 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 19:11 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 19:03 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 19:02 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 19:08 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 19:02 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 18:54 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 19:00 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 18:57 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 19:05 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 18:47 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 19:02 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:55 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/5034963109.shtml)
-- 2026-06-29 18:58 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/07103502.shtml)
-- 2026-06-29 18:54 - [《贺子珍》](http://www.blog.minike.top/Article/details/13801082831.shtml)
-- 2026-06-29 18:37 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/597888.shtml)
-- 2026-06-29 18:41 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/562618.shtml)
-- 2026-06-29 18:41 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/14754369.shtml)
-- 2026-06-29 19:05 - [流金岁月](https://www.blog.minike.top/Article/details/560061062.shtml)
-- 2026-06-29 18:49 - [范志毅看好日本淘汰巴西](https://www.share.kurohicncr.top/Article/details/6755266.shtml)
-- 2026-06-29 19:04 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/081891261.shtml)
-- 2026-06-29 18:36 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/639799843052.shtml)
-- 2026-06-29 18:58 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/438905285600.shtml)
-- 2026-06-29 18:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/111300357188.shtml)
-- 2026-06-29 19:04 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/862004078585.shtml)
-- 2026-06-29 18:49 - [四川达州发生一起交通事故致2死](https://www.share.kurohicncr.top/Article/details/73390681478.shtml)
-- 2026-06-29 18:36 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/793686645019.shtml)
+- 2026-06-29 19:00 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/098975.shtml)
+- 2026-06-29 19:07 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/314964600901.shtml)
+- 2026-06-29 18:51 - [机器人学校开学了](http://www.share.kurohicncr.top/Article/details/385998.shtml)
+- 2026-06-29 18:43 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/74701.shtml)
+- 2026-06-29 19:09 - [花万元相亲对象是50元雇的演员](https://www.share.minike.top/Article/details/567912.shtml)
+- 2026-06-29 19:03 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/1216357124.shtml)
+- 2026-06-29 18:48 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/102425.shtml)
+- 2026-06-29 18:58 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/15889.shtml)
+- 2026-06-29 18:43 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/36656158859.shtml)
+- 2026-06-29 18:53 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/339221.shtml)
+- 2026-06-29 19:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/009036967345.shtml)
+- 2026-06-29 18:44 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/12521504856.shtml)
+- 2026-06-29 19:11 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/43458155.shtml)
+- 2026-06-29 18:56 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/57018973421.shtml)
+- 2026-06-29 18:53 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/681827.shtml)

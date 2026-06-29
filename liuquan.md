@@ -1,58 +1,59 @@
-# SpaceX加密货币交易IPO合约一度大跌，如今反弹指向2.4万亿美元估值
+# 两位投行总部高级经理与东方证券的劳动争议
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-Hyperliquid平台上一只与SpaceX挂钩的永续合约在历经三周下跌后强势反弹。该合约以SPCX为代码交易，在埃隆·马斯克的火箭与卫星公司股票预计于本周五首日上市之前，收窄了此前隐含的首日涨幅溢价。 该合约周五上午的交易价格在176美元至183美元之间，较本周早些时候接近153美元的低点有所回升，也高于CoinDesk周三报道中约157美元的水平——当时该报道称加密货币交
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：五道口江湖 原标题：与东方证券的劳动争议 近日，上海开庭公告有两个开庭消息，一个是王X，起诉东方证券，另一个是尚某，起诉东方证券，缘由都是劳动合同纠纷。 公开资料显示，王X，任东方证券产业投行总部高级经理，研究生学历。曾先后参与泰鸿万立IPO、博俊科技再融资等项目。 尚X，任东方证券产业投行总部高级经
 
 ## 正文
 
-Hyperliquid平台上一只与SpaceX挂钩的永续合约在历经三周下跌后强势反弹。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该合约以SPCX为代码交易，在埃隆·马斯克的火箭与卫星公司股票预计于本周五首日上市之前，收窄了此前隐含的首日涨幅溢价。
+来源：五道口江湖 原标题：与东方证券的劳动争议 近日，上海开庭公告有两个开庭消息，一个是王X，起诉东方证券，另一个是尚某，起诉东方证券，缘由都是劳动合同纠纷。
 
-该合约周五上午的交易价格在176美元至183美元之间，较本周早些时候接近153美元的低点有所回升，也高于CoinDesk周三报道中约157美元的水平——当时该报道称加密货币交易者正在下调对IPO首日涨幅的预期。
+公开资料显示，王X，任东方证券产业投行总部高级经理，研究生学历。
 
-Hyperliquid平台上该合约的未平仓量接近2.16亿美元，24小时交易量超过1.5亿美元。
+曾先后参与泰鸿万立IPO、博俊科技再融资等项目。
 
-未平仓量指的是活跃或未平仓合约的美元价值。
+尚X，任东方证券产业投行总部高级经理，研究生学历。
 
-Hyperliquid的SPCX合约并不赋予持有人SpaceX的股票、配售权或任何对公司的索取权。
+曾先后参与普源精电 IPO、志高机械 IPO 等项目。
 
-它是一种以现金结算的衍生品。
+他们两人曾同在浙江明禾新能的项目组中。
 
-但由于SpaceX将其IPO定价固定在每股135美元，该合约已成为少数几个能显示交易者认为该股可能以什么价格开盘的实时市场之一。
+当初这个项目中组员，25年都已经离职，有两人上岸国考，有两人跟公司有就劳动纠纷。
 
 ## 相关推荐
 
-- 2026-06-29 18:45 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 18:57 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 18:49 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 18:44 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 19:00 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 18:47 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 19:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 18:40 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 19:03 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 18:37 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 18:48 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 18:54 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 19:03 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 19:11 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 18:50 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 19:01 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 19:05 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 18:46 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 19:09 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 18:57 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 19:11 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 18:49 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 18:49 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 19:11 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 18:54 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:56 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/3242518913.shtml)
-- 2026-06-29 18:46 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/694319.shtml)
-- 2026-06-29 18:42 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/7035092.shtml)
-- 2026-06-29 18:45 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/8578913.shtml)
-- 2026-06-29 18:43 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/8366393.shtml)
-- 2026-06-29 18:37 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/9701712547.shtml)
-- 2026-06-29 18:39 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/59990098.shtml)
-- 2026-06-29 18:50 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/8797537.shtml)
-- 2026-06-29 18:57 - [网红小徐直播时突遇地震](http://www.blog.kurohicncr.top/Article/details/9868640440.shtml)
-- 2026-06-29 18:55 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/115542.shtml)
-- 2026-06-29 18:53 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/871769303926.shtml)
-- 2026-06-29 18:49 - [葛军透露高考出题思路](http://www.share.minike.top/Article/details/5263420808.shtml)
-- 2026-06-29 18:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/875156553267.shtml)
-- 2026-06-29 19:00 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/453624712.shtml)
-- 2026-06-29 19:03 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/71532.shtml)
+- 2026-06-29 18:48 - [当家电外通风口出现鸟窝](http://www.blog.minike.top/Article/details/9476052.shtml)
+- 2026-06-29 19:04 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/18234663.shtml)
+- 2026-06-29 18:44 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/940524.shtml)
+- 2026-06-29 18:46 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/9993093761.shtml)
+- 2026-06-29 18:57 - [滚石点名酒店员工说有急救培训](https://www.share.minike.top/Article/details/69766.shtml)
+- 2026-06-29 19:04 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/06018.shtml)
+- 2026-06-29 19:06 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/441427.shtml)
+- 2026-06-29 18:59 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/374098505.shtml)
+- 2026-06-29 18:53 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/04413.shtml)
+- 2026-06-29 19:03 - [人形机器人](https://www.share.minike.top/Article/details/46920540.shtml)
+- 2026-06-29 18:58 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/066802.shtml)
+- 2026-06-29 18:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/036300.shtml)
+- 2026-06-29 18:44 - [东方风云榜](http://www.share.minike.top/Article/details/22382733.shtml)
+- 2026-06-29 18:44 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/840404197.shtml)
+- 2026-06-29 18:49 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/55221094.shtml)

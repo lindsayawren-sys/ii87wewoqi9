@@ -1,56 +1,61 @@
-# 中国船舶股份2025年年度股东会顺利召开
+# 担保再现、息费模糊、幽灵扣款：网贷平台的“猫鼠游戏”｜金融乱象观察
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-2026年6月10日，中国船舶股份在上海召开2025年年度股东会。中船集团党组成员、副总经理、中国船舶股份董事长胡贤甫主持会议，公司董事、高管以及多位公司股东、股东代理人出席会议。本次股东会采用现场及网络投票相结合的方式召开并表决，出席会议的股东及股东授权代表共4,101人，累计代表的股份总数为46.15亿股，占公司总股本的61.32%。会议审议了公司2025年度董事会报告、2
+原标题：担保再现、息费模糊、幽灵扣款：网贷平台的“猫鼠游戏”|金融乱象观察② 强监管之下，助贷行业正加速调整业务以适应合规要求，但行业乱象仍存在。 近日，有用户向界面新闻记者表示，在网贷平台宜享花申请借款时，还款计划（试算）中出现“担保费”，且实际年化利率（IRR，下同）超过24%。 伴随着《关于加强商业银行互联网助贷业务管理提升金融服务质效的通知》（下称《通知》）落地实施，目
 
 ## 正文
 
-2026年6月10日，中国船舶股份在上海召开2025年年度股东会。
+原标题：担保再现、息费模糊、幽灵扣款：网贷平台的“猫鼠游戏”|金融乱象观察② 强监管之下，助贷行业正加速调整业务以适应合规要求，但行业乱象仍存在。
 
-中船集团党组成员、副总经理、中国船舶股份董事长胡贤甫主持会议，公司董事、高管以及多位公司股东、股东代理人出席会议。
+近日，有用户向界面新闻记者表示，在网贷平台宜享花申请借款时，还款计划（试算）中出现“担保费”，且实际年化利率（IRR，下同）超过24%。
 
-本次股东会采用现场及网络投票相结合的方式召开并表决，出席会议的股东及股东授权代表共4,101人，累计代表的股份总数为46.15亿股，占公司总股本的61.32%。
+伴随着《关于加强商业银行互联网助贷业务管理提升金融服务质效的通知》（下称《通知》）落地实施，目前助贷机构普遍遵循的利率上限是24%，且担保费需要纳入到综合融资水平。
 
-会议审议了公司2025年度董事会报告、2025年度利润分配方案及公司2026年中期分红安排等九项议案，均以99.5%以上的高赞成率审议通过。
+“可以有担保费，但加上担保费的综合利率不能超过24%。
 
-同时，会议还听取了公司独立董事的年度述职。
+”有业内人士称。
 
-本次会议受到众多股东及股东代表的高度关注和积极参与。
+根据央行2021年下发的公告，计算贷款年化利率较为公允的方法是，根据借款人的借款本金、每期还款金额、贷款期数等要素，考虑复利后计算得出的年化内部收益率（IRR）。
 
-在会议现场，股东们围绕船舶工业发展与公司生产经营情况，与公司董事、管理层进行了充分交流。
+多名助贷人士告诉界面新闻记者，目前业内基本默认使用IRR计算利率水平。
 
-股东们对公司2025年吸并重组后的整合质效和全年取得的经营发展成果给予了充分肯定，对公司后续的高质量可持续发展充满信心，同时，也给公司提出了许多宝贵的意见和建议。
+另外，界面新闻记者实测平台发现，宜享花存在费用分项收取、息费披露模糊、诱导开通付费服务等现象。
 
 ## 相关推荐
 
-- 2026-06-29 19:05 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 18:45 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 18:40 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 18:43 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 18:54 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 18:58 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 18:41 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 18:59 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 18:58 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 18:52 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 19:00 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 18:52 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 18:51 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 19:09 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 19:10 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 19:08 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 18:51 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 19:11 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 19:04 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 18:58 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 19:02 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 19:06 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 18:49 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 19:11 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 18:59 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:36 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/21993886.shtml)
-- 2026-06-29 18:50 - [大学专业未来如何洗牌](https://www.blog.kurohicncr.top/Article/details/89060.shtml)
-- 2026-06-29 18:58 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/81856.shtml)
-- 2026-06-29 18:44 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/591124231.shtml)
-- 2026-06-29 18:42 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/63728375038.shtml)
-- 2026-06-29 18:42 - [医药生物行业今日涨5.91%](http://www.share.minike.top/Article/details/31165010670.shtml)
-- 2026-06-29 18:43 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/056089178.shtml)
-- 2026-06-29 19:01 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/06029.shtml)
-- 2026-06-29 18:55 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/6133791.shtml)
-- 2026-06-29 19:04 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/440279694965.shtml)
-- 2026-06-29 18:43 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/68814.shtml)
-- 2026-06-29 18:47 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/759864.shtml)
-- 2026-06-29 18:53 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/27141119.shtml)
-- 2026-06-29 18:56 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/10900702.shtml)
-- 2026-06-29 18:59 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/3211966.shtml)
+- 2026-06-29 18:46 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/5303669794.shtml)
+- 2026-06-29 18:43 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/90754.shtml)
+- 2026-06-29 18:47 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/38176125008.shtml)
+- 2026-06-29 18:45 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/06562626.shtml)
+- 2026-06-29 18:51 - [沙丘](https://www.share.kurohicncr.top/Article/details/27851.shtml)
+- 2026-06-29 19:11 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/973824.shtml)
+- 2026-06-29 18:58 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/333363.shtml)
+- 2026-06-29 18:54 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/79140735.shtml)
+- 2026-06-29 18:42 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/2630689.shtml)
+- 2026-06-29 18:47 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/09802968987.shtml)
+- 2026-06-29 19:05 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/9387300408.shtml)
+- 2026-06-29 19:03 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/9021422.shtml)
+- 2026-06-29 18:54 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/7120860.shtml)
+- 2026-06-29 18:57 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/13519.shtml)
+- 2026-06-29 18:46 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/8825926371.shtml)

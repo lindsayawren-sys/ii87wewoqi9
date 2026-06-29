@@ -1,56 +1,59 @@
-# 萌娃追风：滑步车赛跑出冰城全民健身新风景
+# 邦达亚洲:美元走高油价回落 美元加元小幅收涨
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨6月13日电 (记者 刘锡菊)13日，一场属于冰城萌娃的“追风”比赛，在初夏的哈尔滨火热开跑。发令哨响，头戴彩色头盔、身着护具的小选手们双腿蹬地，滑步车如离弦之箭冲出起点。小选手们紧握车把，全神贯注，在弯道处微微侧身——场边家长们的一声声“加油”淹没在掌声与呐喊里。这是哈尔滨市第三届少儿骑士滑步车大赛的现场，近千名小骑手齐聚赛场。 本次赛事由哈尔滨市体育局提供支持、
+5月22日，根据美国劳工部周四公布的数据，在截至5月16日的一周内，初请失业金人数减少了3000人，降至20.9万人。对经济学家进行的一项调查得出的预测中位数为21万人。上周美国申请失业救济的人数变化不大，这表明尽管近期有一些裁员消息宣布，但裁员规模依然处于低位。数据公布之后，利率期货交易员们对于美联储今年重启降息前景的预期可谓进一步削弱，几乎100%定价今年按兵不动（既不加息
 
 ## 正文
 
-中新网哈尔滨6月13日电 (记者 刘锡菊)13日，一场属于冰城萌娃的“追风”比赛，在初夏的哈尔滨火热开跑。
+5月22日，根据美国劳工部周四公布的数据，在截至5月16日的一周内，初请失业金人数减少了3000人，降至20.9万人。
 
-发令哨响，头戴彩色头盔、身着护具的小选手们双腿蹬地，滑步车如离弦之箭冲出起点。
+对经济学家进行的一项调查得出的预测中位数为21万人。
 
-小选手们紧握车把，全神贯注，在弯道处微微侧身——场边家长们的一声声“加油”淹没在掌声与呐喊里。
+上周美国申请失业救济的人数变化不大，这表明尽管近期有一些裁员消息宣布，但裁员规模依然处于低位。
 
-这是哈尔滨市第三届少儿骑士滑步车大赛的现场，近千名小骑手齐聚赛场。
+数据公布之后，利率期货交易员们对于美联储今年重启降息前景的预期可谓进一步削弱，几乎100%定价今年按兵不动（既不加息也不降息的维系基准利率不变立场）并且对于12月加息定价的概率基准一度接近50%。
 
-本次赛事由哈尔滨市体育局提供支持、市体育局赛事活动专班指导，是当地推进体育赛事“进景区、进街区、进商圈”、打造“跟着赛事去旅行”品牌的示范活动，也是儿童友好城市建设的特色IP赛事。
+作为领取失业救济人数替代指标的连续申请失业救济人数，在此前一周小幅上升至178万人。
 
-专业赛道蜿蜒铺开，防护设施、计时区域、观赛休息区一应俱全。
+另外，在美伊战火引发油价飙升，从而引爆通胀再抬头的担忧下，不仅市场彻底放弃降息希望暗暗担忧“加息噩梦”，美联储官员近期也频频“放鹰”暗示潜在的加息。
 
-小选手们穿戴整齐，有的在热身区认真压腿，有的蹲下身子反复调试车轮；场外，家长们举着手机伸长胳膊，生怕错过孩子冲线的瞬间，加油声此起彼伏，热闹非凡。
+不过，里士满联储主席托马斯·巴尔金发表了不一样的观点。
 
-滑步车没有脚踏和链条，靠的只是孩子双脚蹬地，却在每一次前进中“跑”出了勇气与协调。
+他周四表示，提高利率可能不是当前形势的正确做法，如果长期通胀预期没有上升，美联储可能会对油价飙升视而不见。
 
 ## 相关推荐
 
-- 2026-06-29 18:37 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 19:03 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 19:02 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 18:50 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 18:49 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 18:39 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 18:42 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 18:42 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 18:36 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 18:50 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 19:00 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 19:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 18:56 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 19:11 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 18:49 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 19:08 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 19:08 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 19:08 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 18:46 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 19:06 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 18:55 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 18:55 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 18:45 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:00 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/4854001.shtml)
-- 2026-06-29 18:57 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/2425038912.shtml)
-- 2026-06-29 18:42 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/0109896116.shtml)
-- 2026-06-29 18:44 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/93359.shtml)
-- 2026-06-29 19:00 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/35023959614.shtml)
-- 2026-06-29 18:47 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/7495007348.shtml)
-- 2026-06-29 19:00 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/61359965405.shtml)
-- 2026-06-29 18:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/909248811020.shtml)
-- 2026-06-29 18:53 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/575527.shtml)
-- 2026-06-29 18:50 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.kurohicncr.top/Article/details/18641.shtml)
-- 2026-06-29 18:39 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/857298.shtml)
-- 2026-06-29 18:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/2516031054.shtml)
-- 2026-06-29 18:40 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/170221.shtml)
-- 2026-06-29 19:03 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/00552.shtml)
-- 2026-06-29 18:42 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/44995348792.shtml)
+- 2026-06-29 19:05 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/482042.shtml)
+- 2026-06-29 18:54 - [两老人多次到一洗车店泼粪](https://www.share.kurohicncr.top/Article/details/41287.shtml)
+- 2026-06-29 18:51 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/58694391858.shtml)
+- 2026-06-29 18:57 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/7773719218.shtml)
+- 2026-06-29 18:42 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/28236.shtml)
+- 2026-06-29 18:44 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.kurohicncr.top/Article/details/648445934769.shtml)
+- 2026-06-29 19:01 - [明星大侦探第四季](http://www.share.minike.top/Article/details/688517835.shtml)
+- 2026-06-29 18:59 - [叠纸](http://www.blog.kurohicncr.top/Article/details/19851853930.shtml)
+- 2026-06-29 18:51 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/19645775.shtml)
+- 2026-06-29 18:58 - [沙丘](https://www.share.minike.top/Article/details/215295641639.shtml)
+- 2026-06-29 19:04 - [小鹏MONAL03预售定档7月2日](https://www.share.kurohicncr.top/Article/details/85350361.shtml)
+- 2026-06-29 19:00 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/06609938111.shtml)
+- 2026-06-29 19:07 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/23452.shtml)
+- 2026-06-29 18:58 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/618215.shtml)
+- 2026-06-29 18:44 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/1972675881.shtml)

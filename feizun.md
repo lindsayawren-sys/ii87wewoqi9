@@ -1,61 +1,56 @@
-# 谷歌解释为何放弃特朗普政府20亿美元量子计划
+# 湖南衡阳严肃处理祁东县、雁峰区两起火灾事故责任人
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-谷歌公司近日披露了未参与特朗普政府推出的20亿美元量子计算资助计划的原因。谷歌量子人工智能首席运营官Charina Chou在Semafor科技峰会上表示，该资金附带的各种条件与公司既定的研发时间表存在冲突，可能拖慢打造可用量子计算机的进程。 Charina Chou明确表示，“谷歌希望以尽可能快的速度推进量子计算机的研发”，而接受这笔资金将无法实现这一目标。她同时强调，此次缺
+雁峰区、祁东县火灾事故有关责任人受到组织处理 2026年5月12日，雁峰区雁峰街道厉家冲社区锁厂家属区居民楼发生5人死亡、2人受伤火灾事故。5月24日，祁东县洪桥街道上正社区一商铺发生5人死亡、1人受伤火灾事故。两起火灾事故造成较大人员伤亡，性质恶劣、教训深刻，充分暴露出相关责任人安全意识淡薄、大排查大整治履职尽责不到位、安全工作中重大风险隐患排查不到位、整改不彻底、责任不落实
 
 ## 正文
 
-谷歌公司近日披露了未参与特朗普政府推出的20亿美元量子计算资助计划的原因。
+雁峰区、祁东县火灾事故有关责任人受到组织处理 2026年5月12日，雁峰区雁峰街道厉家冲社区锁厂家属区居民楼发生5人死亡、2人受伤火灾事故。
 
-谷歌量子人工智能首席运营官Charina Chou在Semafor科技峰会上表示，该资金附带的各种条件与公司既定的研发时间表存在冲突，可能拖慢打造可用量子计算机的进程。
+5月24日，祁东县洪桥街道上正社区一商铺发生5人死亡、1人受伤火灾事故。
 
-Charina Chou明确表示，“谷歌希望以尽可能快的速度推进量子计算机的研发”，而接受这笔资金将无法实现这一目标。
+两起火灾事故造成较大人员伤亡，性质恶劣、教训深刻，充分暴露出相关责任人安全意识淡薄、大排查大整治履职尽责不到位、安全工作中重大风险隐患排查不到位、整改不彻底、责任不落实。
 
-她同时强调，此次缺席仅限于这一特定项目，公司仍在“以其他方式”与华盛顿保持合作，并呼吁政府加大对量子基础研究的投入。
+记者从有关方面获悉，衡阳市依规依程序，已对在两起火灾事故中负有责任的相关人员，作出组织处理。
 
-这项总额20亿美元的资助计划于2026年5月以意向书形式宣布，资金源自2022年《芯片与科学法案》。
+根据有关规定，按程序免去赵双凤同志祁东县人大常委会副主任职务，按程序免去宁明忠同志祁东县人民政府副县长、县公安局局长职务。
 
-最终获得资助的九家企业包括IBM、GlobalFoundries、Quantinuum、PsiQuantum、Rigetti Computing及Infleqtion等。
+同时，雁峰区委免去彭志峰同志雁峰街道党工委书记职务；祁东县委免去周伟罡同志祁东县洪桥街道党工委书记职务，免去李畅同志祁东县洪桥街道党工委副书记、办事处主任职务。
 
-谷歌及其竞争对手微软、IonQ均未出现在最终名单中。
+下一步，还将根据事故调查结果，对有关责任人进行严肃追责问责。
 
-PsiQuantum联合创始人Pete Shadbolt在同一峰会上为政府介入辩护，称鉴于量子技术的地缘政治影响，“这关乎国家安全”，政府投资“再自然不过”。
+据悉，衡阳全市上下将痛定思痛，切实以案为警，从严从实从细抓好安全生产大排查大整治工作；建立完善群众举报机制，筑牢安全生产人民防线。
 
 ## 相关推荐
 
-- 2026-06-29 18:46 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 18:56 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 18:55 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 18:37 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 18:48 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 18:50 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 18:45 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 18:45 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 18:48 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 18:40 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 18:49 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 18:42 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 18:45 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 18:40 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 18:48 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 18:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 18:48 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 19:05 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 18:42 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 18:53 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 18:47 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 18:42 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 18:48 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 18:53 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 18:49 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:06 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/571670275.shtml)
-- 2026-06-29 18:38 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/940621397.shtml)
-- 2026-06-29 18:56 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/02881.shtml)
-- 2026-06-29 18:55 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/256421730.shtml)
-- 2026-06-29 18:54 - [医药生物行业今日涨5.91%](https://www.share.minike.top/Article/details/307072.shtml)
-- 2026-06-29 18:36 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/081459060.shtml)
-- 2026-06-29 18:40 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/75715756.shtml)
-- 2026-06-29 18:57 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/5969269146.shtml)
-- 2026-06-29 18:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/676990.shtml)
-- 2026-06-29 18:59 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/93246505926.shtml)
-- 2026-06-29 19:04 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/51522830.shtml)
-- 2026-06-29 18:49 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/46287409.shtml)
-- 2026-06-29 19:05 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/60166952401.shtml)
-- 2026-06-29 18:45 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/73087674.shtml)
-- 2026-06-29 18:58 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/65997931943.shtml)
+- 2026-06-29 19:05 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/230310358.shtml)
+- 2026-06-29 19:03 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/66165.shtml)
+- 2026-06-29 19:11 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/90131984450.shtml)
+- 2026-06-29 19:05 - [7款高价创新药有望降价](https://www.blog.kurohicncr.top/Article/details/69554687.shtml)
+- 2026-06-29 18:51 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/75356167470.shtml)
+- 2026-06-29 18:44 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.kurohicncr.top/Article/details/5275425563.shtml)
+- 2026-06-29 18:59 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/34200929243.shtml)
+- 2026-06-29 18:43 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/75150060188.shtml)
+- 2026-06-29 18:58 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/498207517858.shtml)
+- 2026-06-29 19:02 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.kurohicncr.top/Article/details/47954.shtml)
+- 2026-06-29 18:50 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/8904012.shtml)
+- 2026-06-29 19:08 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.minike.top/Article/details/444675885.shtml)
+- 2026-06-29 19:08 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/708624429.shtml)
+- 2026-06-29 18:43 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/98029.shtml)
+- 2026-06-29 18:49 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/93776605986.shtml)

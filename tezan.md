@@ -1,57 +1,49 @@
-# 从语言互通到运动交流 东宁全方位搭建中俄青少年友谊桥
+# 保险业已赔付湖北等六省份暴雨洪涝灾害损失2.1亿元
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网牡丹江6月12日电(姜辉 王万鑫 梅赢方)初夏时节，黑龙江省牡丹江东宁市第三小学校园里，俄罗斯研学团学生在中国老师指导下，认真学习传统戏曲拱手礼、基础水袖动作。2026年是中俄教育年启动之年，东宁市依托边境口岸区位优势、对俄落地免签政策及特色办学资源，围绕俄语交流、文化研学、体育赛事、校园开放四大核心方向，常态化开展各类中俄教育文化交流活动，全方位搭建跨境青少年沟通桥梁。
+记者今天（25日）从金融监管总局了解到，近日，湖北、湖南、贵州、广东、广西、重庆等多地发生暴雨洪涝灾害，截至5月25日上午11时，6省（自治区、直辖市）保险业累计接到因暴雨洪涝灾害报案3.3万件，估损金额7.5亿元，保险机构及时开通快速理赔通道，推动能赔快赔、应赔尽赔、合理预赔，已赔付和预赔付2.1亿元。责任编辑：曹睿潼
 
 ## 正文
 
-中新网牡丹江6月12日电(姜辉 王万鑫 梅赢方)初夏时节，黑龙江省牡丹江东宁市第三小学校园里，俄罗斯研学团学生在中国老师指导下，认真学习传统戏曲拱手礼、基础水袖动作。
+记者今天（25日）从金融监管总局了解到，近日，湖北、湖南、贵州、广东、广西、重庆等多地发生暴雨洪涝灾害，截至5月25日上午11时，6省（自治区、直辖市）保险业累计接到因暴雨洪涝灾害报案3.3万件，估损金额7.5亿元，保险机构及时开通快速理赔通道，推动能赔快赔、应赔尽赔、合理预赔，已赔付和预赔付2.1亿元。
 
-2026年是中俄教育年启动之年，东宁市依托边境口岸区位优势、对俄落地免签政策及特色办学资源，围绕俄语交流、文化研学、体育赛事、校园开放四大核心方向，常态化开展各类中俄教育文化交流活动，全方位搭建跨境青少年沟通桥梁。
-
-东宁市按照“试点先行、全面推广”的思路，实现全市中小学俄语社团全覆盖。
-
-各校俄语社团以口语实战为核心，创新开展情景对话、俄语故事分享、中俄民俗互动等趣味活动，极大激发了学生俄语学习热情，让校园成为中俄文化交融、心灵互通的温馨阵地。
-
-文化研学是跨境教育交流的核心载体。
-
-近期，俄罗斯研学团到访东宁，开启沉浸式中华文化研学之旅。
-
-在各中小学研学现场，俄方学子近距离品鉴京剧神韵，提笔书写毛笔书法，感受中华传统文化的独特魅力；亲手制作端午粽子、编织五彩绳，直观体悟中华传统民俗的温情底蕴；体验无人机、智能机器人等科创项目，领略中国现代职业教育的发展成果。
-
-在体育交流领域，东宁市构建全年不间断的跨境体育交流体系。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 18:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 18:52 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 18:39 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 18:58 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 18:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 18:38 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 18:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 18:59 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 18:36 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 18:59 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 18:59 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 18:55 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 19:01 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 18:57 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 18:58 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 18:50 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 19:09 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 18:52 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 18:56 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 18:43 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 19:04 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 18:55 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 19:11 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 18:43 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 18:57 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 18:50 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:47 - [范志毅看好日本淘汰巴西](http://www.blog.kurohicncr.top/Article/details/868148541758.shtml)
-- 2026-06-29 18:57 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/0808974.shtml)
-- 2026-06-29 19:00 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/4093750273.shtml)
-- 2026-06-29 18:39 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/798271319.shtml)
-- 2026-06-29 18:38 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/434334422812.shtml)
-- 2026-06-29 19:03 - [不烧钱的低成本爱好](https://www.blog.kurohicncr.top/Article/details/685250103443.shtml)
-- 2026-06-29 19:02 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/00482387.shtml)
-- 2026-06-29 18:59 - [德云色预测世界杯16强](https://www.share.kurohicncr.top/Article/details/05876.shtml)
-- 2026-06-29 18:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/91293162896.shtml)
-- 2026-06-29 18:56 - [人形机器人](http://www.share.minike.top/Article/details/9616289796.shtml)
-- 2026-06-29 18:47 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/538078790841.shtml)
-- 2026-06-29 19:02 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/7941620453.shtml)
-- 2026-06-29 18:57 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/842463132.shtml)
-- 2026-06-29 19:04 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/679135761489.shtml)
-- 2026-06-29 19:03 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.kurohicncr.top/Article/details/506300705.shtml)
+- 2026-06-29 19:10 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/16695.shtml)
+- 2026-06-29 18:58 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/02498872736.shtml)
+- 2026-06-29 19:00 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/92786525.shtml)
+- 2026-06-29 19:05 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/85671007.shtml)
+- 2026-06-29 18:54 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/732843.shtml)
+- 2026-06-29 19:11 - [CORTIS 小牌大耍](https://www.blog.kurohicncr.top/Article/details/3767075401.shtml)
+- 2026-06-29 19:06 - [四川达州发生一起交通事故致2死](http://www.blog.minike.top/Article/details/0099633.shtml)
+- 2026-06-29 18:56 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/3308473.shtml)
+- 2026-06-29 19:03 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/02188.shtml)
+- 2026-06-29 19:06 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/095704889439.shtml)
+- 2026-06-29 18:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/297020036.shtml)
+- 2026-06-29 18:55 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/3437213.shtml)
+- 2026-06-29 18:44 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/6222525.shtml)
+- 2026-06-29 18:50 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/55256143.shtml)
+- 2026-06-29 19:08 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/80401573978.shtml)

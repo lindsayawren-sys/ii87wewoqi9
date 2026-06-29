@@ -1,58 +1,56 @@
-# 红隼幼鸟暴雨失散被救 衡水野生动物园累计救助野生动物4225只
+# 王毅将主持联合国安理会高级别会议并访问加拿大
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网衡水6月12日电 (邢璐 王天祥 刘艳飞)6月12日，一只国家二级保护野生动物红隼在河北衡水武邑县获救。经衡水野生动物园收容救护站专业救治，这只因暴雨走失的幼鸟整体状态已明显好转，预计15天后可放归野外。 “发现它时状态不好，飞不起来。”武邑县热心群众师晨峰说，他在自家院子里发现这只无法正常飞行的幼鸟后，通过网络搜索确认是国家保护动物，随即联系了衡水野生动物园。 衡水野生
+中新社北京5月22日电 (记者 郭超凯 张素 曾玥)中国外交部发言人22日宣布，中国作为联合国安理会本月轮值主席国，将于5月26日举办安理会高级别会议，主题为“维护联合国宪章宗旨和原则，加强以联合国为核心的国际体系”。中共中央政治局委员、外交部长王毅将赴纽约主持会议。在纽约期间，王毅外长还将出席将于5月28日举行的“全球治理之友小组”会议，并同联合国秘书长及有关国家外长等举行会
 
 ## 正文
 
-中新网衡水6月12日电 (邢璐 王天祥 刘艳飞)6月12日，一只国家二级保护野生动物红隼在河北衡水武邑县获救。
+中新社北京5月22日电 (记者 郭超凯 张素 曾玥)中国外交部发言人22日宣布，中国作为联合国安理会本月轮值主席国，将于5月26日举办安理会高级别会议，主题为“维护联合国宪章宗旨和原则，加强以联合国为核心的国际体系”。
 
-经衡水野生动物园收容救护站专业救治，这只因暴雨走失的幼鸟整体状态已明显好转，预计15天后可放归野外。
+中共中央政治局委员、外交部长王毅将赴纽约主持会议。
 
-“发现它时状态不好，飞不起来。
+在纽约期间，王毅外长还将出席将于5月28日举行的“全球治理之友小组”会议，并同联合国秘书长及有关国家外长等举行会见。
 
-”武邑县热心群众师晨峰说，他在自家院子里发现这只无法正常飞行的幼鸟后，通过网络搜索确认是国家保护动物，随即联系了衡水野生动物园。
+外交部发言人宣布，应加拿大外长阿南德邀请，王毅外长将于5月28日至30日访问加拿大。
 
-衡水野生动物园收容救护站接报后第一时间派员赶赴现场。
+在22日举行的例行记者会上，外交部发言人郭嘉昆应询介绍举办联合国安理会高级别会议的设想。
 
-经确认，这是一只幼年红隼，推测因前几日暴雨大风天气与亲鸟失散。
+他说，作为联合国安理会5月轮值主席，中国倡议召开的此次安理会高级别会议，将聚焦联合国宪章的时代价值、遵守和践行宪章宗旨和原则、加强联合国及其安理会权威与效能等国际社会普遍关心的问题。
 
-在收容救护站，救护员张秋菊正在对红隼进行例行检查。
+会议由王毅外长主持，向联合国全体会员国开放，多国外长及高级别代表已确认出席，联合国秘书长古特雷斯将与会通报。
 
-她轻柔固定住红隼躯体，仔细查看其双翼羽毛、关节筋骨及足部状态：“展翅正常，羽毛良好，体温40.5℃，在正常范围内。
+郭嘉昆还应询介绍王毅出席“全球治理之友小组”会议的考虑。
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 18:41 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 18:47 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 18:51 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 19:02 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 19:05 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 18:40 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 19:04 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 18:59 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 18:58 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 18:53 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 18:43 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 19:03 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 18:52 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 19:11 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 18:49 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 18:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 18:59 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 18:44 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 19:04 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 18:57 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 18:56 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:38 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/396730.shtml)
-- 2026-06-29 18:37 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.kurohicncr.top/Article/details/84800396.shtml)
-- 2026-06-29 19:02 - [NBA交易](https://www.share.minike.top/Article/details/0767399238.shtml)
-- 2026-06-29 18:38 - [小娘惹](https://www.share.minike.top/Article/details/96520.shtml)
-- 2026-06-29 18:48 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/44366.shtml)
-- 2026-06-29 19:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/635024208486.shtml)
-- 2026-06-29 18:36 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/12630863213.shtml)
-- 2026-06-29 19:05 - [扩军害了世界杯吗](https://www.share.kurohicncr.top/Article/details/2110453.shtml)
-- 2026-06-29 19:00 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/93402108190.shtml)
-- 2026-06-29 18:51 - [第一炉香](http://www.share.kurohicncr.top/Article/details/5704746.shtml)
-- 2026-06-29 18:43 - [毒液2](http://www.blog.kurohicncr.top/Article/details/9136513651.shtml)
-- 2026-06-29 18:59 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/3412816499.shtml)
-- 2026-06-29 18:59 - [世界杯在中国观看最多的比赛](https://www.share.kurohicncr.top/Article/details/91420.shtml)
-- 2026-06-29 19:03 - [《贺子珍》](https://www.share.minike.top/Article/details/264662427.shtml)
-- 2026-06-29 18:54 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/242861286.shtml)
+- 2026-06-29 18:46 - [逆天祖国人](http://www.share.minike.top/Article/details/49227.shtml)
+- 2026-06-29 19:01 - [机器人学校开学了](https://www.share.minike.top/Article/details/458626783415.shtml)
+- 2026-06-29 18:50 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/94266987082.shtml)
+- 2026-06-29 18:51 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/632562.shtml)
+- 2026-06-29 19:10 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/036457990213.shtml)
+- 2026-06-29 19:07 - [互助版模拟高考志愿填报](https://www.blog.kurohicncr.top/Article/details/913107503.shtml)
+- 2026-06-29 18:51 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.minike.top/Article/details/713814960.shtml)
+- 2026-06-29 19:00 - [德国医生在没有空调的手术室工作](https://www.share.kurohicncr.top/Article/details/9846499554.shtml)
+- 2026-06-29 19:08 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/86673815.shtml)
+- 2026-06-29 18:58 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.minike.top/Article/details/195475420.shtml)
+- 2026-06-29 19:08 - [外交部谈对日出口管制措施](https://www.blog.kurohicncr.top/Article/details/40944832153.shtml)
+- 2026-06-29 19:01 - [斛珠夫人](https://www.blog.minike.top/Article/details/12323049.shtml)
+- 2026-06-29 18:54 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/419094.shtml)
+- 2026-06-29 18:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/257226415055.shtml)
+- 2026-06-29 18:59 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/8459151.shtml)

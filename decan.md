@@ -1,60 +1,60 @@
-# 美伊和平协议缓解地缘风险，黄金反弹至周内高点但美联储加息预期仍限制上行空间
+# 多用户绿电直连政策落地，电力ETF华泰柏瑞（561560）今年以来份额增长275%
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 周一亚洲交易时段，现货黄金（XAU/USD）延续反弹走势，价格升至近期一周以来的高位。此前，美国与伊朗宣布达成结束持续近四个月军事冲突的协议，双方计划在协议正式生效后恢复霍尔木兹海峡正常航运，并解除针对伊朗港口的海上封锁。地缘局势缓和使市场风险情绪有所改善，同时也降低了投资者对能源价格持续飙升的担忧。 美国总统唐纳德·特朗普表示，双方达成的协议将确保霍尔木兹
+今日早盘（26/5/25）电力板块延续回暖态势，主要受政策端与需求端双重利好提振。政策端，多用户绿电直连政策落地、绿电就近消纳加速推进。需求端，4月全社会用电量同比增长6.0%，显著高于市场预期。与此同时，AI缺电、算电协同、“Halo交易”、能源安全等逻辑共同支撑板块交投活跃。 2026年5月20日，国家发展改革委、国家能源局联合发布《关于有序推动多用户绿电直连发展有关事项的
 
 ## 正文
 
-文章来源：汇通财经 周一亚洲交易时段，现货黄金（XAU/USD）延续反弹走势，价格升至近期一周以来的高位。
+今日早盘（26/5/25）电力板块延续回暖态势，主要受政策端与需求端双重利好提振。
 
-此前，美国与伊朗宣布达成结束持续近四个月军事冲突的协议，双方计划在协议正式生效后恢复霍尔木兹海峡正常航运，并解除针对伊朗港口的海上封锁。
+政策端，多用户绿电直连政策落地、绿电就近消纳加速推进。
 
-地缘局势缓和使市场风险情绪有所改善，同时也降低了投资者对能源价格持续飙升的担忧。
+需求端，4月全社会用电量同比增长6.0%，显著高于市场预期。
 
-美国总统唐纳德·特朗普表示，双方达成的协议将确保霍尔木兹海峡长期保持自由通航。
+与此同时，AI缺电、算电协同、“Halo交易”、能源安全等逻辑共同支撑板块交投活跃。
 
-此外，伊朗方面表示，未来60天的最终协议谈判仍取决于美国是否履行包括解除海上封锁、终止军事行动以及释放被冻结资金在内的相关承诺。
+2026年5月20日，国家发展改革委、国家能源局联合发布《关于有序推动多用户绿电直连发展有关事项的通知》，宣告绿电直连正式从“一对一”的单用户时代迈入“一对多”新纪元。
 
-这意味着当前停火协议仍存在后续谈判风险，一旦相关承诺执行过程出现波折，中东紧张局势仍可能重新升温。
+这一政策是在梳理总结去年单用户绿电直连政策各地实践基础上的重要升级，或有力支撑工业园区、零碳园区等用能清洁替代需求，推动能源消费模式变革。
 
-黄金通常在全球政治和经济不确定性增强时受到资金青睐，但由于黄金本身不产生利息，因此在高利率环境下吸引力可能下降。
+国盛证券提出，多用户绿电直连政策落地，源网荷储进一步加速推进，园区绿电转型走向规模化，绿电直连运营商价值量有望提升。
 
-随着市场对中东冲突升级的担忧减弱，投资者对于美国通胀再度快速上升的预期有所降温，进而降低了美联储进一步收紧货币政策的压力 根据芝商所FedWatch工具显示，市场目前预计美联储今年12月再次加息的概率约为64%，低于此前一周约69%的水平。
+建议关注算电协同、调节价值凸显&红利化火电企业；电算协同有望打开绿电企业新增长空间，看好优质风光资产；把握水核防御，水电电价具备市场化优势、水核容量电价有待补充。
 
 ## 相关推荐
 
-- 2026-06-29 18:44 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 18:46 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 18:37 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 18:43 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 18:41 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 18:50 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 18:53 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 19:02 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 18:39 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 18:53 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 18:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 19:03 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 19:05 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 18:39 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 19:01 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 18:44 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 19:00 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 18:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 19:10 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 19:00 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 18:58 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 19:01 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 18:42 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 19:08 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 18:55 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 19:00 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 19:07 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 18:59 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:05 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/533425716473.shtml)
-- 2026-06-29 18:43 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/550785567256.shtml)
-- 2026-06-29 19:04 - [外交部谈对日出口管制措施](http://www.share.minike.top/Article/details/947671625.shtml)
-- 2026-06-29 18:40 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/1868602.shtml)
-- 2026-06-29 18:52 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/8938704.shtml)
-- 2026-06-29 18:42 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/130412483.shtml)
-- 2026-06-29 18:44 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/774388651138.shtml)
-- 2026-06-29 18:50 - [速度与激情9](https://www.share.minike.top/Article/details/432020219.shtml)
-- 2026-06-29 19:04 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/463319462.shtml)
-- 2026-06-29 18:43 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/3192557350.shtml)
-- 2026-06-29 18:51 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/0443987.shtml)
-- 2026-06-29 18:52 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/3849443883.shtml)
-- 2026-06-29 18:36 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.kurohicncr.top/Article/details/09542609.shtml)
-- 2026-06-29 18:58 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/29283093893.shtml)
-- 2026-06-29 18:54 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/56197860.shtml)
+- 2026-06-29 18:42 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/271132357893.shtml)
+- 2026-06-29 19:11 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/99952.shtml)
+- 2026-06-29 19:05 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/166517814.shtml)
+- 2026-06-29 18:43 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/119624.shtml)
+- 2026-06-29 19:10 - [AG 宫斗](http://www.share.minike.top/Article/details/7523528.shtml)
+- 2026-06-29 18:52 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/3986861678.shtml)
+- 2026-06-29 19:04 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/41594.shtml)
+- 2026-06-29 18:42 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/327506.shtml)
+- 2026-06-29 18:46 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/783076162206.shtml)
+- 2026-06-29 19:01 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/8544939676.shtml)
+- 2026-06-29 19:07 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/47897321683.shtml)
+- 2026-06-29 19:02 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/29775503275.shtml)
+- 2026-06-29 19:08 - [滚石点名酒店员工说有急救培训](https://www.blog.minike.top/Article/details/9551592.shtml)
+- 2026-06-29 18:57 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/062474565.shtml)
+- 2026-06-29 18:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/46650431856.shtml)

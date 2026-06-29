@@ -1,60 +1,57 @@
-# 官方通报“东莞地铁2号线东城站有乘客翻越闸机”
+# 中马钦州产业园区举办2026年政金企对接交流会暨签约仪式
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网6月14日电 据“东莞轨道交通”微信公众号消息，广东东莞轨道公交集团有限公司发布情况通报称，近日，网络流传“东莞地铁2号线东城站有乘客翻越闸机”相关视频，公司对此高度重视，第一时间开展核查处置。具体情况通报如下：一、事件核实情况 经调取车站监控确认，该事件发生于2026年6月11日22时44分，事发站点为东莞地铁2号线东城站，涉事乘客共计6人，在发现出闸机处有工作人员驻守
+5月22日，中马钦州产业园区举办2026年政金企对接交流会暨签约仪式，活动旨在搭建政府、金融机构与企业之间“双向奔赴”的对接平台，进一步深化政金企合作、促进产融结合，以精准的金融服务支持园区产业高质量发展。中马钦州产业园区党工委副书记、管委会常务副主任毛任建出席会议并讲话。毛任建表示，随着园区产业体系加快构建和开放合作持续扩大，企业对金融服务的需求更加迫切，这为政金企深化精准对
 
 ## 正文
 
-中新网6月14日电 据“东莞轨道交通”微信公众号消息，广东东莞轨道公交集团有限公司发布情况通报称，近日，网络流传“东莞地铁2号线东城站有乘客翻越闸机”相关视频，公司对此高度重视，第一时间开展核查处置。
+5月22日，中马钦州产业园区举办2026年政金企对接交流会暨签约仪式，活动旨在搭建政府、金融机构与企业之间“双向奔赴”的对接平台，进一步深化政金企合作、促进产融结合，以精准的金融服务支持园区产业高质量发展。
 
-具体情况通报如下：一、事件核实情况 经调取车站监控确认，该事件发生于2026年6月11日22时44分，事发站点为东莞地铁2号线东城站，涉事乘客共计6人，在发现出闸机处有工作人员驻守后，转移到进闸机处并利用工作人员巡视空窗间隙跳闸后迅速离站。
+中马钦州产业园区党工委副书记、管委会常务副主任毛任建出席会议并讲话。
 
-事发后经调查，东莞轨道公交集团有限公司依据《东莞市城市轨道交通运营管理办法》，按东城站出站线网单程最高票价，向涉事人员足额追缴乘车票款；通报相关部门，相关部门已根据《中华人民共和国治安管理处罚法》，依法对涉事人员均予以治安处罚。
+毛任建表示，随着园区产业体系加快构建和开放合作持续扩大，企业对金融服务的需求更加迫切，这为政金企深化精准对接、实现互利共赢创造了广阔空间。
 
-二、文明乘车呼吁 翻越闸机逃票行为，不仅违反轨道交通运营管理法规，扰乱车站正常运营秩序，也破坏公共文明出行氛围。
+希望金融机构加大投放力度，各重点企业积极对接，围绕今年园区全力推进实施年度总投资1607亿元的重点建设项目开展金融业务合作。
 
-根据《东莞市城市轨道交通运营管理办法》第三十四条，乘客应当持有效车票乘车；乘客无票或者持无效车票乘车的，应当按照城市轨道交通出闸站线网单程最高票价补交票款。
+同时，共同深化金融创新，持续推动中马跨境金融试点，落地更多面向东盟的创新业务场景，构建覆盖企业全生命周期的多元产品体系。
 
-对于触犯《中华人民共和国治安管理处罚法》相关规定的，将依法处予以治安处罚。
+园区管委会将强化政策引导和服务协调，企业拿出好项目，金融机构拿出好产品，形成产业与金融深度融合、互利共赢的新格局，以金融赋能推动园区高质量发展。
 
-在此，东莞轨道公交集团有限公司郑重呼吁广大市民乘客自觉遵守轨道交通乘车规则，主动抵制翻越闸机、恶意逃票等各类不文明乘车行为。
+活动中，政金企三方进行深入交流。
 
-乘车途中若发现逃票、闯闸、损毁设备等违规行为，可第一时间告知车站现场工作人员，或拨打地铁服务热线0769-88176666反馈线索，携手维护有序乘车环境。
+中国人民银行广西区分行、广西证监局分别围绕绿色金融与跨境金融政策、企业债券发行等方面作了政策解读，广西中马钦州产业园区投资控股集团有限公司等企业代表围绕重点产业项目发展、创新融资工具等提出具体需求，园区管委会与广西融资担保集团有限公司签署战略合作协议，相关金融机构与园区企业签署具体项目合作协议。
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 18:37 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 18:46 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 18:49 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 18:58 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 18:50 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 18:58 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 18:40 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 18:59 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 18:41 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 18:54 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 18:55 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 18:55 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 19:05 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 19:03 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 18:55 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 18:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 18:53 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 18:48 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 18:47 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 19:10 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 18:54 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 18:50 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 18:56 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 18:47 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:43 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/139702.shtml)
-- 2026-06-29 18:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/12560051562.shtml)
-- 2026-06-29 18:41 - [小娘惹](http://www.share.minike.top/Article/details/17530409.shtml)
-- 2026-06-29 19:01 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/52281.shtml)
-- 2026-06-29 18:55 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/701052.shtml)
-- 2026-06-29 19:02 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/144612033.shtml)
-- 2026-06-29 18:37 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/117737239.shtml)
-- 2026-06-29 18:39 - [主力抛售电子和通信板块](http://www.share.minike.top/Article/details/06797.shtml)
-- 2026-06-29 18:59 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/570495739.shtml)
-- 2026-06-29 18:39 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/363995267.shtml)
-- 2026-06-29 18:55 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/1649404.shtml)
-- 2026-06-29 18:47 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/64741.shtml)
-- 2026-06-29 18:59 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.kurohicncr.top/Article/details/17309700971.shtml)
-- 2026-06-29 18:51 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/23547350.shtml)
-- 2026-06-29 18:50 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/1276551.shtml)
+- 2026-06-29 18:54 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/68445.shtml)
+- 2026-06-29 19:04 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/717449886096.shtml)
+- 2026-06-29 18:44 - [急先锋](http://www.share.minike.top/Article/details/49893722778.shtml)
+- 2026-06-29 19:09 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/6306900.shtml)
+- 2026-06-29 19:06 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/69461019.shtml)
+- 2026-06-29 19:06 - [四川达州发生一起交通事故致2死](http://www.share.kurohicncr.top/Article/details/125044859.shtml)
+- 2026-06-29 18:47 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/6745952216.shtml)
+- 2026-06-29 19:05 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/363909716.shtml)
+- 2026-06-29 18:44 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/3140528.shtml)
+- 2026-06-29 18:43 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/701434.shtml)
+- 2026-06-29 18:56 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/508145564.shtml)
+- 2026-06-29 19:05 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/10505181051.shtml)
+- 2026-06-29 19:11 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/4259670603.shtml)
+- 2026-06-29 19:07 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/68674161.shtml)
+- 2026-06-29 18:46 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/6752273669.shtml)

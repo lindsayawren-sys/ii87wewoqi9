@@ -1,56 +1,57 @@
-# （聚焦海峡论坛）海峡论坛·妈祖文化活动周在福建湄洲岛开幕
+# Guzman y Gomez快餐宣布退出美国市场，股价一度大涨20%
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网莆田6月12日电 (叶秋云)12日上午，以“中华妈祖情 两岸一家亲”为主题的第十八届海峡论坛·妈祖文化活动周在福建莆田湄洲岛开幕。开幕式吸引了近400名台湾嘉宾参加。 莆田市委副书记郭宋玉说，莆田与台湾隔海相望，地缘相近、血缘相亲、文缘相承。妈祖文化活动周作为海峡论坛的子活动，见证了两岸同胞心更近、情更深、意更浓。 与会台湾嘉宾纷纷表示，只有两岸常来常往，多走动、多交流，
+核心要点 这家墨西哥风味快餐连锁企业宣布退出美国市场、重心回归本土澳洲后，股价周五盘中最高飙升 20.58%。 公司联合创始人兼联席首席执行官史蒂文・马克斯表示：“经过三个月实地运营考察，我们发现开拓美国市场所需耗费的时间与资金，远超最初预期。” 他称美国业务当前盈利表现不佳，继续投入股东资金已不具备合理性。 公司同时表示，撤出美国市场并不会动摇董事会对品牌全球吸引力的信心，未
 
 ## 正文
 
-中新网莆田6月12日电 (叶秋云)12日上午，以“中华妈祖情 两岸一家亲”为主题的第十八届海峡论坛·妈祖文化活动周在福建莆田湄洲岛开幕。
+核心要点 这家墨西哥风味快餐连锁企业宣布退出美国市场、重心回归本土澳洲后，股价周五盘中最高飙升 20.58%。
 
-开幕式吸引了近400名台湾嘉宾参加。
+公司联合创始人兼联席首席执行官史蒂文・马克斯表示：“经过三个月实地运营考察，我们发现开拓美国市场所需耗费的时间与资金，远超最初预期。
 
-莆田市委副书记郭宋玉说，莆田与台湾隔海相望，地缘相近、血缘相亲、文缘相承。
+” 他称美国业务当前盈利表现不佳，继续投入股东资金已不具备合理性。
 
-妈祖文化活动周作为海峡论坛的子活动，见证了两岸同胞心更近、情更深、意更浓。
+公司同时表示，撤出美国市场并不会动摇董事会对品牌全球吸引力的信心，未来仍会稳健有序地开拓海外新区域市场。
 
-与会台湾嘉宾纷纷表示，只有两岸常来常往，多走动、多交流，才能增进了解、化解隔阂，让和平发展的红利真正惠及每一位两岸同胞。
+企业将立即停止芝加哥所有门店运营，并以尊重坦诚的态度协助美国员工完成岗位过渡。
 
-开幕式上还举行了“文脉同源 数藏同心”妈祖数藏发布仪式、微短剧《小屿大爱》宣发仪式、首届“青创杯”妈祖文化创意产品设计大赛颁奖仪式等活动，两名台胞代表分享了两岸融合发展故事。
+花旗分析师对此决策表示认可，其此前一直不看好品牌在美国的发展前景。
 
-微短剧《小屿大爱》是一部妈祖文化主题文旅微短剧，以创新形式传承千年妈祖信俗。
+分析师认为，该品牌与同行 Chipotle 同质化严重，叠加芝加哥本地经营环境难题，在美国长期站稳脚跟的概率偏低。
 
-湄洲妈祖祖庙董事会董事长林金赞表示，妈祖文化是两岸同胞共有的精神家园与情感纽带。
+机构指出，退出美国市场后，联席 CEO 有望回归澳洲统筹本土业务。
 
 ## 相关推荐
 
-- 2026-06-29 18:36 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 18:55 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 19:02 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 18:42 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 18:58 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 18:38 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 18:43 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 18:41 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 18:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 19:04 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 18:45 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 19:00 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 18:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 19:00 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 18:44 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 19:07 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 18:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 18:49 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 18:57 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 18:57 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 18:58 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:01 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/40611.shtml)
-- 2026-06-29 19:04 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/628916172779.shtml)
-- 2026-06-29 18:53 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/27282618.shtml)
-- 2026-06-29 18:57 - [韩国小学生都来吐槽了](http://www.share.kurohicncr.top/Article/details/55556.shtml)
-- 2026-06-29 18:38 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/64825276.shtml)
-- 2026-06-29 18:38 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/6152750805.shtml)
-- 2026-06-29 19:04 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/6872994101.shtml)
-- 2026-06-29 18:54 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/843744270548.shtml)
-- 2026-06-29 18:39 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/25409.shtml)
-- 2026-06-29 18:46 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/306754130.shtml)
-- 2026-06-29 18:51 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/777275303.shtml)
-- 2026-06-29 18:54 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/321077697.shtml)
-- 2026-06-29 18:53 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/625944099225.shtml)
-- 2026-06-29 19:01 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/518979165083.shtml)
-- 2026-06-29 18:53 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/092840593.shtml)
+- 2026-06-29 18:42 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/45920.shtml)
+- 2026-06-29 18:52 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/446513.shtml)
+- 2026-06-29 18:59 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/93963234.shtml)
+- 2026-06-29 19:04 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/776207.shtml)
+- 2026-06-29 19:08 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/984216413033.shtml)
+- 2026-06-29 18:49 - [急先锋](https://www.blog.kurohicncr.top/Article/details/70308.shtml)
+- 2026-06-29 18:42 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/87892815514.shtml)
+- 2026-06-29 19:08 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.minike.top/Article/details/890240671.shtml)
+- 2026-06-29 19:09 - [章若楠包场白敬亭特立独行](http://www.share.minike.top/Article/details/486102505712.shtml)
+- 2026-06-29 18:45 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/230756068.shtml)
+- 2026-06-29 19:00 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.minike.top/Article/details/91606.shtml)
+- 2026-06-29 19:09 - [看大国重器“云端穿针引线”](https://www.blog.minike.top/Article/details/993236859.shtml)
+- 2026-06-29 19:02 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/379925.shtml)
+- 2026-06-29 18:58 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/9610463566.shtml)
+- 2026-06-29 19:01 - [女心理师](https://www.share.kurohicncr.top/Article/details/301237.shtml)

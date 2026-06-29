@@ -1,56 +1,54 @@
-# 当心账户被强平！金价年内最大回撤超28%，多家银行保证金上调至120%，个人炒金业务持续收紧
+# 深圳文博会：香港“开箱”湾区文化 澳门“活化”历史资源
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-文章来源：时代周报-时代在线 近期，国际贵金属价格波动加剧，银行又一次收紧“炒金”业务。 6月12日，招商银行（600036.SH）发布公告，宣布调整旗下“招财金”代理贵金属延期业务风控规则，自6月16日收盘清算时起，Ag（T+D）、Au（T+D）、mAu（T+D）、Au（T+N1）、Au、NYAuTN06、NYAuTN12等多款合约的追保保证金比例统一上调至120%。 这也是
+发布时间：2026年05月25日 10:01 来源：中国新闻网 第二十二届中国(深圳)国际文化产业博览交易会正在深圳举行，香港馆与澳门馆各以“开箱香港”和中西文化共融韵律吸引观众关注。 香港馆将场馆打造成一座立体“城市盲盒”，带来《九龙城寨之围城》3D模型、香港红色“的士”等特色打卡场景，展出黄飞鸿标配狮头等珍稀传统狮头，九个香港品牌及创作单位超百件作品亮相。 香港特区政府文化
 
 ## 正文
 
-文章来源：时代周报-时代在线 近期，国际贵金属价格波动加剧，银行又一次收紧“炒金”业务。
+发布时间：2026年05月25日 10:01 来源：中国新闻网 第二十二届中国(深圳)国际文化产业博览交易会正在深圳举行，香港馆与澳门馆各以“开箱香港”和中西文化共融韵律吸引观众关注。
 
-6月12日，招商银行（600036.SH）发布公告，宣布调整旗下“招财金”代理贵金属延期业务风控规则，自6月16日收盘清算时起，Ag（T+D）、Au（T+D）、mAu（T+D）、Au（T+N1）、Au、NYAuTN06、NYAuTN12等多款合约的追保保证金比例统一上调至120%。
+香港馆将场馆打造成一座立体“城市盲盒”，带来《九龙城寨之围城》3D模型、香港红色“的士”等特色打卡场景，展出黄飞鸿标配狮头等珍稀传统狮头，九个香港品牌及创作单位超百件作品亮相。
 
-这也是今年6月以来，继工商银行（601398.SH）、建设银行（601939.SH）、农业银行（601288.SH）等国有大行集中上调贵金属保证金后，又一家头部银行收紧风控，行业管控力度持续加码。
+香港特区政府文化体育及旅游局副局长刘震表示，香港与内地文脉同源，近年来已在大湾区以及内地多个城市持续打造民俗文化节、演艺博览会等活动，打造文化互通的平台。
 
-苏商银行特约研究员武泽伟向时代财经指出，本轮各大银行上调个人贵金属延期业务保证金至120%，由市场环境、监管要求与机构风控三类因素共同促成。
+走进澳门馆，人们可以感受中西文化共生共融的独特韵律，近距离体验非遗技艺的匠心传承。
 
-国际贵金属盘面波动持续放大，宏观货币政策与外部地缘环境带来多重扰动，贵金属突发大幅波动的概率走高。
+澳门特区政府文化局局长梁惠敏表示，澳门正积极规划以数字化手段活化传统文化资源。
 
-监管持续引导机构落实投资者保护要求，压实金融主体风控义务。
+她还鼓励青年设计师深耕本土历史文化资源，将特色文化元素转化为大众喜爱的文创产品。
 
-而银行通过抬高保证金压缩交易杠杆，规避极端行情下的穿仓隐患。
-
-“相关调整能够约束非理性投机行为，兼顾投资者财产安全与银行业务平稳运营。
+(记者 何俊杰 蔡敏婕 广东深圳报道） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 18:59 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 19:05 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 18:47 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 19:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 19:03 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 18:46 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 18:52 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 19:02 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 19:01 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 18:40 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 18:49 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 18:54 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 18:50 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 18:52 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 19:06 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 18:56 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 18:54 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 18:54 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 19:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 18:57 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:03 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/203956419365.shtml)
-- 2026-06-29 19:04 - [伊朗足球队将启程回国](https://www.blog.kurohicncr.top/Article/details/78132004362.shtml)
-- 2026-06-29 18:47 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/91479109.shtml)
-- 2026-06-29 19:04 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/789879981611.shtml)
-- 2026-06-29 18:55 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/28009576095.shtml)
-- 2026-06-29 19:03 - [沙丘](https://www.share.minike.top/Article/details/47663781.shtml)
-- 2026-06-29 18:42 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/113562070812.shtml)
-- 2026-06-29 19:02 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/7473109577.shtml)
-- 2026-06-29 18:52 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.kurohicncr.top/Article/details/64195554.shtml)
-- 2026-06-29 19:05 - [逆天祖国人](http://www.share.minike.top/Article/details/4609500991.shtml)
-- 2026-06-29 18:45 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/37666.shtml)
-- 2026-06-29 18:55 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/346058.shtml)
-- 2026-06-29 18:59 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/47800617912.shtml)
-- 2026-06-29 18:41 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/350741337604.shtml)
-- 2026-06-29 19:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/4501115524.shtml)
+- 2026-06-29 18:44 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/37456545.shtml)
+- 2026-06-29 18:57 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/430461280.shtml)
+- 2026-06-29 18:46 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/193805705.shtml)
+- 2026-06-29 18:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/811494894225.shtml)
+- 2026-06-29 18:51 - [毒液2](https://www.blog.minike.top/Article/details/2248376738.shtml)
+- 2026-06-29 18:45 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/802803145250.shtml)
+- 2026-06-29 18:45 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/23777538105.shtml)
+- 2026-06-29 18:50 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/573792.shtml)
+- 2026-06-29 19:07 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/53501654208.shtml)
+- 2026-06-29 19:11 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/921525119853.shtml)
+- 2026-06-29 18:55 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/91088437.shtml)
+- 2026-06-29 18:50 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/3354583.shtml)
+- 2026-06-29 18:56 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.kurohicncr.top/Article/details/439339785.shtml)
+- 2026-06-29 18:51 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/186065.shtml)
+- 2026-06-29 18:50 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/29818.shtml)

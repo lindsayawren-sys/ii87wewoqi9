@@ -1,59 +1,61 @@
-# 老挝女孩携农产品参展南博会 分享中老合作红利
+# 美国众议院小组将调查预测市场中的内幕交易行为
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新社昆明6月13日电 题：老挝女孩携农产品参展南博会 分享中老合作红利 中新社记者 韩帅南 “欢迎大家看一看老挝的茶叶和手工艺品。”13日，在第10届中国—南亚博览会(“南博会”)绿色能源馆，老挝女孩苏帕通(Souphutthone Khamphay)正用流利的中文向参观者介绍家乡好物。 为何在能源展区“跨界”推介农产品？“因为中国企业的项目建设到哪，就会把帮扶带到哪。”苏帕
+美国众议院监督委员会正在调查Kalshi和Polymarket的客户如何可能利用非公开信息进行内幕交易。在出现一些时机极为可疑的交易后，对预测市场的担忧进一步升级。 众议院监督委员会主席詹姆斯·科默周五要求Polymarket的谢恩·科普兰和Kalshi的塔雷克·曼苏尔提供文件，以评估这两个平台如何验证账户持有人的身份、执行地理限制以及监控可疑交易活动。 预测市场允许用户对几乎
 
 ## 正文
 
-中新社昆明6月13日电 题：老挝女孩携农产品参展南博会 分享中老合作红利 中新社记者 韩帅南 “欢迎大家看一看老挝的茶叶和手工艺品。
+美国众议院监督委员会正在调查Kalshi和Polymarket的客户如何可能利用非公开信息进行内幕交易。
 
-”13日，在第10届中国—南亚博览会(“南博会”)绿色能源馆，老挝女孩苏帕通(Souphutthone Khamphay)正用流利的中文向参观者介绍家乡好物。
+在出现一些时机极为可疑的交易后，对预测市场的担忧进一步升级。
 
-为何在能源展区“跨界”推介农产品？
+众议院监督委员会主席詹姆斯·科默周五要求Polymarket的谢恩·科普兰和Kalshi的塔雷克·曼苏尔提供文件，以评估这两个平台如何验证账户持有人的身份、执行地理限制以及监控可疑交易活动。
 
-“因为中国企业的项目建设到哪，就会把帮扶带到哪。
+预测市场允许用户对几乎任何事情下注，在过去一年半中人气暴增。
 
-”苏帕通笑着解释，中广核能源科技(老挝)有限公司(下称“中广核老挝公司”)在老挝推进绿色能源项目建设时，发现当地村民虽有优质茶叶和手工艺品，却因信息闭塞销路不畅。
+但批评人士认为，其中一些获利丰厚的赌注好得令人难以置信，似乎不仅仅是靠运气。
 
-于是，企业便把这些“山里的宝贝”带到南博会展台上。
+“作为受美国监管的交易所，我们对自己全面防范内幕交易的机制感到自豪。
 
-苏帕通曾在云南师范大学留学，精通中老双语。
+”Kalshi发言人伊丽莎白·戴安娜表示。
 
-因这一优势，她在中广核老挝公司做翻译已有两年。
+Polymarket的一位发言人表示，该公司维护着全面的市场诚信框架。
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 19:05 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 18:50 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 18:49 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 19:05 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 18:57 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 19:02 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 18:49 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 19:02 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 18:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 18:43 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 18:38 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 19:01 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 18:47 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 18:48 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 18:52 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 19:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 18:58 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 18:54 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 18:46 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 19:11 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 19:07 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 18:47 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 18:54 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 19:04 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 18:55 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 18:58 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 19:07 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:44 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/456828758452.shtml)
-- 2026-06-29 19:00 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.kurohicncr.top/Article/details/41911513.shtml)
-- 2026-06-29 18:53 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/63430055924.shtml)
-- 2026-06-29 18:48 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/26897872.shtml)
-- 2026-06-29 18:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/084277684.shtml)
-- 2026-06-29 18:45 - [滚石点名酒店员工说有急救培训](https://www.blog.minike.top/Article/details/26219480.shtml)
-- 2026-06-29 18:57 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/2398766885.shtml)
-- 2026-06-29 18:42 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/554615.shtml)
-- 2026-06-29 18:37 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/43614.shtml)
-- 2026-06-29 19:02 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/84498.shtml)
-- 2026-06-29 18:44 - [青春环游记第三季](https://www.share.minike.top/Article/details/81334018512.shtml)
-- 2026-06-29 18:39 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/79607611.shtml)
-- 2026-06-29 18:55 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/98490.shtml)
-- 2026-06-29 19:04 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/09290838.shtml)
-- 2026-06-29 18:53 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/917432438.shtml)
+- 2026-06-29 18:51 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/321494576405.shtml)
+- 2026-06-29 18:57 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/88076155.shtml)
+- 2026-06-29 19:11 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/6971775.shtml)
+- 2026-06-29 18:43 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/14837444807.shtml)
+- 2026-06-29 19:10 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/469500.shtml)
+- 2026-06-29 18:50 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/047850.shtml)
+- 2026-06-29 19:00 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/827586.shtml)
+- 2026-06-29 18:56 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/25032674.shtml)
+- 2026-06-29 19:06 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/64934.shtml)
+- 2026-06-29 19:07 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/313026482568.shtml)
+- 2026-06-29 18:53 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/772309370867.shtml)
+- 2026-06-29 19:09 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/370968679182.shtml)
+- 2026-06-29 18:53 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/66463297.shtml)
+- 2026-06-29 19:03 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/06449.shtml)
+- 2026-06-29 18:58 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/84863.shtml)

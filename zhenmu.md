@@ -1,61 +1,59 @@
-# 哈啰声明：钛媒体发布失实报道，已报警并向有关部门提交相关材料
+# 仕净科技被立案 受损股民可索赔
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新浪科技讯 6月12日晚间消息，哈啰今日发布声明称，近日“钛媒体”在其网站等相关平台发布了涉哈啰的失实报道，该报道充斥着大量道听途说、凭空捏造和预设立场的结论以及毫无数据支撑的极端揣测，严重侵害了哈啰的商业信誉与名誉权，造成了极为恶劣的社会影响。 哈啰在声明中表示，对任何捏造事实、恶意诽谤、损害企业商誉和合
+登录新浪财经APP 搜索【信披】查看更多考评等级 近日，苏州仕净科技股份有限公司（简称：仕净科技、*ST仕净（维权），代码：301030）发布《关于收到中国证券监督管理委员会立案告知书的公告》。因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。 曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 近日，苏州仕净科技股份有限公司（简称：仕净科技、*ST仕净（维权），代码：301030）发布《关于收到中国证券监督管理委员会立案告知书的公告》。
 
-新浪科技讯 6月12日晚间消息，哈啰今日发布声明称，近日“钛媒体”在其网站等相关平台发布了涉哈啰的失实报道，该报道充斥着大量道听途说、凭空捏造和预设立场的结论以及毫无数据支撑的极端揣测，严重侵害了哈啰的商业信誉与名誉权，造成了极为恶劣的社会影响。
+因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。
 
-哈啰在声明中表示，对任何捏造事实、恶意诽谤、损害企业商誉和合法权益的行为，绝不退让。
+曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据立案公告，仕净科技涉嫌证券虚假陈述，受损投资者可依法索赔。
 
-目前，哈啰已报警并向有关部门提交相关材料，后续将依法采取一切必要措施，坚决维护企业合法权益。
+（厉健律师专栏） 根据最高人民法院虚假陈述司法解释，上市公司等因证券虚假陈述行为导致投资者权益受损，投资者可以依法起诉索赔，索赔范围包括投资差额损失、佣金和印花税损失。
 
-“抵制恶意，不代表拒绝批评。
+“根据虚假陈述新司法解释，明确取消前置程序。
 
-在维护自身权益的同时，我们始终对理性的声音敞开大门，虚心倾听社会各界的建设性监督与批评。
+”厉健律师表示，根据司法解释，暂定：在2025年4月28日到2026年4月29日期间买入仕净科技股票，并在2026年4月29日收盘时持有该股票的受损股民，可依法索赔。
 
-正心诚意，方能行稳致远，哈啰将继续秉持依法合规、用户至上的初心，把每一份平凡的出行服务好。
+索赔条件将根据证监会调查结论进一步调整，最终以法院认定为准。
 
-”责任编辑：孙同怀
+（*ST仕净维权入口） 投资者索赔需提供证券开户信息查询单、股票对账单（2025年4月1日至今）、联系方式等。
 
 ## 相关推荐
 
-- 2026-06-29 18:40 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 18:39 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 18:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 19:00 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 18:55 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 19:03 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 19:00 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 18:41 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 18:44 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 18:54 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 18:52 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 18:48 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 18:59 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 18:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 18:56 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 19:02 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 19:00 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 18:57 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 19:06 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 18:44 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 18:45 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 18:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 19:09 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 18:45 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 18:54 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 18:59 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 18:57 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 18:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:36 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/48741358670.shtml)
-- 2026-06-29 19:04 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.minike.top/Article/details/2333034822.shtml)
-- 2026-06-29 18:36 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/746063.shtml)
-- 2026-06-29 18:43 - [两老人多次到一洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/473242.shtml)
-- 2026-06-29 19:04 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/4807604.shtml)
-- 2026-06-29 19:01 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/34383419.shtml)
-- 2026-06-29 18:57 - [美人鱼](http://www.blog.minike.top/Article/details/24625104.shtml)
-- 2026-06-29 18:42 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/893346985.shtml)
-- 2026-06-29 18:44 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/80707.shtml)
-- 2026-06-29 18:41 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/29470688281.shtml)
-- 2026-06-29 18:45 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/234323684.shtml)
-- 2026-06-29 18:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/980202.shtml)
-- 2026-06-29 18:59 - [人形机器人](http://www.blog.minike.top/Article/details/52257.shtml)
-- 2026-06-29 18:50 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/82899.shtml)
-- 2026-06-29 18:59 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/5354393.shtml)
+- 2026-06-29 19:04 - [海清4次陪跑白玉兰](http://www.share.kurohicncr.top/Article/details/974574543553.shtml)
+- 2026-06-29 18:58 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/220981346.shtml)
+- 2026-06-29 19:08 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/28593188399.shtml)
+- 2026-06-29 19:01 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/71964964812.shtml)
+- 2026-06-29 18:56 - [世界杯在中国观看最多的比赛](https://www.blog.kurohicncr.top/Article/details/1906564271.shtml)
+- 2026-06-29 19:06 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/817932392526.shtml)
+- 2026-06-29 18:43 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/02738548.shtml)
+- 2026-06-29 18:55 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/902231.shtml)
+- 2026-06-29 18:45 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/0731179.shtml)
+- 2026-06-29 18:49 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/298308683476.shtml)
+- 2026-06-29 18:43 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/11992.shtml)
+- 2026-06-29 19:00 - [逃狱兄弟](http://www.share.minike.top/Article/details/030153662.shtml)
+- 2026-06-29 19:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/1252325.shtml)
+- 2026-06-29 19:09 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/22392503.shtml)
+- 2026-06-29 18:50 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/4095363.shtml)

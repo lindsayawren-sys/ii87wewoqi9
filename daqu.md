@@ -1,58 +1,59 @@
-# 南方精工（002553）股民索赔案再提交法院立案，已有获赔，时效不足1个月
+# 80亿元巨额索赔！*ST闻泰对抗荷兰干预，国内起诉能否 “抢回” 安世半导体？
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月11日，上海久诚律师事务所股票索赔律师许峰代理的南方精工（维权）（002553）虚假陈述投资者索赔案再向法院提交一次立案。 许峰律师代理的南方精工投资者索赔案部分案件已获赔到位，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律师专栏） 此前2023年7月10日，南方精工公告收到江苏
+每经记者|陈晴 每经编辑|黄胜 一家中国公司，因海外子公司控制权被“架空”，转身在国内法院将子公司和外籍高管告上法庭，索赔80亿元——这不是电影情节，而是近日发生在*ST闻泰身上的真实事件。 2026年5月22日，*ST闻泰（600745.SH，股价16.20元，市值201.64亿元）公告称，公司已向广东省东莞市中级人民法院提起诉讼，被告包括安世半导体等三家公司和三名外籍高管。
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月11日，上海久诚律师事务所股票索赔律师许峰代理的南方精工（维权）（002553）虚假陈述投资者索赔案再向法院提交一次立案。
+每经记者|陈晴 每经编辑|黄胜 一家中国公司，因海外子公司控制权被“架空”，转身在国内法院将子公司和外籍高管告上法庭，索赔80亿元——这不是电影情节，而是近日发生在*ST闻泰身上的真实事件。
 
-许峰律师代理的南方精工投资者索赔案部分案件已获赔到位，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+2026年5月22日，*ST闻泰（600745.SH，股价16.20元，市值201.64亿元）公告称，公司已向广东省东莞市中级人民法院提起诉讼，被告包括安世半导体等三家公司和三名外籍高管。
 
-（许峰律师专栏） 此前2023年7月10日，南方精工公告收到江苏证监局出具的行政监管措施决定书：《江苏证监局关于对江苏南方精工股份有限公司、史建伟、史维采取出具警示函措施的决定》。
+公司认为，这些人在荷兰政府的干预下，联手将自己“踢出”了对安世半导体的管理，严重侵害了公司权益。
 
-经查，南方精工2023年6月19日在深圳证券交易所互动易平台上回复投资者有关人形机器人相关业务的内容不准确，导致公司股价连续多次涨停。
+法院已受理此案，但尚未开庭。
 
-在股价异动后，南方精工未及时了解造成交易异常波动的影响因素，未在6月26日、6月28日发布的股票交易异常波动公告中就公司在互动易平台发布内容进行澄清，未披露造成股价异常波动的影响因素，信息披露不完整。
+这场官司背后，是*ST闻泰近一年来的艰难处境：2025年公司亏损超80亿元，股票被实施退市风险警示，股价一度连续11个交易日跌停。
 
-专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，根据前期投资者获赔条件，在2023年6月20日到2023年7月5日之间买入南方精工股票，并在2023年7月5日后卖出或继续持有股票的投资者，目前还可发起索赔，诉讼时效倒计时已不足一个月。
+那么，这场诉讼能成为公司的转折点吗？
 
-（南方精工维权入口） （本文由许峰律师供稿，不代表新浪财经立场。
+法律人士指出，中国法院对此类案件拥有管辖权，被告若不出庭可缺席判决；但由于中荷两国缺乏司法互认条约，判决能否在荷兰获得实际执行，仍存在较大不确定性。
 
-许峰律师，上海久诚律师事务所主任，2008年起律师执业，执业服务范围涉及虚假陈述、内幕交易、操纵市场等证券欺诈领域索赔代理。
+*ST闻泰的主营业务涵盖半导体和产品集成两大板块。
 
 ## 相关推荐
 
-- 2026-06-29 19:01 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 18:59 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 18:52 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 18:38 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 18:46 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-29 19:04 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 18:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 18:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 18:59 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 18:59 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 18:52 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 19:05 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 19:01 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 18:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 18:50 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 18:46 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 18:47 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 18:55 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 19:10 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 19:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 19:04 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 18:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 18:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 19:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 19:04 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:38 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/24903431.shtml)
-- 2026-06-29 18:40 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/3151170.shtml)
-- 2026-06-29 19:01 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/24911434068.shtml)
-- 2026-06-29 18:36 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/251950.shtml)
-- 2026-06-29 19:02 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/526284963835.shtml)
-- 2026-06-29 18:57 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/317143641.shtml)
-- 2026-06-29 18:40 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/1942561.shtml)
-- 2026-06-29 18:55 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/44684.shtml)
-- 2026-06-29 19:03 - [韩国小学生都来吐槽了](http://www.share.minike.top/Article/details/060003.shtml)
-- 2026-06-29 18:42 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/239559868696.shtml)
-- 2026-06-29 18:43 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/208502.shtml)
-- 2026-06-29 19:05 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/49258471.shtml)
-- 2026-06-29 18:50 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/8026454.shtml)
-- 2026-06-29 18:56 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/557778514.shtml)
-- 2026-06-29 19:00 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/6174641637.shtml)
+- 2026-06-29 18:50 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/509372.shtml)
+- 2026-06-29 19:00 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/949472593.shtml)
+- 2026-06-29 18:56 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/31960.shtml)
+- 2026-06-29 19:02 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/5145732.shtml)
+- 2026-06-29 18:56 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.minike.top/Article/details/82998.shtml)
+- 2026-06-29 18:49 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/2189960.shtml)
+- 2026-06-29 18:52 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/756234865.shtml)
+- 2026-06-29 19:03 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/170226723.shtml)
+- 2026-06-29 18:43 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/47611171.shtml)
+- 2026-06-29 18:54 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/12253574197.shtml)
+- 2026-06-29 18:53 - [机器人学校开学了](https://www.share.minike.top/Article/details/72042.shtml)
+- 2026-06-29 18:50 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/66309.shtml)
+- 2026-06-29 18:57 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.minike.top/Article/details/263577729.shtml)
+- 2026-06-29 18:43 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/265968.shtml)
+- 2026-06-29 19:05 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/2670612.shtml)

@@ -1,53 +1,51 @@
-# 顶点资本创始人：SpaceX将成为美国规模最大的超大规模AI算力服务商
+# 塔斯尼姆通讯社：巴基斯坦继续在伊朗和美国之间传递提议
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-专题：马斯克旗下SpaceX登录纳斯达克 成为史上最大IPO 顶点资本的布拉德・格斯特纳也参与了本次 SpaceX 新股认购，他十分看好公司在人工智能领域的发展潜力。 谈及 SpaceX 自建数据中心的实力，格斯特纳在 CNBC 采访中表示：“相信所有人都会认同，埃隆・马斯克与 SpaceX 团队的技术实力全球顶尖。” 他补充道：“数年之内，他们会成长为美国体量最大的超大规模
+半官方的塔斯尼姆通讯社援引“一位接近谈判团队的消息人士”的话报道称，巴基斯坦仍在伊朗和美国之间传递信息，双方仍在讨论关键障碍。 塔斯尼姆报道称，与以往谈判相比，一些问题取得了更多进展，但报道未具体说明哪些方面取得了进展。 “但在所有争议事项得到解决之前，不会达成任何协议，”塔斯尼姆援引该消息人士称。责任编辑：丁文武
 
 ## 正文
 
-专题：马斯克旗下SpaceX登录纳斯达克 成为史上最大IPO 顶点资本的布拉德・格斯特纳也参与了本次 SpaceX 新股认购，他十分看好公司在人工智能领域的发展潜力。
+半官方的塔斯尼姆通讯社援引“一位接近谈判团队的消息人士”的话报道称，巴基斯坦仍在伊朗和美国之间传递信息，双方仍在讨论关键障碍。
 
-谈及 SpaceX 自建数据中心的实力，格斯特纳在 CNBC 采访中表示：“相信所有人都会认同，埃隆・马斯克与 SpaceX 团队的技术实力全球顶尖。
+塔斯尼姆报道称，与以往谈判相比，一些问题取得了更多进展，但报道未具体说明哪些方面取得了进展。
 
-” 他补充道：“数年之内，他们会成长为美国体量最大的超大规模 AI 算力服务商。
+“但在所有争议事项得到解决之前，不会达成任何协议，”塔斯尼姆援引该消息人士称。
 
-”责任编辑：郭明煜
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 19:03 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 18:54 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 18:49 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 18:38 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 19:01 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 19:03 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 18:51 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 18:44 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 19:03 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 19:02 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 18:40 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 18:55 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 19:02 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 19:00 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 18:54 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 19:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 19:05 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 18:58 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 19:02 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 18:59 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 18:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 18:52 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 19:03 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 18:53 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 18:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 18:55 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 19:08 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 19:11 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:59 - [中方向委方追加1亿元援助](https://www.blog.kurohicncr.top/Article/details/32700285.shtml)
-- 2026-06-29 19:03 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/8749984703.shtml)
-- 2026-06-29 18:53 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/1605657.shtml)
-- 2026-06-29 18:49 - [疑似吴建豪老婆正脸照](http://www.share.kurohicncr.top/Article/details/202097088.shtml)
-- 2026-06-29 19:02 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/2429495853.shtml)
-- 2026-06-29 19:03 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/996459413485.shtml)
-- 2026-06-29 18:47 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/21689.shtml)
-- 2026-06-29 19:03 - [天道](http://www.blog.minike.top/Article/details/262049803.shtml)
-- 2026-06-29 18:54 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/0540992139.shtml)
-- 2026-06-29 18:55 - [女心理师](http://www.blog.minike.top/Article/details/466661763.shtml)
-- 2026-06-29 18:44 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/8144061.shtml)
-- 2026-06-29 18:48 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/6473503390.shtml)
-- 2026-06-29 18:39 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/889875.shtml)
-- 2026-06-29 19:03 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/591619394.shtml)
-- 2026-06-29 18:57 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/82411820.shtml)
+- 2026-06-29 18:43 - [女生每天戴耳机18小时突发耳聋](https://www.blog.minike.top/Article/details/03000142.shtml)
+- 2026-06-29 18:49 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/324270721150.shtml)
+- 2026-06-29 19:00 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/83471576.shtml)
+- 2026-06-29 18:54 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/51908545615.shtml)
+- 2026-06-29 18:55 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/9424565145.shtml)
+- 2026-06-29 18:55 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/68052851921.shtml)
+- 2026-06-29 19:00 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/34691057606.shtml)
+- 2026-06-29 18:47 - [女心理师](https://www.share.minike.top/Article/details/29435.shtml)
+- 2026-06-29 19:07 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/080248190.shtml)
+- 2026-06-29 19:09 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/1607133908.shtml)
+- 2026-06-29 18:59 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/614619.shtml)
+- 2026-06-29 18:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/28639775943.shtml)
+- 2026-06-29 19:00 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/9177084.shtml)
+- 2026-06-29 18:48 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/9661548365.shtml)
+- 2026-06-29 19:06 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/854317.shtml)

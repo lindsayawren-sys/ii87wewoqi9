@@ -1,57 +1,60 @@
-# 索赔末班车！得润电子案件已在审理，时效仅剩半年
+# 把代码写进农田 浙江湖州“硬核科创”探索青年入乡新路
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-上海沪紫律师事务所刘鹏律师团队近日收到得润电子索赔案的案件受理通知，意味着案件正式进入审理程序。（刘鹏律师专栏） 需提醒投资者的是该案诉讼时效将在2026年12月30日到期，距今仅剩半年，建议适格投资者尽快加入。 其被起诉跟一纸处罚有关，深圳证监局已出具《行政处罚决定书》。2020年至2022年，因主要客户经营困难无法回款，公司实际控制人通过自有资金及对外借款，向客户、供应商等
+中新网湖州5月22日电(奚金燕 吴珏)在浙江湖州，一场以“硬核科创”为底色的青年入乡实验，正在南太湖新区悄然推进。与传统“返乡创业”路径不同，这里的青年带着人工智能、无人机、智能医疗等前沿技术，走进田间地头、废弃矿坑、乡村卫生院，把实验室搬到乡野，把代码写进农田。 “我们不做‘农家乐1.0’，我们要做‘青年入乡2.0’。”在2026年半年度青年入乡推进会上，南太湖新区相关负责人
 
 ## 正文
 
-上海沪紫律师事务所刘鹏律师团队近日收到得润电子索赔案的案件受理通知，意味着案件正式进入审理程序。
+中新网湖州5月22日电(奚金燕 吴珏)在浙江湖州，一场以“硬核科创”为底色的青年入乡实验，正在南太湖新区悄然推进。
 
-（刘鹏律师专栏） 需提醒投资者的是该案诉讼时效将在2026年12月30日到期，距今仅剩半年，建议适格投资者尽快加入。
+与传统“返乡创业”路径不同，这里的青年带着人工智能、无人机、智能医疗等前沿技术，走进田间地头、废弃矿坑、乡村卫生院，把实验室搬到乡野，把代码写进农田。
 
-其被起诉跟一纸处罚有关，深圳证监局已出具《行政处罚决定书》。
+“我们不做‘农家乐1.0’，我们要做‘青年入乡2.0’。
 
-2020年至2022年，因主要客户经营困难无法回款，公司实际控制人通过自有资金及对外借款，向客户、供应商等提供资金支持，再由这些主体以“偿还历史欠款”的名义将资金转回公司。
+”在2026年半年度青年入乡推进会上，南太湖新区相关负责人介绍。
 
-这一操作累计虚构回款超过5.34亿元，导致公司多期财报少计信用减值损失。
+院所聚才 打造“科技乡野”新策源地 走进浙江大学湖州研究院，科研人员正忙碌于无人机自主协同、集群机器人等前沿项目的迭代测试。
 
-上述行为导致得润电子披露的2020年年报、2021年年报及2022年半年报存在虚假记载。
+不同于传统封闭实验室，他们的试验场，是南太湖新区乡村片区开放的FPV飞行营地和智慧农业试验基地。
 
-深圳证监局对ST得润（维权）处以700万元罚款，对实控人处以1200万元罚款并采取5年证券市场禁入措施。
+“光靠实验室仿真远远不够，必须依托户外实景反复迭代。
 
-投资者如符合于2020年8月27日-2023年12月30日期间买入，并在2023年12月31日之后卖出或仍持有而亏损的即可登记索赔。
+”青年科研带头人曹燕军坦言。
 
 ## 相关推荐
 
-- 2026-06-29 18:40 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-29 19:05 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 18:50 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 18:47 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 18:48 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 19:05 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 19:03 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 19:02 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 18:58 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 18:39 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 18:43 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 18:52 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 18:51 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 18:50 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 18:58 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 18:44 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 19:06 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 19:10 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 19:00 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 18:42 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 19:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 18:59 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 19:02 - [王楚钦开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 18:58 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 18:44 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:40 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/51952.shtml)
-- 2026-06-29 18:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/91247.shtml)
-- 2026-06-29 19:02 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/9876824271.shtml)
-- 2026-06-29 19:02 - [王楚钦开门红](http://www.share.minike.top/Article/details/7403124.shtml)
-- 2026-06-29 18:52 - [CORTIS 小牌大耍](https://www.share.kurohicncr.top/Article/details/7110810.shtml)
-- 2026-06-29 18:50 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/36901717094.shtml)
-- 2026-06-29 18:40 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/333329.shtml)
-- 2026-06-29 19:05 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/122628533.shtml)
-- 2026-06-29 18:51 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/729200.shtml)
-- 2026-06-29 18:37 - [小娘惹](http://www.blog.minike.top/Article/details/44209415.shtml)
-- 2026-06-29 18:42 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/6415853.shtml)
-- 2026-06-29 19:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/695262.shtml)
-- 2026-06-29 18:57 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/786105.shtml)
-- 2026-06-29 18:53 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/37911441.shtml)
-- 2026-06-29 18:57 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/048329.shtml)
+- 2026-06-29 19:00 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/55665.shtml)
+- 2026-06-29 18:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/85050682796.shtml)
+- 2026-06-29 18:49 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/412590870904.shtml)
+- 2026-06-29 19:01 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/5966560.shtml)
+- 2026-06-29 18:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/634901800.shtml)
+- 2026-06-29 18:52 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/3900708725.shtml)
+- 2026-06-29 18:56 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/628132809.shtml)
+- 2026-06-29 18:51 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/52759.shtml)
+- 2026-06-29 18:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/43704.shtml)
+- 2026-06-29 18:52 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/861415992.shtml)
+- 2026-06-29 19:00 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/42949.shtml)
+- 2026-06-29 18:51 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/44561770.shtml)
+- 2026-06-29 18:53 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/7794404.shtml)
+- 2026-06-29 19:03 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/05462835131.shtml)
+- 2026-06-29 19:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/1970797572.shtml)

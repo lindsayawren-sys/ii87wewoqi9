@@ -1,44 +1,51 @@
-# 美国禁止外国主体使用安特罗匹克最新AI模型 美媒：亚马逊公司曾指出模型存在漏洞
+# 4月上海黄金交易所黄金成交5633.7吨
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 11:08 来源：央视新闻 责任编辑：【王祎】
+中新社北京5月22日电 中国央行22日发布4月金融市场运行情况。其中，黄金市场方面，4月上海黄金交易所黄金成交5633.7吨，同比减少17.0%；上海期货交易所黄金成交1.3万吨，同比减少64.3%。4月末，上海黄金交易所Au(T+D)合约收于每克1014元人民币，环比下跌0.2%。(完)
 
 ## 正文
 
-发布时间：2026年06月15日 11:08 来源：央视新闻 责任编辑：【王祎】
+中新社北京5月22日电 中国央行22日发布4月金融市场运行情况。
+
+其中，黄金市场方面，4月上海黄金交易所黄金成交5633.7吨，同比减少17.0%；上海期货交易所黄金成交1.3万吨，同比减少64.3%。
+
+4月末，上海黄金交易所Au(T+D)合约收于每克1014元人民币，环比下跌0.2%。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 18:37 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 18:54 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 18:36 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 18:44 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 19:04 - [T1零封KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 18:48 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 18:45 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 18:42 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 18:37 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 18:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 18:56 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 18:53 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 19:04 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 19:10 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 18:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 19:02 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 18:47 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 19:06 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 18:54 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 19:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 18:43 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 19:05 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 18:44 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 18:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:47 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/602408.shtml)
-- 2026-06-29 18:40 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/30006523.shtml)
-- 2026-06-29 18:54 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.kurohicncr.top/Article/details/01160.shtml)
-- 2026-06-29 18:50 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/9302520143.shtml)
-- 2026-06-29 18:52 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/81658.shtml)
-- 2026-06-29 18:59 - [葛军透露高考出题思路](https://www.share.minike.top/Article/details/88540142176.shtml)
-- 2026-06-29 18:58 - [伊朗足球队将启程回国](https://www.blog.minike.top/Article/details/183909495475.shtml)
-- 2026-06-29 18:42 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/2232754667.shtml)
-- 2026-06-29 19:03 - [人形机器人](https://www.share.minike.top/Article/details/961726878.shtml)
-- 2026-06-29 19:03 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/6459742.shtml)
-- 2026-06-29 19:03 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/0746662626.shtml)
-- 2026-06-29 18:36 - [四川达州发生一起交通事故致2死](https://www.share.kurohicncr.top/Article/details/602857.shtml)
-- 2026-06-29 18:47 - [法生态部长反对装空调却自己吹空调](http://www.share.minike.top/Article/details/4241045.shtml)
-- 2026-06-29 18:39 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/3257402.shtml)
-- 2026-06-29 18:50 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/71619.shtml)
+- 2026-06-29 19:09 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/05718948851.shtml)
+- 2026-06-29 19:07 - [速度与激情9](https://www.blog.minike.top/Article/details/5267646.shtml)
+- 2026-06-29 19:01 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/12721677204.shtml)
+- 2026-06-29 19:05 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/2850180771.shtml)
+- 2026-06-29 18:42 - [法生态部长反对装空调却自己吹空调](https://www.share.minike.top/Article/details/713036772422.shtml)
+- 2026-06-29 19:02 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/95283717.shtml)
+- 2026-06-29 18:50 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/82018512.shtml)
+- 2026-06-29 19:07 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/448114697220.shtml)
+- 2026-06-29 18:57 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/87754606.shtml)
+- 2026-06-29 19:07 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/7716621794.shtml)
+- 2026-06-29 18:45 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/065318493.shtml)
+- 2026-06-29 18:58 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/0934549.shtml)
+- 2026-06-29 18:43 - [小娘惹](https://www.share.minike.top/Article/details/760364.shtml)
+- 2026-06-29 19:03 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/3407563.shtml)
+- 2026-06-29 18:43 - [大马同意延长马航370残骸搜寻工作](https://www.blog.kurohicncr.top/Article/details/683209480244.shtml)

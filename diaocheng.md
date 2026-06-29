@@ -1,57 +1,57 @@
-# 夏日“冰雪热”升温 室内雪场成消暑新选择
+# 茶香润五洲 中外学子广西品茶论道
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-夏日到来，广东深圳多个室内冰雪场馆迎来客流高峰，滑雪滑冰、冰雪主题乐园等室内冰雪项目正成为夏日里的消费潮流。 为了迎接暑期即将到来的客流高峰，许多室内冰雪场馆通过调整价格、推广线上消费券等方式，进一步点燃了市场热情。 除了专业雪道和冰场，主题冰雪乐园也成为亲子家庭的打卡热点。造雪机模拟的自然降雪场景让孩子体验到飘雪的快乐，堆雪人、雪地挖宝、冰滑梯、冰雪碰碰车等项目，让许多在南方
+中新网南宁5月22日电(记者 黄艳梅)“我喜爱中国绿茶的清鲜爽口与红茶的温润醇厚，这份独特的茶香让我深深感受到中国茶文化的魅力。”广西大学越南籍留学生团玉玄21日说。 当日，中外学子在广西大学参加茶文化日活动，沉浸式感受中国茶文化、古琴艺术与广西非遗魅力。该活动以茶为媒，通过茶艺展演、古琴演奏、非遗油茶体验、中外茶文化互动沙龙等，搭建文化交流桥梁。 活动现场，古朴雅致的中式茶席
 
 ## 正文
 
-夏日到来，广东深圳多个室内冰雪场馆迎来客流高峰，滑雪滑冰、冰雪主题乐园等室内冰雪项目正成为夏日里的消费潮流。
+中新网南宁5月22日电(记者 黄艳梅)“我喜爱中国绿茶的清鲜爽口与红茶的温润醇厚，这份独特的茶香让我深深感受到中国茶文化的魅力。
 
-为了迎接暑期即将到来的客流高峰，许多室内冰雪场馆通过调整价格、推广线上消费券等方式，进一步点燃了市场热情。
+”广西大学越南籍留学生团玉玄21日说。
 
-除了专业雪道和冰场，主题冰雪乐园也成为亲子家庭的打卡热点。
+当日，中外学子在广西大学参加茶文化日活动，沉浸式感受中国茶文化、古琴艺术与广西非遗魅力。
 
-造雪机模拟的自然降雪场景让孩子体验到飘雪的快乐，堆雪人、雪地挖宝、冰滑梯、冰雪碰碰车等项目，让许多在南方出生长大的孩子第一次感受到冰雪的独特乐趣。
+该活动以茶为媒，通过茶艺展演、古琴演奏、非遗油茶体验、中外茶文化互动沙龙等，搭建文化交流桥梁。
 
-室内冰雪运动催热教培与周边消费据深圳市滑雪协会数据，入夏以来，深圳冰雪运动参与人数同比增长超过100%。
+活动现场，古朴雅致的中式茶席与清香四溢的各类茶品营造出浓郁的文化氛围。
 
-“夏日冰雪热”不仅点燃了大家的运动热情，也带动了冰雪教培、装备销售、运动康复等周边消费的快速增长。
+茶艺表演精彩纷呈，温杯、投茶、注水、奉茶……一招一式行云流水。
 
-广东深圳一家室内滑冰场的花样滑冰教练王欢表示，入夏以来，学员逐渐增多，每天的工作量达到8到10小时。
+活动现场设置了名茶展示区，汇集中国绿茶、红茶、六堡茶等多款特色茶品，搭配茶画等展示，全方位解读茶叶的种植、制作与品鉴知识。
 
-室内冰雪场馆也与学校合作，开展冰雪研学活动，将雪场变为“行走的课堂”。
+在中外茶文化交流环节，中外学子结伴而坐，共品香茗、共话茶事。
 
 ## 相关推荐
 
-- 2026-06-29 18:40 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 18:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 18:48 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 19:02 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 18:38 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 18:44 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 18:55 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 18:59 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 18:44 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 19:04 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 18:59 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 18:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 18:45 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 18:59 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 18:56 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 18:46 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 19:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 18:50 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 18:51 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 18:48 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 18:48 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 18:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:39 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/94031072.shtml)
-- 2026-06-29 18:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/409952.shtml)
-- 2026-06-29 19:01 - [德国医生在没有空调的手术室工作](https://www.share.minike.top/Article/details/8404176.shtml)
-- 2026-06-29 18:41 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/597763620.shtml)
-- 2026-06-29 18:44 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/818340658599.shtml)
-- 2026-06-29 18:37 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/542833.shtml)
-- 2026-06-29 19:02 - [RAY评乘风2026总决赛](https://www.blog.kurohicncr.top/Article/details/633915332376.shtml)
-- 2026-06-29 18:46 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/83159792247.shtml)
-- 2026-06-29 18:46 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/125142.shtml)
-- 2026-06-29 18:55 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/110455.shtml)
-- 2026-06-29 18:46 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/840044010.shtml)
-- 2026-06-29 18:39 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/143816365.shtml)
-- 2026-06-29 18:50 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/13647104.shtml)
-- 2026-06-29 18:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/22071545837.shtml)
-- 2026-06-29 18:49 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/0100387.shtml)
+- 2026-06-29 18:59 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/79046992.shtml)
+- 2026-06-29 19:01 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/42726.shtml)
+- 2026-06-29 18:45 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/81198643.shtml)
+- 2026-06-29 18:53 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/23923.shtml)
+- 2026-06-29 18:51 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/419922419716.shtml)
+- 2026-06-29 19:04 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/0523330.shtml)
+- 2026-06-29 18:47 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/99862248.shtml)
+- 2026-06-29 19:05 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/18061940.shtml)
+- 2026-06-29 19:04 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/9245605.shtml)
+- 2026-06-29 19:04 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/40572896.shtml)
+- 2026-06-29 19:00 - [TOP Prada](http://www.blog.minike.top/Article/details/649136.shtml)
+- 2026-06-29 18:45 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/3223603230.shtml)
+- 2026-06-29 19:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/83311827.shtml)
+- 2026-06-29 18:47 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/35919193723.shtml)
+- 2026-06-29 18:56 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/499732258.shtml)

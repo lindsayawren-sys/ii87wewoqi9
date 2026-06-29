@@ -1,46 +1,45 @@
-# 强对流蓝色预警：华北江南华南等地部分地区有雷暴大风或冰雹天气
+# 央行今日开展2580亿元7天期逆回购操作
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网6月13日电 据中央气象台网站消息，中央气象台6月13日10时发布强对流天气蓝色预警：预计6月13日14时至14日14时，华北、江南南部、华南西部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，河北西北部和中部等地的局地将有10级以上雷暴大风，最大风力可达11级以上；内蒙古东部、东北地区西部、华北东部、西南地区东南部、江南南部和中东部、华南等地的部分地区将有小时雨量大
+5月25日金融一线消息，今日央行以固定利率、数量招标方式开展了2580亿元7天期逆回购操作，全额满足了一级交易商需求。 责任编辑：曹睿潼
 
 ## 正文
 
-中新网6月13日电 据中央气象台网站消息，中央气象台6月13日10时发布强对流天气蓝色预警：预计6月13日14时至14日14时，华北、江南南部、华南西部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，河北西北部和中部等地的局地将有10级以上雷暴大风，最大风力可达11级以上；内蒙古东部、东北地区西部、华北东部、西南地区东南部、江南南部和中东部、华南等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中，湖南南部、江西东部、福建西部、广西东部、广东中北部及沿海等地的部分地区小时雨量大于50毫米，最大可达90毫米以上。
+5月25日金融一线消息，今日央行以固定利率、数量招标方式开展了2580亿元7天期逆回购操作，全额满足了一级交易商需求。
 
-预计，强对流的主要影响时段为今日午后至夜间。
-
-防御指南： 1.政府及相关部门按照职责做好防短时暴雨、防雷、防大风准备工作，气象部门做好人工防雹作业准备； 2.户外行人和工作人员减少户外活动，注意远离棚架广告牌等搭建物； 3.驱赶家禽、牲畜进入有顶篷的场所，关好门窗加固棚舍； 4.相关水域水上作业和过往船舶采取回港规避或者绕道航行等积极应对措施，工地注意遮盖建筑物资，妥善安置易受暴雨、风雹影响的室外物品； 5.检查城市、农田、鱼塘排水系统，做好排涝准备和对山洪、滑坡、泥石流等灾害的防御准备。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 18:48 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 18:42 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 19:02 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 18:51 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 18:49 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 18:43 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 18:39 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 19:02 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 19:05 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 18:39 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 18:57 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 18:58 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 18:59 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 19:09 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 18:42 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 18:54 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 19:08 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 18:50 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 19:08 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 19:04 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 18:44 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:59 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/033896.shtml)
-- 2026-06-29 18:58 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/271712400299.shtml)
-- 2026-06-29 18:48 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/145862046.shtml)
-- 2026-06-29 18:52 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/822236096.shtml)
-- 2026-06-29 18:51 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/0066274140.shtml)
-- 2026-06-29 18:37 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/89163997344.shtml)
-- 2026-06-29 18:54 - [扫黑风暴](http://www.blog.minike.top/Article/details/931756753892.shtml)
-- 2026-06-29 18:51 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/994674741.shtml)
-- 2026-06-29 18:47 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/975031.shtml)
-- 2026-06-29 18:56 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/48947.shtml)
-- 2026-06-29 18:46 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/64632659706.shtml)
-- 2026-06-29 18:43 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/585223525.shtml)
-- 2026-06-29 18:53 - [互助版模拟高考志愿填报](https://www.blog.kurohicncr.top/Article/details/901315.shtml)
-- 2026-06-29 18:40 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/5243182.shtml)
-- 2026-06-29 18:49 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/20580302549.shtml)
+- 2026-06-29 18:46 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/07931408402.shtml)
+- 2026-06-29 18:57 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/6915035661.shtml)
+- 2026-06-29 18:48 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/13165314.shtml)
+- 2026-06-29 18:42 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/795470604593.shtml)
+- 2026-06-29 18:57 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/36094.shtml)
+- 2026-06-29 18:43 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/0884782718.shtml)
+- 2026-06-29 19:09 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/97144280527.shtml)
+- 2026-06-29 18:53 - [博主：AI泡沫必须破灭](https://www.share.kurohicncr.top/Article/details/9383718736.shtml)
+- 2026-06-29 18:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/8021638390.shtml)
+- 2026-06-29 19:09 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/437042.shtml)
+- 2026-06-29 18:47 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/543153291.shtml)
+- 2026-06-29 19:02 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/0635794.shtml)
+- 2026-06-29 19:00 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/7919625.shtml)
+- 2026-06-29 18:55 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/9253313890.shtml)
+- 2026-06-29 19:04 - [叠纸客服回应恋与深空新角色争议](https://www.share.kurohicncr.top/Article/details/238056.shtml)

@@ -1,56 +1,59 @@
-# 全球首条百万片级体全息光波导自动化产线在天津投产
+# 市值跌去四分之三，五粮液还值得投资者信任吗？
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新社天津6月13日电 (记者 周亚强)全球首条百万片级体全息光波导自动化产线13日在天津投产，标志着中国在消费级AR(增强现实)核心显示技术领域实现规模化量产突破，为高性价比AR眼镜和车载AR-HUD(增强现实抬头显示系统)进入大众市场打通关键一环。 该产线由尼卡光学(天津)有限公司设计建设，年产能达100万片，配备千级洁净车间与精密环控系统，全线采用企业定制的全息光刻设备及
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 砺石商业评论 深陷财务“洗澡”风波的五粮液（维权），这一次的回应，股东们愿意买账吗？ 吴遮 | 文 孙春芳 | 编辑 棱镜 | 来源 近日，五粮液2026年第一次临时股东大会在四川宜宾召开。 这是一场备受资本市场关注的临时股东大会。此时的五粮液正处于多事之秋，今年2月，五粮液原董事长曾从钦被宜宾市立案调查，时至今日，这家
 
 ## 正文
 
-中新社天津6月13日电 (记者 周亚强)全球首条百万片级体全息光波导自动化产线13日在天津投产，标志着中国在消费级AR(增强现实)核心显示技术领域实现规模化量产突破，为高性价比AR眼镜和车载AR-HUD(增强现实抬头显示系统)进入大众市场打通关键一环。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 砺石商业评论 深陷财务“洗澡”风波的五粮液（维权），这一次的回应，股东们愿意买账吗？
 
-该产线由尼卡光学(天津)有限公司设计建设，年产能达100万片，配备千级洁净车间与精密环控系统，全线采用企业定制的全息光刻设备及工艺平台。
+吴遮 | 文 孙春芳 | 编辑 棱镜 | 来源 近日，五粮液2026年第一次临时股东大会在四川宜宾召开。
 
-投产后，尼卡光学天津、广州两地总年产能将提升至130万片。
+这是一场备受资本市场关注的临时股东大会。
 
-体全息光波导被业界视为消费级AR设备的重要技术路线之一。
+此时的五粮液正处于多事之秋，今年2月，五粮液原董事长曾从钦被宜宾市立案调查，时至今日，这家仅次于贵州茅台白酒巨头，依然未能迎来自己的新掌门人。
 
-尼卡光学创始人兼CEO杜有成告诉中新社记者，企业历时4年研发，突破全息光刻胶材料、自主光学设计及全息光刻设备三大底层核心技术壁垒，实现全栈自主可控。
+4月30日，五粮液又发布了多份公告，除了披露2025年财报和2026年第一季度报告之外，还对2025年前三季度的业绩进行了“大幅度”调整，直接震惊了资本市场。
 
-杜有成介绍，其自研镜片光效达1500尼特/流明，约为市面传统产品的两倍，厚度仅0.6毫米，重量3.1克，兼具高光效、轻薄与低成本优势。
+根据当时的业绩调整报告，去年前三季度，五粮液的营业总收入由原来的609亿改为306亿，减少了303亿；归母净利润由原来的215亿改为65亿，减少了150亿。
 
-目前企业在手订单已突破100万片，预计2026年全年产值可达6000万至8000万元人民币。
+受业绩调整的影响，五粮液的股价持续下跌，目前已经跌破90元。
 
-投产当日，尼卡光学与产业链伙伴签署战略合作协议。
+4月30日开盘时，五粮液的股价为97.74元/股，截至5月19日收盘为85.78元/股。
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 18:42 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 18:38 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 18:58 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 18:53 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 18:47 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 18:52 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 19:03 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 19:04 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 18:52 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 19:07 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 18:44 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 19:09 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 18:56 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 19:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 18:59 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 18:42 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 18:45 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 19:05 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 18:44 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 19:01 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 18:48 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 18:47 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/74242125.shtml)
-- 2026-06-29 18:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/1191942737.shtml)
-- 2026-06-29 18:38 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/35384851799.shtml)
-- 2026-06-29 18:57 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/769290376.shtml)
-- 2026-06-29 18:42 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/5880384559.shtml)
-- 2026-06-29 18:42 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/85203772559.shtml)
-- 2026-06-29 19:01 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/60115751.shtml)
-- 2026-06-29 18:55 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/7711242.shtml)
-- 2026-06-29 18:40 - [花万元相亲对象是50元雇的演员](http://www.share.kurohicncr.top/Article/details/7342632.shtml)
-- 2026-06-29 18:38 - [叠纸](https://www.share.kurohicncr.top/Article/details/845818.shtml)
-- 2026-06-29 18:43 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/0554025239.shtml)
-- 2026-06-29 18:53 - [大学专业未来如何洗牌](https://www.blog.minike.top/Article/details/221132550496.shtml)
-- 2026-06-29 18:48 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/6796353.shtml)
-- 2026-06-29 18:51 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/386769747.shtml)
-- 2026-06-29 18:36 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/66161.shtml)
+- 2026-06-29 18:51 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.minike.top/Article/details/7483374.shtml)
+- 2026-06-29 18:59 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/63773543178.shtml)
+- 2026-06-29 18:50 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/516095207136.shtml)
+- 2026-06-29 19:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/56324936721.shtml)
+- 2026-06-29 19:09 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/5948378.shtml)
+- 2026-06-29 19:10 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/47808.shtml)
+- 2026-06-29 18:58 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/8042092.shtml)
+- 2026-06-29 18:49 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/174377277630.shtml)
+- 2026-06-29 18:44 - [送你一朵小红花](https://www.blog.minike.top/Article/details/5358572571.shtml)
+- 2026-06-29 18:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/9467846766.shtml)
+- 2026-06-29 18:53 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/13113171391.shtml)
+- 2026-06-29 18:54 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/153476029172.shtml)
+- 2026-06-29 18:53 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/76143291.shtml)
+- 2026-06-29 18:49 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/4539799.shtml)
+- 2026-06-29 18:45 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/473774913.shtml)

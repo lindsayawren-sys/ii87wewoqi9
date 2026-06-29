@@ -1,56 +1,59 @@
-# 金山云早盘上涨5% AI算力相关产品服务价格上调约15%至50%
+# 济南明水古城：雨后泉群 欢涌如注
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-金山云（03896）早盘高开逾5%，截至发稿，股价上涨5%，现报5.88港元，成交额8473.74万港元。 据金山云官网消息，因全球AI算力需求攀升，硬件成本上涨，将对部分产品价格进行调整。AI算力相关产品服务价格上调约15%-50%，文件存储相关产品服务价格上调约30%-50%。调整将于北京时间2026年7月12日00：00：00起生效。存量订单在当前计费周期内不受影响，新价
+国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？618大战，为何先从手机降价开始？埃及胡夫金字塔如何抗震？国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！你的股票和黄金，后市怎么走？郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！建议欧洲议会集体观看《给阿嬷的情书》韩国股民，
 
 ## 正文
 
-金山云（03896）早盘高开逾5%，截至发稿，股价上涨5%，现报5.88港元，成交额8473.74万港元。
+国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？
 
-据金山云官网消息，因全球AI算力需求攀升，硬件成本上涨，将对部分产品价格进行调整。
+618大战，为何先从手机降价开始？
 
-AI算力相关产品服务价格上调约15%-50%，文件存储相关产品服务价格上调约30%-50%。
+埃及胡夫金字塔如何抗震？
 
-调整将于北京时间2026年7月12日00：00：00起生效。
+国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！
 
-存量订单在当前计费周期内不受影响，新价格在下一个计费周期开始时适用。
+你的股票和黄金，后市怎么走？
 
-开源证券认为，金山云AI算力涨价15%-50%是继阿里云、百度智能云、腾讯云之后行业性调价潮的延续，确认AI算力从“内卷定价”向“供需定价”的拐点。
+郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！
 
-责任编辑：卢昱君
+建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？
+
+最高法案例“划重点”黄金，再跌也不能买了？
 
 ## 相关推荐
 
-- 2026-06-29 18:52 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 19:03 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 18:44 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 19:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 18:58 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 18:57 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 18:55 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 19:03 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 19:03 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 18:52 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 18:44 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 18:45 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 19:07 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 19:08 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 19:04 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 18:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 19:07 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 19:01 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 18:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 19:08 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 18:42 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 19:00 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 19:04 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 18:46 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 18:50 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:05 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/367567.shtml)
-- 2026-06-29 18:59 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/757893072.shtml)
-- 2026-06-29 18:39 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.kurohicncr.top/Article/details/57799.shtml)
-- 2026-06-29 18:42 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/53927235.shtml)
-- 2026-06-29 18:55 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/21419259969.shtml)
-- 2026-06-29 19:02 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/74016.shtml)
-- 2026-06-29 19:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/075434.shtml)
-- 2026-06-29 18:52 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/30575558316.shtml)
-- 2026-06-29 18:51 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/711334.shtml)
-- 2026-06-29 19:00 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/460383747138.shtml)
-- 2026-06-29 18:44 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/81326.shtml)
-- 2026-06-29 18:41 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/398212.shtml)
-- 2026-06-29 18:36 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/38476.shtml)
-- 2026-06-29 18:45 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/41546.shtml)
-- 2026-06-29 18:42 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/888685081117.shtml)
+- 2026-06-29 18:53 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/590264785475.shtml)
+- 2026-06-29 19:10 - [流金岁月](http://www.share.kurohicncr.top/Article/details/3175700.shtml)
+- 2026-06-29 19:06 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/400106746769.shtml)
+- 2026-06-29 19:03 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/649971.shtml)
+- 2026-06-29 18:59 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/0755227.shtml)
+- 2026-06-29 19:08 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/19807552574.shtml)
+- 2026-06-29 18:52 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/054362.shtml)
+- 2026-06-29 18:54 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/624976211965.shtml)
+- 2026-06-29 18:50 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/866228.shtml)
+- 2026-06-29 18:43 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/68212.shtml)
+- 2026-06-29 19:06 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/33648471.shtml)
+- 2026-06-29 18:53 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/52781908881.shtml)
+- 2026-06-29 19:05 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/21427366.shtml)
+- 2026-06-29 18:47 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/427571.shtml)
+- 2026-06-29 18:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/7440338.shtml)

@@ -1,54 +1,56 @@
-# 山东曲阜：“孔府旧藏家具展”在孔子博物馆开幕
+# 降雨间歇期 湖北襄阳打响夏粮“抢收仗”
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-特朗普提名的下任国家情报总监是谁？新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，
+中新网襄阳5月23日电 题：降雨间歇期 湖北襄阳打响夏粮“抢收仗” 作者 张倩龙 高原 付冰洁 近期，湖北省遭遇大范围强降雨天气。趁着短暂降雨间歇期，襄阳“雨口夺粮”，全力开展小麦抢收工作。 位居汉水中游的襄阳，是湖北省唯一粮食产能过百亿斤的农业大市。时值536万亩小麦集中成熟、80多万亩油菜收获尾声的夏收关键期，两轮降雨之间的窗口期不足96小时。 据襄阳市农业农村局党组成员、
 
 ## 正文
 
-特朗普提名的下任国家情报总监是谁？
+中新网襄阳5月23日电 题：降雨间歇期 湖北襄阳打响夏粮“抢收仗” 作者 张倩龙 高原 付冰洁 近期，湖北省遭遇大范围强降雨天气。
 
-新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！
+趁着短暂降雨间歇期，襄阳“雨口夺粮”，全力开展小麦抢收工作。
 
-世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？
+位居汉水中游的襄阳，是湖北省唯一粮食产能过百亿斤的农业大市。
 
-鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，人们在意的从不只是一只腿湖南同日打落多名官员，此前烟花爆炸事故致37人死亡“孤女遭亲舅舅阻止高考”系“剧本式”造谣“秦腔一枝梅”：秦腔不全是“吼”，还有委婉缠绵人工智能成为推动中国外贸增长新引擎销量前十再无燃油车 “油退电进”按下加速键中国元素将亮相美加墨世界杯秘鲁前总理：AI时代，何以守护人类基本人权？
+时值536万亩小麦集中成熟、80多万亩油菜收获尾声的夏收关键期，两轮降雨之间的窗口期不足96小时。
 
-岳云鹏：如果人生能多一个镜头，我想留给父亲东北超怎么没有海南呢？
+据襄阳市农业农村局党组成员、副局长杨道华介绍，连日来，襄阳市调集2.7万台本地收割机与4200余台外地调运机械，昼夜抢收。
 
-西藏拉萨：运动会上的力量之美“AI医生”上高原 智能诊断系统守护基层官兵健康吉林村民遇东北虎捕食黄牛 危急时刻爬树避险成都一高校免费捞鱼900斤 祝愿毕业生“年年有余”蔡正元入狱2个月最新发声94%得票率！
+走进老河口市孟楼镇朱庄村，多台收割机正来回作业，轰鸣声此起彼伏。
 
-樊振东当选德甲赛季最佳三峡水库腾出防洪库容 长江万州段水位降至150米南博会上挑战“见手青拿铁” 喝完会不会看见“小人人”河北农业大学毕业典礼上 学生轮番整活把校长“忙坏了”津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁航拍丹霞地貌神似“羊肉卷”没有“黑眼圈” 全球唯一野生白色大熊猫长大了北京：圆明园旁扇面湖荷花盛开 世界杯16座城市16种画风 世界最长高原冻土铁路特大桥稳定运行20年 多图直击2026美加墨世界杯开幕式 “洋景漂”父女的三宝村“陶”源生活 杭州：这里的花期已排满，四时各有专属“花 “中国洮砚之乡”采石人：身贴悬崖绝壁深入 广东揭阳：一纸情书 藏在这座低调古城的烟 分享 评论 顶部
+上一轮强降雨过程中，老河口多地累计降雨量超150毫米。
+
+为确保收割顺利，当地农技服务中心组织工作人员下沉田间地头，查看小麦成色，规范收割流程，帮助农户解决实际问题。
 
 ## 相关推荐
 
-- 2026-06-29 18:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 18:57 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 18:39 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 19:05 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 18:39 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 18:56 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 19:03 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 18:40 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 18:50 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 18:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 19:02 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 18:58 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 19:08 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 19:11 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 19:09 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 18:47 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 18:55 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 18:48 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 19:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 18:46 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:36 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/8767832.shtml)
-- 2026-06-29 19:04 - [葛军透露高考出题思路](http://www.share.minike.top/Article/details/7992780.shtml)
-- 2026-06-29 18:54 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/1515540739.shtml)
-- 2026-06-29 18:41 - [叠纸](http://www.blog.kurohicncr.top/Article/details/6444555589.shtml)
-- 2026-06-29 18:42 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/646697418.shtml)
-- 2026-06-29 18:58 - [永远有话聊的原因](https://www.share.kurohicncr.top/Article/details/164974781.shtml)
-- 2026-06-29 19:01 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/4096038.shtml)
-- 2026-06-29 18:57 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/917421184.shtml)
-- 2026-06-29 18:43 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/9956463.shtml)
-- 2026-06-29 18:58 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/93504.shtml)
-- 2026-06-29 18:59 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/91310275565.shtml)
-- 2026-06-29 19:02 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/81249088.shtml)
-- 2026-06-29 18:36 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/5863655365.shtml)
-- 2026-06-29 18:46 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/86853.shtml)
-- 2026-06-29 18:43 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/69599.shtml)
+- 2026-06-29 19:08 - [海口塔吊事故处罚结果公布](http://www.blog.kurohicncr.top/Article/details/003062.shtml)
+- 2026-06-29 19:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/52327083479.shtml)
+- 2026-06-29 18:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/556275625252.shtml)
+- 2026-06-29 18:45 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/154908352.shtml)
+- 2026-06-29 18:55 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/72691015648.shtml)
+- 2026-06-29 19:10 - [税务总局披露5起合规申报个税案例](https://www.blog.kurohicncr.top/Article/details/853774881.shtml)
+- 2026-06-29 19:07 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/7935452334.shtml)
+- 2026-06-29 18:55 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/714747.shtml)
+- 2026-06-29 18:48 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/239898588.shtml)
+- 2026-06-29 18:45 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/693204182.shtml)
+- 2026-06-29 18:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/481098.shtml)
+- 2026-06-29 18:59 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/047239.shtml)
+- 2026-06-29 18:42 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/3676689.shtml)
+- 2026-06-29 18:42 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/90269.shtml)
+- 2026-06-29 18:53 - [TTG KSG](http://www.share.minike.top/Article/details/112648355.shtml)

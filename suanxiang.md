@@ -1,59 +1,54 @@
-# 完善广告监管制度体系 市场监管总局出台《广告引证内容执法指南》
+# 西安石油大学乌兹别克斯坦分校——中乌石油大学建设启动
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网6月12日电 据“市说新语”微信公众号消息，近日，市场监管总局聚焦商业广告引证内容，出台《广告引证内容执法指南》(以下简称《指南》)，旨在进一步完善广告监管制度体系，规范市场监管部门广告引证内容监管工作，帮助广告活动主体提升广告引证内容合规能力。明确适用范围。《指南》明确“广告引证内容”“引证广告”等概念及其应当遵守的一般性原则，强调广告主依法应当对引证内容等广告内容的真
+中新网西安5月23日电 (梅镱泷 徐天雨)在22日举行的2026丝绸之路国际产学研用合作会议暨教育合作交流活动上，西安石油大学乌兹别克斯坦分校——中乌石油大学建设启动揭牌。 据介绍，西安石油大学乌兹别克斯坦分校——中乌石油大学项目是西安石油大学主动融入共建“一带一路”倡议、深度对接国家能源强国战略、践行“中文+”教育出海理念的重大举措，也是该校以独立法人身份在乌兹别克斯坦设立的
 
 ## 正文
 
-中新网6月12日电 据“市说新语”微信公众号消息，近日，市场监管总局聚焦商业广告引证内容，出台《广告引证内容执法指南》(以下简称《指南》)，旨在进一步完善广告监管制度体系，规范市场监管部门广告引证内容监管工作，帮助广告活动主体提升广告引证内容合规能力。
+中新网西安5月23日电 (梅镱泷 徐天雨)在22日举行的2026丝绸之路国际产学研用合作会议暨教育合作交流活动上，西安石油大学乌兹别克斯坦分校——中乌石油大学建设启动揭牌。
 
-明确适用范围。
+据介绍，西安石油大学乌兹别克斯坦分校——中乌石油大学项目是西安石油大学主动融入共建“一带一路”倡议、深度对接国家能源强国战略、践行“中文+”教育出海理念的重大举措，也是该校以独立法人身份在乌兹别克斯坦设立的海外分校。
 
-《指南》明确“广告引证内容”“引证广告”等概念及其应当遵守的一般性原则，强调广告主依法应当对引证内容等广告内容的真实性、准确性、合法性负责，并依法承担举证责任。
+活动现场还签署了西安石油大学与阿联酋穆罕默德亲王皇室办公室合作谅解备忘录。
 
-规范引证内容。
+双方将依托备忘录，围绕国际教育合作、科研成果国际化转化、深化多方协同合作等领域开展长期深度合作，积极探索能源领域跨国产学研合作新模式，拓宽学校国际合作渠道，推动优质教育资源、能源技术成果双向共享。
 
-《指南》针对实验测量、统计调查、文献资料等不同情形，细化不同类型引证内容的规范性要求，并对广告引证内容构成虚假广告的情形等作出分类说明，回应社会关切。
+近年来，西安石油大学积极把握丝路国际合作机遇，扎实推进土库曼斯坦鲁班工坊、乌兹别克斯坦分校等重点国际合作项目，以务实举措深化能源领域国际产学研协同，学校国际化办学水平与丝路能源合作影响力持续提升。
 
-细化监管规则。
+西安石油大学党委书记常江表示，将持续依托丝路产学研国际交流平台，锚定国际化发展目标，稳步推进境外办学项目落地，深化与中亚、中东国家高校及机构的务实合作，以教育赋能能源合作，以产学研融合助力区域发展。
 
-对“大字吸睛，小字免责”的广告，从正反两个方面对广告内容作出具体明确的要求，并对借绝对化用语等导致消费者对其市场地位、竞争优势产生错误认知的违法情形作细化列举，以进一步健全广告监管制度体系。
-
-下一步，市场监管总局将指导地方市场监管部门，结合当前正在开展的广告提示性用语乱象清理整治工作，进一步遏制“大字吸睛、小字免责”“先射箭后画靶”等违法广告，缓解广告主“营销焦虑”，引导其主动摈弃“文字游戏”式广告，切实防范通过制造所谓“萝卜坑赛道冠军”等手段加剧“内卷式”竞争。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:37 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 19:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 19:00 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 18:54 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 18:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 18:45 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 18:44 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 19:05 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 18:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 18:37 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 18:59 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 18:59 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 18:36 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 19:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 19:11 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 19:05 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 18:49 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 19:05 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 18:57 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 19:09 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 18:57 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 18:52 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 19:05 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:44 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/6056826.shtml)
-- 2026-06-29 18:47 - [世界杯预测史上最不吃压力之物](https://www.share.minike.top/Article/details/43336946683.shtml)
-- 2026-06-29 18:48 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/747106423337.shtml)
-- 2026-06-29 18:49 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/627471908869.shtml)
-- 2026-06-29 18:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/49853900916.shtml)
-- 2026-06-29 18:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/218223126.shtml)
-- 2026-06-29 18:43 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/11602046386.shtml)
-- 2026-06-29 18:52 - [叠纸客服回应恋与深空新角色争议](http://www.share.minike.top/Article/details/53304289618.shtml)
-- 2026-06-29 18:40 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/56593.shtml)
-- 2026-06-29 18:43 - [中国战机大片上新](http://www.share.minike.top/Article/details/2869553281.shtml)
-- 2026-06-29 18:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/3235106.shtml)
-- 2026-06-29 18:50 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/7508170.shtml)
-- 2026-06-29 18:40 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/2686177.shtml)
-- 2026-06-29 19:00 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/31000157.shtml)
-- 2026-06-29 18:50 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/04350956.shtml)
+- 2026-06-29 19:06 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/99237019847.shtml)
+- 2026-06-29 19:02 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/18051.shtml)
+- 2026-06-29 18:56 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/6524202.shtml)
+- 2026-06-29 18:51 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/535376227.shtml)
+- 2026-06-29 19:04 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/7657709.shtml)
+- 2026-06-29 18:48 - [乔家的儿女](https://www.blog.minike.top/Article/details/594138.shtml)
+- 2026-06-29 19:04 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/7520016.shtml)
+- 2026-06-29 18:43 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/77081.shtml)
+- 2026-06-29 18:59 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.blog.kurohicncr.top/Article/details/082833979.shtml)
+- 2026-06-29 19:05 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/6930932084.shtml)
+- 2026-06-29 19:06 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.minike.top/Article/details/4208868532.shtml)
+- 2026-06-29 18:44 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/8032985439.shtml)
+- 2026-06-29 19:07 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/246639710392.shtml)
+- 2026-06-29 18:58 - [RAY评乘风2026总决赛](http://www.blog.minike.top/Article/details/163148901.shtml)
+- 2026-06-29 18:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/671252.shtml)

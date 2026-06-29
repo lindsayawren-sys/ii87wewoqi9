@@ -1,59 +1,60 @@
-# 足不出户“游蜀道” 蜀道千年数字展在川上线
+# 5月23日热门中概股多数下跌 富途控股跌27.53%，蔚来跌7.05%
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网乐山6月13日电 (记者 刘忠俊)6月13日，《蜀道千年：山河史诗与华夏脊梁蜀道数字展》在四川正式上线。该数字展由四川省文物局指导、四川省文物交流和信息中心出品，融合虚实交互技术、游戏化叙事与权威学术成果，突破实体展览物理空间限制，让网友足不出户即可沉浸式感悟蜀道千年文明底蕴。 蜀道横跨秦岭、巴山两大山系，是古代连通中原腹地与西南巴蜀地区的核心陆路通道，素来地势险峻、通行
+5月23日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）收跌2.21%。 上涨个股（按市值从高到低）：网易涨1.93%，日月光半导体涨6.69%，中通涨0.79%，中国新城农村涨0.13%，慧荣科技涨4.79%，金山云涨4.33%，奇景光电涨5.78%。 下跌个股（按市值从高到低）：台积电跌0.69%，阿里巴巴跌1.13%，拼多多跌3.34%，联电跌0.76%，百度跌2.5
 
 ## 正文
 
-中新网乐山6月13日电 (记者 刘忠俊)6月13日，《蜀道千年：山河史诗与华夏脊梁蜀道数字展》在四川正式上线。
+5月23日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）收跌2.21%。
 
-该数字展由四川省文物局指导、四川省文物交流和信息中心出品，融合虚实交互技术、游戏化叙事与权威学术成果，突破实体展览物理空间限制，让网友足不出户即可沉浸式感悟蜀道千年文明底蕴。
+上涨个股（按市值从高到低）：网易涨1.93%，日月光半导体涨6.69%，中通涨0.79%，中国新城农村涨0.13%，慧荣科技涨4.79%，金山云涨4.33%，奇景光电涨5.78%。
 
-蜀道横跨秦岭、巴山两大山系，是古代连通中原腹地与西南巴蜀地区的核心陆路通道，素来地势险峻、通行艰险。
+下跌个股（按市值从高到低）：台积电跌0.69%，阿里巴巴跌1.13%，拼多多跌3.34%，联电跌0.76%，百度跌2.58%，京东跌3.02%，中华电信跌0.35%，携程跌3.52%，贝壳跌3.02%，富途控股跌27.53%，理想汽车跌1.91%，小鹏汽车跌0.19%，腾讯音乐跌3.77%，华住酒店集团跌3.37%，蔚来跌7.05%，满帮跌5.44%，新东方跌2.37%，哔哩哔哩跌1.99%，万国数据跌0.40%，唯品会跌0.83%，BOSS直聘跌0.36%，WSP控股跌2.04%，亚朵集团跌5.45%，名创优品跌1.53%，小马智行跌0.11%，微牛跌6.51%，禾赛科技跌1.29%，世纪互联跌3.93%，欢聚跌2.87%。
 
-蜀道体系肇始于新石器时代，历经古道开凿、路网完善与近代交通体系更迭，贯穿中国古代文明发展全过程，深刻影响古代军事布防、商贸流通、政权治理、文化传播进程，是中华文明极具代表性的线性文化遗产廊道。
+美股周五收高，道指再创历史新高。
 
-据介绍，传统蜀道体系分为南北主干道路及多条支线。
+三大指数本周均录得涨幅。
 
-秦岭北侧干道包含故道、褒斜道、傥骆道、子午道；巴山南侧干道涵盖金牛道、米仓道、荔枝道，祁山道、阴平道为重要支线。
+投资者正在密切关注美伊谈判进展。
 
-本次数字展选取金牛道、米仓道、荔枝道、阴平道四条古道为主线，遵循古入川行进脉络，依托手绘专题地图，串联明月峡、昭化古城、剑门关、翠云廊、七曲山大庙、白马关等沿线核心文化遗产点位。
+凯文沃什宣誓就任美联储主席。
 
-数字展系统梳理古道修筑背景与发展脉络，阐释栈道、古城、关隘等遗存历史价值，同步整合蜀道文旅线路、石刻碑刻、历代古道诗文等延伸内容，兼顾观赏体验与学术科普属性，全方位解读蜀道核心文化内涵。
+道指涨294.04点，涨幅为0.58%，报50579.70点；纳指涨50.87点，涨幅为0.19%，报26343.97点；标普500指数涨27.73点，涨幅为0.37%，报7473.45点。
 
 ## 相关推荐
 
-- 2026-06-29 19:03 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 18:56 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 18:56 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 19:05 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 18:56 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 19:01 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 18:48 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 18:39 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 18:46 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 18:41 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 19:00 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 18:57 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-29 18:44 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 19:05 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 19:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 18:46 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 19:07 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 18:52 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 18:49 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 19:05 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 18:56 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 19:11 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 18:58 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 19:06 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 18:58 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 18:55 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 19:11 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:04 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/66668.shtml)
-- 2026-06-29 18:42 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/00745267.shtml)
-- 2026-06-29 18:47 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/943984.shtml)
-- 2026-06-29 18:57 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/7241146.shtml)
-- 2026-06-29 18:57 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/64142932763.shtml)
-- 2026-06-29 18:47 - [夏天被这些虫子咬了可能致命](http://www.blog.minike.top/Article/details/90738148.shtml)
-- 2026-06-29 18:38 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/918050096424.shtml)
-- 2026-06-29 19:05 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/4121505.shtml)
-- 2026-06-29 18:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/852085708890.shtml)
-- 2026-06-29 18:42 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/144369.shtml)
-- 2026-06-29 18:47 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/04383833.shtml)
-- 2026-06-29 18:46 - [叠纸](https://www.share.kurohicncr.top/Article/details/58614741062.shtml)
-- 2026-06-29 18:45 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/89540.shtml)
-- 2026-06-29 18:39 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/01090.shtml)
-- 2026-06-29 19:00 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/6783087342.shtml)
+- 2026-06-29 18:52 - [娜扎搂着我的腰和我合照](https://www.blog.minike.top/Article/details/1251191144.shtml)
+- 2026-06-29 18:53 - [第一炉香](https://www.share.minike.top/Article/details/152273838472.shtml)
+- 2026-06-29 18:56 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/845729.shtml)
+- 2026-06-29 18:54 - [世界杯在中国观看最多的比赛](http://www.share.kurohicncr.top/Article/details/21953.shtml)
+- 2026-06-29 19:11 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/2686918.shtml)
+- 2026-06-29 18:53 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/419852.shtml)
+- 2026-06-29 18:45 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/69658939216.shtml)
+- 2026-06-29 18:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/1676423545.shtml)
+- 2026-06-29 19:03 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/638775437.shtml)
+- 2026-06-29 19:08 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/8706656.shtml)
+- 2026-06-29 18:58 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/621544088.shtml)
+- 2026-06-29 18:44 - [斗破苍穹](http://www.share.minike.top/Article/details/26019.shtml)
+- 2026-06-29 18:51 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/629892659.shtml)
+- 2026-06-29 18:43 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/0809271024.shtml)
+- 2026-06-29 18:59 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/2416449.shtml)

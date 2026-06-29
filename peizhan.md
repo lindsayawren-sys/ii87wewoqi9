@@ -1,52 +1,56 @@
-# 山姆回应被市场监管总局约谈：全面优化食安管控和商品品控
+# 沃什正式就任美联储主席，强调将以改革为导向
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-6月15日，针对被市场监管总局约谈，山姆中国方面回应澎湃新闻称，“近日，我们接受了市场监管部门的约谈指导。针对约谈中监管部门所指出的问题与整改要求，我们完全认可、深刻反思并诚恳接受。对于相关问题给会员带来的困扰与不便，我们深表歉意。” 澎湃新闻记者 邵冰燕责任编辑：郭栩彤
+美东时间22日，56岁的凯文·沃什在华盛顿宣誓就任新一任美国联邦储备委员会主席。此次仪式并未按照惯例在美联储总部举行，而是改在白宫举行。 美国总统特朗普当天在白宫为沃什举行就职仪式。特朗普表示，希望沃什成为一名“完全独立”的美联储主席。 沃什在宣誓仪式讲话中说，将领导一个“以改革为导向”的美联储，并强调美联储应以“独立性、清晰判断与坚定立场”履行控制通胀和实现充分就业的职责，美
 
 ## 正文
 
-6月15日，针对被市场监管总局约谈，山姆中国方面回应澎湃新闻称，“近日，我们接受了市场监管部门的约谈指导。
+美东时间22日，56岁的凯文·沃什在华盛顿宣誓就任新一任美国联邦储备委员会主席。
 
-针对约谈中监管部门所指出的问题与整改要求，我们完全认可、深刻反思并诚恳接受。
+此次仪式并未按照惯例在美联储总部举行，而是改在白宫举行。
 
-对于相关问题给会员带来的困扰与不便，我们深表歉意。
+美国总统特朗普当天在白宫为沃什举行就职仪式。
 
-” 澎湃新闻记者 邵冰燕责任编辑：郭栩彤
+特朗普表示，希望沃什成为一名“完全独立”的美联储主席。
+
+沃什在宣誓仪式讲话中说，将领导一个“以改革为导向”的美联储，并强调美联储应以“独立性、清晰判断与坚定立场”履行控制通胀和实现充分就业的职责，美联储的使命是“维持价格稳定和实现最大就业”。
+
+在6月16日至17日的FOMC会议上，沃什将作为主席首次亮相。
+
+5月13日，美国国会参议院以54票赞成、45票反对的投票结果，正式批准沃什出任美联储主席。
+
+参议院在一天前已批准沃什担任美联储理事，为期14年。
 
 ## 相关推荐
 
-- 2026-06-29 18:51 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 19:04 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 19:02 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 18:52 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 18:55 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 18:43 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 18:47 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 18:55 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 18:51 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 18:36 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 18:56 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 19:01 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 18:38 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-29 18:39 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 18:59 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 19:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 18:51 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 18:42 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 19:01 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 18:55 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 18:56 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 19:10 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 19:07 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 19:05 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:56 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/42063450686.shtml)
-- 2026-06-29 18:40 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/655967907.shtml)
-- 2026-06-29 18:43 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/20271.shtml)
-- 2026-06-29 18:51 - [V8](http://www.blog.kurohicncr.top/Article/details/7115683.shtml)
-- 2026-06-29 18:56 - [V8](http://www.blog.kurohicncr.top/Article/details/847924980267.shtml)
-- 2026-06-29 19:04 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/93311.shtml)
-- 2026-06-29 19:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/8824918.shtml)
-- 2026-06-29 18:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/11970563410.shtml)
-- 2026-06-29 18:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/887469527234.shtml)
-- 2026-06-29 18:58 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/951690554704.shtml)
-- 2026-06-29 18:55 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/7678934646.shtml)
-- 2026-06-29 18:59 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/263788655.shtml)
-- 2026-06-29 18:39 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/094502796922.shtml)
-- 2026-06-29 18:43 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/95910.shtml)
-- 2026-06-29 18:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/543124908.shtml)
+- 2026-06-29 18:58 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/89592366607.shtml)
+- 2026-06-29 19:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/5465070116.shtml)
+- 2026-06-29 18:54 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/0681440644.shtml)
+- 2026-06-29 19:06 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/7343977.shtml)
+- 2026-06-29 18:55 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/6274407304.shtml)
+- 2026-06-29 18:54 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/6177359814.shtml)
+- 2026-06-29 18:50 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/025748.shtml)
+- 2026-06-29 18:44 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/074363638624.shtml)
+- 2026-06-29 19:09 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/47876.shtml)
+- 2026-06-29 19:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/8686399.shtml)
+- 2026-06-29 19:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/917536.shtml)
+- 2026-06-29 18:59 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/12119135.shtml)
+- 2026-06-29 18:47 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/3972307113.shtml)
+- 2026-06-29 18:59 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.minike.top/Article/details/85775691340.shtml)
+- 2026-06-29 18:59 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/038631.shtml)

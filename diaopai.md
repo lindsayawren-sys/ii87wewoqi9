@@ -1,58 +1,61 @@
-# “科学与中国”科普行走进内蒙古 院士专家赴校园访企业“传经送宝”
+# 中国城市规划机构亮相第十三届世界城市论坛
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网内蒙古巴彦淖尔6月12日电 (记者 孙自法)“科学与中国——千名院士·千场科普”内蒙古行系列活动，6月10日至12日先后在呼和浩特、巴彦淖尔顺利举行，包括3位院士在内的20多位专家学者代表，深入两市大中小学、企业园区、政府机关等“传经送宝”，以科技“第一生产力”助力当地经济社会高质量发展。 聚焦粮食安全这一“国之大者”，中国科学院院士、中国科学院遗传与发育生物学研究所曹晓
+中新网阿斯塔纳5月23日电 巴库消息：第十三届世界城市论坛于17日至22日在阿塞拜疆首都巴库举行。论坛期间，中国城市规划学会携手7家国内规划机构参会并设展，并通过主题边会、特别活动等形式与国际同行开展交流。论坛期间，中国城市规划学会联合“中国科协联合国咨商可持续城市、社区和历史遗产保护专业委员会(CCSC)”、“国际城市与区域规划师学会(ISOCARP)”举办主题边会，并在世界
 
 ## 正文
 
-中新网内蒙古巴彦淖尔6月12日电 (记者 孙自法)“科学与中国——千名院士·千场科普”内蒙古行系列活动，6月10日至12日先后在呼和浩特、巴彦淖尔顺利举行，包括3位院士在内的20多位专家学者代表，深入两市大中小学、企业园区、政府机关等“传经送宝”，以科技“第一生产力”助力当地经济社会高质量发展。
+中新网阿斯塔纳5月23日电 巴库消息：第十三届世界城市论坛于17日至22日在阿塞拜疆首都巴库举行。
 
-聚焦粮食安全这一“国之大者”，中国科学院院士、中国科学院遗传与发育生物学研究所曹晓风研究员以“饲草育种与土壤改良”为题作主旨报告指出，中国盐碱荒(草)地达1.85亿亩，适宜开发的达4363万亩，集中分布于东北、新疆等地区，潜力巨大，另有盐碱障碍耕地1.14亿亩，产能亟需提升。
+论坛期间，中国城市规划学会携手7家国内规划机构参会并设展，并通过主题边会、特别活动等形式与国际同行开展交流。
 
-她带领团队承担中国科学院重点部署项目“边际土地产能扩增机理与藏粮于地技术模式”，致力于解锁盐碱荒地利用，提出因地制宜筛选适宜边际土地种植饲草的方案。
+论坛期间，中国城市规划学会联合“中国科协联合国咨商可持续城市、社区和历史遗产保护专业委员会(CCSC)”、“国际城市与区域规划师学会(ISOCARP)”举办主题边会，并在世界城市博览会(Urban Expo)上举办“城市规划70年”特别活动。
 
-研究团队从800多份绿肥中筛选出耐盐碱植物田菁，在此基础上开展基因育种，成功培育出极耐盐碱、极耐涝且具有广适性的“中科菁”系列新品系，已进入国家级草品种区试。
+在“城市规划70年”特别活动现场，联合国人居署、国际城市与区域规划师学会等国际组织代表，以及来自阿塞拜疆、埃及、土库曼斯坦、喀麦隆、英国、俄罗斯、意大利、蒙古国、乌干达、波兰、土耳其等国家的规划组织、城市研究机构代表和中国城市规划展区联合参展单位代表参加活动。
 
-曹晓风院士透露，研究团队还积极探索“田菁+”种植模式，包括田菁+燕麦、田菁+玉米、田菁+羊草、光伏+田菁等混播及间作栽培，并在多地开展试验示范。
+与会代表了解中国城市规划发展历程及相关实践，并共同参加中国城市规划学会成立70周年纪念活动。
 
-结果表明，作为一种优质的肥饲兼用作物，田菁在重度盐碱荒地改良、改善土壤结构和肥力、提高土地利用率、提升农田生态效益和经济效益等方面成效显著。
+论坛期间，“危机应对与灾后重建的城市实践”主题边会在巴库奥林匹克体育场举行。
 
-在内蒙古大学，中国工程院院士、中国科学院沈阳应用生态研究所所长朱教君研究员以《三北工程与中国治沙》为题做科普报告强调，治沙不是简单种树，而是遵循自然规律的科学治理，一代代治沙人凭科技、靠坚守，硬生生锁住了漫天黄沙。
+会议设置引导发言、案例分享、小组讨论和现场问答等环节，分享中国及世界各地应对城市灾害的实践经验，探讨面向未来的韧性城市规划框架、技术工具与实施路径。
 
-他立足北方地区风沙治理、水土流失治理现状，回顾三北防护林工程的建设背景与重大战略意义，系统梳理了工程从初期防风固沙、守护农田草场，到新时代统筹山水林田湖草沙一体化保护和系统治理的科学治沙路径，用详实数据、生动案例展现中国从“沙进人退”到“绿进沙退”的历史性跨越，诠释中国科技治沙、科学护绿的硬核实力与坚守精神。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:05 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 18:59 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 18:53 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 18:38 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 18:58 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 18:51 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 18:53 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 18:39 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 18:39 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 18:55 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 18:49 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 18:57 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 19:10 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 19:01 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 18:43 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 19:01 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 19:11 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 18:47 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-29 18:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 18:45 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 19:02 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 18:50 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 18:44 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 18:52 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 19:10 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 19:11 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 18:52 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:49 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/2894889181.shtml)
-- 2026-06-29 18:37 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/535434.shtml)
-- 2026-06-29 19:02 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/420951.shtml)
-- 2026-06-29 19:03 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/8462129231.shtml)
-- 2026-06-29 18:38 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/7403143.shtml)
-- 2026-06-29 18:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/853960074767.shtml)
-- 2026-06-29 18:53 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/72983.shtml)
-- 2026-06-29 19:01 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/99181.shtml)
-- 2026-06-29 19:02 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/9378637.shtml)
-- 2026-06-29 18:39 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/43906.shtml)
-- 2026-06-29 18:54 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/08146275.shtml)
-- 2026-06-29 18:52 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/72143.shtml)
-- 2026-06-29 18:37 - [女心理师](http://www.blog.kurohicncr.top/Article/details/608740371.shtml)
-- 2026-06-29 18:50 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.minike.top/Article/details/803312438643.shtml)
-- 2026-06-29 18:37 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/49464.shtml)
+- 2026-06-29 18:57 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/80823545763.shtml)
+- 2026-06-29 18:45 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/0278933.shtml)
+- 2026-06-29 19:11 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/389881314311.shtml)
+- 2026-06-29 19:03 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/7869712229.shtml)
+- 2026-06-29 19:07 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/290490224239.shtml)
+- 2026-06-29 19:07 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/94053785360.shtml)
+- 2026-06-29 18:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/39606.shtml)
+- 2026-06-29 18:48 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/8082694331.shtml)
+- 2026-06-29 18:59 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/8713044.shtml)
+- 2026-06-29 18:48 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/22662160005.shtml)
+- 2026-06-29 19:09 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/62977617.shtml)
+- 2026-06-29 19:01 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/501752497046.shtml)
+- 2026-06-29 18:50 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/107388539814.shtml)
+- 2026-06-29 18:54 - [天柱山回应网红打卡树枝被砍](https://www.share.kurohicncr.top/Article/details/8016235544.shtml)
+- 2026-06-29 19:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/4772663918.shtml)

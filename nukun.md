@@ -1,58 +1,58 @@
-# 高盛总裁：SpaceX IPO凸显投资者渴望为AI融资 不担心市场吸纳能力
+# “科技馆体系协同开展区域性科学教育中心建设项目”进行总结交流
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 高盛集团总裁John Waldron表示，SpaceX创纪录的首次公开募股显示，投资者渴望为人工智能基础设施融资。 Waldron周五接受电视采访时表示，“这表明资本市场，尤其是美国资本市场，但也包括全球资本市场，正在展示出为这轮AI基础设施建设和太空建设融资的意愿。”Waldron还提到，谷歌母公司Alp
+中新网北京5月22日电 (记者 孙自法)中国科技馆5月22日向媒体通报说，“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动5月21日至22日在郑州科技馆举办，郑州、包头、绍兴、武威、滨州、日照、合肥、泉州、遵义、曲靖等10家科技馆分别汇报项目完成情况和取得成效。 “科技馆体系协同开展区域性科学教育中心建设项目”自2024年启动以来，中国科技馆联动10所地市级科技馆，
 
 ## 正文
 
-专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 高盛集团总裁John Waldron表示，SpaceX创纪录的首次公开募股显示，投资者渴望为人工智能基础设施融资。
+中新网北京5月22日电 (记者 孙自法)中国科技馆5月22日向媒体通报说，“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动5月21日至22日在郑州科技馆举办，郑州、包头、绍兴、武威、滨州、日照、合肥、泉州、遵义、曲靖等10家科技馆分别汇报项目完成情况和取得成效。
 
-Waldron周五接受电视采访时表示，“这表明资本市场，尤其是美国资本市场，但也包括全球资本市场，正在展示出为这轮AI基础设施建设和太空建设融资的意愿。
+“科技馆体系协同开展区域性科学教育中心建设项目”自2024年启动以来，中国科技馆联动10所地市级科技馆，充分发挥区域性枢纽作用，聚焦机制模式探索、资源研发供给、科学教师研修、专家库资源库共建共享、科学教育研究实践五大核心任务，立足区域特色、深耕实践创新，在体制机制上破局、在资源供给上提质、在师资培养上赋能、在平台共建上聚力、在研究实践上深耕。
 
-”Waldron还提到，谷歌母公司Alphabet Inc．近期的847.5亿美元股权融资，用于发展AI。
+目前，该项目不仅形成一批可复制、可推广的建设成果与典型经验，丰富了科技馆行业智库资源，而且有效开拓了科技馆联合教育部门、大中小学及社会资源单位协同开展科学教育的新路径，初步形成家校社创新合作与多元协同育人的新局面。
 
-SpaceX的正式名称为Space Exploration Technologies Corp．，周四融资750亿美元，成为史上规模最大的IPO。
+“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动现场，还举行建设成果展示和优质科普活动展演，10所地市级科技馆分别展示项目周期内开发的优质科教资源，涵盖科学课资源包、活动教具、活动手册等，不仅内容丰富、形式多样，而且地域特色鲜明。
 
-其股票定于周五在纳斯达克和纳斯达克德州市场正式交易，股票代码为“SPCX”。
+在科普展演环节，各馆则带来科学与文化融合的科普课程。
 
-Waldron表示，这将是“非常好的一天”。
+中国科技馆称，下一步将继续发挥示范引领作用，加强经验总结与顶层谋划，持续强化体系协同，通过区域联动筑牢教育强国建设根基，开创“十五五”科学教育发展新局面。
 
-高盛与摩根士丹利、美国银行、花旗集团和摩根大通共同牵头此次IPO。
-
-另有18家银行以不同角色参与发行。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 19:02 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 18:53 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 18:47 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 18:48 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 19:00 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 18:43 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 18:53 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 18:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 18:59 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 18:47 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 18:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 19:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 19:05 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 18:59 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 18:44 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 18:55 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 18:55 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 18:55 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 19:06 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 18:50 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 18:45 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 19:07 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 19:08 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 18:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 19:05 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:51 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/60261.shtml)
-- 2026-06-29 18:49 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/425852292940.shtml)
-- 2026-06-29 18:49 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/42807311012.shtml)
-- 2026-06-29 18:49 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/20776175142.shtml)
-- 2026-06-29 18:44 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/55849216.shtml)
-- 2026-06-29 18:41 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/699589227.shtml)
-- 2026-06-29 18:57 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/022928264.shtml)
-- 2026-06-29 18:55 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.kurohicncr.top/Article/details/18977.shtml)
-- 2026-06-29 18:45 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/643949246.shtml)
-- 2026-06-29 18:53 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/76204.shtml)
-- 2026-06-29 18:54 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/38196.shtml)
-- 2026-06-29 18:50 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/18939.shtml)
-- 2026-06-29 19:00 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/551781.shtml)
-- 2026-06-29 19:05 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/407867.shtml)
-- 2026-06-29 19:03 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/639482.shtml)
+- 2026-06-29 19:09 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/8515056118.shtml)
+- 2026-06-29 18:50 - [王俊凯命名方式](https://www.share.minike.top/Article/details/16619589.shtml)
+- 2026-06-29 18:45 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/9671546356.shtml)
+- 2026-06-29 18:46 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/6110724482.shtml)
+- 2026-06-29 18:52 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/049472096402.shtml)
+- 2026-06-29 19:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/7961628757.shtml)
+- 2026-06-29 19:06 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/776072145056.shtml)
+- 2026-06-29 19:07 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/9072911128.shtml)
+- 2026-06-29 18:46 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/3486931.shtml)
+- 2026-06-29 18:43 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/125501333510.shtml)
+- 2026-06-29 19:07 - [急先锋](http://www.blog.minike.top/Article/details/1790362.shtml)
+- 2026-06-29 19:02 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/500693097.shtml)
+- 2026-06-29 18:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/76318.shtml)
+- 2026-06-29 19:07 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/66065.shtml)
+- 2026-06-29 19:00 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/362326312174.shtml)

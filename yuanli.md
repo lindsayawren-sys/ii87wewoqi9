@@ -1,50 +1,57 @@
-# 新韩银行（中国）被罚249万元：违反账户管理规定等
+# 天天学习｜习近平见证的“天路”传奇
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-6月12日金融一线消息，中国人民银行北京市分行行政处罚决定信息公示表显示，新韩银行（中国）有限公司因违反金融统计相关规定；违反账户管理规定；违反人民币流通管理规定；违反反假货币业务管理规定；违反信用信息采集、提供、查询及相关管理规定；未按照规定履行客户身份识别义务；未按规定报送大额交易报告或可疑交易报告；违反网络安全管理规定；违反数据安全管理规定，被中国人民银行北京市分行警告，
+｜天天学习｜“当时的路况非常险，还好没有遇到滑坡”“福建派去援藏的，到墨脱那都是骑着马进去的”……回想起第一次进藏的情景，时隔多年，习近平依然历历在目。 那是1998年6月的一天清晨，乘机抵达拉萨贡嘎机场后，时任福建省委副书记的习近平就马不停蹄地带队奔赴福建对口支援的林芝地区。 从机场去往当时林芝行政公署所在地八一镇需要翻过海拔5000多米的米拉雪山，一路人烟罕见、崎岖颠簸。5
 
 ## 正文
 
-6月12日金融一线消息，中国人民银行北京市分行行政处罚决定信息公示表显示，新韩银行（中国）有限公司因违反金融统计相关规定；违反账户管理规定；违反人民币流通管理规定；违反反假货币业务管理规定；违反信用信息采集、提供、查询及相关管理规定；未按照规定履行客户身份识别义务；未按规定报送大额交易报告或可疑交易报告；违反网络安全管理规定；违反数据安全管理规定，被中国人民银行北京市分行警告，并处罚款2，489，438.43元。
+｜天天学习｜“当时的路况非常险，还好没有遇到滑坡”“福建派去援藏的，到墨脱那都是骑着马进去的”……回想起第一次进藏的情景，时隔多年，习近平依然历历在目。
 
-李某日（新韩银行（中国）有限公司授信业务部）对该行“违反信用信息采集、提供、查询及相关管理规定”的违法行为负有直接责任，被罚款45，000元。
+那是1998年6月的一天清晨，乘机抵达拉萨贡嘎机场后，时任福建省委副书记的习近平就马不停蹄地带队奔赴福建对口支援的林芝地区。
 
-严某一（新韩银行（中国）有限公司）对该行“未按照规定履行客户身份识别义务；未按规定报送大额交易报告或可疑交易报告”的违法行为负有直接责任，被罚款82，906.43元。
+从机场去往当时林芝行政公署所在地八一镇需要翻过海拔5000多米的米拉雪山，一路人烟罕见、崎岖颠簸。
 
-郑某吉（新韩银行（中国）有限公司零售业务部）对该行“违反账户管理规定”的违法行为负有直接责任，被罚款50，000元。
+500多公里的路程，习近平一行乘车整整走了一天，抵达八一镇已是当晚8点多。
 
-责任编辑：李琳琳
+那些崎岖难行的道路，习近平始终牵挂于心。
+
+正如来自墨脱的全国人大代表白玛曲珍所说，“西藏的路……都装在总书记心里”。
+
+2013年3月，习近平担任总书记后首次出席全国两会，在参加西藏代表团审议时，再次关切询问起西藏的路：“现在到墨脱的路通了没有？
+
+” 从墨脱到北京参会的白玛曲珍难掩激动地回答：“2013年底有望全线通车。
 
 ## 相关推荐
 
-- 2026-06-29 18:47 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 18:54 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 18:43 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 18:55 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 18:49 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 18:58 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 18:57 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 18:48 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 18:37 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 18:48 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 19:07 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 19:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 18:54 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 18:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 18:42 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 18:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 19:05 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 18:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 18:51 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 18:52 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 18:53 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:49 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/62891.shtml)
-- 2026-06-29 19:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/5257419.shtml)
-- 2026-06-29 18:40 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/1070540707.shtml)
-- 2026-06-29 18:36 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/251853.shtml)
-- 2026-06-29 18:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/154851058.shtml)
-- 2026-06-29 18:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/21183926.shtml)
-- 2026-06-29 18:59 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/579371168414.shtml)
-- 2026-06-29 18:42 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/73038.shtml)
-- 2026-06-29 18:36 - [5万块的威力](http://www.share.minike.top/Article/details/6321683.shtml)
-- 2026-06-29 18:45 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.kurohicncr.top/Article/details/744190.shtml)
-- 2026-06-29 19:01 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/2736469.shtml)
-- 2026-06-29 19:03 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/00405.shtml)
-- 2026-06-29 18:53 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/400830989.shtml)
-- 2026-06-29 18:53 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/0620747124.shtml)
-- 2026-06-29 19:05 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/2704290564.shtml)
+- 2026-06-29 19:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/010267777577.shtml)
+- 2026-06-29 18:58 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/417380368.shtml)
+- 2026-06-29 18:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/414583694.shtml)
+- 2026-06-29 19:08 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/5605112787.shtml)
+- 2026-06-29 18:46 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/5720502561.shtml)
+- 2026-06-29 19:05 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/15177.shtml)
+- 2026-06-29 19:02 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/5899428.shtml)
+- 2026-06-29 19:06 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/5480299.shtml)
+- 2026-06-29 19:11 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/317645.shtml)
+- 2026-06-29 19:06 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/602383.shtml)
+- 2026-06-29 19:07 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/86801994577.shtml)
+- 2026-06-29 18:51 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/29336.shtml)
+- 2026-06-29 18:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/49106.shtml)
+- 2026-06-29 18:59 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/857356.shtml)
+- 2026-06-29 19:08 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/7476240.shtml)

@@ -1,61 +1,56 @@
-# 6月13日外盘头条：美国和伊朗暗示和平协议即将达成 SpaceX首日上涨19.22% 市值破2万亿美元跃居全球第六
+# 重庆发布小流域山洪灾害气象风险预警 三地风险很高
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、美国和伊朗暗示和平协议即将达成，德黑兰方面宣称取得胜利 2、欧洲央行官员Kazimir称需进一步加息以遏制通胀 3、SpaceX股票收于160.95美元，创纪录IPO首日上涨19.22%，市值突破2万亿美元 4、SpaceX上市抽走氧气 其他太空股集体重挫 5、交易员对美元看涨程度升至逾一年来最高水平 6、美国应急储备原油出口
+中新网重庆5月25日电 (梁钦卿)重庆市水利局和重庆市气象局25日8时联合发布小流域山洪灾害气象风险预警：预计25日8时至14时，13个区县部分乡镇有小流域山洪灾害气象风险。其余区县也可能因局地短时强降雨引发小流域山洪灾害。风险很高的地方有云阳、奉节、巫山；风险高的地方有万州；有一定风险的地方有巴南、江津、綦江、丰都、梁平、忠县、开州、巫溪、石柱。 防御要求：有关区县按照风险提
 
 ## 正文
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、美国和伊朗暗示和平协议即将达成，德黑兰方面宣称取得胜利 2、欧洲央行官员Kazimir称需进一步加息以遏制通胀 3、SpaceX股票收于160.95美元，创纪录IPO首日上涨19.22%，市值突破2万亿美元 4、SpaceX上市抽走氧气 其他太空股集体重挫 5、交易员对美元看涨程度升至逾一年来最高水平 6、美国应急储备原油出口飙升至历史新高 战争扰乱供应 美国和伊朗暗示和平协议即将达成，德黑兰方面宣称取得胜利 美国与伊朗周五均表示，结束两国间战争的协议即将达成。
+中新网重庆5月25日电 (梁钦卿)重庆市水利局和重庆市气象局25日8时联合发布小流域山洪灾害气象风险预警：预计25日8时至14时，13个区县部分乡镇有小流域山洪灾害气象风险。
 
-一名美国政府高级官员称，双方已就文本达成一致，华盛顿预计未来几天内将签署初步协议。
+其余区县也可能因局地短时强降雨引发小流域山洪灾害。
 
-伊朗外长阿巴斯·阿拉格奇表示，仍可能存在修改，但这份临时协议明确表明，伊朗已在冲突中变得更加强大。
+风险很高的地方有云阳、奉节、巫山；风险高的地方有万州；有一定风险的地方有巴南、江津、綦江、丰都、梁平、忠县、开州、巫溪、石柱。
 
-阿拉格奇在国家电视台表示：“伊朗是美伊战争的胜利者。
+防御要求：有关区县按照风险提示，结合当地实际，细化气象风险预警颗粒度，加强监测预警，根据预案及时发布预警、启动响应，逐级叫应基层责任人上岗到位。
 
-” 据协议各方消息人士称，这份所谓的谅解备忘录要求重新开放霍尔木兹海峡，并解除美国对伊朗港口的封锁。
+达到预警阈值时，有关区县水行政主管部门果断提请基层地方政府和相关部门组织人员转移。
 
-有关伊朗核计划的谈判——美国总统唐纳德·特朗普声称这是发动战争的理由——将在之后进行。
+基层责任人加强巡查，及时提醒受威胁人员做好转移准备，达到转移条件或收到转移指令后，第一时间组织人员转移。
 
-欧洲央行官员Kazimir称需进一步加息以遏制通胀 欧洲央行管理委员会成员Peter Kazimir表示，通胀在整个经济领域的蔓延将迫使欧洲央行进一步提高利率。
+市防指有关成员单位结合本行业实际，细致研判风险，落实管控措施。
 
-这位斯洛伐克央行行长认为，价格压力在没有干预的情况下不会缓解。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:57 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 18:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 18:45 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 19:03 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 18:40 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 18:56 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 18:49 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 19:03 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 18:46 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 18:59 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 18:56 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 18:54 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 19:05 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 18:57 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 19:04 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 18:47 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 18:59 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 19:02 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 18:47 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 18:42 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 18:52 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 19:09 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 19:11 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 19:09 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 18:55 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:00 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/84037251.shtml)
-- 2026-06-29 18:37 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/0312624603.shtml)
-- 2026-06-29 18:54 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/08398651269.shtml)
-- 2026-06-29 19:01 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/78810.shtml)
-- 2026-06-29 18:39 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/9844809.shtml)
-- 2026-06-29 18:43 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/2787355.shtml)
-- 2026-06-29 18:45 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/45940.shtml)
-- 2026-06-29 18:52 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/016879932188.shtml)
-- 2026-06-29 18:51 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/3754453567.shtml)
-- 2026-06-29 18:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/747268788073.shtml)
-- 2026-06-29 19:04 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/944091.shtml)
-- 2026-06-29 18:39 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.minike.top/Article/details/986843.shtml)
-- 2026-06-29 18:38 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/416878522.shtml)
-- 2026-06-29 18:44 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/093401866486.shtml)
-- 2026-06-29 19:04 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/7040345351.shtml)
+- 2026-06-29 18:46 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/17822047369.shtml)
+- 2026-06-29 18:43 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/446977560.shtml)
+- 2026-06-29 18:52 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/6919516029.shtml)
+- 2026-06-29 19:01 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/9238779336.shtml)
+- 2026-06-29 19:03 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/872664.shtml)
+- 2026-06-29 19:02 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/83752.shtml)
+- 2026-06-29 19:03 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/292434831.shtml)
+- 2026-06-29 18:47 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/6021727786.shtml)
+- 2026-06-29 18:57 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/003548249.shtml)
+- 2026-06-29 18:52 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/873752394192.shtml)
+- 2026-06-29 18:49 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/493505115.shtml)
+- 2026-06-29 18:44 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/18497659439.shtml)
+- 2026-06-29 18:57 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/23975169.shtml)
+- 2026-06-29 19:03 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/941362.shtml)
+- 2026-06-29 19:04 - [恋与深空客服的回应](http://www.share.minike.top/Article/details/07172.shtml)

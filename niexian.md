@@ -1,57 +1,48 @@
-# 东西问丨郝鲁怡：以发展权赋能气候正义 深化中欧绿色伙伴关系
+# 记者现场直击 山西煤矿事故已致90人死亡
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新社北京6月14日电 题：以发展权赋能气候正义深化中欧绿色伙伴关系 作者 郝鲁怡 中国社会科学院国际法研究所研究员 2026年是联合国《发展权利宣言》通过40周年。《宣言》的达成，将发展权正式确立为一项人权。《宣言》亦强调，发展应当秉持“以人为本”的理念，要求全体人民和所有个人确保有意义地参与发展，公平分配发展成果，并为此采取持久的行动。在当前全球气候危机加剧的背景下，发展权
+发布时间：2026年05月23日 22:15 来源：中国新闻网 记者从山西通洲集团留神峪煤矿瓦斯爆炸事故现场了解到，事故已造成90人死亡，现场搜救仍在进行。(记者 王惠琳 陆祁国 向上 制作 王雪尔) 责任编辑：【曲克】
 
 ## 正文
 
-中新社北京6月14日电 题：以发展权赋能气候正义深化中欧绿色伙伴关系 作者 郝鲁怡 中国社会科学院国际法研究所研究员 2026年是联合国《发展权利宣言》通过40周年。
+发布时间：2026年05月23日 22:15 来源：中国新闻网 记者从山西通洲集团留神峪煤矿瓦斯爆炸事故现场了解到，事故已造成90人死亡，现场搜救仍在进行。
 
-《宣言》的达成，将发展权正式确立为一项人权。
-
-《宣言》亦强调，发展应当秉持“以人为本”的理念，要求全体人民和所有个人确保有意义地参与发展，公平分配发展成果，并为此采取持久的行动。
-
-在当前全球气候危机加剧的背景下，发展权所蕴含的以人为中心、公平发展、可持续性、自决原则和国际合作等内涵，为推动公平有序的全球气候治理行动提供重要依据。
-
-气候变化是人类当前面临的最严峻挑战之一。
-
-联合国人权理事会曾指出，气候变化不仅对一些国家构成生存威胁，而且已经对充分实现各项人权产生了不利影响。
-
-据联合国难民署2025年的统计，过去十年间约有2.5亿人因气候相关因素被迫迁移，最不发达国家承受着与自身历史排放责任极不相称的气候代价，妇女、儿童等脆弱群体的基本权利受到严重冲击。
-
-在此背景下，“气候正义”概念正从边缘走向全球核心议程。
+(记者 王惠琳 陆祁国 向上 制作 王雪尔) 责任编辑：【曲克】
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 18:52 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 18:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-29 18:59 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 18:56 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 18:47 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 18:37 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 19:01 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 18:45 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 19:02 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 18:38 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 18:57 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 18:54 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 19:11 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 18:43 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 19:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 18:42 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 18:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 19:02 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 18:52 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 18:58 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 18:54 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 19:09 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 18:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 19:03 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:00 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/50718891.shtml)
-- 2026-06-29 18:45 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/2450718266.shtml)
-- 2026-06-29 18:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/465051673.shtml)
-- 2026-06-29 19:03 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/771006922876.shtml)
-- 2026-06-29 18:43 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/297043.shtml)
-- 2026-06-29 18:44 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/76132.shtml)
-- 2026-06-29 18:49 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.kurohicncr.top/Article/details/357546261779.shtml)
-- 2026-06-29 18:45 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/3457570.shtml)
-- 2026-06-29 18:51 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/76065.shtml)
-- 2026-06-29 19:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/91614.shtml)
-- 2026-06-29 18:56 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/399875796764.shtml)
-- 2026-06-29 18:43 - [人形机器人](https://www.share.minike.top/Article/details/3205273.shtml)
-- 2026-06-29 18:41 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/3927989872.shtml)
-- 2026-06-29 18:37 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/35659118628.shtml)
-- 2026-06-29 19:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/4705931.shtml)
+- 2026-06-29 19:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/921460214609.shtml)
+- 2026-06-29 18:52 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/25649.shtml)
+- 2026-06-29 18:49 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/456999.shtml)
+- 2026-06-29 19:02 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/964647418.shtml)
+- 2026-06-29 19:05 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/73193884435.shtml)
+- 2026-06-29 18:51 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/23041897030.shtml)
+- 2026-06-29 18:55 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/279799505.shtml)
+- 2026-06-29 19:09 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/6677014.shtml)
+- 2026-06-29 18:57 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/203660.shtml)
+- 2026-06-29 18:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/95473230986.shtml)
+- 2026-06-29 19:03 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/854515360.shtml)
+- 2026-06-29 18:56 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/7463760867.shtml)
+- 2026-06-29 18:47 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/3921815521.shtml)
+- 2026-06-29 18:43 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/120407669771.shtml)
+- 2026-06-29 18:49 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/241691555.shtml)

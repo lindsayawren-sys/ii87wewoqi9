@@ -1,58 +1,60 @@
-# 2026年海峡两岸（泉州）街舞大赛启动
+# 阴山脚下60载：看一棵大白菜的产业“链”变
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网泉州6月13日电 (记者 孙虹)2026年海峡两岸(泉州)街舞大赛启动仪式13日在福建泉州举行。据悉，本次大赛将于8月中旬举办年度决赛暨颁奖晚会，预计汇聚近千名两岸街舞选手同台竞技。 大赛主办方相关负责人介绍，本次大赛设霹雳舞1V1斗舞、2V2自由风格斗舞、团队交流赛、原创主题齐舞四大核心项目，并依托泉州深厚世遗底蕴与闽南特色文化，创新融入闽南非遗特色擂台赛，特邀世界级街
+中新网乌兰察布5月22日电 题：阴山脚下60载：看一棵大白菜的产业“链”变 中新网记者 张林虎 “以前种白菜，心里总不踏实，行情不好就只能烂在地里。现在种子有人管、收购有合同、加工有工厂，收入稳多了。”初夏的化德县朝阳镇民乐村，种了30多年白菜的马占军蹲在地头，抚摸着刚长出新叶的菜苗，脸上满是笑意。 深耕60载，育出好品质 化德县位于内蒙古中部，隶属于乌兰察布市，地处阴山北麓东
 
 ## 正文
 
-中新网泉州6月13日电 (记者 孙虹)2026年海峡两岸(泉州)街舞大赛启动仪式13日在福建泉州举行。
+中新网乌兰察布5月22日电 题：阴山脚下60载：看一棵大白菜的产业“链”变 中新网记者 张林虎 “以前种白菜，心里总不踏实，行情不好就只能烂在地里。
 
-据悉，本次大赛将于8月中旬举办年度决赛暨颁奖晚会，预计汇聚近千名两岸街舞选手同台竞技。
+现在种子有人管、收购有合同、加工有工厂，收入稳多了。
 
-大赛主办方相关负责人介绍，本次大赛设霹雳舞1V1斗舞、2V2自由风格斗舞、团队交流赛、原创主题齐舞四大核心项目，并依托泉州深厚世遗底蕴与闽南特色文化，创新融入闽南非遗特色擂台赛，特邀世界级街舞冠军、两岸知名舞者、行业资深达人组成权威评审团，以“街舞+两岸交流”“街舞+非遗体验”“街舞+工业旅游”搭建两岸青年常态化交往平台。
+”初夏的化德县朝阳镇民乐村，种了30多年白菜的马占军蹲在地头，抚摸着刚长出新叶的菜苗，脸上满是笑意。
 
-启动仪式上，台湾筑梦者舞团跨越海峡登台献艺，以潮流动感的舞姿展现青年阳光自信的精神风貌；晋江精舞门团队凭借精湛成熟的舞台表现力，彰显世遗泉州、活力晋江的潮流文化实力。
+深耕60载，育出好品质 化德县位于内蒙古中部，隶属于乌兰察布市，地处阴山北麓东端、内蒙古高原中部南缘，是内蒙古高原向华北平原过渡的重要地带。
 
-台湾舞者田晋瑜表示，街舞是两岸青少年共同热爱的潮流文化，通过赛事交流不仅可以弘扬街舞热爱、团结、乐享其中的精神，还能促进以舞交友、推动潮流街舞融合传统文化底蕴，在技艺切磋互动中增进两岸青少年情谊。
+化德县种植白菜的历史可追溯到20世纪60年代。
 
-据了解，本次大赛依托“周末戏相逢”省级文化惠民品牌，将在泉州府文庙广场、晋江历史文化街区、982国潮街区等地持续开展多场主题周赛。
+经过多年品种更新和技术改进，当地大白菜从早期的长白菜发展为抱头白菜，菜芯由白芯向黄芯转变，品相更好、口感更佳。
 
-此外，赛事期间还将配套举办丰富多元的潮流周边活动，涵盖城市街舞快闪、国际街舞大师公开课、网红达人城市采风、世遗街舞寻访等创新内容。
+根据名特优新农产品年度检验报告，化德大白菜可溶性糖含量、维生素C含量、β-胡萝卜素均高于参考值，粗纤维仅0.60g/100g，叶球叠抱紧实、脆嫩微甜，极受市场好评。
 
-(完)
+好品质带来了好名声。
 
 ## 相关推荐
 
-- 2026-06-29 18:45 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 18:59 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 18:47 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 19:02 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 18:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 18:49 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 18:50 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 18:51 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 18:36 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 19:00 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 18:59 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 18:42 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 18:55 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 18:58 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 18:42 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 19:09 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 19:09 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 18:53 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 18:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 19:07 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 18:59 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 18:58 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 19:08 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 18:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 19:10 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 19:12 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/731179414.shtml)
-- 2026-06-29 18:57 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/6227311529.shtml)
-- 2026-06-29 18:56 - [极限挑战第一季](http://www.blog.minike.top/Article/details/774521.shtml)
-- 2026-06-29 18:51 - [CORTIS 小牌大耍](http://www.share.minike.top/Article/details/88197971.shtml)
-- 2026-06-29 18:59 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.minike.top/Article/details/585787415.shtml)
-- 2026-06-29 18:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/15101310317.shtml)
-- 2026-06-29 19:01 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/500014.shtml)
-- 2026-06-29 18:43 - [V8](https://www.blog.minike.top/Article/details/40279468.shtml)
-- 2026-06-29 18:49 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/1327111.shtml)
-- 2026-06-29 18:53 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/664340015.shtml)
-- 2026-06-29 18:36 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/340635980.shtml)
-- 2026-06-29 18:49 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/46886668629.shtml)
-- 2026-06-29 18:43 - [中国战机大片上新](https://www.share.minike.top/Article/details/24773995.shtml)
-- 2026-06-29 18:44 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/0552289050.shtml)
-- 2026-06-29 18:55 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/15196603493.shtml)
+- 2026-06-29 19:09 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/008774558.shtml)
+- 2026-06-29 19:00 - [《贺子珍》](https://www.share.minike.top/Article/details/54735905305.shtml)
+- 2026-06-29 19:07 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/02629.shtml)
+- 2026-06-29 19:00 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/0989071791.shtml)
+- 2026-06-29 19:04 - [官媒首曝六代机？大V解读](https://www.share.minike.top/Article/details/3675128430.shtml)
+- 2026-06-29 18:59 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/92789.shtml)
+- 2026-06-29 19:09 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/5803400834.shtml)
+- 2026-06-29 19:06 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.kurohicncr.top/Article/details/08333681.shtml)
+- 2026-06-29 18:54 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/83080.shtml)
+- 2026-06-29 19:04 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/781040812804.shtml)
+- 2026-06-29 18:59 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/95228246.shtml)
+- 2026-06-29 18:43 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/51187.shtml)
+- 2026-06-29 19:00 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/1574242079.shtml)
+- 2026-06-29 19:01 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/00042.shtml)
+- 2026-06-29 19:06 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/67707.shtml)

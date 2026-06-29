@@ -1,58 +1,57 @@
-# 创下IPO纪录后 马斯克的SpaceX面临上市后的首次考验
+# 李家超祝贺黎家盈博士参与神舟二十三号载人飞行任务
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 在投资者向这起全球史上最大规模IPO注入750亿美元资金后，SpaceX将于周五在纳斯达克开始交易。投资者押注埃隆·马斯克在太空、通信和人工智能领域的宏大抱负足以支撑其1.77万亿美元的估值。 此次具有里程碑意义的上市，不仅巩固了马斯克作为史上首位万亿富豪的地位，更将SpaceX推入全球最有价值企业之列——
+发布时间：2026年05月23日 16:46 来源：中国新闻网 香港特区行政长官李家超5月23日发表祝贺香港载荷专家参与神舟二十三号载人飞行任务的致辞。 他在致辞中表示：“今日，香港特区迎来参与国家伟大航天事业历史性的一日！中国载人航天工程办公室公布，来自香港的载荷专家黎家盈博士，将成为神舟二十三号飞行乘组的成员，前往中国空间站执行任务。我衷心感谢国家对香港的信任，以及对香港创
 
 ## 正文
 
-专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 在投资者向这起全球史上最大规模IPO注入750亿美元资金后，SpaceX将于周五在纳斯达克开始交易。
+发布时间：2026年05月23日 16:46 来源：中国新闻网 香港特区行政长官李家超5月23日发表祝贺香港载荷专家参与神舟二十三号载人飞行任务的致辞。
 
-投资者押注埃隆·马斯克在太空、通信和人工智能领域的宏大抱负足以支撑其1.77万亿美元的估值。
+他在致辞中表示：“今日，香港特区迎来参与国家伟大航天事业历史性的一日！
 
-此次具有里程碑意义的上市，不仅巩固了马斯克作为史上首位万亿富豪的地位，更将SpaceX推入全球最有价值企业之列——尽管该公司去年亏损近50亿美元，且营收仅为估值相近的科技巨头的一小部分。
+中国载人航天工程办公室公布，来自香港的载荷专家黎家盈博士，将成为神舟二十三号飞行乘组的成员，前往中国空间站执行任务。
 
-“投资者将花费数年时间争论IPO定价是过高还是过低。
+我衷心感谢国家对香港的信任，以及对香港创科人员的肯定和支持。
 
-我预计未来几个月股价将出现大幅波动，”SpaceX的投资者VIDAVisionFund创始人迈克·阿尔维斯表示。
+我亦祝贺黎家盈博士代表香港特区骄傲地参与国家航天任务，在太空翱翔探索。
 
-该股的表现也将是对所谓“马斯克溢价”的考验，正是这一溢价推动了特斯拉TSLA.O估值突破1万亿美元，尽管在马斯克积极参与唐纳德·特朗普总统政府期间，该溢价曾面临压力。
+创新科技及工业局局长孙东教授会率领香港特区的代表团，参与在酒泉卫星发射中心举行的出征仪式。
 
-“要找到可与之相提并论的企业家，我们得回溯100年。
+我期待与各位香港市民和全国同胞，一起见证神舟二十三号发射升空。
 
-他是与众不同的远见者，且执行力极强，”管理着一只投资SpaceX的ETF的ERShares首席执行官乔尔·舒尔曼表示。
+星空浩瀚，逐梦远航。
 
 ## 相关推荐
 
-- 2026-06-29 18:57 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 18:54 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 18:51 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 18:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 18:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 19:00 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 18:58 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 18:42 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 18:53 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 18:58 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 18:40 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 19:05 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 19:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 18:42 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 18:58 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 18:58 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 18:51 - [V8](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 18:55 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 19:01 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 18:54 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 18:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 18:50 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 19:01 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:52 - [毒液2](https://www.blog.kurohicncr.top/Article/details/828303.shtml)
-- 2026-06-29 19:00 - [中方向委方追加1亿元援助](http://www.blog.kurohicncr.top/Article/details/72399544.shtml)
-- 2026-06-29 18:58 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/587776853267.shtml)
-- 2026-06-29 18:47 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/43287.shtml)
-- 2026-06-29 18:40 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.kurohicncr.top/Article/details/40099959.shtml)
-- 2026-06-29 18:53 - [机器人学校开学了](https://www.share.minike.top/Article/details/382640.shtml)
-- 2026-06-29 18:58 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/68211228713.shtml)
-- 2026-06-29 18:39 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/233467643.shtml)
-- 2026-06-29 19:02 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/02707892132.shtml)
-- 2026-06-29 18:54 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/05025345.shtml)
-- 2026-06-29 19:01 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/3959413950.shtml)
-- 2026-06-29 18:36 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/72065375632.shtml)
-- 2026-06-29 18:43 - [范志毅看好日本淘汰巴西](http://www.share.kurohicncr.top/Article/details/728811079154.shtml)
-- 2026-06-29 18:55 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/33112.shtml)
-- 2026-06-29 18:50 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/5307509429.shtml)
+- 2026-06-29 18:54 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/64402.shtml)
+- 2026-06-29 18:51 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/25064950.shtml)
+- 2026-06-29 19:01 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/133598260265.shtml)
+- 2026-06-29 18:54 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/915136.shtml)
+- 2026-06-29 19:10 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/968176169070.shtml)
+- 2026-06-29 19:11 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/82011.shtml)
+- 2026-06-29 18:42 - [大马同意延长马航370残骸搜寻工作](http://www.blog.kurohicncr.top/Article/details/8434130500.shtml)
+- 2026-06-29 19:00 - [机器人学校开学了](https://www.blog.kurohicncr.top/Article/details/799810842416.shtml)
+- 2026-06-29 18:56 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/172035627649.shtml)
+- 2026-06-29 18:52 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/634089932289.shtml)
+- 2026-06-29 18:54 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/7749666910.shtml)
+- 2026-06-29 18:47 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/362783.shtml)
+- 2026-06-29 18:45 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/239914326780.shtml)
+- 2026-06-29 18:57 - [中国空间站为什么要升级扩容](https://www.blog.kurohicncr.top/Article/details/80940960.shtml)
+- 2026-06-29 19:09 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/123348.shtml)

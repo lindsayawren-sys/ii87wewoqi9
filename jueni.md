@@ -1,61 +1,52 @@
-# 文化和自然遗产日：西藏公布首批自治区级考古遗址公园名单
+# 追觅官宣C罗出任品牌全球代言人，C罗：很荣幸
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网拉萨6月13日电 (记者 赵朗)2026年文化和自然遗产日西藏自治区主场活动13日在拉萨市城关区曲贡遗址举行。活动主题为“文物属于人民 服务人民”。 主场活动宣读了西藏自治区级首批考古遗址公园名单，举行了自治区级考古遗址公园授牌仪式活动。经过评审，首批名单包括曲贡遗址、温江多遗址、卡若遗址、玛不错遗址、拉颇遗址。其中，曲贡遗址是研究青藏高原史前社会、生业经济、文化交流与文
+5月25日，追觅科技发文宣布，葡萄牙足球巨星克里斯蒂亚诺·罗纳尔多（C罗）出任品牌全球代言人，覆盖扫地机、洗地机、洗衣机等全品类，助力其在欧洲、中东等核心市场的高端化与全球化布局。‌‌ 这是继3月签约刘亦菲后的又一重磅合作，标志着追觅成功搭建影视+体坛双星代言格局。 同日，C罗发文称，“因相同的初心与信仰同行，很荣幸，成为追觅全球代言人。” 此前5月8日，C罗在沙特联赛攻入职业
 
 ## 正文
 
-中新网拉萨6月13日电 (记者 赵朗)2026年文化和自然遗产日西藏自治区主场活动13日在拉萨市城关区曲贡遗址举行。
+5月25日，追觅科技发文宣布，葡萄牙足球巨星克里斯蒂亚诺·罗纳尔多（C罗）出任品牌全球代言人，覆盖扫地机、洗地机、洗衣机等全品类，助力其在欧洲、中东等核心市场的高端化与全球化布局。
 
-活动主题为“文物属于人民 服务人民”。
+‌‌ 这是继3月签约刘亦菲后的又一重磅合作，标志着追觅成功搭建影视+体坛双星代言格局。
 
-主场活动宣读了西藏自治区级首批考古遗址公园名单，举行了自治区级考古遗址公园授牌仪式活动。
+同日，C罗发文称，“因相同的初心与信仰同行，很荣幸，成为追觅全球代言人。
 
-经过评审，首批名单包括曲贡遗址、温江多遗址、卡若遗址、玛不错遗址、拉颇遗址。
+” 此前5月8日，C罗在沙特联赛攻入职业生涯第971球，达成沙特联百球里程碑。
 
-其中，曲贡遗址是研究青藏高原史前社会、生业经济、文化交流与文明进程的关键节点，对于理解高原早期农牧业发展、跨区域互动及文明起源具备不可替代的学术价值。
+5月11日，追觅发文暗示追觅全球代言人称，971次破门只是一个数字。
 
-据了解，此举旨在加强西藏重要考古遗址保护与活化利用，切实推进大遗址保护与经济社会和谐发展。
-
-此次评选将进一步推进西藏考古遗址公园的后续建设工作，不断提高管理水平，提升公共文化服务功能，加大对遗址的研究、展示和利用，使考古遗址保护研究成果惠及社会和人民。
-
-主场活动还开展了非遗展示、西藏考古70周年成果图片展、第四次文物普查成果图片展以及文物保护相关普法宣传活动。
+责任编辑：李昂
 
 ## 相关推荐
 
-- 2026-06-29 19:05 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 19:02 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 18:52 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 18:45 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 18:37 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 18:46 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 18:50 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 18:42 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 18:44 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 19:04 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 19:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 18:54 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 18:52 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 18:47 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 18:39 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 19:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 19:10 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 18:54 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 19:09 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 18:56 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 18:51 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 19:03 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 19:01 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 18:50 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 18:51 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:57 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/763860.shtml)
-- 2026-06-29 18:42 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/4911620775.shtml)
-- 2026-06-29 18:51 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/372558484809.shtml)
-- 2026-06-29 19:00 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/8922860.shtml)
-- 2026-06-29 18:44 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/1865376.shtml)
-- 2026-06-29 18:51 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/443920573.shtml)
-- 2026-06-29 19:00 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/0877848.shtml)
-- 2026-06-29 18:59 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/920603.shtml)
-- 2026-06-29 18:39 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/49514921.shtml)
-- 2026-06-29 18:51 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/598959218667.shtml)
-- 2026-06-29 18:50 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/8737908818.shtml)
-- 2026-06-29 18:48 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/17910948945.shtml)
-- 2026-06-29 18:52 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/35051771.shtml)
-- 2026-06-29 18:50 - [官媒首曝六代机？大V解读](https://www.blog.minike.top/Article/details/8314455429.shtml)
-- 2026-06-29 19:02 - [张雪机车杀向海外](http://www.blog.kurohicncr.top/Article/details/654814199119.shtml)
+- 2026-06-29 18:43 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/6263090.shtml)
+- 2026-06-29 18:52 - [不烧钱的低成本爱好](http://www.blog.kurohicncr.top/Article/details/834564364122.shtml)
+- 2026-06-29 19:02 - [起风了](https://www.share.minike.top/Article/details/83711.shtml)
+- 2026-06-29 18:48 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.kurohicncr.top/Article/details/1262027787.shtml)
+- 2026-06-29 18:43 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/7933070963.shtml)
+- 2026-06-29 18:44 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/592188237.shtml)
+- 2026-06-29 18:55 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/113961079.shtml)
+- 2026-06-29 18:44 - [RAY评乘风2026总决赛](https://www.share.kurohicncr.top/Article/details/750434911.shtml)
+- 2026-06-29 19:04 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/978303560.shtml)
+- 2026-06-29 19:01 - [官媒首曝六代机？大V解读](https://www.share.kurohicncr.top/Article/details/173982746.shtml)
+- 2026-06-29 18:54 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/97632.shtml)
+- 2026-06-29 19:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/41171520244.shtml)
+- 2026-06-29 18:49 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/664302002.shtml)
+- 2026-06-29 18:44 - [一见倾心](http://www.share.minike.top/Article/details/0230854.shtml)
+- 2026-06-29 19:01 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/03650094.shtml)

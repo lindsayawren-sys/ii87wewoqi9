@@ -1,42 +1,57 @@
-# 【文化中国行】薪火相传 秦腔不老
+# 山西留神峪煤矿附近商户：“晚上11点没人来买东西，我才确定出事了”
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 09:38 来源：央视综合 责任编辑：【王祎】
+中新网长治5月23日电 (陆祁国 王惠琳)5月22日19时许，山西通洲集团留神峪煤业公司发生瓦斯爆炸事故。截至目前，事故已致90人死亡。 留神峪煤业公司位于沁源县上庄村。5月23日下午，该村一家商店的经营者说，平时，每晚近11点，就会有留神峪煤矿的很多工人前来购买香烟、食品等。 “大概(事发当日)晚上9点多，我看见好几辆救护车在跑，但不知道出了啥事。”该经营户说，直到晚上11点
 
 ## 正文
 
-发布时间：2026年06月15日 09:38 来源：央视综合 责任编辑：【王祎】
+中新网长治5月23日电 (陆祁国 王惠琳)5月22日19时许，山西通洲集团留神峪煤业公司发生瓦斯爆炸事故。
+
+截至目前，事故已致90人死亡。
+
+留神峪煤业公司位于沁源县上庄村。
+
+5月23日下午，该村一家商店的经营者说，平时，每晚近11点，就会有留神峪煤矿的很多工人前来购买香烟、食品等。
+
+“大概(事发当日)晚上9点多，我看见好几辆救护车在跑，但不知道出了啥事。
+
+”该经营户说，直到晚上11点，因为没人再来购物，他才确定是留神峪煤矿出事了。
+
+“那么多人没了，太让人心痛了。
+
+”说到这里，经营户长长一声叹息。
 
 ## 相关推荐
 
-- 2026-06-29 18:41 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 18:57 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 18:39 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 18:37 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 18:52 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 18:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 18:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 18:55 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 18:37 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 18:56 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 18:56 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 18:56 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 18:49 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 19:00 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 18:54 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 18:56 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 19:09 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 19:01 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 18:49 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 18:43 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 18:56 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:52 - [天道](https://www.share.minike.top/Article/details/38461.shtml)
-- 2026-06-29 18:49 - [博主：AI泡沫必须破灭](https://www.blog.kurohicncr.top/Article/details/015485.shtml)
-- 2026-06-29 18:44 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/98056.shtml)
-- 2026-06-29 18:48 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.kurohicncr.top/Article/details/00569.shtml)
-- 2026-06-29 18:47 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/03888743.shtml)
-- 2026-06-29 19:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/8876349362.shtml)
-- 2026-06-29 19:03 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/111502.shtml)
-- 2026-06-29 18:38 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/160166.shtml)
-- 2026-06-29 19:05 - [明星大侦探第一季](http://www.share.minike.top/Article/details/62848986.shtml)
-- 2026-06-29 18:47 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/2603863.shtml)
-- 2026-06-29 18:46 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/368218160.shtml)
-- 2026-06-29 18:50 - [伊朗足球队将启程回国](https://www.share.kurohicncr.top/Article/details/40494.shtml)
-- 2026-06-29 18:50 - [TOP Prada](http://www.blog.minike.top/Article/details/094671.shtml)
-- 2026-06-29 18:48 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/717535302.shtml)
-- 2026-06-29 19:05 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/1639090.shtml)
+- 2026-06-29 18:54 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/65481392292.shtml)
+- 2026-06-29 18:44 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/68757.shtml)
+- 2026-06-29 19:02 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/0058313023.shtml)
+- 2026-06-29 18:51 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/7253590.shtml)
+- 2026-06-29 19:05 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/34834357522.shtml)
+- 2026-06-29 19:06 - [叠纸](http://www.blog.kurohicncr.top/Article/details/80828925.shtml)
+- 2026-06-29 18:58 - [滚石点名酒店员工说有急救培训](http://www.share.minike.top/Article/details/210917.shtml)
+- 2026-06-29 19:03 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/95790299303.shtml)
+- 2026-06-29 18:47 - [韩国队出局是因为内讧吗](https://www.blog.minike.top/Article/details/03184353401.shtml)
+- 2026-06-29 18:56 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/990212.shtml)
+- 2026-06-29 18:59 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/67170.shtml)
+- 2026-06-29 19:11 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/8071642699.shtml)
+- 2026-06-29 19:03 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/9577286974.shtml)
+- 2026-06-29 19:04 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/200183.shtml)
+- 2026-06-29 18:51 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/338767423.shtml)

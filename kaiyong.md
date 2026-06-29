@@ -1,56 +1,49 @@
-# 上海市垃圾分类IP形象亮相 头顶玉兰、四色额钿、耳化浪纹
+# 教育部：拟同意设置34所本科高等学校
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网上海6月14日电 (记者 陈静)上海市垃圾分类IP形象14日正式亮相。当天，“绿色循环”上海市垃圾分类志愿服务宣传日(普陀站)于梦清园环保主题公园举行。IP人偶与垃圾分类志愿者一同向民众发放垃圾分类倡议书、宣传手册与纪念礼品，吸引众多人驻足合影。 上海市绿化和市容管理局方面对记者介绍，上海市垃圾分类IP形象以上海“四色”分类为设计灵感。头顶玉兰，彰显上海推进生态文明建设的
+中新网5月22日电 据教育部网站消息，21日，教育部发展规划司发布《关于拟同意设置本科高等学校的公示》。 根据《中华人民共和国高等教育法》《普通高等学校设置暂行条例》《普通本科学校设置暂行规定》《本科层次职业学校设置标准(试行)》等有关规定，经教育部党组会议审议，拟同意设置常州信息职业技术大学等34所学校，现予公示。 公示时间为2026年5月21日至5月27日。
 
 ## 正文
 
-中新网上海6月14日电 (记者 陈静)上海市垃圾分类IP形象14日正式亮相。
+中新网5月22日电 据教育部网站消息，21日，教育部发展规划司发布《关于拟同意设置本科高等学校的公示》。
 
-当天，“绿色循环”上海市垃圾分类志愿服务宣传日(普陀站)于梦清园环保主题公园举行。
+根据《中华人民共和国高等教育法》《普通高等学校设置暂行条例》《普通本科学校设置暂行规定》《本科层次职业学校设置标准(试行)》等有关规定，经教育部党组会议审议，拟同意设置常州信息职业技术大学等34所学校，现予公示。
 
-IP人偶与垃圾分类志愿者一同向民众发放垃圾分类倡议书、宣传手册与纪念礼品，吸引众多人驻足合影。
-
-上海市绿化和市容管理局方面对记者介绍，上海市垃圾分类IP形象以上海“四色”分类为设计灵感。
-
-头顶玉兰，彰显上海推进生态文明建设的蓬勃朝气和打造美丽、洁净之城的发展决心；四色额钿，对应上海生活垃圾四分类标准，承载人人参与、人人负责、人人奉献、人人共享的城市治理共同体内涵；耳化浪纹，呼应城市“海纳百川”的开放胸襟，其圆弧形状象征资源循环，整体造型灵动亲和，传递“绿色循环”的核心理念。
-
-作为第二十二届苏州河城市龙舟邀请赛的一大亮点，当天，由上海市垃圾分类志愿者组建的“分类新时尚”龙舟队也登上了赛场。
-
-志愿者队服与船桨都印有醒目的上海垃圾分类IP形象，他们希望在奋力拼搏的同时广泛宣传垃圾分类。
-
-本届苏州河城市龙舟邀请赛特别邀请了国际队伍参赛，其中，德国美龙队在比赛间隙，实实在在体验了一回“上海人民的分类日常”。
+公示时间为2026年5月21日至5月27日。
 
 ## 相关推荐
 
-- 2026-06-29 18:59 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 18:58 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 18:38 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 18:36 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 19:01 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 18:40 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 18:43 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 18:49 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 19:05 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 18:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 19:07 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 18:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 18:45 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 18:46 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 19:01 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 18:47 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 18:50 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 18:50 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 19:12 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 18:45 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 18:44 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 19:11 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 18:56 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/708781238.shtml)
-- 2026-06-29 18:44 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/654704061678.shtml)
-- 2026-06-29 18:42 - [人类对空调和其他家电有多双标](http://www.share.kurohicncr.top/Article/details/258894094934.shtml)
-- 2026-06-29 18:46 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/5856534375.shtml)
-- 2026-06-29 18:58 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/40896708245.shtml)
-- 2026-06-29 18:37 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/500927884.shtml)
-- 2026-06-29 18:49 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/095805242588.shtml)
-- 2026-06-29 18:43 - [爱很美味](https://www.blog.minike.top/Article/details/675187.shtml)
-- 2026-06-29 18:46 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/176203874278.shtml)
-- 2026-06-29 19:01 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/166747.shtml)
-- 2026-06-29 18:50 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/487310224.shtml)
-- 2026-06-29 18:57 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/367841634530.shtml)
-- 2026-06-29 18:38 - [央视曝光涉黄App诈骗陷阱](https://www.share.kurohicncr.top/Article/details/42825358046.shtml)
-- 2026-06-29 18:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/590490972.shtml)
-- 2026-06-29 18:44 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/033428857.shtml)
+- 2026-06-29 18:59 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/81434644.shtml)
+- 2026-06-29 18:52 - [货车司机雨中帮交警挪树获表扬](http://www.share.minike.top/Article/details/057459019218.shtml)
+- 2026-06-29 19:06 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/098980420.shtml)
+- 2026-06-29 18:59 - [RAY评乘风2026总决赛](https://www.share.minike.top/Article/details/92123835728.shtml)
+- 2026-06-29 19:10 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/88994.shtml)
+- 2026-06-29 19:10 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/69178820019.shtml)
+- 2026-06-29 18:44 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/648001.shtml)
+- 2026-06-29 19:11 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/336290.shtml)
+- 2026-06-29 18:51 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/171227.shtml)
+- 2026-06-29 18:50 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/776594131.shtml)
+- 2026-06-29 18:47 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/696663472.shtml)
+- 2026-06-29 18:46 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/050604341271.shtml)
+- 2026-06-29 19:12 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/909569.shtml)
+- 2026-06-29 19:06 - [伊朗足球队将启程回国](https://www.blog.kurohicncr.top/Article/details/937956657153.shtml)
+- 2026-06-29 18:57 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/6519754265.shtml)

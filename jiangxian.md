@@ -1,59 +1,57 @@
-# 以实战试炼赋能求职 湖南搭建高校毕业生双向选聘新平台
+# 中信建投期货：5月26日农产品早报
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网长沙6月13日电(李娜 巩如泉)6月13日，湖南聚焦高校毕业生就业赋能的实景职场挑战活动——“职场星挑战见习新未来”在长沙启动录制。 活动摒弃传统求职滤镜，以全真职场实战模式，搭建企业与青年人才双向对接平台。湖南省内多家头部企业现场选才、发放“见习职通卡”，精准畅通高校毕业生见习就业渠道。 据悉，本次活动打破传统招聘会单一模式，围绕面试测评、实战试炼、岗位见习、职业成长四
+玉米：中性 1．市场关注：在谷物放量始终没有明确的情况下，弱势运行延续，近期重点关注新麦价格，新季小麦整体丰产预期但品质偏弱。饲用企业的谷物替代逐步铺开，等待谷物库存及盘面的进一步消化，短期至6月上旬之前，新麦开秤价的价格锚定或成为利空出尽的关键变量，丰产预期下的利空压制愈发变强。目前虽然饲用豆粕/玉米都在持续走低并且不断逼近安全垫，但注意目前小麦替代仍在计价途中，现货购销短期
 
 ## 正文
 
-中新网长沙6月13日电(李娜 巩如泉)6月13日，湖南聚焦高校毕业生就业赋能的实景职场挑战活动——“职场星挑战见习新未来”在长沙启动录制。
+玉米：中性 1．市场关注：在谷物放量始终没有明确的情况下，弱势运行延续，近期重点关注新麦价格，新季小麦整体丰产预期但品质偏弱。
 
-活动摒弃传统求职滤镜，以全真职场实战模式，搭建企业与青年人才双向对接平台。
+饲用企业的谷物替代逐步铺开，等待谷物库存及盘面的进一步消化，短期至6月上旬之前，新麦开秤价的价格锚定或成为利空出尽的关键变量，丰产预期下的利空压制愈发变强。
 
-湖南省内多家头部企业现场选才、发放“见习职通卡”，精准畅通高校毕业生见习就业渠道。
+目前虽然饲用豆粕/玉米都在持续走低并且不断逼近安全垫，但注意目前小麦替代仍在计价途中，现货购销短期即便走强也不构成持续性利多。
 
-据悉，本次活动打破传统招聘会单一模式，围绕面试测评、实战试炼、岗位见习、职业成长四大维度，构建“求职指导—实战考核—岗位落地—成长赋能”的全链条就业服务闭环。
+稻谷拍的市场消息卖对盘面的反复拉扯削弱，适当减少关注。
 
-现场设置3分钟个人展示环节，参赛求职者依次完成自我介绍、优势阐述、才艺展示、职业规划分享，全方位展现个人综合素养与岗位适配能力。
+2．观点总结：观望为主，等待利空进一步消化。
 
-录制现场，各企业HR及负责人化身“职场星探”，围绕职业规划、岗位适配、技能提升等核心问题现场提问，开展专业化、针对性考核。
+豆粕：中性 1．特朗普表示美国与伊朗谈判已进入最后阶段，隔夜WTI原油显著下跌，引发农产品多头获利平仓，美豆跟随走弱。
 
-除个人展示外，活动同步设置简历问诊、职场沟通模拟、突发问题应急处置等全真职场试炼环节，多角度考察求职者的语言表达、临场应变、专业功底与综合素养，全方位检验青年求职实战能力。
+Stone X指出，在中美采购协议披露进一步细节之前，市场对这一题材的交易保持谨慎，进而对美豆价格的推动作用或相对有限。
 
-活动采用公开透明的双向选聘规则，兼顾企业选才与求职者权益。
+与此同时，市场逐步将交易重心转向北美新季作物播种进展，当前美豆播种进度偏快，不利于天气升水累积，亦给美豆价格带来压力。
 
 ## 相关推荐
 
-- 2026-06-29 18:54 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 18:58 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 18:42 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 18:38 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 18:49 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 18:54 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 18:37 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 18:40 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 18:42 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 18:58 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 18:38 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 18:42 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 18:53 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 18:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 18:46 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 18:51 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 18:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 18:53 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 19:03 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 18:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 19:07 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 18:48 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 19:00 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 18:44 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/7435055418.shtml)
-- 2026-06-29 18:45 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/2185079671.shtml)
-- 2026-06-29 18:50 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/093831806.shtml)
-- 2026-06-29 18:58 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.minike.top/Article/details/8253549.shtml)
-- 2026-06-29 18:38 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/19329736046.shtml)
-- 2026-06-29 18:51 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/6618591018.shtml)
-- 2026-06-29 18:50 - [花万元相亲对象是50元雇的演员](http://www.blog.minike.top/Article/details/39594160.shtml)
-- 2026-06-29 18:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/9255598.shtml)
-- 2026-06-29 19:05 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/4537313512.shtml)
-- 2026-06-29 18:51 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/808925.shtml)
-- 2026-06-29 18:45 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/92260.shtml)
-- 2026-06-29 18:39 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/036972366769.shtml)
-- 2026-06-29 18:38 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/6527079635.shtml)
-- 2026-06-29 18:57 - [伊朗足球队将启程回国](http://www.blog.kurohicncr.top/Article/details/2330124.shtml)
-- 2026-06-29 19:04 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/70339.shtml)
+- 2026-06-29 19:11 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/28890315331.shtml)
+- 2026-06-29 18:50 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/2804875.shtml)
+- 2026-06-29 18:48 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/5747477368.shtml)
+- 2026-06-29 19:05 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/69970146249.shtml)
+- 2026-06-29 19:08 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/54951463.shtml)
+- 2026-06-29 18:48 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/67867593.shtml)
+- 2026-06-29 18:49 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/63837.shtml)
+- 2026-06-29 18:51 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/29399.shtml)
+- 2026-06-29 18:43 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.blog.minike.top/Article/details/81414.shtml)
+- 2026-06-29 19:02 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/721144512.shtml)
+- 2026-06-29 19:07 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/36244089.shtml)
+- 2026-06-29 19:00 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/56998901.shtml)
+- 2026-06-29 19:05 - [爱很美味](https://www.blog.minike.top/Article/details/781097604.shtml)
+- 2026-06-29 18:53 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/79030.shtml)
+- 2026-06-29 18:48 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/5022862735.shtml)

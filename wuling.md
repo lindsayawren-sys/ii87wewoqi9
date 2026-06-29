@@ -1,59 +1,53 @@
-# 库欣库存逼近运营下限，美国油市面临极端波动风险
+# 在霍尔木兹海峡有望重新开放之际油价下跌
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-随着中东冲突持续扰乱全球能源供应，美国关键储油中心库欣的库存正快速逼近运营最低水平。分析师警告，若霍尔木兹海峡继续封闭，原油市场可能面临极端价格波动甚至价格飙升的风险。 据美国能源信息署数据，截至6月5日当周，俄克拉荷马州库欣储油中心的库存已降至约2160万桶。作为纽约商品交易所WTI原油期货的指定交割地，库欣在全球原油定价体系中具有核心地位。业内人士指出，一旦库存跌破2000
+在霍尔木兹海峡有望重新开放之际，油价在亚洲早盘交易中下跌；霍尔木兹海峡是一条关键水道，全球五分之一的石油通常经此运输。媒体援引一名美国官员周日的话称，已达成一项原则性协议，根据该协议，伊朗将重新开放霍尔木兹海峡。与此同时，美国总统特朗普周日表示，他不急于与伊朗达成结束战争的协议。近月西得州中质油期货下跌5.1%，至每桶91.71美元；近月布伦特原油期货下跌5.1%，至每桶98.
 
 ## 正文
 
-随着中东冲突持续扰乱全球能源供应，美国关键储油中心库欣的库存正快速逼近运营最低水平。
+在霍尔木兹海峡有望重新开放之际，油价在亚洲早盘交易中下跌；霍尔木兹海峡是一条关键水道，全球五分之一的石油通常经此运输。
 
-分析师警告，若霍尔木兹海峡继续封闭，原油市场可能面临极端价格波动甚至价格飙升的风险。
+媒体援引一名美国官员周日的话称，已达成一项原则性协议，根据该协议，伊朗将重新开放霍尔木兹海峡。
 
-据美国能源信息署数据，截至6月5日当周，俄克拉荷马州库欣储油中心的库存已降至约2160万桶。
+与此同时，美国总统特朗普周日表示，他不急于与伊朗达成结束战争的协议。
 
-作为纽约商品交易所WTI原油期货的指定交割地，库欣在全球原油定价体系中具有核心地位。
+近月西得州中质油期货下跌5.1%，至每桶91.71美元；近月布伦特原油期货下跌5.1%，至每桶98.29美元。
 
-业内人士指出，一旦库存跌破2000万桶的警戒线，将进入“运营最低水平”——届时油品调配、混油质量及管道运输效率均可能受到冲击。
-
-能源分析师杰里米·欧文表示，当库存处于运营最低水平时，储罐内没有足够的原油进行泵送和罐间转移，调油作业将面临挑战，可能导致库欣的原油外运延迟或中断。
-
-据媒体援引内部评估，库欣库存最快可能在6月底触及这一危险水平。
-
-库存急剧下降的直接原因是霍尔木兹海峡的持续封锁。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 18:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 18:42 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 18:59 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 18:42 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 18:46 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 19:02 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 18:55 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 18:43 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 18:48 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 18:56 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 18:39 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 18:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 19:00 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 18:50 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 19:03 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 18:45 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 18:58 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 18:44 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 18:44 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 18:52 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 18:59 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 19:09 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 18:49 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 18:46 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 18:51 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 18:53 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:38 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/838020795.shtml)
-- 2026-06-29 18:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/12395.shtml)
-- 2026-06-29 18:39 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/18561.shtml)
-- 2026-06-29 18:51 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/47941251463.shtml)
-- 2026-06-29 18:37 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/052925018734.shtml)
-- 2026-06-29 18:40 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/22897.shtml)
-- 2026-06-29 19:02 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/353942.shtml)
-- 2026-06-29 18:42 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/113862.shtml)
-- 2026-06-29 19:03 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/340499.shtml)
-- 2026-06-29 18:43 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/35975412460.shtml)
-- 2026-06-29 18:53 - [女心理师](https://www.share.minike.top/Article/details/84822000829.shtml)
-- 2026-06-29 18:47 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/014458567.shtml)
-- 2026-06-29 18:48 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/348971199837.shtml)
-- 2026-06-29 18:48 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/790749953971.shtml)
-- 2026-06-29 18:37 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/687508.shtml)
+- 2026-06-29 19:02 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/56964720.shtml)
+- 2026-06-29 18:45 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/6699782.shtml)
+- 2026-06-29 18:42 - [让AI做一个账号，它会做成什么样？](https://www.blog.minike.top/Article/details/7173025996.shtml)
+- 2026-06-29 18:42 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/374654198749.shtml)
+- 2026-06-29 18:42 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/78371754727.shtml)
+- 2026-06-29 18:58 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/86145407100.shtml)
+- 2026-06-29 18:45 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/44356532484.shtml)
+- 2026-06-29 19:02 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.kurohicncr.top/Article/details/2124703660.shtml)
+- 2026-06-29 19:05 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/56355702162.shtml)
+- 2026-06-29 18:54 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.kurohicncr.top/Article/details/82255.shtml)
+- 2026-06-29 19:11 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/54803597.shtml)
+- 2026-06-29 18:58 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/34680210948.shtml)
+- 2026-06-29 19:06 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.minike.top/Article/details/847116235.shtml)
+- 2026-06-29 19:00 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/542313.shtml)
+- 2026-06-29 19:05 - [伊朗足球队将启程回国](https://www.blog.kurohicncr.top/Article/details/5639144.shtml)

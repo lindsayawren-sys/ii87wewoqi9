@@ -1,48 +1,61 @@
-# 陕西渭南市合阳县发生4.1级地震
+# 西十高铁即将开通 陕西山阳借势提速赋能经济发展
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中国地震台网正式测定：06月15日01时13分在陕西渭南市合阳县(北纬35.22度，东经110.30度)发生4.1级地震，震源深度14千米。 (总台央视记者 张腾飞)
+中新网陕西山阳5月23日电 (记者 党田野)随着西十高铁全线联调联试稳步推进，秦岭南麓陕西省商洛市山阳县即将告别不通高铁的历史，正式迈入“高铁时代”。这条秦岭交通大动脉，将为县域经济发展、文旅产业振兴注入强劲动力。 西十高铁于2021年12月开工建设，为高标准高速铁路。山阳县是全线唯一设有两座高铁站的县区。目前，线路主体施工已全部完成，全线进入联调联试冲刺阶段，预计2026年6
 
 ## 正文
 
-中国地震台网正式测定：06月15日01时13分在陕西渭南市合阳县(北纬35.22度，东经110.30度)发生4.1级地震，震源深度14千米。
+中新网陕西山阳5月23日电 (记者 党田野)随着西十高铁全线联调联试稳步推进，秦岭南麓陕西省商洛市山阳县即将告别不通高铁的历史，正式迈入“高铁时代”。
 
-(总台央视记者 张腾飞)
+这条秦岭交通大动脉，将为县域经济发展、文旅产业振兴注入强劲动力。
+
+西十高铁于2021年12月开工建设，为高标准高速铁路。
+
+山阳县是全线唯一设有两座高铁站的县区。
+
+目前，线路主体施工已全部完成，全线进入联调联试冲刺阶段，预计2026年6月通车试运营。
+
+记者在山阳站现场看到，站房整体大气简约，融入当地山水风貌，与周边环境相得益彰。
+
+山阳县支持铁路建设领导小组办公室副主任朱忠宝称，站房总建筑面积4900平方米，候车大厅宽敞明亮，最高可容纳800人，站场规模为2台4线，主体一层、局部二层。
+
+据介绍，山阳、漫川关两座车站主体工程、内部装修及配套设施目前均已完工，设备调试进入收尾阶段，已满足运营条件。
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 18:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 18:50 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 18:56 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 18:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 18:41 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 18:48 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 19:00 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 18:50 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 18:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 18:55 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 18:42 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 19:02 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 18:39 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 18:51 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 18:44 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 19:01 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 19:01 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 19:05 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 18:43 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 19:08 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 18:54 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 19:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 18:52 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 18:59 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 18:46 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 18:55 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 18:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 18:52 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:44 - [千与千寻](https://www.blog.minike.top/Article/details/5901299.shtml)
-- 2026-06-29 19:03 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/39279723609.shtml)
-- 2026-06-29 18:56 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/7475424081.shtml)
-- 2026-06-29 19:05 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/691369207.shtml)
-- 2026-06-29 18:46 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/7999418.shtml)
-- 2026-06-29 19:04 - [官媒首曝六代机？大V解读](https://www.share.kurohicncr.top/Article/details/034105.shtml)
-- 2026-06-29 18:36 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/334365811.shtml)
-- 2026-06-29 18:41 - [伊朗足球队将启程回国](http://www.blog.minike.top/Article/details/392856068.shtml)
-- 2026-06-29 19:05 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/502513346229.shtml)
-- 2026-06-29 18:59 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/13188.shtml)
-- 2026-06-29 18:52 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/845320.shtml)
-- 2026-06-29 18:45 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/709318.shtml)
-- 2026-06-29 18:39 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/382606313572.shtml)
-- 2026-06-29 18:49 - [周杰伦演唱会含星量](https://www.blog.minike.top/Article/details/21628621777.shtml)
-- 2026-06-29 19:05 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/37797455326.shtml)
+- 2026-06-29 18:44 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/860126.shtml)
+- 2026-06-29 19:03 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/99098.shtml)
+- 2026-06-29 19:04 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/03634683.shtml)
+- 2026-06-29 18:56 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.minike.top/Article/details/295787276034.shtml)
+- 2026-06-29 18:55 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/257648687220.shtml)
+- 2026-06-29 18:50 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/54982.shtml)
+- 2026-06-29 18:47 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/29826.shtml)
+- 2026-06-29 18:52 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/2720411.shtml)
+- 2026-06-29 18:46 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/52629131.shtml)
+- 2026-06-29 19:11 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/9561485.shtml)
+- 2026-06-29 19:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/289110145.shtml)
+- 2026-06-29 18:45 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/826609.shtml)
+- 2026-06-29 18:43 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/07372617068.shtml)
+- 2026-06-29 18:43 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/014084150.shtml)
+- 2026-06-29 18:56 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/83580539.shtml)

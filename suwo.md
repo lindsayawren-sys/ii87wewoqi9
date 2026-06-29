@@ -1,60 +1,56 @@
-# 【向新而行】一根头发的突围：中国药企的“颜值健康”新质答卷
+# 《从西安到瓜达尔港》第二季《工者伟业》登陆巴基斯坦荧屏
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月14日 16:59 来源：中国新闻网 如今，“颜值”早已不再是容貌的浅层标签——它关乎自信、社交，甚至职业发展。从脱发焦虑到皮肤困扰，越来越多人愿意为“颜值健康”投入时间和精力。其中，脱发问题尤为普遍，当前中国的雄激素性脱发患者已超过1.3亿。 来自上海的科笛集团将治疗“雄秃”作为突破口，从找到穿透皮肤屏障的“黑科技”，到解决药液抵达头皮的“最后一毫米
+中新网西安5月22日电 (李一璠)2026年是中巴建交七十五周年。22日，由陕西导演白志军担任总策划、总导演，巴基斯坦国家电视台、陕西仲山文化传媒有限公司、北京秦晟国际文化产业发展有限公司联合摄制的大型丝路纪实系列纪录片《从西安到瓜达尔港》第二季《工者伟业》登陆巴基斯坦国家电视台全频道，并同步上线海外主流社交平台全网播出，成为中巴人文交流、友谊升华的象征。从古丝绸之路起点西安延
 
 ## 正文
 
-发布时间：2026年06月14日 16:59 来源：中国新闻网 如今，“颜值”早已不再是容貌的浅层标签——它关乎自信、社交，甚至职业发展。
+中新网西安5月22日电 (李一璠)2026年是中巴建交七十五周年。
 
-从脱发焦虑到皮肤困扰，越来越多人愿意为“颜值健康”投入时间和精力。
+22日，由陕西导演白志军担任总策划、总导演，巴基斯坦国家电视台、陕西仲山文化传媒有限公司、北京秦晟国际文化产业发展有限公司联合摄制的大型丝路纪实系列纪录片《从西安到瓜达尔港》第二季《工者伟业》登陆巴基斯坦国家电视台全频道，并同步上线海外主流社交平台全网播出，成为中巴人文交流、友谊升华的象征。
 
-其中，脱发问题尤为普遍，当前中国的雄激素性脱发患者已超过1.3亿。
+从古丝绸之路起点西安延伸至中巴经济走廊核心枢纽瓜达尔港，西安与瓜达尔港遥遥相望，既是古老丝路文明与现代走廊建设的双向奔赴，也凝聚着中巴两国守望相助、精诚协作的深厚情谊。
 
-来自上海的科笛集团将治疗“雄秃”作为突破口，从找到穿透皮肤屏障的“黑科技”，到解决药液抵达头皮的“最后一毫米”；从买不到设备就自己动手造，到把研发成果分享给全球同行。
+当日该纪录片在巴基斯坦多地掀起观影热潮，该纪录片相继“走”进当地高等院校、城乡社区、华侨华人社团、企业等开展公益展映，让中巴携手同行的温情故事深入人心。
 
-2025年6月，全球首款外用非那雄胺喷雾剂在中国获批上市。
+瓜达尔港务局主席努尔·乌尔·哈克·巴洛奇日前表示，《工者伟业》以纪实视角留存中巴经济走廊建设历程，珍藏两国并肩打拼的珍贵画面，既是对共建硕果的崇高致敬，更是两国民心相融、合作共赢的有力见证。
 
-在研发部首席科学家雷磊看来，与患者共情，针对痛点与细节做研发，才是技术进步的真正机会。
+据介绍，《工者伟业》历经两年潜心筹备与实地拍摄，摄制组跨越万里山川，足迹遍布西安、北京、上海、天津等中国城市和巴基斯坦全境，总行程近三万公里。
 
-向“新”而行，发展新质生产力，这家中国药企在“颜值健康”领域，正走出一条自己的路。
+主创团队深入建设一线、扎根基层，采访记录近三百位中外建设者的奋斗事迹，用细腻镜头刻画普通人的责任与担当，打磨出一部兼具人文温度、思想深度与时代格局的优质纪实佳作。
 
-责任编辑：【周驰】
+回望整个拍摄历程，白志军表示为捕捉原生态实景画面，摄制组多次往返卡拉奇机场取景，为等候最佳拍摄契机足足耗时两个月，“纪录片中，四位献身港口建设的英烈，让英雄风骨永驻山海之间；工程师李晓博负伤坚守、恪尽职守的身影，让奋斗光芒照亮丝路前路；中国海外港口控股(巴基斯坦)有限公司于博、邹耀东带领团队日夜攻坚、奋勇拼搏……无数中外建设者不畏烈日风沙，勤恳奉献。
 
 ## 相关推荐
 
-- 2026-06-29 18:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 18:55 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 18:44 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 18:40 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 18:40 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 18:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 18:40 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 18:43 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 18:49 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 18:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 18:50 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 18:52 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 18:42 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 19:03 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 19:09 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 19:04 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 18:49 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 18:48 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 18:57 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 18:51 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 18:44 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 18:53 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 19:08 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 19:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:45 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/9481695.shtml)
-- 2026-06-29 18:49 - [黄金也扛不住了](http://www.share.minike.top/Article/details/53518099170.shtml)
-- 2026-06-29 18:45 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/2213963.shtml)
-- 2026-06-29 18:52 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/366925675.shtml)
-- 2026-06-29 19:00 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/20082726.shtml)
-- 2026-06-29 18:40 - [斛珠夫人](http://www.share.minike.top/Article/details/021965881.shtml)
-- 2026-06-29 18:59 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/9671842.shtml)
-- 2026-06-29 18:49 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/574556585.shtml)
-- 2026-06-29 18:46 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/6296073227.shtml)
-- 2026-06-29 18:38 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/0423853.shtml)
-- 2026-06-29 18:53 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/2334114.shtml)
-- 2026-06-29 18:54 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/73028550546.shtml)
-- 2026-06-29 18:43 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/6123005.shtml)
-- 2026-06-29 18:57 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/900179.shtml)
-- 2026-06-29 18:41 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/732514381.shtml)
+- 2026-06-29 19:07 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/17254223.shtml)
+- 2026-06-29 18:43 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/40507732908.shtml)
+- 2026-06-29 19:06 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/32345.shtml)
+- 2026-06-29 19:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/00227449.shtml)
+- 2026-06-29 18:42 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/019315.shtml)
+- 2026-06-29 18:44 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/8129538568.shtml)
+- 2026-06-29 18:46 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/313432284.shtml)
+- 2026-06-29 19:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/9468389.shtml)
+- 2026-06-29 19:02 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/65313.shtml)
+- 2026-06-29 19:04 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/0201105.shtml)
+- 2026-06-29 18:43 - [两老人多次到一洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/9228395.shtml)
+- 2026-06-29 19:07 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/22546016.shtml)
+- 2026-06-29 18:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/24000.shtml)
+- 2026-06-29 19:06 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/46173074.shtml)
+- 2026-06-29 19:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/126491445.shtml)

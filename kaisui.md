@@ -1,61 +1,58 @@
-# 部分世界杯球队将面临更严峻高温挑战
+# 监管审查突生变数，吉宝M1剥离资产告吹，子公司Tuas股价暴跌69%
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-高温或许将成为2026年世界杯最难对付的“对手”之一。 热浪会席卷迈阿密的球场，笼罩费城的赛场，也会不断消耗堪萨斯城赛场上球员的体力。不同城市、不同开赛时段的温度各不相同，48支参赛队伍都将以不同方式经受高温考验。 突尼斯全队26名球员的赛程高温压力最大。北爱尔兰贝尔法斯特女王大学高级讲师唐纳尔·穆兰（Donal Mullan）参与撰写了2025年一份关于世界杯赛程高温风险的研
+新加坡吉宝有限公司脱售M1股份给Simba电信的交易正式搁浅。由于新加坡资讯通信媒体发展局暂停对交易的合并评估，买卖协议于5月22日宣告失效。受此冲击，吉宝旗下澳大利亚子公司Tuas Limited股价本周暴跌逾69%。 此次交易终止的直接导火索，是IMDA在对Simba进行审查时发现，该公司可能使用了未被指配的无线电频段来提供移动服务，涉嫌违反电信法及运营商牌照条款。监管机构
 
 ## 正文
 
-高温或许将成为2026年世界杯最难对付的“对手”之一。
+新加坡吉宝有限公司脱售M1股份给Simba电信的交易正式搁浅。
 
-热浪会席卷迈阿密的球场，笼罩费城的赛场，也会不断消耗堪萨斯城赛场上球员的体力。
+由于新加坡资讯通信媒体发展局暂停对交易的合并评估，买卖协议于5月22日宣告失效。
 
-不同城市、不同开赛时段的温度各不相同，48支参赛队伍都将以不同方式经受高温考验。
+受此冲击，吉宝旗下澳大利亚子公司Tuas Limited股价本周暴跌逾69%。
 
-突尼斯全队26名球员的赛程高温压力最大。
+此次交易终止的直接导火索，是IMDA在对Simba进行审查时发现，该公司可能使用了未被指配的无线电频段来提供移动服务，涉嫌违反电信法及运营商牌照条款。
 
-北爱尔兰贝尔法斯特女王大学高级讲师唐纳尔·穆兰（Donal Mullan）参与撰写了2025年一份关于世界杯赛程高温风险的研究报告，他表示，“相比欧洲等地区的球员，突尼斯球员对高温环境的适应能力或许更强。
+监管机构随即暂停了对吉宝出售M1 83.9%股权交易的审批程序。
 
-” 但穆兰也指出，即便球员早已适应高温，随着这场为期39天的赛事不断推进，他们的状态“几乎必然会受到影响”。
+2025年，吉宝与Tuas的子公司Simba达成协议，拟以14.3亿新元的企业价值出售其持有的M1股份。
 
-“高温影响会不断累积，球员的疲惫感也会随之加剧。
+此前吉宝CEO卢振华曾表示，若交易成功，股东可能获得每股0.07至0.11新元的特别股息。
 
-” 媒体分析以湿球黑球温度估值为依据。
+随着交易告吹，这笔潜在的现金回报已落空。
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 18:59 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 18:46 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 18:40 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 18:52 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 18:55 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 18:57 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 18:59 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 18:41 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 19:01 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 18:55 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 18:47 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 18:42 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 18:46 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 18:58 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 18:55 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 18:42 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 18:52 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 19:09 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 18:42 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 18:58 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 19:06 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 19:07 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 19:03 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 18:48 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 19:08 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 19:04 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:01 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/614593104626.shtml)
-- 2026-06-29 18:54 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/71404960.shtml)
-- 2026-06-29 19:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/17263110.shtml)
-- 2026-06-29 18:43 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/02882553.shtml)
-- 2026-06-29 18:37 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/01354.shtml)
-- 2026-06-29 18:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/370121.shtml)
-- 2026-06-29 18:38 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/962149743161.shtml)
-- 2026-06-29 18:40 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/29649699900.shtml)
-- 2026-06-29 18:52 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/130113923.shtml)
-- 2026-06-29 18:47 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/1989136.shtml)
-- 2026-06-29 19:04 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/6086478.shtml)
-- 2026-06-29 19:00 - [金牌调解](https://www.blog.minike.top/Article/details/921327305673.shtml)
-- 2026-06-29 18:48 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/2532349.shtml)
-- 2026-06-29 19:02 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/679504328.shtml)
-- 2026-06-29 18:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/69287093.shtml)
+- 2026-06-29 18:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/363373623.shtml)
+- 2026-06-29 18:44 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/5448908.shtml)
+- 2026-06-29 18:51 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/27409627081.shtml)
+- 2026-06-29 19:05 - [厨房装空调还是装冷烟机](http://www.blog.minike.top/Article/details/57292.shtml)
+- 2026-06-29 19:11 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/32381274.shtml)
+- 2026-06-29 19:00 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/238096583.shtml)
+- 2026-06-29 18:44 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/702360165349.shtml)
+- 2026-06-29 19:06 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.kurohicncr.top/Article/details/468565059.shtml)
+- 2026-06-29 19:01 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/18193.shtml)
+- 2026-06-29 18:53 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/727264.shtml)
+- 2026-06-29 18:42 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/89728383.shtml)
+- 2026-06-29 18:46 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/2295302.shtml)
+- 2026-06-29 19:09 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/1282943.shtml)
+- 2026-06-29 19:02 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/782074055603.shtml)
+- 2026-06-29 18:42 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.kurohicncr.top/Article/details/6224851.shtml)

@@ -1,50 +1,57 @@
-# 三花智控获Schroders PLC增持345.52万股 每股作价约29.05港元
+# 亚德尼：量子板块行情高涨具备合理性
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，6月10日，Schroders PLC增持三花智控（02050）345.52万股，每股作价29.0475港元，总金额约为1亿港元。增持后最新持股数目为6514.43万股，最新持股比例为13.67%。责任编辑：卢昱君
+美国商务部依据 2022 年《芯片与科学法案》，宣布为量子计算产业提供 20 亿美元联邦扶持资金，受此消息提振，量子概念个股周四集体大涨。 此番政府入股九家量子企业，是美国继去年收购英特尔 10% 股份后，又一项聚焦科技领域的产业政策举措。当日 defiance 量子交易所交易基金涨幅达 4.6%。 亚德尼研究公司总裁埃德・亚德尼在周五分析报告中写道：“本轮量子产业热潮由政策资
 
 ## 正文
 
-香港联交所最新数据显示，6月10日，Schroders PLC增持三花智控（02050）345.52万股，每股作价29.0475港元，总金额约为1亿港元。
+美国商务部依据 2022 年《芯片与科学法案》，宣布为量子计算产业提供 20 亿美元联邦扶持资金，受此消息提振，量子概念个股周四集体大涨。
 
-增持后最新持股数目为6514.43万股，最新持股比例为13.67%。
+此番政府入股九家量子企业，是美国继去年收购英特尔 10% 股份后，又一项聚焦科技领域的产业政策举措。
 
-责任编辑：卢昱君
+当日 defiance 量子交易所交易基金涨幅达 4.6%。
+
+亚德尼研究公司总裁埃德・亚德尼在周五分析报告中写道：“本轮量子产业热潮由政策资金推动，关键在于这轮行情是否具备合理支撑。
+
+我们认为上涨逻辑成立。
+
+不妨试想量子计算与人工智能融合所能释放的潜力。
+
+”责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 18:41 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 18:59 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 18:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 18:39 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 18:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 18:59 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 18:46 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 18:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 18:54 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 18:39 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 18:38 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 18:37 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 18:48 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 18:41 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 19:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 19:02 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 19:11 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 18:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 18:42 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 18:48 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 19:06 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 18:59 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 19:08 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 19:07 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 19:06 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 19:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 18:47 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:41 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/7583701.shtml)
-- 2026-06-29 18:36 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/878233012303.shtml)
-- 2026-06-29 18:48 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/764749326092.shtml)
-- 2026-06-29 18:42 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/582152554.shtml)
-- 2026-06-29 18:50 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/94902282.shtml)
-- 2026-06-29 19:05 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/98752431.shtml)
-- 2026-06-29 18:39 - [盛秋平任南昌市委书记](http://www.share.minike.top/Article/details/73501300.shtml)
-- 2026-06-29 19:02 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/89915022380.shtml)
-- 2026-06-29 18:59 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/99275374221.shtml)
-- 2026-06-29 19:00 - [第一炉香](http://www.share.minike.top/Article/details/108689160.shtml)
-- 2026-06-29 18:48 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/29312826.shtml)
-- 2026-06-29 18:38 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/3688695218.shtml)
-- 2026-06-29 18:49 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/32854945.shtml)
-- 2026-06-29 18:47 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/179082.shtml)
-- 2026-06-29 18:54 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/212164826658.shtml)
+- 2026-06-29 18:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/388021538.shtml)
+- 2026-06-29 18:44 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/915681.shtml)
+- 2026-06-29 18:44 - [叠纸客服回应恋与深空新角色争议](https://www.blog.kurohicncr.top/Article/details/3251432.shtml)
+- 2026-06-29 18:53 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/1964712802.shtml)
+- 2026-06-29 19:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/50953150535.shtml)
+- 2026-06-29 19:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/3247194.shtml)
+- 2026-06-29 19:01 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/72827.shtml)
+- 2026-06-29 18:56 - [沙丘](http://www.blog.kurohicncr.top/Article/details/72711.shtml)
+- 2026-06-29 19:09 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/8923728.shtml)
+- 2026-06-29 18:52 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/2007403016.shtml)
+- 2026-06-29 19:06 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/470119241.shtml)
+- 2026-06-29 19:06 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/014563.shtml)
+- 2026-06-29 18:57 - [TOP Prada](https://www.share.minike.top/Article/details/78296241159.shtml)
+- 2026-06-29 18:51 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/16548063.shtml)
+- 2026-06-29 19:05 - [TFING全员黑西装](https://www.share.minike.top/Article/details/20951.shtml)

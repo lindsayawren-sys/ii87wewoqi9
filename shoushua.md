@@ -1,48 +1,58 @@
-# 第四届厦金同城生活圈论坛在厦举行：两岸校企牵手 产业新项目落地
+# 综合整治“内卷式”竞争 北京约谈17家重点平台企业
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月12日 21:25 来源：中国新闻网 6月12 日，第四届厦金同城生活圈论坛暨厦金民俗文创交流活动在福建厦门开幕。活动现场，湖里区台青创客家、海西MCN两岸青年三创基地等湖里11家台青创基地，分别与华侨大学、厦门大学嘉庚学院、福建师范大学美术学院、福建中医药大学等11所高校相关院系签署产学研战略合作协议，搭建校企联动、人才共育、成果转化的长效合作桥梁。
+中新网5月25日电 据北京市市场监督管理局网站消息，为加强平台经济监管，规范“6·18”期间平台经营行为，近日，北京市市场监管局组织召开北京市网络市场监管联席会议，对17家重点平台企业开展约谈指导。 北京市市场监管局要求，要严格落实“内卷式”竞争综合整治工作要求，杜绝在“6·18”期间开展非理性大额补贴促销活动，规范价格和广告营销行为，强化食品安全风险防控。北京市商务局强调，要
 
 ## 正文
 
-发布时间：2026年06月12日 21:25 来源：中国新闻网 6月12 日，第四届厦金同城生活圈论坛暨厦金民俗文创交流活动在福建厦门开幕。
+中新网5月25日电 据北京市市场监督管理局网站消息，为加强平台经济监管，规范“6·18”期间平台经营行为，近日，北京市市场监管局组织召开北京市网络市场监管联席会议，对17家重点平台企业开展约谈指导。
 
-活动现场，湖里区台青创客家、海西MCN两岸青年三创基地等湖里11家台青创基地，分别与华侨大学、厦门大学嘉庚学院、福建师范大学美术学院、福建中医药大学等11所高校相关院系签署产学研战略合作协议，搭建校企联动、人才共育、成果转化的长效合作桥梁。
+北京市市场监管局要求，要严格落实“内卷式”竞争综合整治工作要求，杜绝在“6·18”期间开展非理性大额补贴促销活动，规范价格和广告营销行为，强化食品安全风险防控。
 
-与此同时，《和平码头》《东风吹起正当归》两部影视项目、绿色能源研发总部、厦门荣大观商业集团有限公司、厦门三棋田国际贸易有限公司(台湾柠檬大叔)、参乌燕(厦门)生物智能科技有限公司、量子新材料制造等七大优质涉台产业项目集中落户湖里，为两岸产业集聚注入全新动能。
+北京市商务局强调，要坚守诚信经营底线，严守公平竞争经营准则，健全全流程服务体系，推动经营模式提质升级。
 
-(记者 郎佳慧) 责任编辑：【刘湃】
+北京市文化和旅游局提示，要严格落实住宿业务等资质核验要求，强化内容管控，加强产品审核，充分展示退订退费规则，妥善处理投诉。
+
+北京市通信管理局强调，要不断优化APP改进服务，加强网络售卡渠道相关资质审核，不得未经消费者同意擅自发送营销短信。
+
+北京市税务局指出，要严格落实税务信息报送规定，及时准确报送平台内经营者和从业人员信息，主动提示办理证照。
+
+北京市邮政局提示，要加强人员、运力、设备、信息系统能力储备，提高末端投递服务能力，严禁寄递违规物品。
+
+北京市版权局要求，要健全版权审核、投诉处置、侵权惩戒全链条机制，积极开展正版合规自查。
 
 ## 相关推荐
 
-- 2026-06-29 19:02 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 18:59 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 18:56 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 18:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 18:54 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 19:04 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 18:52 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 18:58 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 18:38 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 19:00 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 19:08 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 18:52 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 18:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 19:10 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 18:54 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 18:59 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 18:56 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 19:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 18:58 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 19:04 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 18:49 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 18:47 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:04 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/73417850396.shtml)
-- 2026-06-29 18:41 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/28565089.shtml)
-- 2026-06-29 19:05 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/89612.shtml)
-- 2026-06-29 19:00 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/7069452.shtml)
-- 2026-06-29 18:53 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/987175.shtml)
-- 2026-06-29 18:39 - [范志毅看好日本淘汰巴西](https://www.blog.kurohicncr.top/Article/details/051608.shtml)
-- 2026-06-29 19:01 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/591294909884.shtml)
-- 2026-06-29 18:42 - [河南高院审委会原委员曲海滨被查](http://www.blog.kurohicncr.top/Article/details/90385665.shtml)
-- 2026-06-29 18:51 - [滚石就音乐人屠颖去世事件发声明](http://www.share.kurohicncr.top/Article/details/90774282.shtml)
-- 2026-06-29 18:53 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/79237805.shtml)
-- 2026-06-29 18:56 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/0758225.shtml)
-- 2026-06-29 18:51 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/6748916930.shtml)
-- 2026-06-29 18:44 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/23840.shtml)
-- 2026-06-29 18:55 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/07778113536.shtml)
-- 2026-06-29 18:55 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/692851523658.shtml)
+- 2026-06-29 19:01 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/336076.shtml)
+- 2026-06-29 18:58 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/35570363533.shtml)
+- 2026-06-29 18:48 - [逃狱兄弟](https://www.share.minike.top/Article/details/8324093626.shtml)
+- 2026-06-29 19:06 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/2438349.shtml)
+- 2026-06-29 19:06 - [欧洲极端高温如何影响家电股](https://www.blog.minike.top/Article/details/421236455936.shtml)
+- 2026-06-29 18:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/26570474413.shtml)
+- 2026-06-29 19:08 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/925625.shtml)
+- 2026-06-29 18:55 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/1207003.shtml)
+- 2026-06-29 19:07 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/7604022.shtml)
+- 2026-06-29 19:09 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/556136582.shtml)
+- 2026-06-29 18:43 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/078965.shtml)
+- 2026-06-29 19:01 - [一见倾心](https://www.blog.minike.top/Article/details/100389551.shtml)
+- 2026-06-29 19:07 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/8853430386.shtml)
+- 2026-06-29 19:00 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/56843502299.shtml)
+- 2026-06-29 18:46 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/079161842.shtml)

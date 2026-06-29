@@ -1,57 +1,56 @@
-# ATFX:伊美谅解备忘录细节发布 原油即将突破近三月低点
+# 《中国人民银行关于修改部分规章的决定》自2026年7月1日起实施
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 6月12日，ATFX：继特朗普宣布停止对伊朗打击，并称伊朗协议已经基本完成后，伊朗媒体发布伊朗与美国14点谅解备忘录细节。其中包括，美国解除对伊朗的制裁、解除海上封锁等内容。作为比较，今日02：24之前，伊朗的官方媒体还援引消息人士的话称，伊朗“尚未批准任何与美国达成的初步谅解备忘录文本”。如今谅解备忘落地，国际原油再遭重创。 上图是美原油5分钟级别
+登录新浪财经APP 搜索【信披】查看更多考评等级 中国人民银行令〔2026〕第4号（中国人民银行关于修改部分规章的决定） 《中国人民银行关于修改部分规章的决定》已经2026年中国人民银行第3次行务会议审议通过，现予发布，自2026年7月1日起实施。 行长 潘功胜 2026年5月22日 中国人民银行关于修改部分规章的决定 为加强金融法治建设，根据市场发展实际完善银行间市场制度，中
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 6月12日，ATFX：继特朗普宣布停止对伊朗打击，并称伊朗协议已经基本完成后，伊朗媒体发布伊朗与美国14点谅解备忘录细节。
+登录新浪财经APP 搜索【信披】查看更多考评等级 中国人民银行令〔2026〕第4号（中国人民银行关于修改部分规章的决定） 《中国人民银行关于修改部分规章的决定》已经2026年中国人民银行第3次行务会议审议通过，现予发布，自2026年7月1日起实施。
 
-其中包括，美国解除对伊朗的制裁、解除海上封锁等内容。
+行长 潘功胜 2026年5月22日 中国人民银行关于修改部分规章的决定 为加强金融法治建设，根据市场发展实际完善银行间市场制度，中国人民银行决定对三件部门规章的部分条款予以修改： 一、将《全国银行间债券市场金融债券发行管理办法》（中国人民银行令〔2005〕第1号）第八条、第十三条、第二十五条删除。
 
-作为比较，今日02：24之前，伊朗的官方媒体还援引消息人士的话称，伊朗“尚未批准任何与美国达成的初步谅解备忘录文本”。
+将第二条第二款修改为“本办法所称金融机构法人，包括政策性银行、商业银行及其他金融机构”。
 
-如今谅解备忘落地，国际原油再遭重创。
+将第二十六条中“中央结算公司”的表述修改为“债券中央存管机构”。
 
-上图是美原油5分钟级别走势图-ATFX▲ 第一轮下跌出现在01：25之后的十分钟，这是美国总统特朗普表态美国将停止对伊朗的打击，并收到卡塔尔转交的伊朗协议草案的时间点。
+将第二十八条修改为“发行人应在金融债券发行前和存续期间履行信息披露义务。
 
-第二轮下跌出现在15：30之后的，持续至16：25。
+” 将第三十六条修改为“发行人应将相关信息披露文件提交至金融债券发行管理信息系统。
 
-这轮下跌的幅度3美元左右，与第一轮下跌基本持平。
+金融债券发行管理信息系统由中国人民银行指定的服务支持机构负责维护。
 
-15：30正是欧盘开始的时间，同时也是伊朗媒体披露谅解备忘录细节的时间点。
+服务支持机构应同步将信息披露文件发送至债券中央存管机构等金融基础设施运营机构，并及时将违反信息披露规定的行为向中国人民银行报告并公告。
 
 ## 相关推荐
 
-- 2026-06-29 18:56 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 18:36 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 18:54 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 19:01 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 18:59 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 18:56 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 18:42 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 18:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 18:37 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 18:53 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 18:43 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 18:51 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 18:47 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 18:47 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 18:52 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 18:57 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 18:50 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 18:58 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 18:43 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 19:10 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 19:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:00 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/93627.shtml)
-- 2026-06-29 18:47 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/421082443.shtml)
-- 2026-06-29 18:57 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/653594.shtml)
-- 2026-06-29 18:54 - [沙特外交大臣将访华](http://www.share.kurohicncr.top/Article/details/31253520.shtml)
-- 2026-06-29 18:50 - [东方风云榜](http://www.share.minike.top/Article/details/4018981055.shtml)
-- 2026-06-29 18:36 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/067966162194.shtml)
-- 2026-06-29 18:53 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/188821472377.shtml)
-- 2026-06-29 18:47 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/389791196.shtml)
-- 2026-06-29 18:45 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/104765860943.shtml)
-- 2026-06-29 18:48 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/198107.shtml)
-- 2026-06-29 18:43 - [四川地震前夕 街头电线上站满燕子](http://www.blog.kurohicncr.top/Article/details/065825490803.shtml)
-- 2026-06-29 19:01 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/94552688215.shtml)
-- 2026-06-29 18:40 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/6961214216.shtml)
-- 2026-06-29 18:51 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/233320.shtml)
-- 2026-06-29 19:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/926750590855.shtml)
+- 2026-06-29 19:00 - [法生态部长反对装空调却自己吹空调](http://www.blog.minike.top/Article/details/76132019463.shtml)
+- 2026-06-29 19:06 - [一见倾心](https://www.share.minike.top/Article/details/28873222584.shtml)
+- 2026-06-29 18:45 - [机器人学校开学了](https://www.share.minike.top/Article/details/82538890.shtml)
+- 2026-06-29 18:51 - [蔚来回应车漆洗车时被冲掉](https://www.blog.minike.top/Article/details/274881293.shtml)
+- 2026-06-29 18:58 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/66634264020.shtml)
+- 2026-06-29 18:48 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/104554373.shtml)
+- 2026-06-29 18:45 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/851437010.shtml)
+- 2026-06-29 19:05 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/648786924163.shtml)
+- 2026-06-29 18:45 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/62249.shtml)
+- 2026-06-29 19:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/473105221772.shtml)
+- 2026-06-29 18:59 - [花万元相亲对象是50元雇的演员](https://www.share.minike.top/Article/details/78542.shtml)
+- 2026-06-29 18:50 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/955055.shtml)
+- 2026-06-29 19:03 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/5124079.shtml)
+- 2026-06-29 18:49 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/9894884.shtml)
+- 2026-06-29 18:44 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/62758293.shtml)

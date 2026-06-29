@@ -1,61 +1,61 @@
-# 李子柒出任上海第48届世界技能大赛推广大使
+# 酒价内参5月25日价格发布：青花汾20下跌1元/瓶
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新社上海6月14日电 (记者 许婧)6月14日正值第48届世界技能大赛(下称：上海世赛)倒计时100天。当天，上海第48届世界技能大赛事务执行局(下称：上海世赛执行局)与世界技能组织共同对外宣布：国际知名博主李子柒出任上海世赛推广大使。 李子柒是青年演员肖战之后，上海世赛第二位推广大使。 上海世赛官方表示，世赛不仅是顶级专业的职业技能赛事，更是全球技能青年人才的盛会。邀请李子
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月25日整体微幅回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9942元，较昨日上涨3元，连续两日于低位窄幅整理，次高端品种领涨。市场在持续走弱后进入横盘修复，终端交投情绪平稳，但核心单品涨跌分化依然显著。 今日白酒市场11大单品
 
 ## 正文
 
-中新社上海6月14日电 (记者 许婧)6月14日正值第48届世界技能大赛(下称：上海世赛)倒计时100天。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月25日整体微幅回升。
 
-当天，上海第48届世界技能大赛事务执行局(下称：上海世赛执行局)与世界技能组织共同对外宣布：国际知名博主李子柒出任上海世赛推广大使。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9942元，较昨日上涨3元，连续两日于低位窄幅整理，次高端品种领涨。
 
-李子柒是青年演员肖战之后，上海世赛第二位推广大使。
+市场在持续走弱后进入横盘修复，终端交投情绪平稳，但核心单品涨跌分化依然显著。
 
-上海世赛官方表示，世赛不仅是顶级专业的职业技能赛事，更是全球技能青年人才的盛会。
+今日白酒市场11大单品六涨五跌，赢家略占上风。
 
-邀请李子柒出任上海世赛推广大使，向世界生动讲述中国技能故事，让更多人了解技能、尊重技能、热爱技能、投身技能。
+上涨方面，古井贡古20涨幅居前，上涨6元/瓶，重返530元上方；习酒君品与青花郎均上涨4元/瓶，后者收复700元整数关口；五粮液普五八代、洋河梦之蓝M6+与水晶剑南春均上涨1元/瓶。
 
-李子柒表示，未来将持续关注上海世赛，并向全球技能英才发出邀约：“以技相会，以艺出彩，共同闪耀这场世界瞩目的技能大赛。
+下跌方面，国窖1573跌幅居前，下跌6元/瓶，回落至月内次低位；茅台系飞天茅台与精品茅台均下跌3元/瓶；五粮液1618与青花汾20均下跌1元/瓶，后者回落至月内最低位，近一个月价格重心持续下移。
 
-” 由上海世赛执行局联合上海市归国华侨联合会发起的第48届世界技能大赛海外推介活动H5同日上线。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-启动海外推介活动，旨在通过侨胞网络，吸引全球公众特别是青少年关注、观看、参与上海世赛。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台(3月31日上调至1539元/瓶)，1月9日开售2299元/瓶的精品茅台(5月16日上调至2359元/瓶)，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 19:01 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 18:40 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 18:42 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 18:37 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 19:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 18:54 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 19:00 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 18:42 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 18:37 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 19:04 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 18:40 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 19:01 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 18:56 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 19:02 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 18:41 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 19:04 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 19:00 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 19:06 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 18:52 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 18:52 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 18:59 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 19:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 19:06 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 19:09 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 18:57 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 18:54 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 19:11 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 18:42 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 19:02 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 18:43 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:58 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/30516.shtml)
-- 2026-06-29 18:41 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/1731326588.shtml)
-- 2026-06-29 18:55 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/874742986895.shtml)
-- 2026-06-29 18:50 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/56181.shtml)
-- 2026-06-29 18:38 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/8340486.shtml)
-- 2026-06-29 18:50 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/95905216.shtml)
-- 2026-06-29 18:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/67662.shtml)
-- 2026-06-29 18:50 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/3921329.shtml)
-- 2026-06-29 18:37 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/753780905199.shtml)
-- 2026-06-29 18:51 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/2148486028.shtml)
-- 2026-06-29 18:50 - [税务总局披露5起合规申报个税案例](http://www.blog.minike.top/Article/details/95742088.shtml)
-- 2026-06-29 19:03 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/653540312907.shtml)
-- 2026-06-29 18:59 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/04245.shtml)
-- 2026-06-29 18:58 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/54269253.shtml)
-- 2026-06-29 18:40 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/05193.shtml)
+- 2026-06-29 18:43 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/52011546302.shtml)
+- 2026-06-29 18:53 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/496925804.shtml)
+- 2026-06-29 19:00 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/984262981690.shtml)
+- 2026-06-29 18:49 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/069738.shtml)
+- 2026-06-29 19:00 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/1944913671.shtml)
+- 2026-06-29 19:00 - [《贺子珍》](https://www.blog.minike.top/Article/details/75690692.shtml)
+- 2026-06-29 18:44 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.kurohicncr.top/Article/details/180443.shtml)
+- 2026-06-29 18:49 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/167494.shtml)
+- 2026-06-29 19:05 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/638927290683.shtml)
+- 2026-06-29 18:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/404199.shtml)
+- 2026-06-29 18:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/06119156.shtml)
+- 2026-06-29 19:03 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/514248875662.shtml)
+- 2026-06-29 18:51 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/354457.shtml)
+- 2026-06-29 19:07 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.kurohicncr.top/Article/details/567873270.shtml)
+- 2026-06-29 18:43 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/6312823887.shtml)

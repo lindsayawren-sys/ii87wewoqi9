@@ -1,59 +1,59 @@
-# 绿电点亮南博会 更连通澜湄万家灯火
+# 绿链共创 智运未来 | 中集车辆EV-BT 700型批量交付 300列战略签约再启新篇！
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月14日电 (记者 韩帅南)灵活舞动的机器人、闪耀的灯光、震撼的音响……14日，在第10届中国—南亚博览会(南博会)场馆中，这些设备都由绿色能源驱动。中国华能集团有限公司已连续4年为南博会提供全量绿电保障。 绿色电力不止点亮南博会，中国企业也将绿电带到老挝、柬埔寨、缅甸等周边国家。在柬埔寨，中国华能建成装机40万千瓦的桑河二级水电站，极大缓解当地供电不足。今年4月，
+5月20日，中集车辆联合犀重汽车，在山西大同正式向山西昌驰物流批量交付EV-BT 700型新能源头挂列车，现场同步达成300列战略签约。这是新能源商用车产业链上下游协同创新的关键举措，为区域物流低碳化、高效化发展树立全新标杆。 中集车辆集团助理总裁、中集车辆半挂车业务集团CEO舒磊博士、中集车辆中原营销服务总公司总裁郭金锁出席活动。 作为全球半挂车行业连续十三年领跑者，中集车辆
 
 ## 正文
 
-中新网昆明6月14日电 (记者 韩帅南)灵活舞动的机器人、闪耀的灯光、震撼的音响……14日，在第10届中国—南亚博览会(南博会)场馆中，这些设备都由绿色能源驱动。
+5月20日，中集车辆联合犀重汽车，在山西大同正式向山西昌驰物流批量交付EV-BT 700型新能源头挂列车，现场同步达成300列战略签约。
 
-中国华能集团有限公司已连续4年为南博会提供全量绿电保障。
+这是新能源商用车产业链上下游协同创新的关键举措，为区域物流低碳化、高效化发展树立全新标杆。
 
-绿色电力不止点亮南博会，中国企业也将绿电带到老挝、柬埔寨、缅甸等周边国家。
+中集车辆集团助理总裁、中集车辆半挂车业务集团CEO舒磊博士、中集车辆中原营销服务总公司总裁郭金锁出席活动。
 
-在柬埔寨，中国华能建成装机40万千瓦的桑河二级水电站，极大缓解当地供电不足。
+作为全球半挂车行业连续十三年领跑者，中集车辆始终以技术创新锚定 “双碳” 战略，深耕新能源头挂列车研发、制造与全生命周期服务。
 
-今年4月，中广核老挝北部清洁能源基地一期100万千瓦光伏项目并网，不仅保障当地用电，更支撑起产业升级。
+本次交付的EV-BT 700型正是新能源运输解决方案的代表作，更是推动区域大宗物流从燃油向电动化转型的标志性举措。
 
-“过去我的工厂经常用柴油发电，成本高，排烟也不环保。
+中集车辆集团助理总裁、中集车辆半挂车业务集团CEO舒磊博士在致辞中表示，中集车辆始终以新质生产力为引领，践行“星辰计划”战略，围绕新能源布局生态闭环，打造头挂列车整体解决方案，持续引领行业高质量发展。
 
-”南博会参展商黄文强来自越南南部，他对中国的绿色能源合作项目感触颇深。
+本次EV-BT 700型新能源头挂列车批量交付，是布局北方新能源重卡市场、践行“双碳”战略的重要实践。
 
-黄文强说，他的家乡风力资源丰富，但几年前却是“缺电重灾区”。
+未来中集车辆会持续深化产业链协同，深度对接地方产业规划，全力共建晋北新能源物流生态。
 
 ## 相关推荐
 
-- 2026-06-29 19:02 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 18:55 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 18:46 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 18:57 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 18:48 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 18:56 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 19:05 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 18:40 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 18:58 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 18:57 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 18:54 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 18:37 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 18:50 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 18:51 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 18:49 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 19:09 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 18:45 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 19:08 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 18:58 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 19:03 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 18:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 19:11 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 19:06 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 19:05 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 19:01 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 19:06 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/36524985.shtml)
-- 2026-06-29 18:43 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/060732774.shtml)
-- 2026-06-29 18:53 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/2732266.shtml)
-- 2026-06-29 18:36 - [AG 宫斗](http://www.share.minike.top/Article/details/9612291050.shtml)
-- 2026-06-29 18:59 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/85485707522.shtml)
-- 2026-06-29 18:50 - [人类对空调和其他家电有多双标](http://www.share.minike.top/Article/details/991724.shtml)
-- 2026-06-29 18:53 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/051044.shtml)
-- 2026-06-29 18:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/1174475147.shtml)
-- 2026-06-29 19:02 - [天柱山回应网红打卡树枝被砍](https://www.share.kurohicncr.top/Article/details/68735237.shtml)
-- 2026-06-29 18:52 - [V8](https://www.blog.minike.top/Article/details/1203152101.shtml)
-- 2026-06-29 18:42 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/446159327245.shtml)
-- 2026-06-29 18:54 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/3969050.shtml)
-- 2026-06-29 18:36 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/74867604.shtml)
-- 2026-06-29 18:43 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.minike.top/Article/details/943104039947.shtml)
-- 2026-06-29 19:05 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/14683316663.shtml)
+- 2026-06-29 18:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/500879.shtml)
+- 2026-06-29 18:49 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/804936388.shtml)
+- 2026-06-29 18:54 - [医药生物行业今日涨5.91%](http://www.blog.kurohicncr.top/Article/details/91366326.shtml)
+- 2026-06-29 19:11 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.minike.top/Article/details/96459379.shtml)
+- 2026-06-29 19:01 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/780274768042.shtml)
+- 2026-06-29 19:09 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/82441397970.shtml)
+- 2026-06-29 18:55 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/60664398786.shtml)
+- 2026-06-29 19:08 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/601949048.shtml)
+- 2026-06-29 18:46 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/5106767.shtml)
+- 2026-06-29 18:51 - [湖南耒阳“轮椅女孩”高考546分](https://www.share.kurohicncr.top/Article/details/03003.shtml)
+- 2026-06-29 18:49 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/8802928.shtml)
+- 2026-06-29 18:46 - [德国医生在没有空调的手术室工作](http://www.share.minike.top/Article/details/367949.shtml)
+- 2026-06-29 18:51 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/1997362.shtml)
+- 2026-06-29 19:02 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.minike.top/Article/details/16288570.shtml)
+- 2026-06-29 19:00 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.kurohicncr.top/Article/details/64239.shtml)

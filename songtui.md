@@ -1,61 +1,58 @@
-# 央行公开征求意见：将个人投资人认购大额存单起点金额降至不低于20万元人民币
+# “黄金再跌也不能买了！” 金价崩跌“刺破”暴富梦，投资者崩溃！金店：优惠了咋没人抢了？
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 6月12日金融一线消息，为促进大额存单市场健康发展，加强金融监管，中国人民银行就《大额存单管理办法》公开征求意见。 《办法》共24条，具体规定了大额存单发行人与投资人范围、存单要素、发行准备、发行与存续期各环节管理、信息披露及监督管理等事项。 此外，主要修订内容有： （一）以制度形式确认大额存单市场管理要求。一是根据中国人民银行
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文 | 《BUG》栏目 张奥 据纽约黄金期货数据显示，最近3个月，金价累计跌幅超13%，相当于抹去了2026年绝大部分涨幅。 国内的投资者坐不住了，“黄金要不要抄底”“黄金再跌也不能买”等话题引起广泛讨论。 如今国内的投资者呈现明显对立面。一方对黄金走势感到绝望，认为“金价仍会跌跌不休”“最失败的投资就是黄
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 6月12日金融一线消息，为促进大额存单市场健康发展，加强金融监管，中国人民银行就《大额存单管理办法》公开征求意见。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-《办法》共24条，具体规定了大额存单发行人与投资人范围、存单要素、发行准备、发行与存续期各环节管理、信息披露及监督管理等事项。
+文 | 《BUG》栏目 张奥 据纽约黄金期货数据显示，最近3个月，金价累计跌幅超13%，相当于抹去了2026年绝大部分涨幅。
 
-此外，主要修订内容有： （一）以制度形式确认大额存单市场管理要求。
+国内的投资者坐不住了，“黄金要不要抄底”“黄金再跌也不能买”等话题引起广泛讨论。
 
-一是根据中国人民银行公告〔2016〕第13号，将个人投资人认购大额存单起点金额降至不低于20万元人民币。
+如今国内的投资者呈现明显对立面。
 
-二是根据大额存单的提前支取、赎回和转让实际需要，明确第三方平台和银行自有渠道均可开展大额存单的转让、提前支取和赎回。
+一方对黄金走势感到绝望，认为“金价仍会跌跌不休”“最失败的投资就是黄金”。
 
-三是明确重大事件发生后，发行人应及时在本机构官方网站和信息披露平台进行信息披露。
+另一方则相互打气，认为“现在是抄底的最佳时机”。
 
-（二）明确监督管理要求与措施。
+此轮金价下跌也让上市公司们“摸不着头脑”。
 
-一是明确大额存单各相关业务环节的定价应符合中国人民银行发布的计结息规则，并纳入自律管理。
+对于未来走势，莱绅通灵直言：“没办法预测金价，整个珠宝甚至消费板块都处于资金流出的状态”；老凤祥则透露，金价在下跌震荡阶段，线下门店消费者的购买意愿并未显著增强，“这段时间内，消费者肯定会持观望态度。
 
 ## 相关推荐
 
-- 2026-06-29 18:57 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 18:57 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 18:49 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 18:53 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 19:01 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 18:45 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 18:37 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 18:57 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 18:57 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 18:39 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 19:02 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 19:03 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 18:47 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 18:44 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 18:43 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 18:57 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 19:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 18:45 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 18:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 18:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 19:01 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 19:06 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 18:55 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 19:06 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 19:12 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 18:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 19:10 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:38 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/874369142495.shtml)
-- 2026-06-29 18:46 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/35382790.shtml)
-- 2026-06-29 18:40 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/0188639.shtml)
-- 2026-06-29 19:04 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.minike.top/Article/details/626193580198.shtml)
-- 2026-06-29 19:02 - [小娘惹](https://www.share.kurohicncr.top/Article/details/356576.shtml)
-- 2026-06-29 18:44 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/667979491575.shtml)
-- 2026-06-29 18:50 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/378450561438.shtml)
-- 2026-06-29 18:55 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.kurohicncr.top/Article/details/113018896254.shtml)
-- 2026-06-29 18:38 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/2169584.shtml)
-- 2026-06-29 19:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/8304574702.shtml)
-- 2026-06-29 18:57 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/818322.shtml)
-- 2026-06-29 18:41 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/4202934.shtml)
-- 2026-06-29 18:59 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/104250096336.shtml)
-- 2026-06-29 18:47 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/12163017831.shtml)
-- 2026-06-29 19:04 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/9525953.shtml)
+- 2026-06-29 18:56 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/334688.shtml)
+- 2026-06-29 18:43 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/256263517.shtml)
+- 2026-06-29 18:56 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/05219735134.shtml)
+- 2026-06-29 19:04 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/8438496.shtml)
+- 2026-06-29 18:51 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/6061808.shtml)
+- 2026-06-29 18:48 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/4673839248.shtml)
+- 2026-06-29 18:54 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/67422.shtml)
+- 2026-06-29 18:45 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/117501335187.shtml)
+- 2026-06-29 19:02 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/97023574946.shtml)
+- 2026-06-29 18:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/6628824.shtml)
+- 2026-06-29 19:11 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/81203301352.shtml)
+- 2026-06-29 19:00 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/62483.shtml)
+- 2026-06-29 19:10 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/10059556108.shtml)
+- 2026-06-29 19:04 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/594785412.shtml)
+- 2026-06-29 18:55 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/171714854.shtml)

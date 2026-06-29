@@ -1,60 +1,59 @@
-# 资金悄然加仓！华宝基金电力ETF（159146）放量上涨，吸金9500万份！算力叠加高温，催化用电需求
+# “阿里山姑娘”恋上明月山：幸福分享给更多“娘家人”
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-6月15日早盘，电力板块再获资金增持！热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）放量飘红，实时成交超1亿元，资金净申购9500万份！成份股方面，广西能源领涨超6%，大唐发电、晋控电力、协鑫能科、豫能控股等多股大涨超4%。 当前算力+高温共振，电力需求持续提升。 当前算力需求正成为电力需求新的重要结构性增量。根据国家能源局数据，2025 年我国算力中
+中新网宜春5月24日电 题：“阿里山姑娘”恋上明月山：幸福分享给更多“娘家人” 中新网记者 吴鹏泉 灶火熊熊，锅铲翻飞。初夏正午，江西省宜春市明月山温汤镇水口村的“乐呵呵”农家乐饭菜飘香。“上菜啦！”一位身穿素雅花衣、操着台湾腔的姑娘，端着热气腾腾的农家菜，穿梭在餐桌之间。 这位姑娘叫杨佳蓉，来自台湾高雄，是嫁到水口村的媳妇，35岁的她与丈夫乐杰明在村里经营农家乐。公婆养鸡种菜
 
 ## 正文
 
-6月15日早盘，电力板块再获资金增持！
+中新网宜春5月24日电 题：“阿里山姑娘”恋上明月山：幸福分享给更多“娘家人” 中新网记者 吴鹏泉 灶火熊熊，锅铲翻飞。
 
-热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）放量飘红，实时成交超1亿元，资金净申购9500万份！
+初夏正午，江西省宜春市明月山温汤镇水口村的“乐呵呵”农家乐饭菜飘香。
 
-成份股方面，广西能源领涨超6%，大唐发电、晋控电力、协鑫能科、豫能控股等多股大涨超4%。
+“上菜啦！
 
-当前算力+高温共振，电力需求持续提升。
+”一位身穿素雅花衣、操着台湾腔的姑娘，端着热气腾腾的农家菜，穿梭在餐桌之间。
 
-当前算力需求正成为电力需求新的重要结构性增量。
+这位姑娘叫杨佳蓉，来自台湾高雄，是嫁到水口村的媳妇，35岁的她与丈夫乐杰明在村里经营农家乐。
 
-根据国家能源局数据，2025 年我国算力中心总量达1700 亿千瓦时，占全社会用电量的1.6%，到2030 年预计达8000 亿千瓦时，占全社会用电量6%左右，且AIDC 用电具备持续性、稳定性和高耗能特征，与传统季节性负荷不同，其对电力系统的影响更偏中长期、结构性。
+公婆养鸡种菜，丈夫掌勺采购，杨佳蓉负责外场，偶尔进厨房配菜，日子过得红火又安稳。
 
-5月份以来全国多地陆续进入高温季，根据国家发改委5 月新闻发布会，今夏全国大部分地区气温较常年同期偏高，高温天气将大幅增加空调降温用电需求，综合研判今夏全国最高用电负荷将达到16亿千瓦左右，较去年增加9000 万千瓦左右。
+“今年‘五一’假期生意超好的，从上午忙到晚上，单日最多接待15桌客人，假期营业额近3万元。
 
-高温天气叠加厄尔尼诺催化，电力量价弹性有望同步释放。
+”生活虽忙碌，杨佳蓉心中却满是“温馨幸福”。
 
 ## 相关推荐
 
-- 2026-06-29 18:57 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 18:52 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 18:36 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 19:01 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 18:48 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 19:05 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 18:47 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 18:46 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 18:53 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 18:43 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 18:45 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 18:52 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 19:00 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 18:49 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 18:43 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 18:53 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 18:55 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 18:52 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 19:04 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 19:05 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 18:47 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 19:05 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 18:51 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 18:43 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 19:06 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 19:02 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 18:45 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:37 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/6325188.shtml)
-- 2026-06-29 18:42 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/690101901904.shtml)
-- 2026-06-29 19:02 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/16132.shtml)
-- 2026-06-29 18:55 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/47424969.shtml)
-- 2026-06-29 18:52 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/861079540.shtml)
-- 2026-06-29 18:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/14702529.shtml)
-- 2026-06-29 18:51 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/361181814368.shtml)
-- 2026-06-29 19:04 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/389300755483.shtml)
-- 2026-06-29 18:42 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/6255183.shtml)
-- 2026-06-29 18:45 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/72413026.shtml)
-- 2026-06-29 18:50 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/5639526584.shtml)
-- 2026-06-29 18:47 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/650655.shtml)
-- 2026-06-29 18:43 - [沙特外交大臣将访华](https://www.share.minike.top/Article/details/410969482979.shtml)
-- 2026-06-29 19:03 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/354318.shtml)
-- 2026-06-29 18:55 - [四川达州发生一起交通事故致2死](https://www.share.minike.top/Article/details/597942.shtml)
+- 2026-06-29 18:43 - [扬名立万](http://www.blog.minike.top/Article/details/11173141.shtml)
+- 2026-06-29 18:44 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/294150874.shtml)
+- 2026-06-29 19:06 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/1415421.shtml)
+- 2026-06-29 18:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/17348862033.shtml)
+- 2026-06-29 18:54 - [学者：建设性战略稳定重塑中美关系](http://www.share.kurohicncr.top/Article/details/576060431.shtml)
+- 2026-06-29 18:48 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/73048516810.shtml)
+- 2026-06-29 18:52 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/274064598125.shtml)
+- 2026-06-29 18:45 - [周杰伦演唱会含星量](http://www.blog.kurohicncr.top/Article/details/47028637.shtml)
+- 2026-06-29 18:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/0983640949.shtml)
+- 2026-06-29 18:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/26034.shtml)
+- 2026-06-29 18:42 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/097839705773.shtml)
+- 2026-06-29 18:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/90399036986.shtml)
+- 2026-06-29 18:43 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/0810258904.shtml)
+- 2026-06-29 18:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/00730886215.shtml)
+- 2026-06-29 19:09 - [欧洲极端高温如何影响家电股](https://www.blog.kurohicncr.top/Article/details/56583.shtml)

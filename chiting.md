@@ -1,59 +1,56 @@
-# 暑期不知道带娃去哪？首钢滑雪大跳台活动上新
+# 遭特朗普点名施压 美国企业小心翼翼加入关税退款争夺
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网北京6月13日电 作为京西地标之一的首钢滑雪大跳台又迎来新活动落地。据记者了解，由首钢集团和首文科集团合作推出，中国杂技团有限公司和首钢园联合打造的“移动剧院”近日落地首钢滑雪大跳台，该“移动剧院”占地约5500平方米，可容纳1600个座席。 据悉本次演出季从6月13日持续至10月25日，覆盖端午、中秋、国庆等消费黄金档期，日前已正式开票，平均票价维持在百元水平。围绕不同
+对美国企业而言，有一条可能利好盈利和通胀前景的消息，却让它们在公开表态时格外谨慎。 媒体对罗素3000指数成分股公司的分析显示，在最近的公开讲话和监管文件中，约3000家美国市值最大的上市公司中，只有约5%提及了与美国总统唐纳德·特朗普现已被裁定违法的关税相关的“退款”问题。 美国海关与边境保护局已于4月20日开通退款通道，面向超过33万家企业。这些企业此前因特朗普援引《国际紧
 
 ## 正文
 
-中新网北京6月13日电 作为京西地标之一的首钢滑雪大跳台又迎来新活动落地。
+对美国企业而言，有一条可能利好盈利和通胀前景的消息，却让它们在公开表态时格外谨慎。
 
-据记者了解，由首钢集团和首文科集团合作推出，中国杂技团有限公司和首钢园联合打造的“移动剧院”近日落地首钢滑雪大跳台，该“移动剧院”占地约5500平方米，可容纳1600个座席。
+媒体对罗素3000指数成分股公司的分析显示，在最近的公开讲话和监管文件中，约3000家美国市值最大的上市公司中，只有约5%提及了与美国总统唐纳德·特朗普现已被裁定违法的关税相关的“退款”问题。
 
-据悉本次演出季从6月13日持续至10月25日，覆盖端午、中秋、国庆等消费黄金档期，日前已正式开票，平均票价维持在百元水平。
+美国海关与边境保护局已于4月20日开通退款通道，面向超过33万家企业。
 
-围绕不同受众群体，本次三部原创IP作品将开启驻场演出，通过杂技艺术将城市文化邀约转化为可感可及的艺术现场。
+这些企业此前因特朗普援引《国际紧急经济权力法》（IEEPA）而缴纳了进口关税。
 
-作为开幕季核心演出，《京核·无界》作品将高难度杂技与当代音乐、沉浸式光影装置融合，展现了舞台艺术的力量。
+首批退款到账速度出乎意料之快，部分公司已将相关收益计入账目。
 
-此外，面向暑期以家庭为单位前来的观众，亲子儿童剧以童趣叙事包裹杂技技艺，将京味元素与成长主题完成融合。
+也有企业表示，可能还需要至少再等一到两个季度，才能披露更具体的情况。
 
-“这是我第一次现场看杂技演出，还是很震撼的。
+企业保持谨慎并非没有理由。
 
-演员们协作表演挑战极限，可能是杂技最吸引人的地方。
+围绕最高可达1660亿美元、外加利息的退款争夺，伴随着潜在的政治和法律风险。
 
 ## 相关推荐
 
-- 2026-06-29 18:48 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 19:00 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 18:57 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 18:46 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 18:49 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 19:01 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 18:43 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 18:36 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 18:51 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 18:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 18:55 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 18:50 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 18:59 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 19:05 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 18:44 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 18:46 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 19:00 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 18:48 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 18:44 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 18:49 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 19:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 18:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 18:53 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:47 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/06621795291.shtml)
-- 2026-06-29 18:38 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/14230774.shtml)
-- 2026-06-29 18:56 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/242370309.shtml)
-- 2026-06-29 18:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/744627925.shtml)
-- 2026-06-29 18:45 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/648444003101.shtml)
-- 2026-06-29 18:57 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/3418924.shtml)
-- 2026-06-29 18:44 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/5095165650.shtml)
-- 2026-06-29 18:48 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/94286753.shtml)
-- 2026-06-29 18:46 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/9552569.shtml)
-- 2026-06-29 18:49 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.kurohicncr.top/Article/details/54998201122.shtml)
-- 2026-06-29 18:56 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/2444436908.shtml)
-- 2026-06-29 18:50 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/17450642757.shtml)
-- 2026-06-29 19:04 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/329421.shtml)
-- 2026-06-29 18:52 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/573165554.shtml)
-- 2026-06-29 18:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/4118075.shtml)
+- 2026-06-29 18:59 - [沙特外交大臣将访华](http://www.share.minike.top/Article/details/04949252.shtml)
+- 2026-06-29 18:59 - [夏天被这些虫子咬了可能致命](http://www.blog.minike.top/Article/details/7313933.shtml)
+- 2026-06-29 19:00 - [RAY评乘风2026总决赛](http://www.blog.minike.top/Article/details/820266014953.shtml)
+- 2026-06-29 18:51 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.minike.top/Article/details/26048768.shtml)
+- 2026-06-29 19:11 - [小众羞耻点是吃麻辣烫](http://www.blog.kurohicncr.top/Article/details/6751962.shtml)
+- 2026-06-29 18:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/3895093292.shtml)
+- 2026-06-29 19:07 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/53861726.shtml)
+- 2026-06-29 18:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/30232.shtml)
+- 2026-06-29 18:56 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/59115643907.shtml)
+- 2026-06-29 18:52 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/53385542.shtml)
+- 2026-06-29 18:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/5348972681.shtml)
+- 2026-06-29 18:55 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/48058373660.shtml)
+- 2026-06-29 19:05 - [河南高院审委会原委员曲海滨被查](http://www.share.minike.top/Article/details/49925445.shtml)
+- 2026-06-29 18:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/5743078.shtml)
+- 2026-06-29 18:45 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/98354079773.shtml)

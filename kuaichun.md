@@ -1,60 +1,57 @@
-# 重庆北碚山水“治愈”记：一湖黛色万类生机
+# 上海信托董事长崔炳文：信托制度填补养老金融“最后一公里”
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月12日电 题：重庆北碚山水“治愈”记：一湖黛色万类生机 作者 梁钦卿 “西方有石名黛，可代画眉之墨。”藏于重庆北碚缙云山半山腰的黛湖，因湖水澄澈如黛、青山环伺如画而得名，是缙云山生态肌理中最灵动的一抹亮色。 12日，“2026海外华媒侨领川渝行——聚焦成渝地区双城经济圈建设”联合参访活动走进黛湖，了解北碚区坚守生态优先的生动实践。 早在1931年，爱国实业家卢作孚
+原标题：专访上海信托董事长崔炳文：信托制度填补养老金融“最后一公里” 21世纪经济报道记者 杨梦雪 “养老金融不仅仅是理财产品的简单堆叠，更不是单纯的账户开立。老年人真正需要的是什么？是医疗照护，是突发事项的安排，是财产传承的保障，是失能失智后的安心。而这些，恰恰是当前养老金融供给中最为薄弱的短板，最为迫切的需求。”浦发银行党委委员、副行长，上海信托董事长崔炳文这样形容当前养老
 
 ## 正文
 
-中新网重庆6月12日电 题：重庆北碚山水“治愈”记：一湖黛色万类生机 作者 梁钦卿 “西方有石名黛，可代画眉之墨。
+原标题：专访上海信托董事长崔炳文：信托制度填补养老金融“最后一公里” 21世纪经济报道记者 杨梦雪 “养老金融不仅仅是理财产品的简单堆叠，更不是单纯的账户开立。
 
-”藏于重庆北碚缙云山半山腰的黛湖，因湖水澄澈如黛、青山环伺如画而得名，是缙云山生态肌理中最灵动的一抹亮色。
+老年人真正需要的是什么？
 
-12日，“2026海外华媒侨领川渝行——聚焦成渝地区双城经济圈建设”联合参访活动走进黛湖，了解北碚区坚守生态优先的生动实践。
+是医疗照护，是突发事项的安排，是财产传承的保障，是失能失智后的安心。
 
-早在1931年，爱国实业家卢作孚组织修建黛湖，水域面积约2万平方米，总库容12.5万立方米。
+而这些，恰恰是当前养老金融供给中最为薄弱的短板，最为迫切的需求。
 
-该湖是我国藻类基因宝库，约有20属、140余种，占我国鼓藻记录的70%，有“水生鼓藻植物宝库”之称。
+”浦发银行党委委员、副行长，上海信托董事长崔炳文这样形容当前养老金融的供需问题。
 
-曾经，这里因文旅无序开发陷入生态困境，长期的人为侵扰、污水排放、植被破坏，让这片天然湖泊水质受损、生态失衡，绿水青山的原生底色逐渐黯淡。
+近年来，中国养老金融市场呈现出从单一理财供给向全场景综合服务转型的演变趋势。
 
-守护绿水青山，方能激活永续价值。
+在这一进程中，信托制度凭借其法定财产隔离、多元资产装入与代际传承等功能，正逐步填补传统金融机构难以触及的服务空白。
 
-2019年，北碚组织实施黛湖周边生态修复，围绕山水林湖草运用“山地溪塘复合生态系统”理念，对黛湖系统治理，栽植乔木、灌木、水生植物80余种，栽植面积2.89万平方米，恢复水域面积1.79万平方米，重塑山水肌理。
+养老服务信托凭借怎样的制度优势逐渐走到“台前”？
 
 ## 相关推荐
 
-- 2026-06-29 18:39 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 18:39 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 18:55 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 18:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 18:48 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 18:39 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 19:05 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 18:44 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 18:59 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 18:59 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 18:37 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 18:45 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 19:02 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 18:59 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 19:04 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 18:43 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 18:51 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 19:08 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 19:11 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 19:03 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 18:50 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 19:11 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 18:47 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 18:45 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 18:53 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:39 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/59867416153.shtml)
-- 2026-06-29 18:36 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/413614315238.shtml)
-- 2026-06-29 18:47 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/458823459.shtml)
-- 2026-06-29 18:54 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/31103788162.shtml)
-- 2026-06-29 19:05 - [人类对空调和其他家电有多双标](http://www.share.kurohicncr.top/Article/details/146188582.shtml)
-- 2026-06-29 19:01 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/054833215514.shtml)
-- 2026-06-29 18:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/01804157.shtml)
-- 2026-06-29 18:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/13254485556.shtml)
-- 2026-06-29 19:00 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/30000042.shtml)
-- 2026-06-29 18:37 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/771571629.shtml)
-- 2026-06-29 18:51 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/91853237702.shtml)
-- 2026-06-29 18:54 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/10055.shtml)
-- 2026-06-29 18:45 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/180778170.shtml)
-- 2026-06-29 18:47 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/692891938.shtml)
-- 2026-06-29 19:02 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/9345161.shtml)
+- 2026-06-29 19:11 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/901327930.shtml)
+- 2026-06-29 18:48 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/599038719096.shtml)
+- 2026-06-29 18:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/94980308.shtml)
+- 2026-06-29 18:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/23098.shtml)
+- 2026-06-29 18:49 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/562333030456.shtml)
+- 2026-06-29 18:53 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/062910.shtml)
+- 2026-06-29 18:43 - [断骨增高灰产拉一人提成1.5万元](https://www.share.kurohicncr.top/Article/details/67784.shtml)
+- 2026-06-29 19:05 - [RAY评乘风2026总决赛](https://www.blog.minike.top/Article/details/111225.shtml)
+- 2026-06-29 18:55 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/28321858762.shtml)
+- 2026-06-29 18:57 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/506006874.shtml)
+- 2026-06-29 19:02 - [急先锋](https://www.share.minike.top/Article/details/9316393134.shtml)
+- 2026-06-29 18:51 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/037941.shtml)
+- 2026-06-29 18:55 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/613776093015.shtml)
+- 2026-06-29 18:55 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/9040129461.shtml)
+- 2026-06-29 19:02 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/69963447127.shtml)

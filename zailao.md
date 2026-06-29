@@ -1,58 +1,61 @@
-# 反无人机需求激增，防务技术行业从防御转向主动出击
+# 资本市场防假打假新格局加快形成
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-随着无人机在战场上的威胁持续升级，全球反无人机市场正迎来前所未有的增长。2026年全球反无人机系统支出将达到126亿美元，预计到2030年将增长至241亿美元，年复合增长率约为18%。这一轮增长的核心驱动力，是反无人机技术正从单一的被动防御，转向融合人工智能的主动探测与拦截体系。 美国国防部在2026财年已专门拨出31亿美元用于反小型无人机系统的预算。需求不仅在军事领域爆发，在
+登录新浪财经APP 搜索【信披】查看更多考评等级 ● 本报记者 昝秀丽 近期，多家上市公司因信息披露违法违规被证监会立案，或收到行政处罚决定书。监管部门依法从严从快、全链条追诉、严肃查处一批财务造假、欺诈发行案件，凸显监管部门整肃净化市场环境的坚决态度，起到警示震慑效果。 市场人士认为，随着打击和防范上市公司财务造假专项行动深入推进，跨部门协同机制不断完善，行政、民事、刑事多重
 
 ## 正文
 
-随着无人机在战场上的威胁持续升级，全球反无人机市场正迎来前所未有的增长。
+登录新浪财经APP 搜索【信披】查看更多考评等级 ● 本报记者 昝秀丽 近期，多家上市公司因信息披露违法违规被证监会立案，或收到行政处罚决定书。
 
-2026年全球反无人机系统支出将达到126亿美元，预计到2030年将增长至241亿美元，年复合增长率约为18%。
+监管部门依法从严从快、全链条追诉、严肃查处一批财务造假、欺诈发行案件，凸显监管部门整肃净化市场环境的坚决态度，起到警示震慑效果。
 
-这一轮增长的核心驱动力，是反无人机技术正从单一的被动防御，转向融合人工智能的主动探测与拦截体系。
+市场人士认为，随着打击和防范上市公司财务造假专项行动深入推进，跨部门协同机制不断完善，行政、民事、刑事多重惩戒同步发力，多部门正合力围剿“造假生态圈”，“不敢造假、不能造假、不想造假”的市场生态加速形成。
 
-美国国防部在2026财年已专门拨出31亿美元用于反小型无人机系统的预算。
+让造假者人财两空 近期，监管部门接连开出罚单，多家上市公司因财务造假被严肃追责，不仅面临巨额罚款，相关责任人也难逃市场禁入乃至刑事追责，真正让造假者“人财两空”。
 
-需求不仅在军事领域爆发，在民用领域同样紧迫——例如，2026年FIFA世界杯的多处场馆也已部署了专门的反无人机安防系统。
+5月22日，ST如意（维权）及相关当事人收到山东证监局下发的行政处罚决定书。
 
-在这场技术竞赛中，多家纳斯达克上市公司正通过各自的技术路线抢占市场。
+因定期报告存在虚假记载，证监会决定对ST如意给予警告并处以700万元罚款，对其他当事人给予不同程度处罚。
 
-Kratos Defense & Security Solutions Inc．近期获得了美国太空军一份潜在价值4.468亿美元的合同，用于开发高超音速导弹跟踪系统，凸显了其在高端防务领域的整合能力。
+ST葫芦娃（维权）5月20日收到海南证监局下发的行政处罚事先告知书，因定期报告涉嫌虚假记载，海南证监局拟对ST葫芦娃给予警告，并处以700万元罚款，对其他当事人给予不同程度处罚。
 
-Ondas Holdings Inc．通过其子公司获得了数百万美元的合同，为2026年FIFA世界杯的多个美加墨场馆提供基于射频网络协议的反无人机技术。
+严惩欺诈发行，坚决阻断发行上市“带病闯关”。
 
 ## 相关推荐
 
-- 2026-06-29 18:40 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 18:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 18:51 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 18:45 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 19:05 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 18:55 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 18:46 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 18:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 18:51 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 18:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 18:44 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 19:02 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 19:01 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 18:47 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 18:54 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 19:00 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 18:53 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 19:08 - [大学专业未来如何洗牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 19:06 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 19:04 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 19:07 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 18:52 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 18:50 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 18:50 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 18:42 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 19:00 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 18:45 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:39 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/3484047.shtml)
-- 2026-06-29 18:38 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/8709344.shtml)
-- 2026-06-29 18:49 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/4402643.shtml)
-- 2026-06-29 18:45 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/72746367.shtml)
-- 2026-06-29 18:41 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/085433.shtml)
-- 2026-06-29 19:01 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/80058594957.shtml)
-- 2026-06-29 19:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/940860343616.shtml)
-- 2026-06-29 19:05 - [V8](https://www.blog.kurohicncr.top/Article/details/558165615175.shtml)
-- 2026-06-29 18:37 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/459498.shtml)
-- 2026-06-29 18:49 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/667752771.shtml)
-- 2026-06-29 18:45 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.kurohicncr.top/Article/details/917102007569.shtml)
-- 2026-06-29 18:40 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/6299978.shtml)
-- 2026-06-29 18:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/58974998.shtml)
-- 2026-06-29 18:59 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/00350471490.shtml)
-- 2026-06-29 18:49 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/045761835.shtml)
+- 2026-06-29 19:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/700549975441.shtml)
+- 2026-06-29 19:01 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.kurohicncr.top/Article/details/7811565930.shtml)
+- 2026-06-29 19:00 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/2207237.shtml)
+- 2026-06-29 18:52 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/0148181.shtml)
+- 2026-06-29 18:56 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/3625130.shtml)
+- 2026-06-29 19:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/65827972.shtml)
+- 2026-06-29 18:45 - [周杰伦演唱会含星量](http://www.share.kurohicncr.top/Article/details/1526509809.shtml)
+- 2026-06-29 18:49 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/75588.shtml)
+- 2026-06-29 18:58 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/8695746221.shtml)
+- 2026-06-29 19:03 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/810925448218.shtml)
+- 2026-06-29 19:10 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/2833463099.shtml)
+- 2026-06-29 19:03 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/20257705.shtml)
+- 2026-06-29 18:45 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/0982455237.shtml)
+- 2026-06-29 19:02 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/30323190.shtml)
+- 2026-06-29 19:01 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.minike.top/Article/details/52642.shtml)

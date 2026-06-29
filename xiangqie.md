@@ -1,57 +1,42 @@
-# 暴拉5%，“牛市旗手”启动？4股涨停，东方财富涨近8%！顶流券商ETF华宝（512000）连续上攻
+# 山西留神峪煤矿生产能力每年120万吨
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-6月15日，券商再度走强，截至发稿，华安证券、长江证券涨停，中银证券、财达证券两连板，东方财富涨近8%，广发证券、招商证券等涨幅居前。规模360亿元+的顶流券商ETF华宝（512000）继上周五大涨3.5%，今日实时场内价格再涨5%。 行情驱动看，A股市场热度居高不下，此前上交所数据显示，2026年5月A股新开户276.53万户，同比2025年5月的155.56万户增长77.7
+发布时间：2026年05月23日 20:25 来源：中国新闻网 责任编辑：【李骏】
 
 ## 正文
 
-6月15日，券商再度走强，截至发稿，华安证券、长江证券涨停，中银证券、财达证券两连板，东方财富涨近8%，广发证券、招商证券等涨幅居前。
-
-规模360亿元+的顶流券商ETF华宝（512000）继上周五大涨3.5%，今日实时场内价格再涨5%。
-
-行情驱动看，A股市场热度居高不下，此前上交所数据显示，2026年5月A股新开户276.53万户，同比2025年5月的155.56万户增长77.76%。
-
-2026年累计新开1729.68万户，同比增长57.94%，按此速度推算，2026全年A股新开户有望突破3000万户大关。
-
-与此同时，5月杠杆资金入市明显加快，两融余额2.8万亿再创历史新高。
-
-市场热度维持高位，支撑券商板块基本面延续高景气。
-
-券商并购重组密集落地，6月2日东吴证券披露收购东海证券草案，整合事项进入实质性推进阶段；6月8日中金公司公告称，换股吸收合并东兴证券、信达证券相关议案均经股东会审议通过。
-
-券商板块整合预期进一步抬升，券业加速出清、存量资源整合提速，行业整体竞争力、市场集中度有望稳步抬升。
+发布时间：2026年05月23日 20:25 来源：中国新闻网 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-29 19:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 19:00 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 18:55 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 19:02 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 18:47 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 18:59 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 18:59 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 18:59 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 18:39 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 18:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 18:47 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 18:52 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 18:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 19:11 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 18:45 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 19:07 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 18:53 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 18:48 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 19:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 18:44 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 18:52 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:40 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.minike.top/Article/details/1281862531.shtml)
-- 2026-06-29 18:50 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/5151935857.shtml)
-- 2026-06-29 18:43 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/5345308.shtml)
-- 2026-06-29 19:02 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/5082318432.shtml)
-- 2026-06-29 18:53 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/77782.shtml)
-- 2026-06-29 18:51 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/4506027910.shtml)
-- 2026-06-29 18:54 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/981983.shtml)
-- 2026-06-29 18:48 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/5902547.shtml)
-- 2026-06-29 18:45 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/65024528463.shtml)
-- 2026-06-29 18:47 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/737231.shtml)
-- 2026-06-29 18:46 - [逆天祖国人](http://www.share.minike.top/Article/details/4073713074.shtml)
-- 2026-06-29 18:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/524334.shtml)
-- 2026-06-29 18:36 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/140983850.shtml)
-- 2026-06-29 19:05 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/072796835.shtml)
-- 2026-06-29 18:41 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/972260.shtml)
+- 2026-06-29 18:56 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/770470128.shtml)
+- 2026-06-29 18:59 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.kurohicncr.top/Article/details/8476284274.shtml)
+- 2026-06-29 18:57 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/946732.shtml)
+- 2026-06-29 19:03 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/347277.shtml)
+- 2026-06-29 18:51 - [千与千寻](https://www.blog.minike.top/Article/details/281289177.shtml)
+- 2026-06-29 18:50 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/9787555799.shtml)
+- 2026-06-29 19:05 - [《新闻联播》正在直播](https://www.blog.kurohicncr.top/Article/details/9807769.shtml)
+- 2026-06-29 18:59 - [娜扎搂着我的腰和我合照](https://www.share.kurohicncr.top/Article/details/67635.shtml)
+- 2026-06-29 19:10 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/6850927.shtml)
+- 2026-06-29 18:48 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/160438732.shtml)
+- 2026-06-29 18:59 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/1057195.shtml)
+- 2026-06-29 19:00 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/019532205.shtml)
+- 2026-06-29 19:01 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/85054.shtml)
+- 2026-06-29 18:45 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/022422.shtml)
+- 2026-06-29 18:50 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/7317097548.shtml)

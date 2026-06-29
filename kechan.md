@@ -1,58 +1,43 @@
-# 水电现货入市：能力分化重塑行业生态
+# 伊朗媒体披露更多潜在谅解备忘录内容
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-近期，广州电力交易中心发布的《南方区域电力现货市场正式运行实施方案（2026年）》（征求意见稿）中，“金沙江、澜沧江流域27家水电厂报量报价参与”的条款，被外界解读为水电行业告别“旱涝保收”的标志。但比“告别躺赚”更值得关注的，是水电的“调节能力”在现货市场上形成了竞争优势。小湾、糯扎渡等大型水电站多年积累的库容调节优势，终于可以在价格信号下兑现为真金白银。而没有调节能力的中小
+发布时间：2026年05月25日 10:54 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-近期，广州电力交易中心发布的《南方区域电力现货市场正式运行实施方案（2026年）》（征求意见稿）中，“金沙江、澜沧江流域27家水电厂报量报价参与”的条款，被外界解读为水电行业告别“旱涝保收”的标志。
-
-但比“告别躺赚”更值得关注的，是水电的“调节能力”在现货市场上形成了竞争优势。
-
-小湾、糯扎渡等大型水电站多年积累的库容调节优势，终于可以在价格信号下兑现为真金白银。
-
-而没有调节能力的中小水电，开始承受市场化带来的真实压力。
-
-调节能力变现过去，无论水库多大、调节能力多强，水电厂只能按计划发电，无法根据价格高低灵活安排出力。
-
-现在，它们可以在现货市场中主动申报电量和价格，在低谷期蓄水、高峰期放水，实现“择时发电”。
-
-澜沧江流域的小湾、糯扎渡等梯级水电站群，拥有南方区域最强中长期调节能力。
-
-小湾具备不完全多年调节能力，糯扎渡具有多年调节能力——这意味着它们可以在调度规则允许的范围内，根据供需变化和价格波动优化发电计划。
+发布时间：2026年05月25日 10:54 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 19:05 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 18:54 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 18:39 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 18:56 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 18:49 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 18:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 18:54 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 18:43 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 18:45 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 19:01 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 18:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 18:52 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 19:05 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 19:02 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 19:05 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 19:09 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 19:04 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 19:01 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 18:46 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 19:04 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 18:53 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 18:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 19:11 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:59 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/848616.shtml)
-- 2026-06-29 18:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/685452.shtml)
-- 2026-06-29 18:50 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/7861413.shtml)
-- 2026-06-29 18:41 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/83537956363.shtml)
-- 2026-06-29 18:59 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/9333649.shtml)
-- 2026-06-29 18:43 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/86981711350.shtml)
-- 2026-06-29 18:41 - [世界杯在中国观看最多的比赛](https://www.blog.kurohicncr.top/Article/details/135035096.shtml)
-- 2026-06-29 19:02 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/03388475.shtml)
-- 2026-06-29 18:59 - [急先锋](http://www.blog.kurohicncr.top/Article/details/36147.shtml)
-- 2026-06-29 18:58 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/541809066.shtml)
-- 2026-06-29 19:01 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/92610428292.shtml)
-- 2026-06-29 18:36 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/15289.shtml)
-- 2026-06-29 18:54 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/31110088.shtml)
-- 2026-06-29 19:01 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/59509796183.shtml)
-- 2026-06-29 18:52 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.kurohicncr.top/Article/details/764232.shtml)
+- 2026-06-29 18:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/98757.shtml)
+- 2026-06-29 18:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/3772846034.shtml)
+- 2026-06-29 18:44 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/37733.shtml)
+- 2026-06-29 19:01 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/140094915755.shtml)
+- 2026-06-29 19:01 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/6637825428.shtml)
+- 2026-06-29 18:46 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/3878891115.shtml)
+- 2026-06-29 19:06 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/6937144440.shtml)
+- 2026-06-29 19:08 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/80083691.shtml)
+- 2026-06-29 19:08 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/810571.shtml)
+- 2026-06-29 18:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/578609.shtml)
+- 2026-06-29 19:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/569445.shtml)
+- 2026-06-29 19:03 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/39070.shtml)
+- 2026-06-29 19:05 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/7759674880.shtml)
+- 2026-06-29 18:55 - [我和我的家乡](https://www.share.minike.top/Article/details/551524635.shtml)
+- 2026-06-29 18:54 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/3216263191.shtml)

@@ -1,59 +1,54 @@
-# 软件股迈向二十年来最长连跌 AI扰动之忧再度来袭
+# 续写飞虎情谊 美中航空遗产基金会捐助广西柳州地震灾区
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-软件公司股价周五下跌，延续了近期的低迷走势，该板块正迈向约二十年来最长的连跌纪录。 安硕扩展科技-软件部门ETF在纽约下跌约1%。如果今天继续收跌，则将是该股连续第九个交易日下跌——这会是自上一次于2006年6月结束的九天连跌以来最长的连跌纪录。 这一作为软件行业常用指标的ETF在过去九天的重挫中跌幅超过16%。这再度表明，由于对AI相关扰动的担忧，市场对该板块的信心持续下降。
+发布时间：2026年05月23日 10:17 来源：中国新闻网 “飞虎精神就是守望相助、患难与共。跨越山海，情谊永存。”5月22日，美中航空遗产基金会主席杰夫·格林在致广西柳州的慰问信中表示。当天，美中航空遗产基金会联合广西味乐美餐饮集团有限公司，向柳州市地震灾区捐赠10万元人民币与一批价值10万元的物资。二战期间，柳州是飞虎队驻守的重要基地和战场之一，基金会成员中也有当年驻扎
 
 ## 正文
 
-软件公司股价周五下跌，延续了近期的低迷走势，该板块正迈向约二十年来最长的连跌纪录。
+发布时间：2026年05月23日 10:17 来源：中国新闻网 “飞虎精神就是守望相助、患难与共。
 
-安硕扩展科技-软件部门ETF在纽约下跌约1%。
+跨越山海，情谊永存。
 
-如果今天继续收跌，则将是该股连续第九个交易日下跌——这会是自上一次于2006年6月结束的九天连跌以来最长的连跌纪录。
+”5月22日，美中航空遗产基金会主席杰夫·格林在致广西柳州的慰问信中表示。
 
-这一作为软件行业常用指标的ETF在过去九天的重挫中跌幅超过16%。
+当天，美中航空遗产基金会联合广西味乐美餐饮集团有限公司，向柳州市地震灾区捐赠10万元人民币与一批价值10万元的物资。
 
-这再度表明，由于对AI相关扰动的担忧，市场对该板块的信心持续下降。
+二战期间，柳州是飞虎队驻守的重要基地和战场之一，基金会成员中也有当年驻扎柳州的飞虎队员。
 
-奥多比是导致板块走弱的最新催化剂。
+他们与柳州民众结下深厚的“飞虎情谊”。
 
-分析人士称该公司的业绩令市场更加担忧AI对其未来增长的影响。
-
-受此影响，这家面向创意从业者的软件制造商周五股价下跌7.7%。
+(林馨 陈梅 制作 王佳琪） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 18:54 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 18:46 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 18:52 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 19:03 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 18:43 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 18:44 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 18:47 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 19:05 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 18:37 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 18:37 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 18:48 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 18:41 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 18:45 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 18:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 18:58 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 19:10 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 19:04 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 19:06 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 18:54 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 18:54 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 19:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 18:49 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 18:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:52 - [流金岁月](http://www.share.minike.top/Article/details/2853872.shtml)
-- 2026-06-29 19:03 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/52580431.shtml)
-- 2026-06-29 18:55 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/809466988305.shtml)
-- 2026-06-29 18:42 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/72530335995.shtml)
-- 2026-06-29 18:54 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/534681658380.shtml)
-- 2026-06-29 19:02 - [博主：AI泡沫必须破灭](http://www.blog.kurohicncr.top/Article/details/438391469.shtml)
-- 2026-06-29 18:42 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/496366.shtml)
-- 2026-06-29 18:38 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/37424.shtml)
-- 2026-06-29 19:03 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.kurohicncr.top/Article/details/48761.shtml)
-- 2026-06-29 18:52 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/8633290.shtml)
-- 2026-06-29 19:02 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/7047848014.shtml)
-- 2026-06-29 19:03 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/34176496038.shtml)
-- 2026-06-29 18:36 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/962557.shtml)
-- 2026-06-29 18:51 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/691369975.shtml)
-- 2026-06-29 19:01 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/23023.shtml)
+- 2026-06-29 18:48 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/8347218889.shtml)
+- 2026-06-29 18:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/8745737.shtml)
+- 2026-06-29 18:43 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/3981956020.shtml)
+- 2026-06-29 18:58 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/009132789.shtml)
+- 2026-06-29 19:08 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/91525264484.shtml)
+- 2026-06-29 18:46 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/0066548756.shtml)
+- 2026-06-29 19:01 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/880464.shtml)
+- 2026-06-29 18:48 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/34558.shtml)
+- 2026-06-29 18:47 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.minike.top/Article/details/503962141015.shtml)
+- 2026-06-29 18:44 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/095345047.shtml)
+- 2026-06-29 18:42 - [起风了](https://www.share.kurohicncr.top/Article/details/14958.shtml)
+- 2026-06-29 19:02 - [送你一朵小红花](http://www.share.minike.top/Article/details/162050.shtml)
+- 2026-06-29 18:49 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/5020544573.shtml)
+- 2026-06-29 18:56 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/672110792820.shtml)
+- 2026-06-29 19:10 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/321878511.shtml)

@@ -1,54 +1,56 @@
-# 广西4条河流出现超警洪水
+# 董事长缺席股东会，ST喜临门股东会澄清实控人家族“内讧”传闻及经营现状
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月15日电(陈秋霞 周也茹)广西壮族自治区水文中心15日提供的信息显示，6月14日8时至15日8时，据水文部门监测，梧州、贵港、百色、南宁、贺州及玉林等市部分地区有大到暴雨，局部大暴雨到特大暴雨，日雨量较大的有梧州市苍梧县岭脚镇300.0毫米、梧州市龙圩区龙圩镇297.5毫米。受强降雨影响，红水河支流清水河，郁江下游及支流猪儿河、石梯江，贺江支流东安江，浔江支流安平
+登录新浪财经APP 搜索【信披】查看更多考评等级 记者 | 段方 5月22日下午，ST喜临门（维权）（603008.SH）在其位于浙江省绍兴市越城区的喜临门袍江工厂总部召开2025年年度股东会。当日，该公司9名董事中有7人出席，实控人、董事长陈阿裕及董事朱小华未出席。 界面新闻现场获悉，陈阿裕儿子、公司副董事长兼总裁陈一铖，其姐姐暨董事陈萍淇，副总裁郑双全，副总裁蒋永舟，财务总
 
 ## 正文
 
-中新网南宁6月15日电(陈秋霞 周也茹)广西壮族自治区水文中心15日提供的信息显示，6月14日8时至15日8时，据水文部门监测，梧州、贵港、百色、南宁、贺州及玉林等市部分地区有大到暴雨，局部大暴雨到特大暴雨，日雨量较大的有梧州市苍梧县岭脚镇300.0毫米、梧州市龙圩区龙圩镇297.5毫米。
+登录新浪财经APP 搜索【信披】查看更多考评等级 记者 | 段方 5月22日下午，ST喜临门（维权）（603008.SH）在其位于浙江省绍兴市越城区的喜临门袍江工厂总部召开2025年年度股东会。
 
-受强降雨影响，红水河支流清水河，郁江下游及支流猪儿河、石梯江，贺江支流东安江，浔江支流安平河及西江干流等江河出现1米至3米的涨水过程，其中郁江支流猪儿河，鲤鱼江支流马草江及贺江支流东安江、林洞河等4条河流4个水文站出现超警0.23米至1.76米的洪水。
+当日，该公司9名董事中有7人出席，实控人、董事长陈阿裕及董事朱小华未出席。
 
-15日8时，广西除郁江支流猪儿河水位仍超警1.02米外，其余江河水位均在警戒以下。
+界面新闻现场获悉，陈阿裕儿子、公司副董事长兼总裁陈一铖，其姐姐暨董事陈萍淇，副总裁郑双全，副总裁蒋永舟，财务总监张冬云，董秘沈洁以及其第九大股东暨前任总经理沈冬良等参会；独立董事代表王光昌等线上参会。
 
-西江梧州水文站水位12.29米(警戒水位18.5米)，流量16200立方米每秒。
+陈一铖主持此次股东会。
 
-广西壮族自治区水文中心预测，未来24小时，北流河，南流江，郁江支流猪儿河、石梯江、镇龙江、鲤鱼江，浔江支流白沙江、下小河，红水河支流清水河，右江支流武鸣河，大风江，白沙河，九洲江及西江干流等江河可能出现1米至4米的涨水过程，其中郁江支流猪儿河港南区桥圩镇河段、石梯江港南区东津镇河段将出现超警1.5米左右的洪水，镇龙江横州市镇龙乡河段将出现警戒水位左右的洪水；梧州、贵港、玉林、南宁、百色、钦州及北海等市部分中小河流可能出现超警洪水。
+近30个中小股东或股东代表出席此次股东会。
 
-(完)
+当日，喜临门股东会审议《2025年度董事会工作报告》、《2025年年度报告及摘要》、《2025年度独立董事述职报告》、《2025年度财务决算报告》等8个议案均获通过。
+
+回应“内讧”传闻，董事长“没有跑” 年度股东会上，近期爆出债务危机的喜临门实际控制人、董事长陈阿裕罕见缺席。
+
+“董事长外出统筹推进债务化解工作。
 
 ## 相关推荐
 
-- 2026-06-29 18:48 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 18:41 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 19:04 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 18:37 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 18:56 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 18:57 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 19:04 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 18:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 18:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 18:47 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 18:36 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 18:41 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 18:42 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 19:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 18:59 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 18:54 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 18:56 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 18:44 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 19:05 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 18:49 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 19:09 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 19:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [王楚钦开门红](http://www.blog.minike.top/Article/details/010882.shtml)
-- 2026-06-29 18:58 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/132096499.shtml)
-- 2026-06-29 18:42 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/618964909829.shtml)
-- 2026-06-29 18:40 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/52145149.shtml)
-- 2026-06-29 18:57 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/7407214567.shtml)
-- 2026-06-29 18:52 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/04771500.shtml)
-- 2026-06-29 18:50 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.minike.top/Article/details/82800027735.shtml)
-- 2026-06-29 19:05 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/13020386196.shtml)
-- 2026-06-29 18:56 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/0578870198.shtml)
-- 2026-06-29 18:56 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/445909084.shtml)
-- 2026-06-29 18:55 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/13516036.shtml)
-- 2026-06-29 18:58 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/672222.shtml)
-- 2026-06-29 18:53 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/87108.shtml)
-- 2026-06-29 18:45 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/07059.shtml)
-- 2026-06-29 18:51 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/814360203334.shtml)
+- 2026-06-29 18:58 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/209527.shtml)
+- 2026-06-29 19:01 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/494340969033.shtml)
+- 2026-06-29 18:52 - [V8](http://www.share.minike.top/Article/details/1804256600.shtml)
+- 2026-06-29 18:50 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/6481448.shtml)
+- 2026-06-29 19:08 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/6378725.shtml)
+- 2026-06-29 18:52 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/32299349.shtml)
+- 2026-06-29 19:01 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/651270494375.shtml)
+- 2026-06-29 18:55 - [学者：建设性战略稳定重塑中美关系](http://www.blog.minike.top/Article/details/546181.shtml)
+- 2026-06-29 18:43 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/6226823168.shtml)
+- 2026-06-29 18:59 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/86146788.shtml)
+- 2026-06-29 18:51 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/871342.shtml)
+- 2026-06-29 18:49 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/08825825096.shtml)
+- 2026-06-29 18:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/6364129621.shtml)
+- 2026-06-29 19:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/1655238.shtml)
+- 2026-06-29 19:10 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.blog.kurohicncr.top/Article/details/955678.shtml)

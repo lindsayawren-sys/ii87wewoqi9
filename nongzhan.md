@@ -1,56 +1,45 @@
-# 韩正会见新加坡国会议长谢健平
+# 日本政府称“石脑油供应不存在问题” 民调显示超六成民众不接受政府说法
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新社北京6月12日电 中国国家副主席韩正12日在北京会见新加坡国会议长谢健平。 韩正表示，中国和新加坡互为友好近邻和重要合作伙伴。去年6月，习近平主席会见黄循财总理，为下阶段中新关系发展指明了方向。中方愿同新方一道，认真落实两国领导人的重要共识，进一步加强战略沟通，加大相互支持，拓展高质量合作，促进民心相通，推动中新全方位高质量的前瞻性伙伴关系实现更大发展。双方要加强多边协作
+发布时间：2026年05月25日 15:55 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新社北京6月12日电 中国国家副主席韩正12日在北京会见新加坡国会议长谢健平。
-
-韩正表示，中国和新加坡互为友好近邻和重要合作伙伴。
-
-去年6月，习近平主席会见黄循财总理，为下阶段中新关系发展指明了方向。
-
-中方愿同新方一道，认真落实两国领导人的重要共识，进一步加强战略沟通，加大相互支持，拓展高质量合作，促进民心相通，推动中新全方位高质量的前瞻性伙伴关系实现更大发展。
-
-双方要加强多边协作，共同倡导平等有序的世界多极化和普惠包容的经济全球化，推动构建更加公正合理的全球治理体系。
-
-谢健平表示，新中是好朋友、好邻居，合作领域广泛，成果丰硕。
-
-新方十分珍视新中伙伴关系，坚定致力于进一步深化双边合作。
-
-新方坚定奉行一个中国政策。
+发布时间：2026年05月25日 15:55 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 18:37 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 19:05 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 18:47 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 18:36 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 18:53 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 18:49 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 18:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 18:45 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 18:59 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 19:04 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 19:05 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 19:06 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 18:52 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 19:06 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 18:46 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 19:01 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 19:07 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 18:58 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 19:07 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 19:08 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 18:53 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 18:53 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 18:47 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:02 - [沙特外交大臣将访华](https://www.blog.minike.top/Article/details/69745.shtml)
-- 2026-06-29 18:42 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/3925689.shtml)
-- 2026-06-29 18:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/803011354684.shtml)
-- 2026-06-29 18:54 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/76818409.shtml)
-- 2026-06-29 18:50 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/47555251044.shtml)
-- 2026-06-29 18:48 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/66238389606.shtml)
-- 2026-06-29 19:03 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/776291839.shtml)
-- 2026-06-29 18:41 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/41589636.shtml)
-- 2026-06-29 18:53 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/8166354039.shtml)
-- 2026-06-29 18:55 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/96610.shtml)
-- 2026-06-29 18:41 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/190802018.shtml)
-- 2026-06-29 18:46 - [毒液2](https://www.share.kurohicncr.top/Article/details/48140.shtml)
-- 2026-06-29 19:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/55552120724.shtml)
-- 2026-06-29 18:39 - [回顾世界杯争议事件](https://www.share.minike.top/Article/details/890863672867.shtml)
-- 2026-06-29 18:54 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/14266.shtml)
+- 2026-06-29 18:42 - [急先锋](https://www.blog.kurohicncr.top/Article/details/27180.shtml)
+- 2026-06-29 18:58 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/0709993.shtml)
+- 2026-06-29 18:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/306544.shtml)
+- 2026-06-29 18:55 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/30187172770.shtml)
+- 2026-06-29 18:58 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/4523439354.shtml)
+- 2026-06-29 18:43 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/47504.shtml)
+- 2026-06-29 19:11 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/8448765.shtml)
+- 2026-06-29 18:45 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/5609601204.shtml)
+- 2026-06-29 19:03 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/8426198190.shtml)
+- 2026-06-29 18:47 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/99115629323.shtml)
+- 2026-06-29 19:09 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/86532.shtml)
+- 2026-06-29 18:44 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.kurohicncr.top/Article/details/80938.shtml)
+- 2026-06-29 18:53 - [斗破苍穹](https://www.share.minike.top/Article/details/464225780279.shtml)
+- 2026-06-29 18:58 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/980527064.shtml)
+- 2026-06-29 19:11 - [金牌调解](https://www.share.kurohicncr.top/Article/details/410807.shtml)

@@ -1,58 +1,60 @@
-# 特朗普政府禁止境外主体获取Anthropic旗下最强人工智能模型
+# 上千“舞林高手”齐聚湖北茅箭 以舞会友展英姿
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-特朗普政府禁止境外政府、企业及个人使用Anthropic旗下最先进的人工智能模型。 此举意味着美国进一步将尖端人工智能系统视作国家安全核心资产，相关管控再度升级。 Anthropic被列入美国国防部黑名单，美方认为其模型风险过高，连美国政府自身都不宜使用；同时该模型也被纳入商务部许可管控体系，严禁境外主体使用。 美国商务部长霍华德・卢特尼克于周五致信安索帕首席执行官达里奥・阿莫
+中新网十堰5月24日电 (张倩龙 任紫薇 柯栋)“一箭倾心”2026中国·十堰茅箭体育舞蹈公开赛23日—24日在湖北省十堰市茅箭区湖北工业职业技术学院体育馆举行，来自全国各地的53支代表队、上千名“舞林高手”以舞会友，展开角逐。 开幕式上，运动员与裁判员代表庄严宣誓，承诺恪守体育精神，公平竞赛、公正执裁。随后的文艺展演精彩纷呈，武当功夫艺术团、武汉体育学院代表队、湖北工业职业技
 
 ## 正文
 
-特朗普政府禁止境外政府、企业及个人使用Anthropic旗下最先进的人工智能模型。
+中新网十堰5月24日电 (张倩龙 任紫薇 柯栋)“一箭倾心”2026中国·十堰茅箭体育舞蹈公开赛23日—24日在湖北省十堰市茅箭区湖北工业职业技术学院体育馆举行，来自全国各地的53支代表队、上千名“舞林高手”以舞会友，展开角逐。
 
-此举意味着美国进一步将尖端人工智能系统视作国家安全核心资产，相关管控再度升级。
+开幕式上，运动员与裁判员代表庄严宣誓，承诺恪守体育精神，公平竞赛、公正执裁。
 
-Anthropic被列入美国国防部黑名单，美方认为其模型风险过高，连美国政府自身都不宜使用；同时该模型也被纳入商务部许可管控体系，严禁境外主体使用。
+随后的文艺展演精彩纷呈，武当功夫艺术团、武汉体育学院代表队、湖北工业职业技术学院学生等先后带来展演，非遗与体育舞蹈在舞台上交融，美不胜收。
 
-美国商务部长霍华德・卢特尼克于周五致信安索帕首席执行官达里奥・阿莫代伊，明确Mythos 5与Fable 5两款模型将实施出口管制，禁止输出至美国境外，同时也不允许美国境内的外籍人员使用。
+据悉，本次赛事设标准舞、拉丁舞两大系列，涵盖华尔兹、探戈、恰恰、桑巴、伦巴等经典舞种。
 
-一名政府官员向媒体透露，此前有其他企业宣称成功破解Mythos模型，这令美方对潜在国家安全风险产生警惕，商务部随即出台上述管控措施。
+赛事搭建高水平体育舞蹈交流竞技平台，赋能当地文体旅深度融合发展。
 
-该官员表示，美方此前曾要求Anthropic暂停发布最新模型，但未能如愿，因此最终发出出口管制函。
+此次赛事是十堰茅箭区重点打造的品牌文体赛事。
 
-美方称，在美国国家安全体系完成加固前，这些模型必须严格管控，相关工作预计在未来数周内落地。
+近年来，茅箭区深入实施全民健身战略，深化体教融合，持续擦亮茅箭体育名片。
 
-Anthropic暂未就此置评。
+茅箭区将持续深耕“体育+文旅”融合发展模式，为区域文体旅高质量发展注入持久动力。
 
 ## 相关推荐
 
-- 2026-06-29 18:56 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 18:36 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 18:44 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 18:51 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 19:02 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 18:49 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 19:02 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 18:42 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 18:56 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 18:53 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 18:39 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 19:01 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 18:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 18:56 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 18:51 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 18:48 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 19:02 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 19:03 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 18:44 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 18:51 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 18:56 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 19:07 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 18:43 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 19:01 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 19:04 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 18:59 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:43 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/423753376983.shtml)
-- 2026-06-29 19:01 - [世界杯在中国观看最多的比赛](http://www.blog.kurohicncr.top/Article/details/6594271.shtml)
-- 2026-06-29 19:04 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/2241558.shtml)
-- 2026-06-29 18:54 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/2886908.shtml)
-- 2026-06-29 19:01 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/410131.shtml)
-- 2026-06-29 18:41 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/70745.shtml)
-- 2026-06-29 18:36 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/14266.shtml)
-- 2026-06-29 19:01 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/30809.shtml)
-- 2026-06-29 18:42 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/635164866624.shtml)
-- 2026-06-29 18:58 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/7547929.shtml)
-- 2026-06-29 18:58 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/5398946.shtml)
-- 2026-06-29 18:40 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/5678512.shtml)
-- 2026-06-29 18:54 - [一生一世](http://www.share.minike.top/Article/details/17331606.shtml)
-- 2026-06-29 18:39 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/6710452719.shtml)
-- 2026-06-29 18:57 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/86685.shtml)
+- 2026-06-29 18:47 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/095056865.shtml)
+- 2026-06-29 18:45 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/85931511097.shtml)
+- 2026-06-29 18:53 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/103081614.shtml)
+- 2026-06-29 18:51 - [上海小区惊现鳄鱼](http://www.blog.minike.top/Article/details/0572546.shtml)
+- 2026-06-29 19:02 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/09670923.shtml)
+- 2026-06-29 18:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/77143632425.shtml)
+- 2026-06-29 19:11 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/8934789.shtml)
+- 2026-06-29 19:08 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/126356475.shtml)
+- 2026-06-29 18:47 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/9373603782.shtml)
+- 2026-06-29 18:44 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/735838.shtml)
+- 2026-06-29 18:45 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/31481411.shtml)
+- 2026-06-29 18:57 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/52196581162.shtml)
+- 2026-06-29 19:04 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/139383832366.shtml)
+- 2026-06-29 18:46 - [《新闻联播》正在直播](https://www.blog.kurohicncr.top/Article/details/41645134005.shtml)
+- 2026-06-29 19:01 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/87109497.shtml)

@@ -1,56 +1,58 @@
-# “之江同心”搭台筑桥 助浙江莲都打好新“侨”牌
+# （经济观察）西洽会观察：低空经济的“扶摇”与“直上”
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网丽水6月13日电(蓝伊旎)6月12日，第82期之江同心·经济圆桌会议暨莲都区侨贸经济高质量发展大会在浙江丽水莲都区举行。现场民建企业家、海内外侨商、采购商、平台服务商云集，一批项目签约落地，覆盖物流通道、数字贸易、人才培育等方面。 当前，莲都已形成美丽健康、时尚轻工、五金家电、文教用品、智能阀门、机车汽摩配等产业集群，成为侨贸经济发展的重要领域。现场特设六大产业带展示专区
+中新网重庆5月24日电 题：西洽会观察：低空经济的“扶摇”与“直上” 作者 马佳欣 24日，第八届中国西部国际投资贸易洽谈会(以下简称“西洽会”)正在重庆举行。15万平方米的展厅里，一股“低空风”席卷全场。从长安飞行汽车到“驼峰”1500H重载无人直升机，从载重120公斤的农业无人机到纯电动低空垂直飞行器，各类飞行器从重庆各区县展台到全国头部企业展区随处可见。低空经济正乘政策之
 
 ## 正文
 
-中新网丽水6月13日电(蓝伊旎)6月12日，第82期之江同心·经济圆桌会议暨莲都区侨贸经济高质量发展大会在浙江丽水莲都区举行。
+中新网重庆5月24日电 题：西洽会观察：低空经济的“扶摇”与“直上” 作者 马佳欣 24日，第八届中国西部国际投资贸易洽谈会(以下简称“西洽会”)正在重庆举行。
 
-现场民建企业家、海内外侨商、采购商、平台服务商云集，一批项目签约落地，覆盖物流通道、数字贸易、人才培育等方面。
+15万平方米的展厅里，一股“低空风”席卷全场。
 
-当前，莲都已形成美丽健康、时尚轻工、五金家电、文教用品、智能阀门、机车汽摩配等产业集群，成为侨贸经济发展的重要领域。
+从长安飞行汽车到“驼峰”1500H重载无人直升机，从载重120公斤的农业无人机到纯电动低空垂直飞行器，各类飞行器从重庆各区县展台到全国头部企业展区随处可见。
 
-现场特设六大产业带展示专区，纳爱斯、艾莱依等行业龙头及一批优质制造企业纷纷携拳头产品集中亮相。
+低空经济正乘政策之风强劲“扶摇”，在产业实践中加速“直上”，从试点迈向规模化、从探索融入日常。
 
-莲都华侨华人遍布全球58个国家和地区，依托这份独特优势，当地持续扩大对外开放、深挖侨资源潜力，创新打造“莲都产业带+侨贸一体化”协同出海新路径，搭建起活力十足的侨贸发展体系。
+“扶摇”：低空经济乘势起风 自2024年起，低空经济连续三年被写入政府工作报告，产业定位从普通新兴产业升级为重点培育的新兴支柱产业。
 
-据悉，该区有2家国家级“侨胞之家”；“十四五”期间进出口规模年均增长24.7%，“买全球、卖全球”的外向型经济格局愈发成熟。
+政策落地步伐同步加快。
 
-大会现场多个项目落地：浙江民建助力共同富裕实践基地正式授牌，推动民主党派资源与地方经济发展深度融合；义乌市国内公路港有限公司与莲都区商务局签订莲都一义乌“陆港快线”2.0项目合作协议，将进一步织密莲都通往全球的物流网络；eBay平台与丽水职业技术学院签订“跨境电商人才共育项目”合作协议，将构建起本地化人才培养体系。
+2025年12月，国家市场监督管理总局等相关部门印发《低空经济标准体系建设指南(2025年版)》，明确到2027年，低空经济标准体系基本建立，基本满足低空经济安全健康发展需求。
 
-多维度的布局，将进一步完善当地侨贸发展生态。
+到2030年，低空经济领域标准超过300项。
 
 ## 相关推荐
 
-- 2026-06-29 18:48 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 18:40 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 19:02 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 18:38 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 18:58 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 18:48 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 19:00 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 18:57 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 18:48 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 18:59 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 18:58 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 18:43 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 19:03 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 19:10 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 18:49 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 18:44 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 18:48 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 18:50 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 18:42 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 18:44 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 18:56 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 19:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/392236607454.shtml)
-- 2026-06-29 18:41 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/273954.shtml)
-- 2026-06-29 18:43 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/8825894.shtml)
-- 2026-06-29 18:41 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/751654.shtml)
-- 2026-06-29 18:57 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/38745865.shtml)
-- 2026-06-29 19:03 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/19757564080.shtml)
-- 2026-06-29 18:40 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/47870793.shtml)
-- 2026-06-29 18:48 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/315410604239.shtml)
-- 2026-06-29 18:53 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/801571.shtml)
-- 2026-06-29 18:47 - [一见倾心](http://www.blog.minike.top/Article/details/0933265845.shtml)
-- 2026-06-29 18:44 - [歼-15型舰载机为何被歼-15T替代](https://www.share.kurohicncr.top/Article/details/25988.shtml)
-- 2026-06-29 19:02 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/04447384341.shtml)
-- 2026-06-29 18:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/7597116738.shtml)
-- 2026-06-29 19:00 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/21070065819.shtml)
-- 2026-06-29 18:40 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/9395783.shtml)
+- 2026-06-29 18:50 - [医药生物行业今日涨5.91%](http://www.share.minike.top/Article/details/63777864168.shtml)
+- 2026-06-29 19:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/0992494.shtml)
+- 2026-06-29 18:44 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/4629974.shtml)
+- 2026-06-29 18:58 - [斛珠夫人](https://www.blog.minike.top/Article/details/090156501.shtml)
+- 2026-06-29 18:53 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/8655562081.shtml)
+- 2026-06-29 18:44 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/735240702084.shtml)
+- 2026-06-29 18:57 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/195805414.shtml)
+- 2026-06-29 18:47 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/54469494255.shtml)
+- 2026-06-29 19:03 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/85915544.shtml)
+- 2026-06-29 19:06 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/622235.shtml)
+- 2026-06-29 18:57 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/86859.shtml)
+- 2026-06-29 18:50 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.minike.top/Article/details/297133.shtml)
+- 2026-06-29 18:54 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/89642315.shtml)
+- 2026-06-29 18:50 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/60009756.shtml)
+- 2026-06-29 19:00 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/9620924121.shtml)

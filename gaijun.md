@@ -1,60 +1,60 @@
-# 航天板块个股大幅走高，投资者疯狂寻找各类渠道 “做多 SpaceX”
+# 舆论：香港同胞深度参与国家航天事业是“一国两制”优势生动实践
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 今天就是 SpaceX 正式挂牌的大日子。如果想预判后续行情走势，可以关注眼下期权交易员疯狂炒作的关联替代标的。 这位全球首富旗下企业迎来里程碑式上市，周五挂牌前夕，所有和 SpaceX 存在业务、股权关联的个股期权成交量全线暴涨。华尔街各界争论不休：这场估值 1.75 万亿美元的 IPO 究竟是估值严重虚
+中新网5月23日电 题：舆论：香港同胞深度参与国家航天事业是“一国两制”优势生动实践 记者 陈文韬 李柏涛 实习生 金子于 据中国载人航天工程办公室23日消息，经空间站应用与发展阶段飞行任务总指挥部研究决定，神舟二十三号航天员乘组由航天飞行工程师朱杨柱、航天驾驶员张志远、载荷专家黎家盈3名航天员组成，朱杨柱任指令长。 其中，黎家盈为我国首位执行飞行任务的第四批航天员，也是工程面
 
 ## 正文
 
-专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 今天就是 SpaceX 正式挂牌的大日子。
+中新网5月23日电 题：舆论：香港同胞深度参与国家航天事业是“一国两制”优势生动实践 记者 陈文韬 李柏涛 实习生 金子于 据中国载人航天工程办公室23日消息，经空间站应用与发展阶段飞行任务总指挥部研究决定，神舟二十三号航天员乘组由航天飞行工程师朱杨柱、航天驾驶员张志远、载荷专家黎家盈3名航天员组成，朱杨柱任指令长。
 
-如果想预判后续行情走势，可以关注眼下期权交易员疯狂炒作的关联替代标的。
+其中，黎家盈为我国首位执行飞行任务的第四批航天员，也是工程面向港澳地区选拔出的我国首位女性载荷专家。
 
-这位全球首富旗下企业迎来里程碑式上市，周五挂牌前夕，所有和 SpaceX 存在业务、股权关联的个股期权成交量全线暴涨。
+香港特区行政长官李家超当日发文表示，感谢国家对香港特区的支持和信任，同时祝贺黎家盈通过严格选拔和训练成为国家第四批航天员，为国家航天事业贡献香港力量，并预祝神舟二十三号飞行任务圆满成功。
 
-华尔街各界争论不休：这场估值 1.75 万亿美元的 IPO 究竟是估值严重虚高的资本泡沫，还是人类未来发展的核心载体。
+李家超指出，今年是国家“十五五”规划开局之年，香港特区就迎来航天梦的历史时刻，香港专家成为首次参与飞行任务的航天员，意义非凡，我们深感振奋。
 
-而交易员们正疯狂买入各类关联个股的看涨期权，指望借 SpaceX 热度获利。
+衷心感谢国家给予香港特区科技人才参与国家航天事业的宝贵机会。
 
-科罗拉多州网络通信企业回声星通信持有约 3% 的 SpaceX 股份，该股周四大涨 11%；芝加哥期权交易所 LiveVol 数据显示，SATS 期权成交量达到近 30 日日均水平的 11 倍。
+“我热烈恭贺黎家盈，诚挚祝福她圆满完成飞行任务。
 
-AST 太空移动的卫星计划下周由 SpaceX 火箭发射，该股单日暴涨 12%，对应期权交易规模近 1.4 亿美元。
+”李家超说。
 
-就连股价从高点暴跌 99% 的维珍银河，期权交易也骤然火爆，看涨期权买入量是看跌期权的 3.5 倍。
+黎家盈入选前在特区政府警务处工作 23日上午，神舟二十三号载人飞行任务新闻发布会在酒泉卫星发射中心召开。
 
 ## 相关推荐
 
-- 2026-06-29 18:45 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 18:38 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 19:01 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 18:50 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 18:43 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 19:03 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 18:39 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 18:53 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 19:04 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 19:02 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 18:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 18:46 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 18:48 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 19:02 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 19:02 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 18:50 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 18:42 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 18:45 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 18:53 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 19:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 18:51 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 18:48 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 18:42 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 19:02 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 18:43 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 18:51 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 18:42 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 19:04 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:47 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/1203684.shtml)
-- 2026-06-29 18:48 - [韩国小学生都来吐槽了](http://www.share.minike.top/Article/details/180331691882.shtml)
-- 2026-06-29 19:00 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/482130968428.shtml)
-- 2026-06-29 18:38 - [博主：AI泡沫必须破灭](http://www.share.minike.top/Article/details/71395297.shtml)
-- 2026-06-29 18:44 - [当我回母校教书](https://www.share.minike.top/Article/details/02669200073.shtml)
-- 2026-06-29 18:42 - [大学专业未来如何洗牌](https://www.share.minike.top/Article/details/40666588481.shtml)
-- 2026-06-29 18:42 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/255325.shtml)
-- 2026-06-29 18:45 - [盛秋平任南昌市委书记](http://www.share.minike.top/Article/details/526100.shtml)
-- 2026-06-29 18:52 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/51885.shtml)
-- 2026-06-29 18:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/5005173.shtml)
-- 2026-06-29 18:49 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/7635397.shtml)
-- 2026-06-29 18:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/800738908391.shtml)
-- 2026-06-29 18:49 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/417188664.shtml)
-- 2026-06-29 18:54 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/464865111.shtml)
-- 2026-06-29 18:59 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/1882976.shtml)
+- 2026-06-29 18:54 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/91952.shtml)
+- 2026-06-29 19:01 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/3522335.shtml)
+- 2026-06-29 19:01 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/66497890.shtml)
+- 2026-06-29 18:48 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/751916.shtml)
+- 2026-06-29 18:51 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/3693082667.shtml)
+- 2026-06-29 18:53 - [葛军透露高考出题思路](https://www.share.minike.top/Article/details/820565821879.shtml)
+- 2026-06-29 19:05 - [小娘惹](https://www.share.minike.top/Article/details/321796.shtml)
+- 2026-06-29 18:53 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/97651878.shtml)
+- 2026-06-29 18:54 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/286826.shtml)
+- 2026-06-29 18:59 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/85782.shtml)
+- 2026-06-29 18:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/09125992697.shtml)
+- 2026-06-29 18:57 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/588369981644.shtml)
+- 2026-06-29 18:52 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/8969234.shtml)
+- 2026-06-29 19:04 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/50417834.shtml)
+- 2026-06-29 19:01 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/738125267822.shtml)

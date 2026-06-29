@@ -1,57 +1,57 @@
-# 天玑科技索赔新进展 部分股民提交起诉
+# 美伊谈判、霍尔木兹海峡，突传大消息！美股拉升！黄金、白银、原油集体走低！
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-近日，投资者诉上海天玑科技股份有限公司（简称：天玑科技、ST天玑（维权），代码：300245）证券虚假陈述案取得新进展。 曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据相关公告，天玑科技涉嫌证券虚假陈述，我们已代理部分股民提交起诉材料。（厉健律师专栏） 案情回溯，2026年4月27日晚，天玑科技发布《关于前期会计差错更正及定期报告更正的公告》、《
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！美伊谈判，传来大消息，美伊协议草案被曝包括“在所有战线实现停火”。5月22日晚间美股拉升，黄金、白银、原油集体走低。 美股三大指数均高开，开盘后集体拉升，截至发稿，纳指涨0.79%，标普500指数涨0.71%，道指涨0.57%。 芯片股表现分化，AMD涨超4%，英特尔涨超1%，闪迪跌超2%，美光科技跌超1%
 
 ## 正文
 
-近日，投资者诉上海天玑科技股份有限公司（简称：天玑科技、ST天玑（维权），代码：300245）证券虚假陈述案取得新进展。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据相关公告，天玑科技涉嫌证券虚假陈述，我们已代理部分股民提交起诉材料。
+美伊谈判，传来大消息，美伊协议草案被曝包括“在所有战线实现停火”。
 
-（厉健律师专栏） 案情回溯，2026年4月27日晚，天玑科技发布《关于前期会计差错更正及定期报告更正的公告》、《关于公司股票被实施其他风险警示暨股票停牌的公告》等一系列公告。
+5月22日晚间美股拉升，黄金、白银、原油集体走低。
 
-公告显示，天玑科技于 2024 年 12 月就算力集群一期项目签署了相关合同，该一期项目于 2025 年 3 月完成交付，公司确认了一期项目的收入和成本。
+美股三大指数均高开，开盘后集体拉升，截至发稿，纳指涨0.79%，标普500指数涨0.71%，道指涨0.57%。
 
-2025 年 3 月，公司就算力集群二期项目签署了买卖合同，并预付了项目采购款。
+芯片股表现分化，AMD涨超4%，英特尔涨超1%，闪迪跌超2%，美光科技跌超1%。
 
-因二期项目持续未推进，2025 年下半年公司通知供应商退回预付款，在催要款项及款项退回过程中，公司发现项目相关款项存在资金闭环流转情形，基于审慎性原则，对于整体项目不确认收入成本。
+中概股方面，纳斯达克中国金龙指数跌超2%。
 
-截至本公告日，公司已收回上述往来款，并对此进行会计差错更正，追溯调整 2025 年度第一季度、半年度和第三季度财务报表和相关附注。
+富途控股跌超27%，老虎证券跌超24%，蔚来跌超7%，理想汽车跌超3%。
 
-容诚会计师事务所（特殊普通合伙）对公司2025年度财务报告内部控制出具 了否定意见的《上海天玑科技股份有限公司2025年度内部控制审计报告》。
+国际金银均走低，截至发稿，现货黄金跌近0.6%，现货白银跌逾1%。
 
 ## 相关推荐
 
-- 2026-06-29 18:36 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 18:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 19:03 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 18:38 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 18:53 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 18:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 18:45 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 19:01 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 18:40 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 19:00 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 18:44 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 18:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 19:10 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 18:58 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 18:43 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 19:09 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 19:00 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 18:45 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 18:58 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 19:06 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 19:01 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 18:56 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:53 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/8033060560.shtml)
-- 2026-06-29 18:54 - [RAY评乘风2026总决赛](http://www.blog.minike.top/Article/details/840079.shtml)
-- 2026-06-29 18:52 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/19686278702.shtml)
-- 2026-06-29 18:43 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/796712.shtml)
-- 2026-06-29 19:04 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/88861.shtml)
-- 2026-06-29 19:01 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/03482.shtml)
-- 2026-06-29 18:42 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.minike.top/Article/details/43163026.shtml)
-- 2026-06-29 19:05 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/94035.shtml)
-- 2026-06-29 18:57 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/4435859.shtml)
-- 2026-06-29 18:56 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/12028049443.shtml)
-- 2026-06-29 18:56 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/439890129.shtml)
-- 2026-06-29 18:51 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/526943563807.shtml)
-- 2026-06-29 19:05 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/39184768941.shtml)
-- 2026-06-29 18:39 - [叠纸](https://www.share.minike.top/Article/details/58873.shtml)
-- 2026-06-29 18:39 - [一见倾心](http://www.blog.minike.top/Article/details/430676606728.shtml)
+- 2026-06-29 19:01 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/31765452.shtml)
+- 2026-06-29 18:51 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/64212.shtml)
+- 2026-06-29 18:58 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.minike.top/Article/details/239260271424.shtml)
+- 2026-06-29 19:08 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/10756764.shtml)
+- 2026-06-29 18:57 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/62249.shtml)
+- 2026-06-29 19:06 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/05793.shtml)
+- 2026-06-29 18:46 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/105642456.shtml)
+- 2026-06-29 18:42 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/43071264823.shtml)
+- 2026-06-29 18:57 - [王楚钦开门红](http://www.share.minike.top/Article/details/097058377667.shtml)
+- 2026-06-29 18:43 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/1337134296.shtml)
+- 2026-06-29 18:58 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/61624603568.shtml)
+- 2026-06-29 19:10 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/546004479.shtml)
+- 2026-06-29 18:56 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/99573.shtml)
+- 2026-06-29 18:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/61281585.shtml)
+- 2026-06-29 19:04 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/31961687.shtml)

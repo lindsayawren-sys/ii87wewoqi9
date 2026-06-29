@@ -1,56 +1,60 @@
-# 光大期货：6月15日矿钢煤焦日报
+# 操盘必读：影响股市利好或利空消息_2026年5月25日_财经新闻
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-钢材：螺纹转入累库周期，钢价仍将窄幅震荡 （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 螺纹方面，本周全国螺纹产量环比回升2.44万吨至214.59万吨，同比增加7.02万吨；社库环比回落0.45万吨至479.16万吨，同比增加103.97万吨；厂库环比增加7.72万吨至181.8万吨，同比减少1.09万吨；螺纹表需环比回落5.85万吨至207.3
+登录新浪财经APP 搜索【信披】查看更多考评等级 影响股市利好与利空消息 宏观新闻 1、针对山西通洲集团留神峪煤矿瓦斯爆炸事故，国务院事故调查组将较真碰硬开展事故调查，查清查透事故原因，查清查透属地管理、行业监管和企业责任，依法依规严厉惩处。各地区各有关方面要全面检视矿山安全“八条硬措施”落实情况，重拳出击“打非治违”，严查严惩煤矿隐蔽工作面作业、安全监控造假、下井作业人数不清
 
 ## 正文
 
-钢材：螺纹转入累库周期，钢价仍将窄幅震荡 （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 螺纹方面，本周全国螺纹产量环比回升2.44万吨至214.59万吨，同比增加7.02万吨；社库环比回落0.45万吨至479.16万吨，同比增加103.97万吨；厂库环比增加7.72万吨至181.8万吨，同比减少1.09万吨；螺纹表需环比回落5.85万吨至207.32万吨，同比减少12.66万吨。
+登录新浪财经APP 搜索【信披】查看更多考评等级 影响股市利好与利空消息 宏观新闻 1、针对山西通洲集团留神峪煤矿瓦斯爆炸事故，国务院事故调查组将较真碰硬开展事故调查，查清查透事故原因，查清查透属地管理、行业监管和企业责任，依法依规严厉惩处。
 
-螺纹产量有所回升，库存由降转增，表需继续下降，供需数据表现偏弱。
+各地区各有关方面要全面检视矿山安全“八条硬措施”落实情况，重拳出击“打非治违”，严查严惩煤矿隐蔽工作面作业、安全监控造假、下井作业人数不清、违规分包转包等问题，确保硬措施得到硬落实。
 
-据海关数据，2026年5月中国出口钢材1034.1万吨，较上月增加84.3万吨，环比增长8.9%；1-5月累计出口钢材4455.4万吨，同比下降8.1%。
+2、中共中央政治局委员、国务院副总理何立峰23日在苏州出席亚太经合组织贸易部长会议并致辞。
 
-钢材出口最近三个月均环比增长，单月出口量再次超过1000万吨，在一定程度上缓解了国内供应压力。
+何立峰指出，中国愿同各方一道，加强新兴领域沟通对话，共同支持世界贸易组织改革，务实灵活推进区域经济一体化进程，以中国式现代化新成就为亚太和全球经济发展注入更多正能量。
 
-另据央行数据，5月单月新增人民币贷款5200亿元，同比少增1000亿元；其中5月住户部门新增中长期贷款为负571亿元，同比少增1317亿元。
+3、央行公告，为保持银行体系流动性充裕，2026年5月25日，中国人民银行将以固定数量、利率招标、多重价位中标方式开展6000亿元MLF操作，期限为1年期。
 
-信贷数据表现依然较弱，居民贷款需求较为低迷。
+4、水利部和中国气象局5月24日18时联合发布红色山洪灾害气象预警：预计，5月24日20时至5月25日20时，浙江西部、安徽西部和南部、江西东北部、湖北东部等地部分地区发生山洪灾害可能性大（橙色预警），其中，安徽西部、湖北东部局地发生山洪灾害可能性很大（红色预警）。
 
-当前螺纹库存已转入累积通道，叠加表需持续回落，供需矛盾逐步积累。
+行业新闻 1、5月22日，国家数据局党组书记、局长刘烈宏主持召开词元经济座谈会。
 
-不过近期焦炭价格持续大涨，铁矿石价格也表现坚挺，钢厂盈利明显收窄，对钢价形成一定底部支撑。
+国家数据局将把推动词元经济发展纳入工作体系，持续跟踪研究并吸收社会各界建议，以行业高质量数据集建设和全国一体化算力网建设为着力点，深入推进数据要素市场化配置改革，推动词元经济高质量发展。
 
 ## 相关推荐
 
-- 2026-06-29 18:39 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 18:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 18:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 18:52 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 19:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 18:59 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 18:36 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 18:41 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 18:55 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 18:38 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 18:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 18:52 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 18:53 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 18:53 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 18:57 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 18:44 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 19:08 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 19:06 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 18:48 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 18:57 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 19:08 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 18:52 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 18:51 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 18:51 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:59 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/16867634.shtml)
-- 2026-06-29 19:04 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.kurohicncr.top/Article/details/711291944093.shtml)
-- 2026-06-29 19:03 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/70760809306.shtml)
-- 2026-06-29 18:40 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/259685215966.shtml)
-- 2026-06-29 18:50 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.kurohicncr.top/Article/details/882344970.shtml)
-- 2026-06-29 18:37 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/030811773355.shtml)
-- 2026-06-29 18:37 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/21449037.shtml)
-- 2026-06-29 18:36 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/97656896.shtml)
-- 2026-06-29 18:46 - [速度与激情9](https://www.share.minike.top/Article/details/957956.shtml)
-- 2026-06-29 18:37 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/484321.shtml)
-- 2026-06-29 18:49 - [官方通报一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/1928781394.shtml)
-- 2026-06-29 19:03 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/51398853532.shtml)
-- 2026-06-29 18:54 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/095832127480.shtml)
-- 2026-06-29 19:01 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/17310774.shtml)
-- 2026-06-29 18:37 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/54609520.shtml)
+- 2026-06-29 18:49 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/97144624.shtml)
+- 2026-06-29 18:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/883673272650.shtml)
+- 2026-06-29 19:08 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/10222426.shtml)
+- 2026-06-29 18:45 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/55088911917.shtml)
+- 2026-06-29 18:43 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/11636.shtml)
+- 2026-06-29 18:49 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/575359.shtml)
+- 2026-06-29 18:47 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/74052.shtml)
+- 2026-06-29 19:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/81098852.shtml)
+- 2026-06-29 18:44 - [滚石就音乐人屠颖去世事件发声明](http://www.share.kurohicncr.top/Article/details/027825140498.shtml)
+- 2026-06-29 19:10 - [金刚川](https://www.share.kurohicncr.top/Article/details/622998.shtml)
+- 2026-06-29 18:56 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/633250426.shtml)
+- 2026-06-29 18:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/819530344.shtml)
+- 2026-06-29 19:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/0574101668.shtml)
+- 2026-06-29 18:47 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/9542249.shtml)
+- 2026-06-29 18:57 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/291494646015.shtml)

@@ -1,61 +1,56 @@
-# 巴西广东同乡总会在圣保罗与深圳大学代表团座谈
+# 基辅遭遇“最恐怖一夜”！俄军猛轰催生避险，黄金反弹还能走多远？
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网圣保罗6月15日电 巴西广东同乡总会日前在巴西圣保罗举行座谈会，欢迎由深圳大学党委书记徐波一行到访。 中国驻圣保罗总领馆领侨处主任荣强、侨务领事梁荣乾，巴西华人协会会长叶周永，巴西广东同乡总会会长苏新效及该会主要理监事、侨社代表、教育界人士和留学生代表出席活动。座谈会由巴西广东同乡总会副秘书长刘淑仪主持。 苏新效在致辞中对代表团的到来表示诚挚欢迎，介绍巴西广东同乡总会职责
+汇通财经APP讯——上周日，俄罗斯对基辅及周边地区发动了持续数小时的夜间空袭，发射了数百架无人机和导弹，这是自四年前战争爆发以来对该市最猛烈的轰炸之一。俄军还向基辅附近发射了一枚“榛树”高超音速导弹，这是其在冲突中第三次使用该型号导弹。据乌克兰官员称，此次袭击造成4人死亡、80多人受伤，数十栋住宅楼和数所学校受损。 袭击规模与伤亡情况 “对基辅来说，这是一个可怕的夜晚，”基辅市
 
 ## 正文
 
-中新网圣保罗6月15日电 巴西广东同乡总会日前在巴西圣保罗举行座谈会，欢迎由深圳大学党委书记徐波一行到访。
+汇通财经APP讯——上周日，俄罗斯对基辅及周边地区发动了持续数小时的夜间空袭，发射了数百架无人机和导弹，这是自四年前战争爆发以来对该市最猛烈的轰炸之一。
 
-中国驻圣保罗总领馆领侨处主任荣强、侨务领事梁荣乾，巴西华人协会会长叶周永，巴西广东同乡总会会长苏新效及该会主要理监事、侨社代表、教育界人士和留学生代表出席活动。
+俄军还向基辅附近发射了一枚“榛树”高超音速导弹，这是其在冲突中第三次使用该型号导弹。
 
-座谈会由巴西广东同乡总会副秘书长刘淑仪主持。
+据乌克兰官员称，此次袭击造成4人死亡、80多人受伤，数十栋住宅楼和数所学校受损。
 
-苏新效在致辞中对代表团的到来表示诚挚欢迎，介绍巴西广东同乡总会职责与圣保罗华人学者与留学生群体的发展现状，并表示，总会愿持续发挥桥梁纽带作用，全力支持中国高校与巴西各界开展更深层次的务实合作。
+袭击规模与伤亡情况 “对基辅来说，这是一个可怕的夜晚，”基辅市长维塔利·克利奇科在袭击现场发布的消息中表示，“救援人员正在灭火和清理废墟，医护人员正在为伤者提供援助。
 
-叶周永介绍巴西华人协会成立发展情况并表示，巴西广东同乡总会作为当地侨胞人数最多的侨团，多年来始终为促进中巴友好往来提供坚实支撑，期许广东会利用自身优势，继续推动深圳大学与巴西知名高校建立常态化联系，拓展校际合作空间。
+”乌克兰空军表示，俄军共发射了90枚导弹和600架无人机。
 
-荣强在致辞中指出，今年5月起中巴互免签证政策正式实施，进一步便利了双方人员往来与交流合作。
+乌克兰总统泽连斯基表示：“这对俄罗斯来说不能没有后果。
 
-圣保罗是拉美地区华人最集中的城市，旅巴华人中半数以上来自广东，为两地交流创造了天然优势。
+需要做出决定——来自美国、欧洲和其他国家的决定。
 
-祝愿深圳大学代表团此行收获丰硕成果，也期待巴西广东同乡总会继续当好国内高校与巴西社会之间的“桥梁”，搭建稳定沟通渠道，不断夯实中巴友好的民意根基。
+”他还表示，俄罗斯还瞄准了供水设施，意图在夏季需求增加之前对其进行破坏。
 
 ## 相关推荐
 
-- 2026-06-29 18:48 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 19:02 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 18:44 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 18:45 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 18:47 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 18:52 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 19:04 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 18:45 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 18:58 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 19:02 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 18:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 18:37 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 18:51 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 18:59 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 18:36 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 19:02 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 19:04 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 18:48 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 18:51 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 19:06 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 19:07 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 18:48 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 19:09 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 18:44 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 18:51 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:01 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.kurohicncr.top/Article/details/935652.shtml)
-- 2026-06-29 18:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/68704609362.shtml)
-- 2026-06-29 18:43 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/09440.shtml)
-- 2026-06-29 19:03 - [四川地震前夕 街头电线上站满燕子](http://www.blog.kurohicncr.top/Article/details/82388.shtml)
-- 2026-06-29 18:44 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/52389649334.shtml)
-- 2026-06-29 18:57 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/21650.shtml)
-- 2026-06-29 19:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/721212820762.shtml)
-- 2026-06-29 19:03 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/843929.shtml)
-- 2026-06-29 18:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/7911356.shtml)
-- 2026-06-29 18:40 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/948694522.shtml)
-- 2026-06-29 18:56 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/119838.shtml)
-- 2026-06-29 18:57 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/25449418913.shtml)
-- 2026-06-29 18:40 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/306194.shtml)
-- 2026-06-29 18:39 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/4022189.shtml)
-- 2026-06-29 19:02 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.minike.top/Article/details/3914031928.shtml)
+- 2026-06-29 19:01 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/963831835057.shtml)
+- 2026-06-29 18:44 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/31222133490.shtml)
+- 2026-06-29 19:03 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/160969099807.shtml)
+- 2026-06-29 19:07 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/676126988111.shtml)
+- 2026-06-29 19:09 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/28147.shtml)
+- 2026-06-29 18:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/46312.shtml)
+- 2026-06-29 18:48 - [花万元相亲对象是50元雇的演员](http://www.blog.minike.top/Article/details/327115758.shtml)
+- 2026-06-29 19:09 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.kurohicncr.top/Article/details/85752.shtml)
+- 2026-06-29 19:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/575872.shtml)
+- 2026-06-29 19:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/05592.shtml)
+- 2026-06-29 18:42 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/6777246365.shtml)
+- 2026-06-29 18:58 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.minike.top/Article/details/8614487.shtml)
+- 2026-06-29 18:58 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/790679.shtml)
+- 2026-06-29 18:52 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/4133514982.shtml)
+- 2026-06-29 18:51 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/49015782.shtml)

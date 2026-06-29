@@ -1,56 +1,57 @@
-# 太空探索技术公司估值可达 1.77 万亿美元？部分投资者称这纯属天方夜谭
+# 上海崇明：鸟类增至300余种 生态恢复信号明显
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-马斯克曾在面向私人投资者的推介中预测，旗下一家企业到2028年营收将增长四倍，突破260亿美元，用户规模也将接近翻四倍。 这家企业就是推特。2022年，马斯克正筹备以4400亿美元收购这家社交媒体平台时，做出了上述预期。 如今，已更名为X的推特实际表现远不及当初的预测。去年，该平台广告收入暴跌65%，并于今年最终被并入马斯克旗下的SpaceX。 眼下SpaceX即将迎来万众瞩目
+中新网上海5月24日电(记者 张尼)今年是崇明世界级生态岛建设十周年。十年来，上海崇明生态保护成效显著，如今，湿地保护率超60%，鸟类种数也增加至300多种，生态恢复信号明显。 23日，“加强生物多样性保护，共绘万物共生画卷”论坛在上海崇明举办。论坛由生态环境部环境与经济政策研究中心、上海市崇明区生态环境局联合承办。会上发布了《长江口生态保护修复十年成效评估——崇明世界级生态岛
 
 ## 正文
 
-马斯克曾在面向私人投资者的推介中预测，旗下一家企业到2028年营收将增长四倍，突破260亿美元，用户规模也将接近翻四倍。
+中新网上海5月24日电(记者 张尼)今年是崇明世界级生态岛建设十周年。
 
-这家企业就是推特。
+十年来，上海崇明生态保护成效显著，如今，湿地保护率超60%，鸟类种数也增加至300多种，生态恢复信号明显。
 
-2022年，马斯克正筹备以4400亿美元收购这家社交媒体平台时，做出了上述预期。
+23日，“加强生物多样性保护，共绘万物共生画卷”论坛在上海崇明举办。
 
-如今，已更名为X的推特实际表现远不及当初的预测。
+论坛由生态环境部环境与经济政策研究中心、上海市崇明区生态环境局联合承办。
 
-去年，该平台广告收入暴跌65%，并于今年最终被并入马斯克旗下的SpaceX。
+会上发布了《长江口生态保护修复十年成效评估——崇明世界级生态岛建设实践》《世界级生态岛建设的中国实践与解决方案》两项重要研究成果。
 
-眼下SpaceX即将迎来万众瞩目的首次公开募股，马斯克及其投行团队又抛出了更为宏大的发展愿景。
+本次发布的成果显示，作为我国河口型潮汐滩涂湿地最集中、最典型的区域之一，崇明全区湿地总面积约27.8万公顷，湿地率达68.8%，湿地保护率超60%。
 
-但结合马斯克过往承诺过高、兑现不足的履历，不少投资者愈发担忧：这家估值定为1.77万亿美元、将于本周五正式挂牌交易的航天与人工智能企业，可能会让投资者蒙受损失。
+经过多年的生态保护修复，崇明岛“全球种群数量1%以上的水鸟物种数”由7种增至12种以上。
 
-曾预判能源企业安然公司因财务造假在2001年倒闭的知名投资人、查诺斯投资公司创始人吉姆・查诺斯表示：“眼下的局面，十足就是‘别去深究幕后真相’。
+2025年11月的调查显示，东滩保护区记录到水鸟43种52793只，其中国家一级保护动物黑嘴鸥70只、黑脸琵鹭25只、白头鹤28只、东方白鹳9只。
 
 ## 相关推荐
 
-- 2026-06-29 18:40 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 18:51 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 18:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 18:36 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 18:38 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 19:03 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 18:50 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 18:40 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 18:37 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 18:48 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 18:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 19:00 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 19:10 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 18:44 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 18:43 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 18:47 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 18:49 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 18:50 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 18:53 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 19:08 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 18:57 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:59 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/3353396.shtml)
-- 2026-06-29 18:54 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.minike.top/Article/details/3386798.shtml)
-- 2026-06-29 18:42 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/256512892090.shtml)
-- 2026-06-29 18:36 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/7769449.shtml)
-- 2026-06-29 18:52 - [官媒首曝六代机？大V解读](https://www.blog.kurohicncr.top/Article/details/082823852.shtml)
-- 2026-06-29 18:55 - [95后小伙突然确诊癌症 医生提醒](https://www.share.minike.top/Article/details/95376.shtml)
-- 2026-06-29 18:49 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/56079.shtml)
-- 2026-06-29 18:44 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/089598247.shtml)
-- 2026-06-29 18:40 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/971998595280.shtml)
-- 2026-06-29 18:54 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/475532.shtml)
-- 2026-06-29 18:48 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/2960994645.shtml)
-- 2026-06-29 18:44 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/10711958380.shtml)
-- 2026-06-29 19:03 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/729579.shtml)
-- 2026-06-29 19:00 - [德国医生在没有空调的手术室工作](https://www.share.kurohicncr.top/Article/details/618919.shtml)
-- 2026-06-29 19:02 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/813704446.shtml)
+- 2026-06-29 18:43 - [急先锋](http://www.share.kurohicncr.top/Article/details/65036049278.shtml)
+- 2026-06-29 19:11 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/7948022601.shtml)
+- 2026-06-29 19:07 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/52082.shtml)
+- 2026-06-29 18:50 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/3119584.shtml)
+- 2026-06-29 18:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/362695691.shtml)
+- 2026-06-29 19:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/5871091.shtml)
+- 2026-06-29 19:09 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.minike.top/Article/details/82370.shtml)
+- 2026-06-29 18:47 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/48699.shtml)
+- 2026-06-29 18:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/595392.shtml)
+- 2026-06-29 18:54 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/5110900.shtml)
+- 2026-06-29 18:49 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/77941.shtml)
+- 2026-06-29 18:57 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/79856261.shtml)
+- 2026-06-29 18:55 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/57113069606.shtml)
+- 2026-06-29 19:01 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/1751951.shtml)
+- 2026-06-29 19:02 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.minike.top/Article/details/31203.shtml)

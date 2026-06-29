@@ -1,58 +1,57 @@
-# 浙江温州园博园仙湖鼓声震天 近50支龙舟竞渡迎端午
+# 7天“低调”套现19亿，美的“少东家”为何要动“盈峰系长子”？
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网温州6月13日电(胡丰盛)鼓声如雷，桨叶翻飞，水花四溅——6月13日上午，2026年端午全国龙舟大联动(温州·瓯海站)暨温州传统龙舟竞渡展示活动，在温州园博园仙湖水域激情开桨。来自浙江温州各地的近50支龙舟队伍、近2000名划手齐聚一堂，在千年古河道上展开一场水上狂欢。 温州园博园所在地，是温州龙舟文化的核心发源地之一。瓯海“三溪”流域自宋代便有“龙舟竞渡”记载，诗人叶适
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源 | 野马财经 作者 | 姚悦 营收占比不足2%的业务， 如何撬动百亿市值增长？ 离开美的集团董事席位后，美的集团创始人何享健之子——何剑锋的资本棋局更加凌厉。 不仅先后加注顾家家居（603816.SH）、入股索菲亚（002572.SZ），麾下百纳千成（
 
 ## 正文
 
-中新网温州6月13日电(胡丰盛)鼓声如雷，桨叶翻飞，水花四溅——6月13日上午，2026年端午全国龙舟大联动(温州·瓯海站)暨温州传统龙舟竞渡展示活动，在温州园博园仙湖水域激情开桨。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来自浙江温州各地的近50支龙舟队伍、近2000名划手齐聚一堂，在千年古河道上展开一场水上狂欢。
+来源 | 野马财经 作者 | 姚悦 营收占比不足2%的业务， 如何撬动百亿市值增长？
 
-温州园博园所在地，是温州龙舟文化的核心发源地之一。
+离开美的集团董事席位后，美的集团创始人何享健之子——何剑锋的资本棋局更加凌厉。
 
-瓯海“三溪”流域自宋代便有“龙舟竞渡”记载，诗人叶适曾写下“一村一船遍一邦，处处旗脚争飞扬”的名句。
+不仅先后加注顾家家居（603816.SH）、入股索菲亚（002572.SZ），麾下百纳千成（300291.SZ）上演“蛇吞象”。
 
-园博园所在的仙门河，古称前湖，汇集瞿溪、雄溪、郭溪三溪之水，河道宽阔笔直，历史上最盛时一天龙舟可达140余艘。
+近期，何剑锋还一改过去十年对“盈峰系长子”盈峰环境（000967.SZ）沉稳低调的持股风格，开启快节奏、大规模的减持。
 
-上午9时30分，启动仪式开始。
+营收占比不足2%的算力概念，让环保公司盈峰环境市值一度暴涨超200亿；股价高位之际，何剑锋麾下的“盈峰系”公司7个交易日“低调”套现近19亿。
 
-龙舟统一进闸，船头龙首昂然，队员们精神抖擞。
+而这场资本大戏的真正收尾—— 借股价拉升，盈峰环境可转债强制赎回，化解14.7亿债务，盈峰转债的最后一个转股日定在5月28日。
 
-庄重的鼓乐声中，传统“点睛”仪式举行——朱笔轻点，龙睛焕彩，全场气氛瞬间点燃。
+截至5月25日收盘，盈峰环境股价下跌0.46%，报12.92元/股，总市值425亿元。
 
 ## 相关推荐
 
-- 2026-06-29 19:04 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 18:55 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 18:54 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 18:49 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 18:57 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 18:47 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 18:48 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 18:47 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 18:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 18:39 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 18:46 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 18:36 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 18:48 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 18:43 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 18:56 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 18:49 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 19:02 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 19:09 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 18:54 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 19:09 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 18:53 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 18:58 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 18:55 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:53 - [首个靠AI躺赢的国家](https://www.share.minike.top/Article/details/3561624.shtml)
-- 2026-06-29 18:43 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/80902593.shtml)
-- 2026-06-29 19:04 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/1787615117.shtml)
-- 2026-06-29 18:38 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/743136923.shtml)
-- 2026-06-29 18:49 - [7款高价创新药有望降价](https://www.share.kurohicncr.top/Article/details/55264005928.shtml)
-- 2026-06-29 19:02 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/02260.shtml)
-- 2026-06-29 18:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/71932081950.shtml)
-- 2026-06-29 18:44 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/454735930.shtml)
-- 2026-06-29 18:57 - [叠纸客服回应恋与深空新角色争议](https://www.blog.kurohicncr.top/Article/details/0417454023.shtml)
-- 2026-06-29 19:05 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/17413099.shtml)
-- 2026-06-29 18:57 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/953733.shtml)
-- 2026-06-29 18:52 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/2606810.shtml)
-- 2026-06-29 18:55 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/3465406039.shtml)
-- 2026-06-29 18:58 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/417445680.shtml)
-- 2026-06-29 18:36 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/80474.shtml)
+- 2026-06-29 18:49 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/78442239.shtml)
+- 2026-06-29 19:03 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/50446949.shtml)
+- 2026-06-29 18:45 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.blog.minike.top/Article/details/8544125.shtml)
+- 2026-06-29 19:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/5677387799.shtml)
+- 2026-06-29 19:11 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/015841766468.shtml)
+- 2026-06-29 18:59 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/907389.shtml)
+- 2026-06-29 18:52 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/7507121035.shtml)
+- 2026-06-29 18:57 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/643269017538.shtml)
+- 2026-06-29 19:04 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/32242.shtml)
+- 2026-06-29 18:53 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/24684100097.shtml)
+- 2026-06-29 19:04 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/4710325382.shtml)
+- 2026-06-29 19:08 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/610044.shtml)
+- 2026-06-29 19:07 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/771320.shtml)
+- 2026-06-29 18:47 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/71328.shtml)
+- 2026-06-29 18:47 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/7403396831.shtml)

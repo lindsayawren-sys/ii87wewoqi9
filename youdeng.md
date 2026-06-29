@@ -1,50 +1,59 @@
-# 李剑任江南大学校长
+# 网络安全股走势超越芯片板块，CrowdStrike 、思科创历史新高
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网6月12日电 据“微言教育”微信公众号消息，6月12日，教育部人事司在江南大学宣布了教育部党组的任免决定，李剑同志任江南大学校长、党委副书记，陈卫同志不再担任江南大学校长、党委副书记职务。教育部人事司主要负责同志、江苏省委教育工委有关负责同志出席会议并讲话。 李剑，1978年4月出生，研究生，理学博士，中共党员，教授。曾任华东理工大学党委常委、副校长。
+芯片依旧是本轮牛市核心支柱，但 5 月市场焦点转向网络安全板块。芯片板块经历回调后逐步修复，网络安全股却逆势走强，股价接连创下历史新高。 第一信托纳斯达克网络安全指数 ETF 本月涨幅约 25%，表现远超安硕半导体 ETF 与科技软件板块 ETF。该指数突破去年 10 月高点后，已连续七个交易日刷新盘中纪录。 科技板块格局就此出现反转。 半导体一直是本轮牛市的中坚力量，行情驱动
 
 ## 正文
 
-中新网6月12日电 据“微言教育”微信公众号消息，6月12日，教育部人事司在江南大学宣布了教育部党组的任免决定，李剑同志任江南大学校长、党委副书记，陈卫同志不再担任江南大学校长、党委副书记职务。
+芯片依旧是本轮牛市核心支柱，但 5 月市场焦点转向网络安全板块。
 
-教育部人事司主要负责同志、江苏省委教育工委有关负责同志出席会议并讲话。
+芯片板块经历回调后逐步修复，网络安全股却逆势走强，股价接连创下历史新高。
 
-李剑，1978年4月出生，研究生，理学博士，中共党员，教授。
+第一信托纳斯达克网络安全指数 ETF 本月涨幅约 25%，表现远超安硕半导体 ETF 与科技软件板块 ETF。
 
-曾任华东理工大学党委常委、副校长。
+该指数突破去年 10 月高点后，已连续七个交易日刷新盘中纪录。
+
+科技板块格局就此出现反转。
+
+半导体一直是本轮牛市的中坚力量，行情驱动力依旧强劲。
+
+即便 5 月 11 日高点至 19 日低点区间回撤超 10%，半导体 ETF 年内涨幅仍接近 80%，季度涨幅超 60%。
+
+资金迅速回流芯片赛道，但 5 月走势最强劲的科技细分领域当属网络安全。
 
 ## 相关推荐
 
-- 2026-06-29 18:54 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 19:03 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 19:04 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 18:36 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 18:41 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 18:40 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 18:51 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 19:02 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 19:01 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 18:54 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-29 18:40 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 18:36 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 18:48 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 18:50 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 19:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 18:59 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 18:58 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 18:43 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 18:54 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 18:42 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 19:06 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 18:58 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 19:09 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 18:56 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 18:53 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:45 - [小娘惹](https://www.share.kurohicncr.top/Article/details/55928040.shtml)
-- 2026-06-29 18:57 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/222649491.shtml)
-- 2026-06-29 18:41 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/3296342.shtml)
-- 2026-06-29 18:36 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/1142169.shtml)
-- 2026-06-29 18:50 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/833397410.shtml)
-- 2026-06-29 18:54 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/17819.shtml)
-- 2026-06-29 18:38 - [海清4次陪跑白玉兰](https://www.share.kurohicncr.top/Article/details/6543654.shtml)
-- 2026-06-29 19:05 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/968108720485.shtml)
-- 2026-06-29 18:37 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/1358451.shtml)
-- 2026-06-29 18:40 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.minike.top/Article/details/289030390136.shtml)
-- 2026-06-29 18:41 - [德国医生在没有空调的手术室工作](https://www.blog.kurohicncr.top/Article/details/007239636589.shtml)
-- 2026-06-29 18:46 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/390731646995.shtml)
-- 2026-06-29 19:05 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/578458268990.shtml)
-- 2026-06-29 18:56 - [时光音乐会](https://www.share.minike.top/Article/details/73651.shtml)
-- 2026-06-29 18:58 - [流金岁月](http://www.share.kurohicncr.top/Article/details/1760482538.shtml)
+- 2026-06-29 18:50 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/227088475.shtml)
+- 2026-06-29 18:49 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/731192.shtml)
+- 2026-06-29 19:07 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.kurohicncr.top/Article/details/20092725822.shtml)
+- 2026-06-29 18:48 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/22290.shtml)
+- 2026-06-29 18:51 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/429148588925.shtml)
+- 2026-06-29 19:00 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/479624164432.shtml)
+- 2026-06-29 18:53 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/680893.shtml)
+- 2026-06-29 18:51 - [极限挑战第一季](http://www.blog.minike.top/Article/details/97357.shtml)
+- 2026-06-29 19:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/610627860.shtml)
+- 2026-06-29 18:55 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/0367255219.shtml)
+- 2026-06-29 18:47 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/2482922.shtml)
+- 2026-06-29 18:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/042453.shtml)
+- 2026-06-29 18:54 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/30968.shtml)
+- 2026-06-29 18:56 - [7款高价创新药有望降价](https://www.blog.minike.top/Article/details/53273370.shtml)
+- 2026-06-29 18:42 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/788774728.shtml)

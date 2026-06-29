@@ -1,60 +1,57 @@
-# “翻倍基”、“双十基金”双丰收，长短期业绩均出彩，中欧基金投研实力硬核兑现
+# 台胞携科创成果亮相海交会 盼深化两岸产业协作
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-2026年A股结构性行情持续深化，新质生产力落地、AI全产业链产业化、高端制造国产替代多重产业红利集中释放，主动权益基金整体赚钱效应迎来全局性回升。 然而，当下投资者选择主动权益基金的难度显著提升。倘若盲目跟风热门爆款，极易在未来市场震荡中承受回撤，导致投资体验大打折扣。 中欧基金长期以来不断推进“工业化”投研体系建设，力争为持有人创造稳健收益。截至2026年5月末，中欧基金旗
+中新社福州5月23日电 (郑江洛)第二十八届海峡两岸经贸交易会(简称“海交会”)正在福建福州举行，多位台湾技术人才携绿色新材料、生物医药、数字科技等领域科创成果亮相，展现两岸产业深度融合的新趋势。 本届海交会规划面积达4万平方米，设置台湾工业智造科技、福马产业园、两岸绿色低碳产业等10个主题展区，推动产业交流与对接。 “两岸产业互补性强，台湾在半导体、精密制造等方面具备优势，而
 
 ## 正文
 
-2026年A股结构性行情持续深化，新质生产力落地、AI全产业链产业化、高端制造国产替代多重产业红利集中释放，主动权益基金整体赚钱效应迎来全局性回升。
+中新社福州5月23日电 (郑江洛)第二十八届海峡两岸经贸交易会(简称“海交会”)正在福建福州举行，多位台湾技术人才携绿色新材料、生物医药、数字科技等领域科创成果亮相，展现两岸产业深度融合的新趋势。
 
-然而，当下投资者选择主动权益基金的难度显著提升。
+本届海交会规划面积达4万平方米，设置台湾工业智造科技、福马产业园、两岸绿色低碳产业等10个主题展区，推动产业交流与对接。
 
-倘若盲目跟风热门爆款，极易在未来市场震荡中承受回撤，导致投资体验大打折扣。
+“两岸产业互补性强，台湾在半导体、精密制造等方面具备优势，而大陆在市场规模、数字经济、新能源等领域发展迅速。
 
-中欧基金长期以来不断推进“工业化”投研体系建设，力争为持有人创造稳健收益。
+”台胞曾月春受访时说，22年前来到大陆从事风力发电新材料开发，此次携石墨烯新材料在能源电力及风电多功能应用项目参展，为风电叶片轻量化、电力传输增效等提供系统解决方案。
 
-截至2026年5月末，中欧基金旗下共有12只成立满十年且年化收益率超10%的“双十基金”；近一年，有11只主动权益产品实现累计收益率超过100%。
+作为台湾高校校友(福建)联谊中心会长，曾月春此次还带领该中心多名成员共同参会，希望借助海交会平台对接更多合作伙伴，推动两岸高端材料研发与工程应用深度协作，助力能源产业绿色低碳转型。
 
-长期来看，中欧基金旗下这12只产品穿越多轮牛熊，中短期来看，中欧基金旗下这11只产品精准捕捉阶段性行情，长短周期业绩双双亮眼，努力切实为持有人打造优质的投资持有体验。
+台胞陈蕙如带来其团队研发的植物萃取抑菌呼吸棒。
 
-十余年长跑实力优秀，12只双十基金穿越牛熊 “双十基金”是公募基金行业含金量极高的荣誉标签，产品需历经十年以上牛熊周期考验，并穿越多轮极端市场行情，且实现成立以来年化收益率在10%以上。
+她表示，大陆中医药底蕴深厚，大健康产业市场广阔，希望通过海交会对接资源，将安全有效的植物康养产品推向更广阔市场，并在养老康养领域与大陆伙伴展开长期合作。
 
-能够批量培育十余只“双十基金”，足以印证一家基金公司底层投研硬实力。
+专注新材料研发逾30年、在大陆发展25年的台胞赖百本，此次重点推介了其自主研发的分散式菌丝体皮革生产平台项目。
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 18:38 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 18:44 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 18:50 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 19:00 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 18:39 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 18:56 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 18:52 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 18:54 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 18:43 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 18:48 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 18:39 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 18:38 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 18:59 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 18:55 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 19:09 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 19:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 18:58 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 19:11 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 18:52 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 19:07 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 18:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 19:01 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 19:08 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 18:42 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:02 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/86044948546.shtml)
-- 2026-06-29 18:56 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/5527799.shtml)
-- 2026-06-29 18:42 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/5494086.shtml)
-- 2026-06-29 18:41 - [娜扎搂着我的腰和我合照](https://www.blog.kurohicncr.top/Article/details/91225.shtml)
-- 2026-06-29 18:52 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/90040935914.shtml)
-- 2026-06-29 19:00 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/02007959.shtml)
-- 2026-06-29 19:01 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/783366.shtml)
-- 2026-06-29 18:44 - [看大国重器“云端穿针引线”](https://www.share.minike.top/Article/details/599695.shtml)
-- 2026-06-29 18:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/00944002.shtml)
-- 2026-06-29 18:47 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/82321512.shtml)
-- 2026-06-29 18:57 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/7279657.shtml)
-- 2026-06-29 18:59 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/5590235666.shtml)
-- 2026-06-29 18:50 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/2080874587.shtml)
-- 2026-06-29 19:05 - [人类对空调和其他家电有多双标](http://www.blog.kurohicncr.top/Article/details/0685225.shtml)
-- 2026-06-29 18:48 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/5981648898.shtml)
+- 2026-06-29 18:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/9926958889.shtml)
+- 2026-06-29 19:02 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/738767270.shtml)
+- 2026-06-29 19:03 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/13875057.shtml)
+- 2026-06-29 18:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/6828189236.shtml)
+- 2026-06-29 18:44 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/89310.shtml)
+- 2026-06-29 19:03 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/987310423341.shtml)
+- 2026-06-29 19:03 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.kurohicncr.top/Article/details/710508549.shtml)
+- 2026-06-29 19:08 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/7122617901.shtml)
+- 2026-06-29 18:50 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/395200.shtml)
+- 2026-06-29 19:02 - [海口塔吊事故处罚结果公布](https://www.blog.kurohicncr.top/Article/details/908358179723.shtml)
+- 2026-06-29 18:51 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/669073471804.shtml)
+- 2026-06-29 18:51 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/76404.shtml)
+- 2026-06-29 18:58 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/61490.shtml)
+- 2026-06-29 19:09 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/071590029.shtml)
+- 2026-06-29 18:56 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/54344507175.shtml)

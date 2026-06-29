@@ -1,61 +1,60 @@
-# 警惕电信网络诈骗！未成年人、老年人成电诈重点对象
+# 1天→1年 回顾中国航天员逐梦苍穹的在轨征途
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-6月12日，公安部召开新闻发布会。相关负责人介绍，近年来，未成年人、学生群体以及老年人已经成为电信网络诈骗分子重点瞄准的诈骗对象。 警惕虚假游戏交易等针对学生群体诈骗 当前针对中小学生群体的常见诈骗类型主要有虚假游戏交易、追星以及直播间诱导打赏类诈骗等；针对大学生群体的主要有虚假游戏交易、购买演唱会门票、刷单返利类以及网恋交友类诈骗等；涉及留学生的常见诈骗手法有冒充公检法类、虚
+神舟二十三号飞船出征在即，乘组1名航天员将开展1年期在轨驻留试验。从2003年神舟五号载着杨利伟迈出中国人飞天第一步，到今年即将开展的一年期驻留试验，二十多年间，中国载人航天从“一人一天”到“长期驻留”，在轨时长纪录不断刷新。截至目前，我国已有28人、44人次飞天圆梦。一起循着时间脉络回顾中国航天员在轨征程。 2003年10月15日，神舟五号载着杨利伟直冲云霄，这是中国首次载人
 
 ## 正文
 
-6月12日，公安部召开新闻发布会。
+神舟二十三号飞船出征在即，乘组1名航天员将开展1年期在轨驻留试验。
 
-相关负责人介绍，近年来，未成年人、学生群体以及老年人已经成为电信网络诈骗分子重点瞄准的诈骗对象。
+从2003年神舟五号载着杨利伟迈出中国人飞天第一步，到今年即将开展的一年期驻留试验，二十多年间，中国载人航天从“一人一天”到“长期驻留”，在轨时长纪录不断刷新。
 
-警惕虚假游戏交易等针对学生群体诈骗 当前针对中小学生群体的常见诈骗类型主要有虚假游戏交易、追星以及直播间诱导打赏类诈骗等；针对大学生群体的主要有虚假游戏交易、购买演唱会门票、刷单返利类以及网恋交友类诈骗等；涉及留学生的常见诈骗手法有冒充公检法类、虚拟绑架以及换汇诈骗等。
+截至目前，我国已有28人、44人次飞天圆梦。
 
-上海市公安局刑侦总队反诈支队支队长 何恩斌：今年全国高考刚刚结束，广大考生很快就要面临志愿填报和升学。
+一起循着时间脉络回顾中国航天员在轨征程。
 
-公安机关在此提醒，考生和家长一定要警惕、擦亮双眼，从教育部门官方网站查询成绩，从正规渠道了解招生信息，切勿轻信“熟人朋友”、社交媒体或自称招办领导介绍的神秘通道，严防上当受骗。
+2003年10月15日，神舟五号载着杨利伟直冲云霄，这是中国首次载人航天飞行。
 
-涉老年人诈骗三类高发 涉老年人诈骗违法犯罪主要有3种高发类型。
+杨利伟在轨飞行21小时23分、绕地球14圈后安全返回，标志着我国成为世界上第三个独立掌握载人航天技术的国家。
 
-一是养老投资类，以保本高息理财产品、收藏品或原始股、养老公寓、康养项目等为诱饵，诱骗老人投资。
+此后，神舟六号和神舟七号两次任务，中国载人航天实现了“多人多天”、首次空间出舱活动等多项突破，推动中国载人航天从“验证性飞行”向“应用性飞行”迈出关键一步。
 
-二是推销保健品类，打着专家义诊、健康讲座旗号，夸大药效、虚构病情，推销高价保健品、理疗器械。
+从神舟九号到神舟十一号，太空驻留天数突破了两位数，实现了“中期驻留”。
 
 ## 相关推荐
 
-- 2026-06-29 18:39 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 18:55 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 19:05 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 18:36 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 18:56 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 18:54 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 19:03 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 18:55 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 19:00 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 19:00 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 18:37 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 18:39 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 18:57 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 18:36 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 18:53 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 19:09 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 18:56 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 19:08 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 19:00 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 19:03 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 19:02 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 19:05 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 18:42 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 18:57 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 19:07 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 19:07 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 19:06 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 19:10 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 19:04 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:04 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/05298516.shtml)
-- 2026-06-29 18:50 - [起风了](https://www.share.kurohicncr.top/Article/details/3382502.shtml)
-- 2026-06-29 18:41 - [毒液2](https://www.share.minike.top/Article/details/11315472.shtml)
-- 2026-06-29 18:49 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/45318937112.shtml)
-- 2026-06-29 18:43 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/3695015.shtml)
-- 2026-06-29 18:37 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/8391076936.shtml)
-- 2026-06-29 18:50 - [沙特外交大臣将访华](http://www.blog.minike.top/Article/details/0166924.shtml)
-- 2026-06-29 18:44 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/826459888217.shtml)
-- 2026-06-29 19:01 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/65964753.shtml)
-- 2026-06-29 18:40 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/4380922565.shtml)
-- 2026-06-29 19:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/6885987.shtml)
-- 2026-06-29 18:38 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/627495761.shtml)
-- 2026-06-29 18:56 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.minike.top/Article/details/67777.shtml)
-- 2026-06-29 18:57 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.minike.top/Article/details/3464071.shtml)
-- 2026-06-29 18:47 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/18456856.shtml)
+- 2026-06-29 18:53 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/1237012374.shtml)
+- 2026-06-29 19:06 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/52390579.shtml)
+- 2026-06-29 18:44 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/8767720815.shtml)
+- 2026-06-29 19:08 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/7684096.shtml)
+- 2026-06-29 18:59 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/33091927.shtml)
+- 2026-06-29 18:48 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/06908.shtml)
+- 2026-06-29 18:51 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/952778275359.shtml)
+- 2026-06-29 19:06 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.minike.top/Article/details/644044.shtml)
+- 2026-06-29 18:43 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/29709875.shtml)
+- 2026-06-29 19:04 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/913306.shtml)
+- 2026-06-29 19:03 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/70634231.shtml)
+- 2026-06-29 19:01 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/44523130.shtml)
+- 2026-06-29 18:58 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/05797926.shtml)
+- 2026-06-29 18:44 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/7402553610.shtml)
+- 2026-06-29 18:56 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/58562.shtml)

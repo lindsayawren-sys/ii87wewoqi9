@@ -1,60 +1,58 @@
-# “创赢未来”2026创业大赛辽宁省选拔赛在铁岭落幕
+# 石油大省阿尔伯塔将就脱离加拿大举行公投
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网铁岭6月13日电 (记者 李晛)6月10日至6月12日，“创赢未来”2026创业大赛辽宁省选拔赛在铁岭市举办。经过三天的激烈角逐，大赛圆满落下帷幕。 本届大赛以“释放创业动能 圆梦出彩人生——汇聚英才兴辽 创享振兴未来”为主题，旨在通过赛事引导发展多种创业模式，激发全社会内生动力和创新活力。大赛采用“4+1”模式，设立了“科技成果+创业”、“产业发展+创业”、“职业技能+
+核心要点 阿尔伯塔省省长丹妮尔・史密斯宣布，这座石油资源丰富的省份将于今年秋季举行一场无法律约束力的公投，表决民众是否愿意留在加拿大境内；若倾向脱离，则后续将举行具备法律效力的独立公投。 这是加拿大历史上，魁北克之外首个就独立问题发起全民表决的省份，此前当地分离势力已开展数月宣传活动。 史密斯周四晚间发表电视讲话称，个人立场支持本省留在加拿大，也会在公投中投出赞成留存的一票。
 
 ## 正文
 
-中新网铁岭6月13日电 (记者 李晛)6月10日至6月12日，“创赢未来”2026创业大赛辽宁省选拔赛在铁岭市举办。
+核心要点 阿尔伯塔省省长丹妮尔・史密斯宣布，这座石油资源丰富的省份将于今年秋季举行一场无法律约束力的公投，表决民众是否愿意留在加拿大境内；若倾向脱离，则后续将举行具备法律效力的独立公投。
 
-经过三天的激烈角逐，大赛圆满落下帷幕。
+这是加拿大历史上，魁北克之外首个就独立问题发起全民表决的省份，此前当地分离势力已开展数月宣传活动。
 
-本届大赛以“释放创业动能 圆梦出彩人生——汇聚英才兴辽 创享振兴未来”为主题，旨在通过赛事引导发展多种创业模式，激发全社会内生动力和创新活力。
+史密斯周四晚间发表电视讲话称，个人立场支持本省留在加拿大，也会在公投中投出赞成留存的一票。
 
-大赛采用“4+1”模式，设立了“科技成果+创业”、“产业发展+创业”、“职业技能+创业”、“民生需求+创业”4个主体赛道，以及1个青年创新专项赛。
+她同时表示：“尽管我个人主张维持联邦统一，但一项不当的法院判决侵犯了数十万阿尔伯塔民众的民主权利，这令我深感忧虑。
 
-自2月份启动以来，全省15个地市积极响应，首次依托全省统一网络实名制报名通道，累计吸引2069个项目报名参加各市选拔赛，251个项目从中脱颖而出参加省赛，报名数量创历年新高。
+” 此前当地一名法官驳回了民众发起的脱省请愿。
 
-选拔赛现场，参赛选手们通过精彩的项目路演和答辩，全方位展示了项目的创新引领性、商业模式及带动就业潜力。
+民间组织 “自由阿尔伯塔” 是独立诉求的支持者，该组织已收集超 30.1 万份联名签名。
 
-由35位省内外知名投资人、成功创业家及就业创业政策专家组成的评审团，严格按照国赛标准进行了公正评审。
+支持者认为，渥太华联邦政府长期忽视本省利益。
 
-最终，“基于AI的虚拟电厂调节与负荷侧节能降碳系统”等10个项目获得一等奖；“高频高速电子级树脂及光刻胶关键单体国产化产业化项目”等20个项目获得二等奖；“智能芯片SDS设备的研发与产业化”等30个项目获得三等奖。
+不过民意调查显示，独立主张并未获得广泛民意支持。
 
 ## 相关推荐
 
-- 2026-06-29 19:05 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 18:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 18:49 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 18:52 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 18:39 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 18:40 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 19:00 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 18:43 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 18:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 18:41 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 19:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 18:51 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 18:37 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 18:58 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 19:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 18:47 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 18:46 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 19:06 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 18:49 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 19:02 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 19:01 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 18:56 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 18:59 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 19:01 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 19:07 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 19:06 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:03 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/900312.shtml)
-- 2026-06-29 18:42 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/1116960215.shtml)
-- 2026-06-29 18:48 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/017227601771.shtml)
-- 2026-06-29 19:00 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/68862473255.shtml)
-- 2026-06-29 18:37 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/4333551453.shtml)
-- 2026-06-29 19:05 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/80528650536.shtml)
-- 2026-06-29 18:48 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.kurohicncr.top/Article/details/99711.shtml)
-- 2026-06-29 18:39 - [周生如故](http://www.share.kurohicncr.top/Article/details/6994711.shtml)
-- 2026-06-29 18:54 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/246971625.shtml)
-- 2026-06-29 18:45 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/435738845.shtml)
-- 2026-06-29 18:45 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/11638110128.shtml)
-- 2026-06-29 18:41 - [张杰我九岁就跟你了](https://www.blog.minike.top/Article/details/376134226264.shtml)
-- 2026-06-29 18:56 - [斛珠夫人](https://www.share.minike.top/Article/details/27539143521.shtml)
-- 2026-06-29 19:01 - [唐艺昕告别浪姐千字长文](http://www.share.kurohicncr.top/Article/details/92070320.shtml)
-- 2026-06-29 18:46 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/9074366353.shtml)
+- 2026-06-29 18:50 - [学者：建设性战略稳定重塑中美关系](https://www.share.minike.top/Article/details/3231071.shtml)
+- 2026-06-29 19:03 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/96474530.shtml)
+- 2026-06-29 19:10 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/92533.shtml)
+- 2026-06-29 19:02 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/84519.shtml)
+- 2026-06-29 18:45 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/39540391528.shtml)
+- 2026-06-29 19:08 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/45129.shtml)
+- 2026-06-29 18:51 - [叠纸](https://www.share.minike.top/Article/details/866356.shtml)
+- 2026-06-29 19:03 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.minike.top/Article/details/4523212.shtml)
+- 2026-06-29 19:06 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/5261010.shtml)
+- 2026-06-29 19:04 - [两老人多次到一洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/6199243190.shtml)
+- 2026-06-29 18:46 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/4455495.shtml)
+- 2026-06-29 19:07 - [沉睡花园](http://www.blog.minike.top/Article/details/628383415124.shtml)
+- 2026-06-29 18:58 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/0959064.shtml)
+- 2026-06-29 19:08 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/885939.shtml)
+- 2026-06-29 18:42 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/525544583957.shtml)

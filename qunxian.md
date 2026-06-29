@@ -1,59 +1,53 @@
-# 电影《爸爸》广州路演 主角刘青云坦言“表演难度极大”
+# 以父之名书写家国史诗 作家彭学明长篇作品新推增订版
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网广州6月15日电 (记者 程景伟)作为“首映在广州”品牌活动，现实亲情题材电影《爸爸》广州首映及路演活动14日举办。导演翁子光、主演刘青云分享了影片背后的创作初衷、拍摄历程以及对角色的理解与感悟。 该影片将于6月27日正式上映。影片跳出了传统犯罪片的猎奇框架，扎根市井生活底色，聚焦家庭悲剧发生后父亲阮永年(刘青云饰)如何重建生活的心路历程。正如翁子光所说：这不是一部关于“
+中新网北京5月23日电 (记者 高凯)作家彭学明长篇小说《爹》最新增订版日前由作家出版社推出。 长篇小说《爹》通过爹及湘西父辈一个个跌宕起伏的人生故事，把长征、抗日战争、解放战争、湘西剿匪、抗美援朝、新中国建设、改革开放等历史事件和重大历史节点巧妙地融为一体，既状写国家和民族命运惊涛骇浪的宏阔，又细描个人和家族命运点滴涟漪的幽微。 据介绍，最新增订版《爹》近73万字，以儿子对父
 
 ## 正文
 
-中新网广州6月15日电 (记者 程景伟)作为“首映在广州”品牌活动，现实亲情题材电影《爸爸》广州首映及路演活动14日举办。
+中新网北京5月23日电 (记者 高凯)作家彭学明长篇小说《爹》最新增订版日前由作家出版社推出。
 
-导演翁子光、主演刘青云分享了影片背后的创作初衷、拍摄历程以及对角色的理解与感悟。
+长篇小说《爹》通过爹及湘西父辈一个个跌宕起伏的人生故事，把长征、抗日战争、解放战争、湘西剿匪、抗美援朝、新中国建设、改革开放等历史事件和重大历史节点巧妙地融为一体，既状写国家和民族命运惊涛骇浪的宏阔，又细描个人和家族命运点滴涟漪的幽微。
 
-该影片将于6月27日正式上映。
+据介绍，最新增订版《爹》近73万字，以儿子对父亲的漫长寻找为线索，不但钩沉出“爹”跌宕起伏的传奇人生和风骨，更辐射出一代中国父辈在时代洪流中的命运沉浮与精神图谱。
 
-影片跳出了传统犯罪片的猎奇框架，扎根市井生活底色，聚焦家庭悲剧发生后父亲阮永年(刘青云饰)如何重建生活的心路历程。
+作品中，“我”由于年幼时就父母离异，一直固执地认为是父亲抛弃了“我”，对父亲恨之入骨，拒而远之，直到偶然间看到家谱上记录着父亲曾参加过淞沪会战、常德保卫战、雪峰山保卫战以及抗美援朝战争，是英雄、功臣，才试图了解父亲，走近父亲。
 
-正如翁子光所说：这不是一部关于“谁杀了谁”的电影，而是一部关于“留下来的人怎么活”的电影。
+当父亲跌宕起伏的人生命运与传奇，复杂多面而又美好卓越的人性品格，一章章、一节节地走进“我”的心灵时，“我”不仅完成了一场跨越数十年的情感回归与自我和解，也完成了对父亲、父爱和父辈的重新理解和认识，完成了对湘西、中国和人的灵魂感知和深切表达。
 
-一向擅长塑造多面银幕形象的刘青云，此次褪去以往经典角色的锋芒，化身一位平凡内敛又极致负重前行、沉默坚守的父亲。
-
-为贴合角色状态，他摒弃外放的表演方式，将表演融入生活细节：佝偻的体态、不经意间抬手揉眼的小动作、欲言又止的神态、面对家人时隐忍又温柔的眼神，每一处微表情、每一个肢体动作都精准拿捏人物心境。
-
-刘青云坦言，“父亲”这个角色看似普通，实则表演难度极大，“这个角色没有激烈的台词和外放的情绪，所有情感都压在心底，要靠细节去传递人物的精神困境和复杂情绪。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:59 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 19:00 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 18:57 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 18:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 18:41 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 18:58 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 19:04 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 18:36 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 18:44 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 18:49 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 18:43 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 18:39 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 19:00 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 19:03 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 19:00 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 19:00 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 18:46 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 18:50 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 19:01 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 18:55 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 18:47 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 19:01 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 18:51 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 18:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:45 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/28585226164.shtml)
-- 2026-06-29 18:45 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/81380.shtml)
-- 2026-06-29 19:03 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/91342.shtml)
-- 2026-06-29 18:39 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/5465981431.shtml)
-- 2026-06-29 18:54 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/175182524588.shtml)
-- 2026-06-29 19:05 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/912661066.shtml)
-- 2026-06-29 19:00 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/646095067.shtml)
-- 2026-06-29 18:59 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/41691.shtml)
-- 2026-06-29 18:55 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/0681985000.shtml)
-- 2026-06-29 18:53 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/22413339830.shtml)
-- 2026-06-29 18:53 - [人形机器人](https://www.blog.kurohicncr.top/Article/details/86486850.shtml)
-- 2026-06-29 18:48 - [金牌调解](http://www.share.minike.top/Article/details/7221437.shtml)
-- 2026-06-29 18:45 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/7723527.shtml)
-- 2026-06-29 18:48 - [小娘惹](https://www.share.kurohicncr.top/Article/details/636248648739.shtml)
-- 2026-06-29 19:03 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/2469786231.shtml)
+- 2026-06-29 18:54 - [AG 宫斗](https://www.blog.minike.top/Article/details/69574.shtml)
+- 2026-06-29 19:12 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/63983792262.shtml)
+- 2026-06-29 19:05 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/3457710.shtml)
+- 2026-06-29 19:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/227029786953.shtml)
+- 2026-06-29 18:54 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/648587794.shtml)
+- 2026-06-29 19:08 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/06559059.shtml)
+- 2026-06-29 19:03 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/794486793205.shtml)
+- 2026-06-29 18:43 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/41019.shtml)
+- 2026-06-29 18:48 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/336355.shtml)
+- 2026-06-29 18:48 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/633204421.shtml)
+- 2026-06-29 18:59 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/856788242857.shtml)
+- 2026-06-29 18:49 - [外交部谈对日出口管制措施](http://www.share.minike.top/Article/details/352422611.shtml)
+- 2026-06-29 19:00 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/3522032092.shtml)
+- 2026-06-29 18:56 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.minike.top/Article/details/28598.shtml)
+- 2026-06-29 18:45 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/7616715.shtml)

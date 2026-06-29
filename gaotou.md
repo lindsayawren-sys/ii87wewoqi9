@@ -1,57 +1,57 @@
-# 冬奥冠军韩晓鹏：每一次跌倒都是为了更好地起跳
+# 港人飞天，星辰可及
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网北京6月13日电 “中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动近日走进北京市西城区三里河第三小学。自由式滑雪空中技巧冬奥冠军韩晓鹏带着他的追梦故事来到校园，用自身经历诠释“每一次跌倒都是为了更好地起跳”，鼓励同学们去追逐属于自己的“飞翔时刻”。 “我的家乡在江苏徐州沛县，冬天留不住积雪，从没想过有一天会与滑雪结缘。”中华体育精神大讲堂上，韩晓鹏坦言，
+中新社甘肃酒泉5月23日电 题：港人飞天，星辰可及 中新社记者 马帅莎 郭超凯 神舟二十三号乘组名单于5月23日公布，首位来自香港的航天员黎家盈名列其中。24日晚，她将乘坐神舟二十三号载人飞船前往国家空间站，成为继刘洋、王亚平、王浩泽之后，第4位飞向太空的中国女性。 香港航天员首次飞天，不仅是黎家盈个人的圆梦时刻，更是内地与港澳携手遨游“星辰大海”的又一见证。 国家航天事业的发
 
 ## 正文
 
-中新网北京6月13日电 “中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动近日走进北京市西城区三里河第三小学。
+中新社甘肃酒泉5月23日电 题：港人飞天，星辰可及 中新社记者 马帅莎 郭超凯 神舟二十三号乘组名单于5月23日公布，首位来自香港的航天员黎家盈名列其中。
 
-自由式滑雪空中技巧冬奥冠军韩晓鹏带着他的追梦故事来到校园，用自身经历诠释“每一次跌倒都是为了更好地起跳”，鼓励同学们去追逐属于自己的“飞翔时刻”。
+24日晚，她将乘坐神舟二十三号载人飞船前往国家空间站，成为继刘洋、王亚平、王浩泽之后，第4位飞向太空的中国女性。
 
-“我的家乡在江苏徐州沛县，冬天留不住积雪，从没想过有一天会与滑雪结缘。
+香港航天员首次飞天，不仅是黎家盈个人的圆梦时刻，更是内地与港澳携手遨游“星辰大海”的又一见证。
 
-”中华体育精神大讲堂上，韩晓鹏坦言，刚开始练滑雪时，面对的是从未接触过的项目。
+国家航天事业的发展，始终得到香港同胞的关心、支持和热情参与。
 
-“最难的是空中翻转，要在几秒内完成助滑、起跳、翻转、落地等一系列动作，稍有不慎就会重重摔在雪地上。
+自2021年中国人首次进入自己的空间站后，他们对“香港航天员何时也能飞向太空”的期盼日益强烈。
 
-在日复一日的训练中，慢慢摸到了滑雪的门道。
+2022年9月，中国第四批预备航天员选拔全面启动，并首次面向港澳地区选拔载荷专家。
 
-”韩晓鹏说。
+2024年5月，第四批航天员选拔工作完成，共有10名预备航天员最终入选，黎家盈跻身其中。
 
-韩晓鹏讲述了2006年都灵冬奥会夺冠的高光时刻。
+入选前，黎家盈在香港特别行政区政府警务处工作。
 
 ## 相关推荐
 
-- 2026-06-29 18:46 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 18:39 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 18:57 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 18:42 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 18:49 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 18:56 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 18:41 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 18:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 18:48 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 19:05 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 18:53 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 19:10 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 18:53 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 19:11 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 18:48 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 18:59 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 19:08 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 19:05 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 19:07 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 19:05 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 19:02 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 19:01 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:40 - [毒液2](https://www.share.minike.top/Article/details/5564862.shtml)
-- 2026-06-29 18:55 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/889743.shtml)
-- 2026-06-29 18:45 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/357917872671.shtml)
-- 2026-06-29 18:42 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/57134157.shtml)
-- 2026-06-29 18:57 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/05621.shtml)
-- 2026-06-29 19:05 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/30412.shtml)
-- 2026-06-29 18:51 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/166757965.shtml)
-- 2026-06-29 18:39 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/0785872.shtml)
-- 2026-06-29 18:51 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/338198.shtml)
-- 2026-06-29 18:41 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/475590873.shtml)
-- 2026-06-29 18:56 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/05671321.shtml)
-- 2026-06-29 18:47 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/7220295422.shtml)
-- 2026-06-29 18:57 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/14167.shtml)
-- 2026-06-29 18:48 - [存储三巨头被告了](https://www.share.minike.top/Article/details/995409112.shtml)
-- 2026-06-29 18:45 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/476475857.shtml)
+- 2026-06-29 18:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/032785610.shtml)
+- 2026-06-29 18:58 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/55408146566.shtml)
+- 2026-06-29 18:58 - [当我回母校教书](https://www.share.minike.top/Article/details/590606.shtml)
+- 2026-06-29 18:57 - [谢依霖夸杨幂靠谱](http://www.share.kurohicncr.top/Article/details/12610.shtml)
+- 2026-06-29 18:46 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/740643585022.shtml)
+- 2026-06-29 18:54 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/5726058444.shtml)
+- 2026-06-29 18:48 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/02931718739.shtml)
+- 2026-06-29 19:00 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/578398594579.shtml)
+- 2026-06-29 19:00 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/870382.shtml)
+- 2026-06-29 18:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/995740009361.shtml)
+- 2026-06-29 18:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/9070080492.shtml)
+- 2026-06-29 18:59 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/706745772381.shtml)
+- 2026-06-29 19:05 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.kurohicncr.top/Article/details/86742.shtml)
+- 2026-06-29 19:04 - [请回答王牌2019](http://www.blog.minike.top/Article/details/78877126411.shtml)
+- 2026-06-29 18:51 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/75557.shtml)

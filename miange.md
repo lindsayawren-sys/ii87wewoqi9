@@ -1,58 +1,49 @@
-# 中东变天！霍尔木兹海峡即将重开，油价暴跌之后，现在能抄底吗？
+# 美国假日出行高峰临近 高油价下的需求即将接受考验
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-来源：汇通网 汇通财经APP讯——周一（6月15日）亚洲时段早盘，WTI原油价格大幅下跌近5%至81美元下方，最低触及80.25美元/桶，为4月17日以来新低，目前交投于80.90美元/桶，跌幅约4.78%。 特朗普宣布已与伊朗达成协议，美国将解除对伊朗的海上封锁。不过，特朗普同时强调，若伊朗未能与美国达成最终核协议，他将恢复对德黑兰的军事打击。 美伊达成和平协议，霍尔木兹海峡
+美国航空集团（AAL）在达拉斯-沃斯堡机场为阵亡将士纪念日的大量客流做准备。美国汽车协会数据显示，全美平均汽油价格已达每加仑4.56美元，为四年来该周末的最高水平，可能抑制部分出行需求。责任编辑：张俊 SF065
 
 ## 正文
 
-来源：汇通网 汇通财经APP讯——周一（6月15日）亚洲时段早盘，WTI原油价格大幅下跌近5%至81美元下方，最低触及80.25美元/桶，为4月17日以来新低，目前交投于80.90美元/桶，跌幅约4.78%。
+美国航空集团（AAL）在达拉斯-沃斯堡机场为阵亡将士纪念日的大量客流做准备。
 
-特朗普宣布已与伊朗达成协议，美国将解除对伊朗的海上封锁。
+美国汽车协会数据显示，全美平均汽油价格已达每加仑4.56美元，为四年来该周末的最高水平，可能抑制部分出行需求。
 
-不过，特朗普同时强调，若伊朗未能与美国达成最终核协议，他将恢复对德黑兰的军事打击。
-
-美伊达成和平协议，霍尔木兹海峡即将开放 据巴基斯坦总理夏巴兹·谢里夫周日透露，美国与伊朗已正式达成和平协议，双方宣布自即日起，包括黎巴嫩战线在内的所有军事行动将立即且永久停止。
-
-这一表态标志着持续近四个月的伊美冲突迎来重大转机，中东地区紧张局势有望显著缓和。
-
-随后，美国总统特朗普在社交媒体平台Truth Social上发文确认了这一进展。
-
-特朗普表示：“与伊朗伊斯兰共和国的协议现已完成。
-
-”他同时宣布，已完全授权霍尔木兹海峡免费开放，并命令美国海军立即解除对伊朗的海上封锁。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 18:54 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 18:50 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 18:42 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 18:47 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 18:41 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 18:44 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 18:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 18:37 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 19:04 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 18:46 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 18:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 18:39 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 18:59 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 19:02 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 19:05 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 19:01 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 18:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 18:47 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 18:53 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 18:49 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 19:11 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 19:04 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 19:07 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 18:51 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 18:58 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/30276318.shtml)
-- 2026-06-29 18:57 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/87852578.shtml)
-- 2026-06-29 19:03 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/2961419655.shtml)
-- 2026-06-29 18:57 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/88381849.shtml)
-- 2026-06-29 19:02 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.minike.top/Article/details/85057388.shtml)
-- 2026-06-29 18:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/19111.shtml)
-- 2026-06-29 18:45 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/164345.shtml)
-- 2026-06-29 18:44 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/648521.shtml)
-- 2026-06-29 19:04 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/79815637.shtml)
-- 2026-06-29 18:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/591721.shtml)
-- 2026-06-29 18:59 - [首个靠AI躺赢的国家](https://www.blog.minike.top/Article/details/69437043700.shtml)
-- 2026-06-29 18:44 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/3930018378.shtml)
-- 2026-06-29 18:37 - [河南高院审委会原委员曲海滨被查](http://www.blog.minike.top/Article/details/87844.shtml)
-- 2026-06-29 18:58 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/74397009882.shtml)
-- 2026-06-29 18:39 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/861741.shtml)
+- 2026-06-29 18:56 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/811002.shtml)
+- 2026-06-29 19:11 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/268060028238.shtml)
+- 2026-06-29 18:50 - [扫黑风暴](https://www.share.minike.top/Article/details/687841.shtml)
+- 2026-06-29 19:11 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/8951352752.shtml)
+- 2026-06-29 18:48 - [速度与激情9](http://www.share.minike.top/Article/details/26501.shtml)
+- 2026-06-29 19:05 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/5212212.shtml)
+- 2026-06-29 19:02 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/90905457.shtml)
+- 2026-06-29 18:55 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.minike.top/Article/details/621795.shtml)
+- 2026-06-29 18:53 - [速度与激情9](https://www.share.minike.top/Article/details/8553526193.shtml)
+- 2026-06-29 18:44 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/34170.shtml)
+- 2026-06-29 18:57 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/09608832811.shtml)
+- 2026-06-29 18:54 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/82086.shtml)
+- 2026-06-29 18:53 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/27421235816.shtml)
+- 2026-06-29 19:09 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/4504212495.shtml)
+- 2026-06-29 18:42 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/6767451.shtml)

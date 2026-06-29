@@ -1,58 +1,56 @@
-# （活力中国调研行）中国“超级X光机”助力破解关键技术难题
+# 泛大湾区交通行业可信数据空间联盟在广州成立
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-中新网北京6月13日电 (记者 杜燕 李梦 贾天勇)中国科学院高能物理研究所副所长、HEPS常务副总指挥董宇辉13日在北京表示，高能同步辐射光源自2025年12月正式试运行以来，截至今年4月底已支持近300个课题研究，吸引1000余名来访用户；计划今年年中完成国家验收后正式运行。 当日，记者随2026年“活力中国调研行”北京主题采访活动走进位于怀柔科学城的中国科学院高能物理研究
+中新网广州5月23日电 (记者 蔡敏婕)泛大湾区交通行业可信数据空间联盟23日在广州成立。该联盟汇聚广东、湖南、广西、福建、江西、海南六省区60余家单位，旨在打破省界数据壁垒，在安全合规前提下推动跨省(区)出行信息实时共享与预警响应协同，从根本上解决信息不连贯、标准不统一等长期影响公众出行的痛点问题。 该联盟由广东省交通集团、湖南省高速公路集团、交通运输部路网监测与应急处置中心
 
 ## 正文
 
-中新网北京6月13日电 (记者 杜燕 李梦 贾天勇)中国科学院高能物理研究所副所长、HEPS常务副总指挥董宇辉13日在北京表示，高能同步辐射光源自2025年12月正式试运行以来，截至今年4月底已支持近300个课题研究，吸引1000余名来访用户；计划今年年中完成国家验收后正式运行。
+中新网广州5月23日电 (记者 蔡敏婕)泛大湾区交通行业可信数据空间联盟23日在广州成立。
 
-当日，记者随2026年“活力中国调研行”北京主题采访活动走进位于怀柔科学城的中国科学院高能物理研究所，探访中国第一台高能量的第四代同步辐射光源——高能同步辐射光源(HEPS)。
+该联盟汇聚广东、湖南、广西、福建、江西、海南六省区60余家单位，旨在打破省界数据壁垒，在安全合规前提下推动跨省(区)出行信息实时共享与预警响应协同，从根本上解决信息不连贯、标准不统一等长期影响公众出行的痛点问题。
 
-董宇辉表示，形象来讲，HEPS就是一台巨大的X光机。
+该联盟由广东省交通集团、湖南省高速公路集团、交通运输部路网监测与应急处置中心共同发起。
 
-“我们建造一个加速器，把电子加速到非常接近光速，然后让电子发生偏转，发出很亮的X光，然后用这些X光来开展各种各样的测试”。
+据了解，泛大湾区跨省出行需求旺盛。
 
-HEPS是破解“卡脖子”技术难题、驱动原始创新的“微观眼睛”和“国之重器”，为航空航天、能源环境、生物医药等前沿科学和工程应用等多领域提供高品质的X光。
+官方数据显示，广东省高速公路每日产生交通数据超2.5亿条，节假日跨省日高峰车流超70万辆次。
 
-例如，在高铁领域，HEPS能够给车轮做残余应力无损表征，在不损伤车轮的情况下测试其内部残余应力状态，为保障列车安全运行提供依据。
+但是，各省交通数据标准不一、系统互不兼容，存在堵点、卡点。
 
-HEPS已成为多学科交叉创新的重要平台。
+联盟将扮演“连接器”和“共识推动者”的关键角色，在安全合规前提下，推动区域内高速公路关键数据的可信共享，逐步构建覆盖泛大湾区的“交通数据流通空间”，破解“数据孤岛”难题。
 
-现场，北京大学助理教授、博雅青年学者鞠光旭实验团队正在进行24小时不间断、需持续三天的多学科交叉前沿实验。
+据了解，联盟将通过可信技术实现区域内高速公路、主干道实时车流、事故、施工、天气等多源数据的安全汇聚。
 
 ## 相关推荐
 
-- 2026-06-29 19:00 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 18:50 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 18:40 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 18:59 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 18:37 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 18:56 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 19:04 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 18:44 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 19:04 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 18:46 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 19:05 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 18:51 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 18:45 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 19:03 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 18:51 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 18:48 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 18:51 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 18:44 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 18:42 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 18:49 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 19:06 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 18:57 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:46 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/01962.shtml)
-- 2026-06-29 18:40 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/153387.shtml)
-- 2026-06-29 18:56 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/9250660.shtml)
-- 2026-06-29 18:53 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/2425945981.shtml)
-- 2026-06-29 18:46 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/8755117264.shtml)
-- 2026-06-29 18:55 - [朱必达辞去湖南人大常委会委员职务](https://www.share.minike.top/Article/details/097121.shtml)
-- 2026-06-29 19:01 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/758361108686.shtml)
-- 2026-06-29 18:40 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.minike.top/Article/details/33308925291.shtml)
-- 2026-06-29 19:01 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/7103372.shtml)
-- 2026-06-29 18:41 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/0838102408.shtml)
-- 2026-06-29 18:41 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/20633.shtml)
-- 2026-06-29 19:01 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/364024444035.shtml)
-- 2026-06-29 18:40 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/344307.shtml)
-- 2026-06-29 18:48 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/37342.shtml)
-- 2026-06-29 18:46 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/0789451651.shtml)
+- 2026-06-29 19:08 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/342869100142.shtml)
+- 2026-06-29 18:51 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/06577524.shtml)
+- 2026-06-29 18:49 - [世界杯在中国观看最多的比赛](http://www.blog.minike.top/Article/details/1350023.shtml)
+- 2026-06-29 18:42 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.kurohicncr.top/Article/details/94913190.shtml)
+- 2026-06-29 18:46 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/407380933299.shtml)
+- 2026-06-29 19:10 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/26103695.shtml)
+- 2026-06-29 18:44 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/188882021937.shtml)
+- 2026-06-29 19:11 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.minike.top/Article/details/60118822.shtml)
+- 2026-06-29 18:58 - [金刚川](http://www.share.kurohicncr.top/Article/details/553043973.shtml)
+- 2026-06-29 19:01 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/56462113.shtml)
+- 2026-06-29 18:48 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/31063.shtml)
+- 2026-06-29 18:49 - [王俊凯命名方式](http://www.share.kurohicncr.top/Article/details/0212803006.shtml)
+- 2026-06-29 18:50 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/76576658.shtml)
+- 2026-06-29 18:46 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/490596.shtml)
+- 2026-06-29 18:46 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/02730.shtml)

@@ -1,59 +1,56 @@
-# 一线调研丨算力网织就数字经济新底座
+# 伊朗战事冲击侨汇与外贸，印度就业引擎承压
 
-> 更新时间：2026-06-29 19:06:02 UTC+8
+> 更新时间：2026-06-29 19:12:02 UTC+8
 
 ## 摘要
 
-人工智能爆发式增长，对算力需求正呈现出指数级攀升。如何让用算力也像用水电一样既普惠又方便？一张互联互通的全国一体化算力网，正从无到有，不断生长起来。来看记者的一线调研。 记者来到北京人工智能公共算力中心时，工作人员正忙着为企业匹配算力。调度平台上的两个数字，引起了记者的注意。 京能数产技术负责人 田鹏伟：你看这条线，我们的算力峰值利用率现在快冲到100%了。我们可以从内蒙古、宁
+中东战争重创印度两大就业支柱产业，致使大批务工人员从海湾国家返乡，同时该国皮具、玻璃制品等制成品出口需求大幅萎缩。 数十年来，赴中东务工、鞋服等劳动密集型产品海外订单，为一代代印度人带来稳定收入，不少从业者薪资待遇十分可观。 如今这场海外冲突对印度经济形成双重打击。返乡务工人员在本土难以找到同等薪资的工作，失业人数攀升，社会动荡风险随之加剧。 穆罕默德・库雷希此前在沙特一家珠宝
 
 ## 正文
 
-人工智能爆发式增长，对算力需求正呈现出指数级攀升。
+中东战争重创印度两大就业支柱产业，致使大批务工人员从海湾国家返乡，同时该国皮具、玻璃制品等制成品出口需求大幅萎缩。
 
-如何让用算力也像用水电一样既普惠又方便？
+数十年来，赴中东务工、鞋服等劳动密集型产品海外订单，为一代代印度人带来稳定收入，不少从业者薪资待遇十分可观。
 
-一张互联互通的全国一体化算力网，正从无到有，不断生长起来。
+如今这场海外冲突对印度经济形成双重打击。
 
-来看记者的一线调研。
+返乡务工人员在本土难以找到同等薪资的工作，失业人数攀升，社会动荡风险随之加剧。
 
-记者来到北京人工智能公共算力中心时，工作人员正忙着为企业匹配算力。
+穆罕默德・库雷希此前在沙特一家珠宝店工作，月收入约 3 万卢比（折合 311 美元），攒下积蓄购置小屋，还为妹妹筹备了婚礼。
 
-调度平台上的两个数字，引起了记者的注意。
+受伊朗战争影响，他重返海湾务工的计划落空。
 
-京能数产技术负责人 田鹏伟：你看这条线，我们的算力峰值利用率现在快冲到100%了。
+这名 32 岁男子如今在坎普尔亲戚的茶摊打工，收入仅为从前的三分之一。
 
-我们可以从内蒙古、宁夏这些节点给北京调算力，这会儿的调度率几乎是100%，也就是说能调的基本调完了。
+他与母亲、姐姐同住，期盼局势好转后再度出海务工。
 
 ## 相关推荐
 
-- 2026-06-29 18:39 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 18:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 18:57 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 18:48 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 18:46 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 18:40 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 18:54 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 18:42 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 18:50 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 18:39 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 18:43 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 19:03 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 19:00 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 18:54 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 18:58 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 19:05 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 18:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 19:01 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 19:09 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 19:07 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 18:57 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 19:00 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 19:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:58 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/147297594.shtml)
-- 2026-06-29 18:45 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/21471542.shtml)
-- 2026-06-29 19:05 - [沙丘](https://www.blog.minike.top/Article/details/5174382099.shtml)
-- 2026-06-29 19:03 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/818528741787.shtml)
-- 2026-06-29 18:46 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/6261728739.shtml)
-- 2026-06-29 19:05 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/82023298.shtml)
-- 2026-06-29 18:44 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/0431109.shtml)
-- 2026-06-29 18:58 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/901393352.shtml)
-- 2026-06-29 18:51 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/491905836782.shtml)
-- 2026-06-29 18:45 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/02121.shtml)
-- 2026-06-29 19:05 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/54845896.shtml)
-- 2026-06-29 18:42 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/0803041836.shtml)
-- 2026-06-29 18:54 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/445179661.shtml)
-- 2026-06-29 18:44 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/9547694475.shtml)
-- 2026-06-29 18:36 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/3768086.shtml)
+- 2026-06-29 18:42 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/86409.shtml)
+- 2026-06-29 18:58 - [逃狱兄弟](https://www.share.minike.top/Article/details/147371.shtml)
+- 2026-06-29 18:50 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/12160.shtml)
+- 2026-06-29 19:01 - [大马同意延长马航370残骸搜寻工作](https://www.blog.minike.top/Article/details/8358948.shtml)
+- 2026-06-29 18:50 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/50909.shtml)
+- 2026-06-29 18:45 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.kurohicncr.top/Article/details/36896061.shtml)
+- 2026-06-29 19:00 - [扬名立万](http://www.blog.minike.top/Article/details/70196898449.shtml)
+- 2026-06-29 19:11 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/615362163587.shtml)
+- 2026-06-29 19:05 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/792937252060.shtml)
+- 2026-06-29 18:51 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/055866.shtml)
+- 2026-06-29 18:56 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/16958.shtml)
+- 2026-06-29 19:06 - [金刚川](http://www.blog.kurohicncr.top/Article/details/7417145.shtml)
+- 2026-06-29 18:52 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/332896.shtml)
+- 2026-06-29 19:08 - [《新闻联播》正在直播](https://www.share.minike.top/Article/details/7586117768.shtml)
+- 2026-06-29 18:47 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/19940.shtml)
